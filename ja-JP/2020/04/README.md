@@ -4,3 +4,4 @@
 202004051500|CastleDay|｢姫路城と桜｣兵庫, 姫路 (© Tororo/GettyImages)|今日は｢城の日｣|![](/ja-JP/2020/04/202004051500CastleDay.jpg)|
 202004061500|TakeCastle|｢雲海の竹田城跡｣兵庫, 朝来市 (© Yu Kodama/Getty Images)|日本のマチュピチュ|![](/ja-JP/2020/04/202004061500TakeCastle.jpg)|
 202004071500|KissimmeeFrog|｢アメリカアマガエルと睡蓮の花｣米国フロリダ州, キシミー湖  (© Joanne Williams/Danita Delimont)|今日は｢灌仏会｣|![](/ja-JP/2020/04/202004071500KissimmeeFrog.jpg)|
+202004081500|UnicornoftheSea|｢イッカクの群れ｣カナダ, バフィン島 (© Eric Baccega/MindenPictures)|今日は｢ユニコーンの日｣|![](/ja-JP/2020/04/202004081500UnicornoftheSea.jpg)|
