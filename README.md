@@ -1,6 +1,8 @@
 # bing images
 ![GitHub repo size](https://img.shields.io/github/repo-size/aburrido/bing)
-
+![GitHub commit activity](https://img.shields.io/github/commit-activity/m/aburrido/bing)
+![GitHub last commit](https://img.shields.io/github/last-commit/aburrido/bing)
+![GitHub actions](https://github.com/aburrido/bing/workflows/bing%20image/badge.svg)
 |![](/en-AU.jpg)|![](/ja-JP.jpg)|![](/zh-CN.jpg)|![](/en-IN.jpg)|![](/fr-FR.jpg)|
 |--|--|--|--|--|
 |Australia|Japan|China|India|France|
