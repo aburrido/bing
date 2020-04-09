@@ -3,6 +3,9 @@
 ![GitHub commit activity](https://img.shields.io/github/commit-activity/m/aburrido/bing)
 ![GitHub last commit](https://img.shields.io/github/last-commit/aburrido/bing)
 ![GitHub actions](https://github.com/aburrido/bing/workflows/bing%20image/badge.svg)
+  
+[![](https://data.jsdelivr.com/v1/package/gh/aburrido/bing/badge)](https://www.jsdelivr.com/package/gh/aburrido/bing)
+https://cdn.jsdelivr.net/gh/aburrido/bing/
 |![](/en-AU.jpg)|![](/ja-JP.jpg)|![](/zh-CN.jpg)|![](/en-IN.jpg)|![](/fr-FR.jpg)|
 |--|--|--|--|--|
 |Australia|Japan|China|India|France|
