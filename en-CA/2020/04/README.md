@@ -5,3 +5,4 @@
 202004060400|VanCherryBlossom|Cherry Blossom trees in Vancouver (© Bun Lee/Getty Images)|Pink and white beauties|![](/en-CA/2020/04/202004060400VanCherryBlossom.jpg)|
 202004070400|PinkMoon|The April full moon, or pink moon, rises over St. Michael's Mount, Cornwall, England (© Simon Maycock/Alamy Live News)|Once in a pink moon|![](/en-CA/2020/04/202004070400PinkMoon.jpg)|
 202004080400|SantoriniAerial|Aerial view of Santorini island, Greece (© Amazing Aerial Agency/Offset)|Santorini through the clouds|![](/en-CA/2020/04/202004080400SantoriniAerial.jpg)|
+202004090400|UnicornoftheSea|A pod of narwhals near Baffin Island, Nunavut (© Eric Baccega/Minden Pictures)|Hooray, hooray, it's Unicorn Day!|![](/en-CA/2020/04/202004090400UnicornoftheSea.jpg)|
