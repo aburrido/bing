@@ -6,3 +6,4 @@
 202004062200|PinkMoon|La pleine lune d’avril, ou lune rose, se lève au-dessus du St. Michael's Mount, Cornouailles, Angleterre (© Simon Maycock/Alamy Live News)|Spectacle lunaire|![](/fr-FR/2020/04/202004062200PinkMoon.jpg)|
 202004072200|SantoriniAerial|Vue aérienne de Santorin, Grèce (© Amazing Aerial Agency/Offset)|Une île de beauté|![](/fr-FR/2020/04/202004072200SantoriniAerial.jpg)|
 202004082200|UnicornoftheSea|Un banc de narvals près de l’île de Baffin, Nunavut, Canada (© Eric Baccega/MindenPictures)|Des sous-marins à lance ?|![](/fr-FR/2020/04/202004082200UnicornoftheSea.jpg)|
+202004092200|SpiritSiblings|Deux oursons Kermode dans la forêt pluviale de Great Bear, Canada (© Ian Mcallister/Offset)|Jeux de mains…|![](/fr-FR/2020/04/202004092200SpiritSiblings.jpg)|
