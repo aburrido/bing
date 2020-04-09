@@ -6,3 +6,4 @@
 202004062300|WordsworthDaffodils|Daffodils in Dora’s Field, Rydal, Lake District (© Simon Whaley Landscapes/Alamy Stock Photo)|Dancing with daffodils|![](/en-GB/2020/04/202004062300WordsworthDaffodils.jpg)|
 202004072300|PinkMoon|The April full moon, or pink moon, rises over St Michael's Mount, Cornwall (© Simon Maycock/Alamy Live News)|Once in a pink moon|![](/en-GB/2020/04/202004072300PinkMoon.jpg)|
 202004082300|UnicornoftheSea|A pod of narwhals near Baffin Island, Nunavut, Canada (© Eric Baccega/Minden Pictures)|Unicorns of the sea|![](/en-GB/2020/04/202004082300UnicornoftheSea.jpg)|
+202004092300|SpiritSiblings|A Kermode bear cub huddling with its sibling in Canada's Great Bear Rainforest, British Columbia (© Ian McAllister/Offset)|Brotherly cubs|![](/en-GB/2020/04/202004092300SpiritSiblings.jpg)|
