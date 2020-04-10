@@ -16,11 +16,11 @@
 
 [![](https://data.jsdelivr.com/v1/package/gh/aburrido/bing/badge)](https://cdn.jsdelivr.net/gh/aburrido/bing/)
 
-|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/en-AU.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/ja-JP.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/zh-CN.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/en-IN.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-FR.jpg)|
+|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-AU.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/ja-JP.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/zh-CN.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-IN.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-FR.jpg)|
 |--|--|--|--|--|
 |Australia|Japan|China|India|France|
 |UTC+9.30|UTC+9|UTC+8|UTC+5.30|UTC+2|
-|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/de-DE.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/en-GB.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/en-CA.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-CA.jpg)|![](//cdn.jsdelivr.net/gh/aburrido/bing@latest/en-US.jpg)|
+|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/de-DE.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-GB.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-CA.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-CA.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-US.jpg)|
 |Germany|United Kingdom|Canada|Canada|United States|
 |UTC+2|UTC+1|UTC-4|UTC-4|UTC-7|
 
