@@ -7,3 +7,4 @@
 202004072200|SantoriniAerial|Vue aérienne de Santorin, Grèce (© Amazing Aerial Agency/Offset)|Une île de beauté|![](/fr-FR/2020/04/202004072200SantoriniAerial.jpg)|
 202004082200|UnicornoftheSea|Un banc de narvals près de l’île de Baffin, Nunavut, Canada (© Eric Baccega/MindenPictures)|Des sous-marins à lance ?|![](/fr-FR/2020/04/202004082200UnicornoftheSea.jpg)|
 202004092200|SpiritSiblings|Deux oursons Kermode dans la forêt pluviale de Great Bear, Canada (© Ian Mcallister/Offset)|Jeux de mains…|![](/fr-FR/2020/04/202004092200SpiritSiblings.jpg)|
+202004102200|LasMedulasMine|Las Médulas, ancienne mine d’or de l’Empire romain, León, Espagne (© DEEPOL by plainpicture/David Santiago Garcia)|Une vue en or|![](/fr-FR/2020/04/202004102200LasMedulasMine.jpg)|

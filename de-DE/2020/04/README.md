@@ -7,3 +7,4 @@
 202004072200|SantoriniAerial|Luftaufnahme der Insel Santorin, Griechenland (© Amazing Aerial Agency/Offset)|Santorin durch Wolken|![](/de-DE/2020/04/202004072200SantoriniAerial.jpg)|
 202004082200|ButterflyPair|Schachbrett-Schmetterlingspaar (Melanargia galathea), Elsass, Frankreich (© Eric Ferry/Minden Pictures)|Füreinander geschaffen|![](/de-DE/2020/04/202004082200ButterflyPair.jpg)|
 202004092200|SpiritSiblings|Ein Kermodebär-Junges mit seinem Geschwisterchen im Great Bear Rainforest in Kanada (© Ian Mcallister/Offset)|Geschwister unter sich|![](/de-DE/2020/04/202004092200SpiritSiblings.jpg)|
+202004102200|LasMedulasMine|Antike römische Goldmine Las Médulas, León, Spanien (© DEEPOL by plainpicture/David Santiago Garcia)|Goldene Zeiten|![](/de-DE/2020/04/202004102200LasMedulasMine.jpg)|
