@@ -6,3 +6,4 @@
 202004071400|PinkMoon|The April full moon, or pink moon, rises over St Michael's Mount, Cornwall, England (© Simon Maycock/Alamy Live News)|Once in a pink moon|![](/en-AU/2020/04/202004071400PinkMoon.jpg)|
 202004081400|UnicornoftheSea|A pod of narwhals near Baffin Island, Nunavut, Canada (© Eric Baccega/Minden Pictures)|Hooray, hooray, it's Unicorn Day!|![](/en-AU/2020/04/202004081400UnicornoftheSea.jpg)|
 202004091400|SpiritSiblings|A Kermode bear cub huddling with its sibling in Canada's Great Bear Rainforest, British Columbia (© Ian McAllister/Offset)|Brotherly cubs|![](/en-AU/2020/04/202004091400SpiritSiblings.jpg)|
+202004101400|LasMedulasMine|Ancient Roman gold mining site of Las Médulas, León, Spain (© DEEPOL by plainpicture/David Santiago Garcia)|Roman treasure|![](/en-AU/2020/04/202004101400LasMedulasMine.jpg)|
