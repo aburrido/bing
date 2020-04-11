@@ -7,3 +7,4 @@
 202004081500|UnicornoftheSea|｢イッカクの群れ｣カナダ, バフィン島 (© Eric Baccega/MindenPictures)|今日は｢ユニコーンの日｣|![](/ja-JP/2020/04/202004081500UnicornoftheSea.jpg)|
 202004091500|PhillisWheatley|｢ボストン女性記念碑」米国マサチューセッツ州 (© Education Images/UIG via Getty Images)|今日は「女性の日」|![](/ja-JP/2020/04/202004091500PhillisWheatley.jpg)|
 202004101500|SpiritSiblings|｢アメリカグマの兄弟」カナダ, グレートベア・レインフォレスト (© Ian Mcallister/Offset)|森の妖精たち|![](/ja-JP/2020/04/202004101500SpiritSiblings.jpg)|
+202004111500|EastereggsBerlin|｢イースターの飾り｣ドイツ, ベルリン (© plainpicture/Christian Reister)|今日は｢イースター｣！|![](/ja-JP/2020/04/202004111500EastereggsBerlin.jpg)|
