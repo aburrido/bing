@@ -7,3 +7,4 @@
 202004080400|SantoriniAerial|Aerial view of Santorini island, Greece (© Amazing Aerial Agency/Offset)|Santorini through the clouds|![](/en-CA/2020/04/202004080400SantoriniAerial.jpg)|
 202004090400|UnicornoftheSea|A pod of narwhals near Baffin Island, Nunavut (© Eric Baccega/Minden Pictures)|Hooray, hooray, it's Unicorn Day!|![](/en-CA/2020/04/202004090400UnicornoftheSea.jpg)|
 202004100400|SpiritSiblings|A Kermode bear cub huddling with its sibling in Great Bear Rainforest, B.C. (© Ian Mcallister/Offset)|Brotherly cubs|![](/en-CA/2020/04/202004100400SpiritSiblings.jpg)|
+202004110400|LasMedulasMine|Ancient Roman gold mining site of Las Médulas, León, Spain (© DEEPOL by plainpicture/David Santiago Garcia)|Roman treasure|![](/en-CA/2020/04/202004110400LasMedulasMine.jpg)|
