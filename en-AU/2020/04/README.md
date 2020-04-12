@@ -8,3 +8,4 @@
 202004091400|SpiritSiblings|A Kermode bear cub huddling with its sibling in Canada's Great Bear Rainforest, British Columbia (© Ian McAllister/Offset)|Brotherly cubs|![](/en-AU/2020/04/202004091400SpiritSiblings.jpg)|
 202004101400|LasMedulasMine|Ancient Roman gold mining site of Las Médulas, León, Spain (© DEEPOL by plainpicture/David Santiago Garcia)|Roman treasure|![](/en-AU/2020/04/202004101400LasMedulasMine.jpg)|
 202004111400|EastereggsBerlin|Easter decorations at Alexanderplatz, Berlin (© plainpicture/Christian Reister)|Easter Egg-stravaganza|![](/en-AU/2020/04/202004111400EastereggsBerlin.jpg)|
+202004121400|WatChaloem|Floating temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|The Land of Smiles|![](/en-AU/2020/04/202004121400WatChaloem.jpg)|
