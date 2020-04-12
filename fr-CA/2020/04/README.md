@@ -8,3 +8,4 @@
 202004090400|UnicornoftheSea|Un groupe de narvals près de l'île de Baffin, au Nunavut (© Eric Baccega/Minden Pictures)||![](/fr-CA/2020/04/202004090400UnicornoftheSea.jpg)|
 202004100400|SpiritSiblings|Un ourson Kermode blotti avec son frère dans la Forêt Pluviale de Great Bear, en Colombie-Britannique (© Ian McAllister/Offset)||![](/fr-CA/2020/04/202004100400SpiritSiblings.jpg)|
 202004110400|LasMedulasMine|Ancien site minier aurifère romain de Las Médulas, León, Espagne (© DEEPOL by plainpicture/David Santiago Garcia)||![](/fr-CA/2020/04/202004110400LasMedulasMine.jpg)|
+202004120400|EastereggsBerlin|Décoration de Pâques à Alexanderplatz, Berlin (© plainpicture/Christian Reister)||![](/fr-CA/2020/04/202004120400EastereggsBerlin.jpg)|
