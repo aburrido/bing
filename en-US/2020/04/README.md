@@ -8,3 +8,4 @@
 202004090700|UnicornoftheSea|A pod of narwhals near Baffin Island, Nunavut, Canada (© Eric Baccega/Minden Pictures)|Hooray, hooray, it's Unicorn Day!|![](/en-US/2020/04/202004090700UnicornoftheSea.jpg)|
 202004100700|SpiritSiblings|Kermode bear cub siblings huddling in Canada's Great Bear Rainforest, British Columbia (© Ian McAllister/Offset)|Brotherly cubs|![](/en-US/2020/04/202004100700SpiritSiblings.jpg)|
 202004110700|USSDRUM|Forward engine room of the USS Drum, a Gato-class submarine at Battleship Memorial Park, Mobile, Alabama (© Warren Weinstein/Getty Images)|Think deep thoughts|![](/en-US/2020/04/202004110700USSDRUM.jpg)|
+202004120700|EuropeanRabbitGreeting|European rabbit kit greeting its parent, France (© Remy Courseaux/Minden Pictures)|Who created the Easter Bunny?|![](/en-US/2020/04/202004120700EuropeanRabbitGreeting.jpg)|
