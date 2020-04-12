@@ -8,3 +8,4 @@
 202004091830|SpiritSiblings|A Kermode bear cub huddling with its sibling in Canada's Great Bear Rainforest, British Columbia, Canada (© Ian McAllister/Offset)|Brotherly cubs|![](/en-IN/2020/04/202004091830SpiritSiblings.jpg)|
 202004101830|BWFlipper|Pantropical spotted dolphins off the coast of Ixtapa, Mexico (© Christian Vizl/Tandem Stills + Motion)|Dolphins off the Mexican coast|![](/en-IN/2020/04/202004101830BWFlipper.jpg)|
 202004111830|EastereggsBerlin|Easter decorations at Alexanderplatz, Berlin (© plainpicture/Christian Reister)|Its time to colour some eggs!|![](/en-IN/2020/04/202004111830EastereggsBerlin.jpg)|
+202004121830|WatChaloem|Floating temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|Floating temples in the Land of Smiles|![](/en-IN/2020/04/202004121830WatChaloem.jpg)|
