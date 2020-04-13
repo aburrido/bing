@@ -9,3 +9,4 @@
 202004101600|LasMedulasMine|拉斯梅德拉斯的古罗马金矿遗址，西班牙莱昂 (© DEEPOL by plainpicture/David Santiago Garcia)||![](/zh-CN/2020/04/202004101600LasMedulasMine.jpg)|
 202004111600|EastereggsBerlin|柏林亚历山大广场的复活节装饰 (© plainpicture/Christian Reister)||![](/zh-CN/2020/04/202004111600EastereggsBerlin.jpg)|
 202004121600|WatChaloem|Wat Chaloem Phra Kiat Phrachomklao Rachanusorn的浮庙，泰国南邦 (© pa_YON/Getty Images)||![](/zh-CN/2020/04/202004121600WatChaloem.jpg)|
+202004131600|BWFlipper|伊斯塔帕海岸的热带斑海豚，墨西哥 (© Christian Vizl/Tandem Stills + Motion)||![](/zh-CN/2020/04/202004131600BWFlipper.jpg)|
