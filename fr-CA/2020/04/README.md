@@ -9,3 +9,4 @@
 202004100400|SpiritSiblings|Un ourson Kermode blotti avec son frère dans la Forêt Pluviale de Great Bear, en Colombie-Britannique (© Ian McAllister/Offset)||![](/fr-CA/2020/04/202004100400SpiritSiblings.jpg)|
 202004110400|LasMedulasMine|Ancien site minier aurifère romain de Las Médulas, León, Espagne (© DEEPOL by plainpicture/David Santiago Garcia)||![](/fr-CA/2020/04/202004110400LasMedulasMine.jpg)|
 202004120400|EastereggsBerlin|Décoration de Pâques à Alexanderplatz, Berlin (© plainpicture/Christian Reister)||![](/fr-CA/2020/04/202004120400EastereggsBerlin.jpg)|
+202004130400|WatChaloem|Temples flottants de Wat Chaloem Phra Kiat Phrachomklao Rachanusorn dans la province de Lampang, Thaïlande (© pa_YON/Getty Images)||![](/fr-CA/2020/04/202004130400WatChaloem.jpg)|
