@@ -9,3 +9,4 @@
 202004101500|SpiritSiblings|｢アメリカグマの兄弟」カナダ, グレートベア・レインフォレスト (© Ian Mcallister/Offset)|森の妖精たち|![](/ja-JP/2020/04/202004101500SpiritSiblings.jpg)|
 202004111500|EastereggsBerlin|｢イースターの飾り｣ドイツ, ベルリン (© plainpicture/Christian Reister)|今日は｢イースター｣！|![](/ja-JP/2020/04/202004111500EastereggsBerlin.jpg)|
 202004121500|WatChaloem|｢ワット・プラプッタバート・スッターワート｣タイ, ラムパーン県 (© pa_YON/Getty Images)|タイの天空の寺院|![](/ja-JP/2020/04/202004121500WatChaloem.jpg)|
+202004131500|BWFlipper|｢水中のマダライルカ｣メキシコ, イスタパ沖 (© Christian Vizl/Tandem Stills + Motion)|今日は｢世界イルカの日｣|![](/ja-JP/2020/04/202004131500BWFlipper.jpg)|
