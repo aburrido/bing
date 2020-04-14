@@ -11,3 +11,4 @@
 202004112200|EuropeanRabbits|Junge Wildkaninchen (© Remy Courseaux/Minden Pictures)|Drei auf einen Streich|![](/de-DE/2020/04/202004112200EuropeanRabbits.jpg)|
 202004122200|EastereggsBerlin|Osterdekoration am Alexanderplatz, Berlin, Deutschland (© plainpicture/Christian Reister)|Frohe Ostern!|![](/de-DE/2020/04/202004122200EastereggsBerlin.jpg)|
 202004132200|BWFlipper|Schlankdelfine vor der Küste von Ixtapa, Zihuatanejo, Mexiko (© Christian Vizl/Tandem Stills + Motion)|Ein Tag für die Delfine|![](/de-DE/2020/04/202004132200BWFlipper.jpg)|
+202004142200|FataMorgana|Die Künstlerin Laura Buckley in ihrer Videoinstallation „Fata Morgana“, Saatchi Gallery, London, Vereinigtes Königreich (© Stephen Chung/Alamy)|Kunst und Seele|![](/de-DE/2020/04/202004142200FataMorgana.jpg)|
