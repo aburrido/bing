@@ -10,3 +10,4 @@
 202004110400|LasMedulasMine|Ancient Roman gold mining site of Las Médulas, León, Spain (© DEEPOL by plainpicture/David Santiago Garcia)|Roman treasure|![](/en-CA/2020/04/202004110400LasMedulasMine.jpg)|
 202004120400|EastereggsBerlin|Easter decorations at Alexanderplatz, Berlin (© plainpicture/Christian Reister)|Happy Easter!|![](/en-CA/2020/04/202004120400EastereggsBerlin.jpg)|
 202004130400|WatChaloem|Floating temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|Floating temples in the Land of Smiles|![](/en-CA/2020/04/202004130400WatChaloem.jpg)|
+202004140400|BWFlipper|Pantropical spotted dolphins off the coast of Ixtapa, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for the dolphins|![](/en-CA/2020/04/202004140400BWFlipper.jpg)|
