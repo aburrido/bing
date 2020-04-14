@@ -11,3 +11,4 @@
 202004112300|EastereggsBerlin|Easter decorations at Alexanderplatz, Berlin, Germany (© plainpicture/Christian Reister)|Easter Egg-stravaganza|![](/en-GB/2020/04/202004112300EastereggsBerlin.jpg)|
 202004122300|WatChaloem|Temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|Floating temples|![](/en-GB/2020/04/202004122300WatChaloem.jpg)|
 202004132300|BWFlipper|Pantropical spotted dolphins off the coast of Ixtapa, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for dolphins|![](/en-GB/2020/04/202004132300BWFlipper.jpg)|
+202004142300|FataMorgana|Artist Laura Buckley with her video installation Fata Morgana, Saatchi Gallery, London (© Stephen Chung/Alamy)|Art and soul|![](/en-GB/2020/04/202004142300FataMorgana.jpg)|
