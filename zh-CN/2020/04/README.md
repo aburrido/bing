@@ -12,3 +12,4 @@
 202004131600|BWFlipper|伊斯塔帕海岸的热带斑海豚，墨西哥 (© Christian Vizl/Tandem Stills + Motion)||![](/zh-CN/2020/04/202004131600BWFlipper.jpg)|
 ||||![](/zh-CN/2020/04/.jpg)|
 202004141600|HimachalFalls|Bhagsu的热带瀑布，印度喜马偕尔邦 (© f9photos/iStock/Getty Images Plus)||![](/zh-CN/2020/04/202004141600HimachalFalls.jpg)|
+202004151600|NBNMSipapu|天生桥国家保护区中的sipapu桥，犹他州 (© Fyletto/Getty Images)||![](/zh-CN/2020/04/202004151600NBNMSipapu.jpg)|
