@@ -12,3 +12,4 @@
 202004122200|WatChaloem|Temple flottants de Wat Chaloem Phra Kiat Phrachomklao Rachanusorn dans la province de Lampang, Thaïlande (© pa_YON/Getty Images)|En haut de la colline|![](/fr-FR/2020/04/202004122200WatChaloem.jpg)|
 202004132200|BWFlipper|Dauphins tachetés pantropicaux au large de la côte d’Ixtapa, Mexique (© Christian Vizl/Tandem Stills + Motion)|Sous l’océan|![](/fr-FR/2020/04/202004132200BWFlipper.jpg)|
 202004142200|FataMorgana|L’artiste Laura Buckley dans son installation “Fata Morgana”, Galerie Saatchi, Londres (© Stephen Chung/Alamy)|Miroir, mon beau miroir|![](/fr-FR/2020/04/202004142200FataMorgana.jpg)|
+202004152200|NBNMSipapu|Le pont Sipapu dans le Natural Bridges National Monument, Utah, États-Unis (© Fyletto/Getty Images)|Par ici !|![](/fr-FR/2020/04/202004152200NBNMSipapu.jpg)|

@@ -12,3 +12,4 @@
 202004122200|EastereggsBerlin|Osterdekoration am Alexanderplatz, Berlin, Deutschland (© plainpicture/Christian Reister)|Frohe Ostern!|![](/de-DE/2020/04/202004122200EastereggsBerlin.jpg)|
 202004132200|BWFlipper|Schlankdelfine vor der Küste von Ixtapa, Zihuatanejo, Mexiko (© Christian Vizl/Tandem Stills + Motion)|Ein Tag für die Delfine|![](/de-DE/2020/04/202004132200BWFlipper.jpg)|
 202004142200|FataMorgana|Die Künstlerin Laura Buckley in ihrer Videoinstallation „Fata Morgana“, Saatchi Gallery, London, Vereinigtes Königreich (© Stephen Chung/Alamy)|Kunst und Seele|![](/de-DE/2020/04/202004142200FataMorgana.jpg)|
+202004152200|NBNMSipapu|Sipapu Bridge im Natural Bridges National Monument, Utah, USA (© Fyletto/Getty Images)|Brücken in die Vergangenheit|![](/de-DE/2020/04/202004152200NBNMSipapu.jpg)|
