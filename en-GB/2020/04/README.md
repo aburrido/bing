@@ -12,3 +12,4 @@
 202004122300|WatChaloem|Temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|Floating temples|![](/en-GB/2020/04/202004122300WatChaloem.jpg)|
 202004132300|BWFlipper|Pantropical spotted dolphins off the coast of Ixtapa, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for dolphins|![](/en-GB/2020/04/202004132300BWFlipper.jpg)|
 202004142300|FataMorgana|Artist Laura Buckley with her video installation Fata Morgana, Saatchi Gallery, London (© Stephen Chung/Alamy)|Art and soul|![](/en-GB/2020/04/202004142300FataMorgana.jpg)|
+202004152300|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah, USA (© Fyletto/Getty Images)|Bridges to the past|![](/en-GB/2020/04/202004152300NBNMSipapu.jpg)|
