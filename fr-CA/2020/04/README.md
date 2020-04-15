@@ -11,3 +11,4 @@
 202004120400|EastereggsBerlin|Décoration de Pâques à Alexanderplatz, Berlin (© plainpicture/Christian Reister)||![](/fr-CA/2020/04/202004120400EastereggsBerlin.jpg)|
 202004130400|WatChaloem|Temples flottants de Wat Chaloem Phra Kiat Phrachomklao Rachanusorn dans la province de Lampang, Thaïlande (© pa_YON/Getty Images)||![](/fr-CA/2020/04/202004130400WatChaloem.jpg)|
 202004140400|BWFlipper|Dauphins tachetés pantropicaux au large des côtes d'Ixtapa, Mexique (© Christian Vizl/Tandem Stills + Motion)||![](/fr-CA/2020/04/202004140400BWFlipper.jpg)|
+202004150400|BlackcombSki|Station de ski Whistler Blackcomb, Whistler, Colombie-Britannique (© Ben Girardi/Cavan)||![](/fr-CA/2020/04/202004150400BlackcombSki.jpg)|
