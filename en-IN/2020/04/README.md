@@ -11,3 +11,4 @@
 202004121830|WatChaloem|Floating temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|Floating temples in the Land of Smiles|![](/en-IN/2020/04/202004121830WatChaloem.jpg)|
 202004131830|AmbedkarPillars|Multi-pillar canopy and main dome of the Ambedkar Stupa, Uttar Pradesh (© Amlan Mathur/Shutterstock)|In remembrance of Dr. Ambedkar|![](/en-IN/2020/04/202004131830AmbedkarPillars.jpg)|
 202004141830|HimachalFalls|Bhagsu waterfalls in the Dharamsala region, Himachal (© f9photos/iStock/Getty Images Plus)|The beautiful McLeod Ganj|![](/en-IN/2020/04/202004141830HimachalFalls.jpg)|
+202004151830|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah, USA (© Fyletto/Getty Images)|Bridges to the past|![](/en-IN/2020/04/202004151830NBNMSipapu.jpg)|
