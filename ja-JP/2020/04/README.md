@@ -12,3 +12,4 @@
 202004131500|BWFlipper|｢水中のマダライルカ｣メキシコ, イスタパ沖 (© Christian Vizl/Tandem Stills + Motion)|今日は｢世界イルカの日｣|![](/ja-JP/2020/04/202004131500BWFlipper.jpg)|
 202004141500|FataMorgana|｢Fata Morgana｣ロンドン,　サーチ・ギャラリー (© Stephen Chung/Alamy)|今日は｢世界芸術の日｣|![](/ja-JP/2020/04/202004141500FataMorgana.jpg)|
 202004151500|NBNMSipapu|｢ナチュラルブリッジ国定公園｣米国ユタ州 (© Fyletto/Getty Images)|今日はこの自然公園の誕生日|![](/ja-JP/2020/04/202004151500NBNMSipapu.jpg)|
+202004161500|AlgonquinGrouse|｢エリマキライチョウ｣カナダ, オンタリオ州 (© Jim Cumming/Getty Images)|カナダの野鳥|![](/ja-JP/2020/04/202004161500AlgonquinGrouse.jpg)|
