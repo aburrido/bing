@@ -12,3 +12,4 @@
 202004130700|WatChaloem|Floating temples of Wat Chaloem Phra Kiat Phrachomklao Rachanusorn in Lampang province, Thailand (© pa_YON/Getty Images)|Floating temples in the Land of Smiles|![](/en-US/2020/04/202004130700WatChaloem.jpg)|
 202004140700|BWFlipper|Pantropical spotted dolphins off the coast of Ixtapa, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for the dolphins|![](/en-US/2020/04/202004140700BWFlipper.jpg)|
 202004150700|FataMorgana|Artist Laura Buckley with her mixed-media sculpture 'Fata Morgana,' Saatchi Gallery, London (© Stephen Chung/Alamy)|Art and soul|![](/en-US/2020/04/202004150700FataMorgana.jpg)|
+202004160700|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah (© Fyletto/Getty Images)|Bridges to the past|![](/en-US/2020/04/202004160700NBNMSipapu.jpg)|
