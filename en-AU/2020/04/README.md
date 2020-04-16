@@ -12,3 +12,4 @@
 202004131400|BWFlipper|Pantropical spotted dolphins off the coast of Ixtapa, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for dolphins|![](/en-AU/2020/04/202004131400BWFlipper.jpg)|
 202004141400|FataMorgana|Artist Laura Buckley with her video installation 'Fata Morgana', Saatchi Gallery, London (© Stephen Chung/Alamy)|Art and soul|![](/en-AU/2020/04/202004141400FataMorgana.jpg)|
 202004151400|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah (© Fyletto/Getty Images)|Bridges to the past|![](/en-AU/2020/04/202004151400NBNMSipapu.jpg)|
+202004161400|AlgonquinGrouse|Ruffed grouse in Algonquin Provincial Park, Ontario, Canada (© Jim Cumming/Getty Images)|Posing tall and strong|![](/en-AU/2020/04/202004161400AlgonquinGrouse.jpg)|
