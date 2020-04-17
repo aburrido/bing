@@ -14,3 +14,4 @@
 202004141600|HimachalFalls|Bhagsu的热带瀑布，印度喜马偕尔邦 (© f9photos/iStock/Getty Images Plus)||![](/zh-CN/2020/04/202004141600HimachalFalls.jpg)|
 202004151600|NBNMSipapu|天生桥国家保护区中的sipapu桥，犹他州 (© Fyletto/Getty Images)||![](/zh-CN/2020/04/202004151600NBNMSipapu.jpg)|
 202004161600|AlgonquinGrouse|阿尔冈金省立公园中一只正在树枝上休息的披肩鸡 ，加拿大安大略省 (© Jim Cumming/Getty Images)||![](/zh-CN/2020/04/202004161600AlgonquinGrouse.jpg)|
+202004171600|VernalFalls|优胜美地国家公园中的春季瀑布 (© elvistudio/Shutterstock)||![](/zh-CN/2020/04/202004171600VernalFalls.jpg)|
