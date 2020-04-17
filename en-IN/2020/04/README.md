@@ -13,3 +13,4 @@
 202004141830|HimachalFalls|Bhagsu waterfalls in the Dharamsala region, Himachal (© f9photos/iStock/Getty Images Plus)|The beautiful McLeod Ganj|![](/en-IN/2020/04/202004141830HimachalFalls.jpg)|
 202004151830|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah, USA (© Fyletto/Getty Images)|Bridges to the past|![](/en-IN/2020/04/202004151830NBNMSipapu.jpg)|
 202004161830|AlgonquinGrouse|Ruffed grouse in Algonquin Provincial Park, Ontario, Canada (© Jim Cumming/Getty Images)|Posing tall and strong|![](/en-IN/2020/04/202004161830AlgonquinGrouse.jpg)|
+202004171830|VernalFalls|Vernal Fall in Yosemite National Park, California, USA (© elvistudio/Shutterstock)|US National Parks Week begins|![](/en-IN/2020/04/202004171830VernalFalls.jpg)|
