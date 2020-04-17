@@ -14,3 +14,4 @@
 202004142200|FataMorgana|L’artiste Laura Buckley dans son installation “Fata Morgana”, Galerie Saatchi, Londres (© Stephen Chung/Alamy)|Miroir, mon beau miroir|![](/fr-FR/2020/04/202004142200FataMorgana.jpg)|
 202004152200|NBNMSipapu|Le pont Sipapu dans le Natural Bridges National Monument, Utah, États-Unis (© Fyletto/Getty Images)|Par ici !|![](/fr-FR/2020/04/202004152200NBNMSipapu.jpg)|
 202004162200|AlgonquinGrouse|Gélinottes huppée sur une branche dans le parc provincial Algonquin, Ontario, Canada (© Jim Cumming/Getty Images)|Huppée !|![](/fr-FR/2020/04/202004162200AlgonquinGrouse.jpg)|
+202004172200|VernalFalls|Chute Vernal dans le parc national de Yosemite, États-Unis (© elvistudio/Shtterstock)|Qui a laissé le robinet ouvert ?|![](/fr-FR/2020/04/202004172200VernalFalls.jpg)|
