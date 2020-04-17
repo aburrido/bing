@@ -13,3 +13,4 @@
 202004140400|BWFlipper|Dauphins tachetés pantropicaux au large des côtes d'Ixtapa, Mexique (© Christian Vizl/Tandem Stills + Motion)||![](/fr-CA/2020/04/202004140400BWFlipper.jpg)|
 202004150400|BlackcombSki|Station de ski Whistler Blackcomb, Whistler, Colombie-Britannique (© Ben Girardi/Cavan)||![](/fr-CA/2020/04/202004150400BlackcombSki.jpg)|
 202004160400|NBNMSipapu|Pont Sipapu à Natural Bridges National Monument, Utah (© Fyletto/Getty Images)||![](/fr-CA/2020/04/202004160400NBNMSipapu.jpg)|
+202004170400|AlgonquinGrouse|Gélinotte huppée reposant sur une branche dans le parc provincial Algonquin, Ontario (© Jim Cumming/Getty Images)||![](/fr-CA/2020/04/202004170400AlgonquinGrouse.jpg)|
