@@ -14,3 +14,4 @@
 202004150700|FataMorgana|Artist Laura Buckley with her mixed-media sculpture 'Fata Morgana,' Saatchi Gallery, London (© Stephen Chung/Alamy)|Art and soul|![](/en-US/2020/04/202004150700FataMorgana.jpg)|
 202004160700|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah (© Fyletto/Getty Images)|Bridges to the past|![](/en-US/2020/04/202004160700NBNMSipapu.jpg)|
 202004170700|AlgonquinGrouse|Ruffed grouse in Algonquin Provincial Park, Ontario, Canada (© Jim Cumming/Getty Images)|It's a ruff life|![](/en-US/2020/04/202004170700AlgonquinGrouse.jpg)|
+202004180700|VernalFalls|Vernal Fall in Yosemite National Park, California (© elvistudio/Shutterstock)|National Park Week begins|![](/en-US/2020/04/202004180700VernalFalls.jpg)|
