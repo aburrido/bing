@@ -15,3 +15,4 @@
 202004152300|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah, USA (© Fyletto/Getty Images)|Bridges to the past|![](/en-GB/2020/04/202004152300NBNMSipapu.jpg)|
 202004162300|BluebellWood|Bluebells in Micheldever Wood, Hampshire (© Hursley/Getty Images Plus)|Bluebell haze|![](/en-GB/2020/04/202004162300BluebellWood.jpg)|
 202004172300|VernalFalls|Vernal Fall in Yosemite National Park, California, USA (© elvistudio/Shutterstock)|In full flow|![](/en-GB/2020/04/202004172300VernalFalls.jpg)|
+202004182300|NeistPoint|Milky Way over Neist Point Lighthouse, Isle of Skye, Scotland (© Shaiith/Getty Images)|Step into the dark|![](/en-GB/2020/04/202004182300NeistPoint.jpg)|
