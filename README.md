@@ -14,7 +14,7 @@
 |UTC+2|UTC+1|UTC-4|UTC-4|UTC-7|
 
 
-[![](https://data.jsdelivr.com/v1/package/gh/aburrido/bing/badge)](https://cdn.jsdelivr.net/gh/aburrido/bing/)
+[![](https://data.jsdelivr.com/v1/package/gh/aburrido/bing/badge)](https://www.jsdelivr.com/package/gh/aburrido/bing)
 
 |![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-AU.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/ja-JP.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/zh-CN.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-IN.jpg)|![](https://cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-FR.jpg)|
 |--|--|--|--|--|
