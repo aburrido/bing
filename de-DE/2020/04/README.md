@@ -15,3 +15,4 @@
 202004152200|NBNMSipapu|Sipapu Bridge im Natural Bridges National Monument, Utah, USA (© Fyletto/Getty Images)|Brücken in die Vergangenheit|![](/de-DE/2020/04/202004152200NBNMSipapu.jpg)|
 202004162200|AlgonquinGrouse|Ein Kragenhuhn im Algonquin Provincial Park, Ontario, Kanada (© Jim Cumming/Getty Images)|Posieren für die Kamera|![](/de-DE/2020/04/202004162200AlgonquinGrouse.jpg)|
 202004172200|VernalFalls|Vernal Fall im Yosemite-Nationalpark, Kalifornien, USA (© elvistudio/Shtterstock)|Freier Fall|![](/de-DE/2020/04/202004172200VernalFalls.jpg)|
+202004182200|NeistPoint|Die Milchstraße über dem Leuchtturm Neist Point, Isle of Skye, Schottland, Vereinigtes Königreich (© Shaiith/Getty Images)|Betreten Sie die Dunkelheit|![](/de-DE/2020/04/202004182200NeistPoint.jpg)|

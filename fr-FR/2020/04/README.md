@@ -15,3 +15,4 @@
 202004152200|NBNMSipapu|Le pont Sipapu dans le Natural Bridges National Monument, Utah, États-Unis (© Fyletto/Getty Images)|Par ici !|![](/fr-FR/2020/04/202004152200NBNMSipapu.jpg)|
 202004162200|AlgonquinGrouse|Gélinottes huppée sur une branche dans le parc provincial Algonquin, Ontario, Canada (© Jim Cumming/Getty Images)|Huppée !|![](/fr-FR/2020/04/202004162200AlgonquinGrouse.jpg)|
 202004172200|VernalFalls|Chute Vernal dans le parc national de Yosemite, États-Unis (© elvistudio/Shtterstock)|Qui a laissé le robinet ouvert ?|![](/fr-FR/2020/04/202004172200VernalFalls.jpg)|
+202004182200|NeistPoint|La voie lactée au-dessus du phare de Neist, île de Skye, Écosse (© Shaiith/Getty Images)|Torrent d’étoiles|![](/fr-FR/2020/04/202004182200NeistPoint.jpg)|
