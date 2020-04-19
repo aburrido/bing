@@ -16,3 +16,4 @@
 202004162200|AlgonquinGrouse|Gélinottes huppée sur une branche dans le parc provincial Algonquin, Ontario, Canada (© Jim Cumming/Getty Images)|Huppée !|![](/fr-FR/2020/04/202004162200AlgonquinGrouse.jpg)|
 202004172200|VernalFalls|Chute Vernal dans le parc national de Yosemite, États-Unis (© elvistudio/Shtterstock)|Qui a laissé le robinet ouvert ?|![](/fr-FR/2020/04/202004172200VernalFalls.jpg)|
 202004182200|NeistPoint|La voie lactée au-dessus du phare de Neist, île de Skye, Écosse (© Shaiith/Getty Images)|Torrent d’étoiles|![](/fr-FR/2020/04/202004182200NeistPoint.jpg)|
+202004192200|GardenHolland|Keukenhof à Lisse, Pays-Bas (© Jim Zuckerman/Getty Images)|Chemin de fleurs mauves|![](/fr-FR/2020/04/202004192200GardenHolland.jpg)|

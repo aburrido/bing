@@ -16,3 +16,4 @@
 202004162200|AlgonquinGrouse|Ein Kragenhuhn im Algonquin Provincial Park, Ontario, Kanada (© Jim Cumming/Getty Images)|Posieren für die Kamera|![](/de-DE/2020/04/202004162200AlgonquinGrouse.jpg)|
 202004172200|VernalFalls|Vernal Fall im Yosemite-Nationalpark, Kalifornien, USA (© elvistudio/Shtterstock)|Freier Fall|![](/de-DE/2020/04/202004172200VernalFalls.jpg)|
 202004182200|NeistPoint|Die Milchstraße über dem Leuchtturm Neist Point, Isle of Skye, Schottland, Vereinigtes Königreich (© Shaiith/Getty Images)|Betreten Sie die Dunkelheit|![](/de-DE/2020/04/202004182200NeistPoint.jpg)|
+202004192200|GardenHolland|Die Gartenanlage Keukenhof in Lisse, Provinz Südholland, Niederlande (© Jim Zuckerman/Getty Images)|Im „Garten Europas“|![](/de-DE/2020/04/202004192200GardenHolland.jpg)|
