@@ -15,3 +15,4 @@
 202004160400|NBNMSipapu|Sipapu Bridge in Natural Bridges National Monument, Utah (© Fyletto/Getty Images)|Bridges to the past|![](/en-CA/2020/04/202004160400NBNMSipapu.jpg)|
 202004170400|AlgonquinGrouse|Ruffed grouse resting on a branch in Algonquin Provincial Park, Ont. (© Jim Cumming/Getty Images)|Posing tall and strong|![](/en-CA/2020/04/202004170400AlgonquinGrouse.jpg)|
 202004180400|VernalFalls|Vernal Fall in Yosemite National Park, California (© elvistudio/Shutterstock)|Majestic natural beauty|![](/en-CA/2020/04/202004180400VernalFalls.jpg)|
+202004190400|NeistPoint|Milky Way over Neist Point Lighthouse, Isle of Skye, Scotland (© Shaiith/Getty Images)|Step into the dark|![](/en-CA/2020/04/202004190400NeistPoint.jpg)|
