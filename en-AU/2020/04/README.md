@@ -15,3 +15,4 @@
 202004161400|AlgonquinGrouse|Ruffed grouse in Algonquin Provincial Park, Ontario, Canada (© Jim Cumming/Getty Images)|Posing tall and strong|![](/en-AU/2020/04/202004161400AlgonquinGrouse.jpg)|
 202004171400|VernalFalls|Vernal Fall in Yosemite National Park, California (© elvistudio/Shutterstock)|Yosemite in full flow|![](/en-AU/2020/04/202004171400VernalFalls.jpg)|
 202004181400|NeistPoint|Milky Way over Neist Point Lighthouse, Isle of Skye, Scotland (© Shaiith/Getty Images)|Step into the dark|![](/en-AU/2020/04/202004181400NeistPoint.jpg)|
+202004191400|GardenHolland|Keukenhof in Lisse, Netherlands (© Jim Zuckerman/Getty Images)|In the Garden of Europe|![](/en-AU/2020/04/202004191400GardenHolland.jpg)|
