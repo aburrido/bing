@@ -17,3 +17,4 @@
 202004171600|VernalFalls|优胜美地国家公园中的春季瀑布 (© elvistudio/Shutterstock)||![](/zh-CN/2020/04/202004171600VernalFalls.jpg)|
 202004181600|NeistPoint|内斯特角灯塔上空的银河 ，苏格兰斯凯岛 (© Shaiith/Getty Images)||![](/zh-CN/2020/04/202004181600NeistPoint.jpg)|
 202004191600|BluebellWood|Micheldever Wood的蓝铃花，英国汉普郡 (© Hursley/Getty Images Plus)||![](/zh-CN/2020/04/202004191600BluebellWood.jpg)|
+202004201600|GPS|黄石国家公园的大棱镜泉，怀俄明州 (© Martin Rügner/DEEPOL by plainpicture)||![](/zh-CN/2020/04/202004201600GPS.jpg)|
