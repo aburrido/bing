@@ -16,3 +16,4 @@
 202004171830|VernalFalls|Vernal Fall in Yosemite National Park, California, USA (© elvistudio/Shutterstock)|US National Parks Week begins|![](/en-IN/2020/04/202004171830VernalFalls.jpg)|
 202004181830|NeistPoint|Milky Way over Neist Point Lighthouse, Isle of Skye, Scotland (© Shaiith/Getty Images)|Step into the dark|![](/en-IN/2020/04/202004181830NeistPoint.jpg)|
 202004191830|GardenHolland|Keukenhof in Lisse, Netherlands (© Jim Zuckerman/Getty Images)|In the 'Garden of Europe'|![](/en-IN/2020/04/202004191830GardenHolland.jpg)|
+202004201830|GPS|The Grand Prismatic Spring in Yellowstone National Park, Wyoming, USA (© Martin Rügner/DEEPOL by plainpicture)|Colours spring up in Yellowstone|![](/en-IN/2020/04/202004201830GPS.jpg)|
