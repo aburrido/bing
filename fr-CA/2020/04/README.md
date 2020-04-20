@@ -16,3 +16,4 @@
 202004170400|AlgonquinGrouse|Gélinotte huppée reposant sur une branche dans le parc provincial Algonquin, Ontario (© Jim Cumming/Getty Images)||![](/fr-CA/2020/04/202004170400AlgonquinGrouse.jpg)|
 202004180400|VernalFalls|VernalFall dans le parc national de Yosemite (© elvistudio/Shutterstock)||![](/fr-CA/2020/04/202004180400VernalFalls.jpg)|
 202004190400|NeistPoint|Voie lactée sur le phare de Neist Point, île de Skye, Écosse (© Shaiith/Getty Images)||![](/fr-CA/2020/04/202004190400NeistPoint.jpg)|
+202004200400|HimachalFalls|Cascade tropicale. Bhagsu, Himachal Pradesh, Inde (© f9photos/iStock/Getty Images Plus)||![](/fr-CA/2020/04/202004200400HimachalFalls.jpg)|
