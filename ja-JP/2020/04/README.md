@@ -16,3 +16,4 @@
 202004171500|VernalFalls|｢バーナル滝｣米国カリフォルニア州, ヨセミテ国立公園 (© elvistudio/Shtterstock)|米国の世界遺産|![](/ja-JP/2020/04/202004171500VernalFalls.jpg)|
 202004181500|KokuField|｢白米千枚田の夕日｣石川, 輪島市 (©  M Andy/Shutterstock)|今日は｢穀雨｣|![](/ja-JP/2020/04/202004181500KokuField.jpg)|
 202004191500|LasMedulasMine|｢ラス・メドゥラス｣スペイン, レオン (© DEEPOL by plainpicture/David Santiago Garcia)|スペインの世界遺産|![](/ja-JP/2020/04/202004191500LasMedulasMine.jpg)|
+202004201500|GPS|｢グランド・プリズマティック・スプリング」米国ワイオミング州 (© Darrenp/Shutterstock)|米国の世界遺産|![](/ja-JP/2020/04/202004201500GPS.jpg)|
