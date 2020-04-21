@@ -17,3 +17,4 @@
 202004181830|NeistPoint|Milky Way over Neist Point Lighthouse, Isle of Skye, Scotland (© Shaiith/Getty Images)|Step into the dark|![](/en-IN/2020/04/202004181830NeistPoint.jpg)|
 202004191830|GardenHolland|Keukenhof in Lisse, Netherlands (© Jim Zuckerman/Getty Images)|In the 'Garden of Europe'|![](/en-IN/2020/04/202004191830GardenHolland.jpg)|
 202004201830|GPS|The Grand Prismatic Spring in Yellowstone National Park, Wyoming, USA (© Martin Rügner/DEEPOL by plainpicture)|Colours spring up in Yellowstone|![](/en-IN/2020/04/202004201830GPS.jpg)|
+202004211830|KauriTree|Te Matua Ngahere, a giant kauri tree growing in Waipoua Forest, Northland, New Zealand (© Kim Westerskov/Getty Images)|50 years of Earth Day|![](/en-IN/2020/04/202004211830KauriTree.jpg)|
