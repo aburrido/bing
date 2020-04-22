@@ -18,3 +18,4 @@
 202004191830|GardenHolland|Keukenhof in Lisse, Netherlands (© Jim Zuckerman/Getty Images)|In the 'Garden of Europe'|![](/en-IN/2020/04/202004191830GardenHolland.jpg)|
 202004201830|GPS|The Grand Prismatic Spring in Yellowstone National Park, Wyoming, USA (© Martin Rügner/DEEPOL by plainpicture)|Colours spring up in Yellowstone|![](/en-IN/2020/04/202004201830GPS.jpg)|
 202004211830|KauriTree|Te Matua Ngahere, a giant kauri tree growing in Waipoua Forest, Northland, New Zealand (© Kim Westerskov/Getty Images)|50 years of Earth Day|![](/en-IN/2020/04/202004211830KauriTree.jpg)|
+202004221830|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Duck, duck. duck, duck, duck...|![](/en-IN/2020/04/202004221830KingEider.jpg)|
