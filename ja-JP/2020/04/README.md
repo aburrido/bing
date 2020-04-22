@@ -18,3 +18,4 @@
 202004191500|LasMedulasMine|｢ラス・メドゥラス｣スペイン, レオン (© DEEPOL by plainpicture/David Santiago Garcia)|スペインの世界遺産|![](/ja-JP/2020/04/202004191500LasMedulasMine.jpg)|
 202004201500|GPS|｢グランド・プリズマティック・スプリング」米国ワイオミング州 (© Darrenp/Shutterstock)|米国の世界遺産|![](/ja-JP/2020/04/202004201500GPS.jpg)|
 202004211500|KauriTree|｢テ・マツア・ナヘレ｣ニュージーランド,ワイポウア森林保護区  (© Kim Westerskov/Getty Images)|今日は｢アースデイ｣50周年|![](/ja-JP/2020/04/202004211500KauriTree.jpg)|
+202004221500|KingEider|｢ケワタガモのオス｣ノルウェー, トロムス・オ・フィンマルク (© Pal Hermansen/Minden Pictures)|北欧の野鳥|![](/ja-JP/2020/04/202004221500KingEider.jpg)|
