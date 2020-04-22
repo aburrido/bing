@@ -19,3 +19,4 @@
 202004191600|BluebellWood|Micheldever Wood的蓝铃花，英国汉普郡 (© Hursley/Getty Images Plus)||![](/zh-CN/2020/04/202004191600BluebellWood.jpg)|
 202004201600|GPS|黄石国家公园的大棱镜泉，怀俄明州 (© Martin Rügner/DEEPOL by plainpicture)||![](/zh-CN/2020/04/202004201600GPS.jpg)|
 202004211600|KauriTree|怀波瓦森林中一棵名为Te Matua Ngahere的巨型贝壳杉树 ，新西兰北地 (© Kim Westerskov/Getty Images)||![](/zh-CN/2020/04/202004211600KauriTree.jpg)|
+202004221600|KingEider|正在游水的雄性王绒鸭，挪威特罗姆斯-芬马克郡 (© Pal Hermansen/Minden Pictures)||![](/zh-CN/2020/04/202004221600KingEider.jpg)|
