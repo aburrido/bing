@@ -19,3 +19,4 @@
 202004192200|GardenHolland|Die Gartenanlage Keukenhof in Lisse, Provinz Südholland, Niederlande (© Jim Zuckerman/Getty Images)|Im „Garten Europas“|![](/de-DE/2020/04/202004192200GardenHolland.jpg)|
 202004202200|GPS|Grand Prismatic Spring im Yellowstone-Nationalpark, Wyoming, USA (© Martin Rügner/DEEPOL by plainpicture)|Farbenspiele in Wyoming|![](/de-DE/2020/04/202004202200GPS.jpg)|
 202004212200|KauriTree|Te Matua Ngahere, ein riesiger Kauri-Baum im Waipoua Forest, Northland Region, Neuseeland (© Kim Westerskov/Getty Images)|50 Jahre „Tag der Erde“|![](/de-DE/2020/04/202004212200KauriTree.jpg)|
+202004222200|EgloffsteinBarock|Barockgarten in Egloffstein, Bayern, Deutschland (© Rüdiger Hess/geo-select FotoArt)|Ein Hauch von Barock in Oberfranken|![](/de-DE/2020/04/202004222200EgloffsteinBarock.jpg)|
