@@ -20,3 +20,4 @@
 202004202300|GPS|The Grand Prismatic Spring in Yellowstone National Park, Wyoming, USA (© Martin Rügner/DEEPOL by plainpicture)|Colours spring up in Yellowstone|![](/en-GB/2020/04/202004202300GPS.jpg)|
 202004212300|KauriTree|Te Matua Ngahere, a giant kauri tree growing in Waipoua Forest, Northland, New Zealand (© Kim Westerskov/Getty Images)|50 years of Earth Day|![](/en-GB/2020/04/202004212300KauriTree.jpg)|
 202004222300|GeorgeDragon|Monument to St George and the Dragon at sunset, Moscow, Russia (© Protasov AN/Shutterstock)|Happy St George's Day|![](/en-GB/2020/04/202004222300GeorgeDragon.jpg)|
+202004232300|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of stellar images|![](/en-GB/2020/04/202004232300MegellanicCloud.jpg)|
