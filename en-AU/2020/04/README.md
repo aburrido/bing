@@ -19,3 +19,4 @@
 202004201400|SummerStorm|Summer storm from City Beach, Perth (© JohnCrux/Getty Images)|Thunderbolt and lightning…|![](/en-AU/2020/04/202004201400SummerStorm.jpg)|
 202004211400|KauriTree|Te Matua Ngahere, a giant kauri tree growing in Waipoua Forest, Northland, New Zealand (© Kim Westerskov/Getty Images)|50 years of Earth Day|![](/en-AU/2020/04/202004211400KauriTree.jpg)|
 202004221400|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Duck, duck. duck, duck, duck...|![](/en-AU/2020/04/202004221400KingEider.jpg)|
+202004231400|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-AU/2020/04/202004231400MegellanicCloud.jpg)|
