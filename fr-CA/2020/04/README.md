@@ -19,3 +19,4 @@
 202004200400|HimachalFalls|Cascade tropicale. Bhagsu, Himachal Pradesh, Inde (© f9photos/iStock/Getty Images Plus)||![](/fr-CA/2020/04/202004200400HimachalFalls.jpg)|
 202004210400|GPS|Le grand printemps prismatique dans le parc national de Yellowstone, Wyoming (© Martin Rügner/DEEPOL by plainpicture)||![](/fr-CA/2020/04/202004210400GPS.jpg)|
 202004220400|KauriTree|Te Matua Ngahere, un arbre géant kauri poussant dans la forêt de Waipoua, Northland, Nouvelle-Zélande (© Kim Westerskov/Getty Images)||![](/fr-CA/2020/04/202004220400KauriTree.jpg)|
+202004230400|KingEider|Eider à tête grise mâle nageant dans Troms og Finnmark, Norvège (© Pal Hermansen/Minden Pictures)||![](/fr-CA/2020/04/202004230400KingEider.jpg)|
