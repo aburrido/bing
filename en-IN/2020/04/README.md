@@ -19,3 +19,4 @@
 202004201830|GPS|The Grand Prismatic Spring in Yellowstone National Park, Wyoming, USA (© Martin Rügner/DEEPOL by plainpicture)|Colours spring up in Yellowstone|![](/en-IN/2020/04/202004201830GPS.jpg)|
 202004211830|KauriTree|Te Matua Ngahere, a giant kauri tree growing in Waipoua Forest, Northland, New Zealand (© Kim Westerskov/Getty Images)|50 years of Earth Day|![](/en-IN/2020/04/202004211830KauriTree.jpg)|
 202004221830|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Duck, duck. duck, duck, duck...|![](/en-IN/2020/04/202004221830KingEider.jpg)|
+202004231830|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-IN/2020/04/202004231830MegellanicCloud.jpg)|
