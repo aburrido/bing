@@ -21,3 +21,4 @@
 202004212200|KauriTree|Te Matua Ngahere, un kaori géant dans la forêt Waipoua, île du nord, Nouvelle-Zélande (© Kim Westerskov/Getty Images)|Grand-père feuillage|![](/fr-FR/2020/04/202004212200KauriTree.jpg)|
 202004222200|KingEider|Eider royaux mâles nageant dans le comté de Troms og Finnmark, Norvège (© Pal Hermansen/Minden Pictures)|Coin coin|![](/fr-FR/2020/04/202004222200KingEider.jpg)|
 202004232200|MegellanicCloud|Le Grand Nuage de Magellan, photographié par le télescope spatial Hubble (© ESA/Hubble/NASA)|Mystères de l’univers|![](/fr-FR/2020/04/202004232200MegellanicCloud.jpg)|
+202004242200|FalklandRockhoppers|Pingouins Gorfous sauteurs sur les îles Malouines (© Heike Odermatt/Minden Pictures)|« Cheese ! »|![](/fr-FR/2020/04/202004242200FalklandRockhoppers.jpg)|
