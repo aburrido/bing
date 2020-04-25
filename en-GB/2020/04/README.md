@@ -22,3 +22,4 @@
 202004222300|GeorgeDragon|Monument to St George and the Dragon at sunset, Moscow, Russia (© Protasov AN/Shutterstock)|Happy St George's Day|![](/en-GB/2020/04/202004222300GeorgeDragon.jpg)|
 202004232300|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of stellar images|![](/en-GB/2020/04/202004232300MegellanicCloud.jpg)|
 202004242300|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-GB/2020/04/202004242300FalklandRockhoppers.jpg)|
+202004252300|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state, USA (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-GB/2020/04/202004252300RubySunset.jpg)|
