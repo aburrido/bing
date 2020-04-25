@@ -21,3 +21,4 @@
 202004220400|KauriTree|Te Matua Ngahere, un arbre géant kauri poussant dans la forêt de Waipoua, Northland, Nouvelle-Zélande (© Kim Westerskov/Getty Images)||![](/fr-CA/2020/04/202004220400KauriTree.jpg)|
 202004230400|KingEider|Eider à tête grise mâle nageant dans Troms og Finnmark, Norvège (© Pal Hermansen/Minden Pictures)||![](/fr-CA/2020/04/202004230400KingEider.jpg)|
 202004240400|MegellanicCloud|Le Courant Magellanique, photographié par le télescope spatial Hubble (© ESA/Hubble/NASA)||![](/fr-CA/2020/04/202004240400MegellanicCloud.jpg)|
+202004250400|FalklandRockhoppers|Gorfous sauteurs du sud des îles Falkland (© Heike Odermatt/Minden Pictures)||![](/fr-CA/2020/04/202004250400FalklandRockhoppers.jpg)|
