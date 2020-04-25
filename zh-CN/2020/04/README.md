@@ -22,3 +22,4 @@
 202004221600|KingEider|正在游水的雄性王绒鸭，挪威特罗姆斯-芬马克郡 (© Pal Hermansen/Minden Pictures)||![](/zh-CN/2020/04/202004221600KingEider.jpg)|
 202004231600|MegellanicCloud|由哈勃太空望远镜拍摄的大麦哲伦星云 (© ESA/Hubble/NASA)||![](/zh-CN/2020/04/202004231600MegellanicCloud.jpg)|
 202004241600|FalklandRockhoppers|福克兰群岛上的南跳岩企鹅 (© Heike Odermatt/Minden Pictures)||![](/zh-CN/2020/04/202004241600FalklandRockhoppers.jpg)|
+202004251600|RubySunset|红宝石海滩的日落，华盛顿州奥林匹克国家公园 (© Adam Mowery/Tandem Stills + Motion)||![](/zh-CN/2020/04/202004251600RubySunset.jpg)|
