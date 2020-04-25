@@ -21,3 +21,4 @@
 202004220700|KauriTree|Te Matua Ngahere, a giant kauri tree growing in the Waipoua Forest, North Island, New Zealand (© Kim Westerskov/Getty Images)|50 years of Earth Day|![](/en-US/2020/04/202004220700KauriTree.jpg)|
 202004230700|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Duck, duck. duck, duck, duck...|![](/en-US/2020/04/202004230700KingEider.jpg)|
 202004240700|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-US/2020/04/202004240700MegellanicCloud.jpg)|
+202004250700|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-US/2020/04/202004250700FalklandRockhoppers.jpg)|
