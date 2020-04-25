@@ -21,3 +21,4 @@
 202004221400|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Duck, duck. duck, duck, duck...|![](/en-AU/2020/04/202004221400KingEider.jpg)|
 202004231400|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-AU/2020/04/202004231400MegellanicCloud.jpg)|
 202004241400|ANZACStatue|An ANZAC Soldier statue in the evening light (© t_rust/iStock/Getty Images Plus)|Paying respects on Anzac Day|![](/en-AU/2020/04/202004241400ANZACStatue.jpg)|
+202004251400|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-AU/2020/04/202004251400FalklandRockhoppers.jpg)|
