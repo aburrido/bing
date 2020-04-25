@@ -21,3 +21,4 @@
 202004221500|KingEider|｢ケワタガモのオス｣ノルウェー, トロムス・オ・フィンマルク (© Pal Hermansen/Minden Pictures)|北欧の野鳥|![](/ja-JP/2020/04/202004221500KingEider.jpg)|
 202004231500|MegellanicCloud|｢大マゼラン雲｣NASA, ハッブル宇宙望遠鏡 (© ESA/Hubble/NASA)|ハッブルが打ち上げられてから30年|![](/ja-JP/2020/04/202004231500MegellanicCloud.jpg)|
 202004241500|AiringGrievances|｢ジェンツーペンギン｣南極 (© Grafissimo/Getty Images)|今日は｢世界ペンギンの日｣|![](/ja-JP/2020/04/202004241500AiringGrievances.jpg)|
+202004251500|SirThomasMore|｢サー・トマス・モアの原稿｣イギリス, 大英博物館 (© British Library/Alamy)|今日はシェイクスピアの誕生日|![](/ja-JP/2020/04/202004251500SirThomasMore.jpg)|
