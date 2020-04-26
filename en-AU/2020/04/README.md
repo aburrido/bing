@@ -22,3 +22,4 @@
 202004231400|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-AU/2020/04/202004231400MegellanicCloud.jpg)|
 202004241400|ANZACStatue|An ANZAC Soldier statue in the evening light (© t_rust/iStock/Getty Images Plus)|Paying respects on Anzac Day|![](/en-AU/2020/04/202004241400ANZACStatue.jpg)|
 202004251400|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-AU/2020/04/202004251400FalklandRockhoppers.jpg)|
+202004261400|SouthAmericanTapir|South American tapir calf trots through the grass (© Nick Fox/Shutterstock)|That's quite a schnoz, baby tapir|![](/en-AU/2020/04/202004261400SouthAmericanTapir.jpg)|
