@@ -22,3 +22,4 @@
 202004230400|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Duck, duck. duck, duck, duck...|![](/en-CA/2020/04/202004230400KingEider.jpg)|
 202004240400|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-CA/2020/04/202004240400MegellanicCloud.jpg)|
 202004250400|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-CA/2020/04/202004250400FalklandRockhoppers.jpg)|
+202004260400|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-CA/2020/04/202004260400RubySunset.jpg)|
