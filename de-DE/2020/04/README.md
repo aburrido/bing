@@ -23,3 +23,4 @@
 202004232200|MegellanicCloud|Die Große Magellansche Wolke, aufgenommen vom Hubble-Weltraumteleskop (© ESA/Hubble/NASA)|Zur Feier von 30 Jahren augenöffnender Bilder|![](/de-DE/2020/04/202004232200MegellanicCloud.jpg)|
 202004242200|BienenfresserRobinie|Bienenfresser-Paar auf dem Zweig einer blühenden Robinie, Rheinland-Pfalz, Deutschland (© imageBROKER/Erhard Nerger/Getty Images)|Rasten auf dem Baum des Jahres|![](/de-DE/2020/04/202004242200BienenfresserRobinie.jpg)|
 202004252200|FalklandRockhoppers|Felsenpinguine auf den Falklandinseln (© Heike Odermatt/Minden Pictures)|Willkommene Abkühlung|![](/de-DE/2020/04/202004252200FalklandRockhoppers.jpg)|
+202004262200|SouthAmericanTapir|Junger Flachlandtapir (© Nick Fox/Shutterstock)|Das ist eine beeindruckende Nase!|![](/de-DE/2020/04/202004262200SouthAmericanTapir.jpg)|
