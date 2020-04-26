@@ -22,3 +22,4 @@
 202004231830|MegellanicCloud|The Large Magellanic Cloud, photographed by the Hubble Space Telescope (© ESA/Hubble/NASA)|Celebrating 30 years of eye-opening images|![](/en-IN/2020/04/202004231830MegellanicCloud.jpg)|
 202004241830|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-IN/2020/04/202004241830FalklandRockhoppers.jpg)|
 202004251830|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state, USA (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-IN/2020/04/202004251830RubySunset.jpg)|
+202004261830|SafdarjungTomb|Detail of ceiling of Safdarjung's Tomb, Delhi (© David Clapp/Getty Images)|One of the last Moghul monuments in India|![](/en-IN/2020/04/202004261830SafdarjungTomb.jpg)|
