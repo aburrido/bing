@@ -23,3 +23,4 @@
 202004241400|ANZACStatue|An ANZAC Soldier statue in the evening light (© t_rust/iStock/Getty Images Plus)|Paying respects on Anzac Day|![](/en-AU/2020/04/202004241400ANZACStatue.jpg)|
 202004251400|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-AU/2020/04/202004251400FalklandRockhoppers.jpg)|
 202004261400|SouthAmericanTapir|South American tapir calf trots through the grass (© Nick Fox/Shutterstock)|That's quite a schnoz, baby tapir|![](/en-AU/2020/04/202004261400SouthAmericanTapir.jpg)|
+202004271400|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-AU/2020/04/202004271400SalisburyCathedral.jpg)|
