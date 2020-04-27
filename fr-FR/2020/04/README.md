@@ -24,3 +24,4 @@
 202004242200|FalklandRockhoppers|Pingouins Gorfous sauteurs sur les îles Malouines (© Heike Odermatt/Minden Pictures)|« Cheese ! »|![](/fr-FR/2020/04/202004242200FalklandRockhoppers.jpg)|
 202004252200|RubySunset|Coucher de soleil sur Ruby Beach dans le parc national Olympique, États-Unis (© Adam Mowery/Tandem Stills + Motion)|Couleurs olympiques|![](/fr-FR/2020/04/202004252200RubySunset.jpg)|
 202004262200|SouthAmericanTapir|Bébé tapir du Brésil trottant dans l’herbe (© Nick Fox/Shutterstock)|Journée internationale des tapirs|![](/fr-FR/2020/04/202004262200SouthAmericanTapir.jpg)|
+202004272200|SalisburyCathedral|Cathédrale de Salisbury et quelques moutons, Angleterre (© Slawek Staszczuk Photo/Alamy)|Haute architecture|![](/fr-FR/2020/04/202004272200SalisburyCathedral.jpg)|
