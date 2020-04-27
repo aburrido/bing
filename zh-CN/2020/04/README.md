@@ -24,3 +24,4 @@
 202004241600|FalklandRockhoppers|福克兰群岛上的南跳岩企鹅 (© Heike Odermatt/Minden Pictures)||![](/zh-CN/2020/04/202004241600FalklandRockhoppers.jpg)|
 202004251600|RubySunset|红宝石海滩的日落，华盛顿州奥林匹克国家公园 (© Adam Mowery/Tandem Stills + Motion)||![](/zh-CN/2020/04/202004251600RubySunset.jpg)|
 202004261600|SouthAmericanTapir|一只南美貘幼崽小跑着穿过草地 (© Nick Fox/Shutterstock)||![](/zh-CN/2020/04/202004261600SouthAmericanTapir.jpg)|
+202004271600|SalisburyCathedral|索尔茲伯里大教堂与放牧的羊群，英格兰 (© Slawek Staszczuk Photo/Alamy)||![](/zh-CN/2020/04/202004271600SalisburyCathedral.jpg)|
