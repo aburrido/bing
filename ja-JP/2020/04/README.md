@@ -23,3 +23,4 @@
 202004241500|AiringGrievances|｢ジェンツーペンギン｣南極 (© Grafissimo/Getty Images)|今日は｢世界ペンギンの日｣|![](/ja-JP/2020/04/202004241500AiringGrievances.jpg)|
 202004251500|SirThomasMore|｢サー・トマス・モアの原稿｣イギリス, 大英博物館 (© British Library/Alamy)|今日はシェイクスピアの誕生日|![](/ja-JP/2020/04/202004251500SirThomasMore.jpg)|
 202004261500|SouthAmericanTapir|｢アメリカバク｣ (© Nick Fox/Shutterstock)|今日は｢世界バクの日｣|![](/ja-JP/2020/04/202004261500SouthAmericanTapir.jpg)|
+202004271500|SalisburyCathedral|｢ソールズベリー大聖堂と羊｣イギリス、ソールズベリー (© Slawek Staszczuk Photo/Alamy)|大聖堂建立800周年|![](/ja-JP/2020/04/202004271500SalisburyCathedral.jpg)|
