@@ -23,3 +23,4 @@
 202004241830|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-IN/2020/04/202004241830FalklandRockhoppers.jpg)|
 202004251830|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state, USA (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-IN/2020/04/202004251830RubySunset.jpg)|
 202004261830|SafdarjungTomb|Detail of ceiling of Safdarjung's Tomb, Delhi (© David Clapp/Getty Images)|One of the last Moghul monuments in India|![](/en-IN/2020/04/202004261830SafdarjungTomb.jpg)|
+202004271830|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-IN/2020/04/202004271830SalisburyCathedral.jpg)|
