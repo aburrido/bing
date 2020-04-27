@@ -24,3 +24,4 @@
 202004242300|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-GB/2020/04/202004242300FalklandRockhoppers.jpg)|
 202004252300|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state, USA (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-GB/2020/04/202004252300RubySunset.jpg)|
 202004262300|SouthAmericanTapir|South American tapir calf trots through the grass (© Nick Fox/Shutterstock)|Nosing about the Amazon|![](/en-GB/2020/04/202004262300SouthAmericanTapir.jpg)|
+202004272300|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, Wiltshire (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-GB/2020/04/202004272300SalisburyCathedral.jpg)|
