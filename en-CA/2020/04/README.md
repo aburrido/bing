@@ -24,3 +24,4 @@
 202004250400|FalklandRockhoppers|Southern rockhopper penguins on the Falkland Islands (© Heike Odermatt/Minden Pictures)|Rockin' with the rockhoppers|![](/en-CA/2020/04/202004250400FalklandRockhoppers.jpg)|
 202004260400|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-CA/2020/04/202004260400RubySunset.jpg)|
 202004270400|CartierBridge|The Jacques Cartier bridge in Montreal is illuminated in the colours of the rainbow as a sign of hope and in support of the victims of the coronavirus (© ERIC THOMAS/AFP via Getty Images)|A symbol of solidarity and hope|![](/en-CA/2020/04/202004270400CartierBridge.jpg)|
+202004280400|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-CA/2020/04/202004280400SalisburyCathedral.jpg)|
