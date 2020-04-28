@@ -25,3 +25,4 @@
 202004252200|RubySunset|Coucher de soleil sur Ruby Beach dans le parc national Olympique, États-Unis (© Adam Mowery/Tandem Stills + Motion)|Couleurs olympiques|![](/fr-FR/2020/04/202004252200RubySunset.jpg)|
 202004262200|SouthAmericanTapir|Bébé tapir du Brésil trottant dans l’herbe (© Nick Fox/Shutterstock)|Journée internationale des tapirs|![](/fr-FR/2020/04/202004262200SouthAmericanTapir.jpg)|
 202004272200|SalisburyCathedral|Cathédrale de Salisbury et quelques moutons, Angleterre (© Slawek Staszczuk Photo/Alamy)|Haute architecture|![](/fr-FR/2020/04/202004272200SalisburyCathedral.jpg)|
+202004282200|PalouseSpring|Un tracteur remuant la poussière tout en labourant les champs de la Palouse près de Pullman, Washington, États-Unis (© Ben Herndon/Tandem Stills + Motion)|Verts pâturages|![](/fr-FR/2020/04/202004282200PalouseSpring.jpg)|

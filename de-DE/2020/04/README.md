@@ -25,3 +25,4 @@
 202004252200|FalklandRockhoppers|Felsenpinguine auf den Falklandinseln (© Heike Odermatt/Minden Pictures)|Willkommene Abkühlung|![](/de-DE/2020/04/202004252200FalklandRockhoppers.jpg)|
 202004262200|SouthAmericanTapir|Junger Flachlandtapir (© Nick Fox/Shutterstock)|Das ist eine beeindruckende Nase!|![](/de-DE/2020/04/202004262200SouthAmericanTapir.jpg)|
 202004272200|SalisburyCathedral|Grasende Schafherde vor der Kathedrale von Salisbury, England, Vereinigtes Königreich (© Slawek Staszczuk Photo/Alamy)|Alles Gute zum 800. Geburtstag!|![](/de-DE/2020/04/202004272200SalisburyCathedral.jpg)|
+202004282200|RubySunset|Sonnenuntergang am Ruby Beach im Olympic-Nationalpark, US-Bundesstaat Washington (© Adam Mowery/Tandem Stills + Motion)|Abendrot am Ruby Beach|![](/de-DE/2020/04/202004282200RubySunset.jpg)|
