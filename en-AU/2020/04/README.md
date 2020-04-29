@@ -25,3 +25,4 @@
 202004261400|SouthAmericanTapir|South American tapir calf trots through the grass (© Nick Fox/Shutterstock)|That's quite a schnoz, baby tapir|![](/en-AU/2020/04/202004261400SouthAmericanTapir.jpg)|
 202004271400|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-AU/2020/04/202004271400SalisburyCathedral.jpg)|
 202004281400|PalouseSpring|A tractor kicks up dust while tilling fields on the Palouse near Pullman, Washington (© Ben Herndon/Tandem Stills + Motion)|Exploring the Palouse|![](/en-AU/2020/04/202004281400PalouseSpring.jpg)|
+202004291400|ArcticRedpoll|Arctic redpoll nest in Lapland, Finland (© Maximilian Buzun/Alamy)|What bird will these eggs become?|![](/en-AU/2020/04/202004291400ArcticRedpoll.jpg)|
