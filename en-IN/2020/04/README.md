@@ -25,3 +25,4 @@
 202004261830|SafdarjungTomb|Detail of ceiling of Safdarjung's Tomb, Delhi (© David Clapp/Getty Images)|One of the last Moghul monuments in India|![](/en-IN/2020/04/202004261830SafdarjungTomb.jpg)|
 202004271830|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-IN/2020/04/202004271830SalisburyCathedral.jpg)|
 202004281830|PalouseSpring|A tractor kicks up dust while tilling fields on the Palouse near Pullman, Washington, USA (© Ben Herndon/Tandem Stills + Motion)|Spring comes to the Palouse|![](/en-IN/2020/04/202004281830PalouseSpring.jpg)|
+202004291830|ArcticRedpoll|Arctic redpoll nest in Lapland, Finland (© Maximilian Buzun/Alamy)|What bird will these eggs become?|![](/en-IN/2020/04/202004291830ArcticRedpoll.jpg)|
