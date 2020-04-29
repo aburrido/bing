@@ -25,3 +25,4 @@
 202004260700|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-US/2020/04/202004260700RubySunset.jpg)|
 202004270700|SouthAmericanTapir|South American tapir calf trots through the grass (© Nick Fox/Shutterstock)|That's quite a schnoz, baby tapir|![](/en-US/2020/04/202004270700SouthAmericanTapir.jpg)|
 202004280700|SalisburyCathedral|Salisbury Cathedral with flock of grazing sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-US/2020/04/202004280700SalisburyCathedral.jpg)|
+202004290700|PalouseSpring|A tractor kicks up dust while tilling fields on the Palouse near Pullman, Washington (© Ben Herndon/Tandem Stills + Motion)|Spring comes to the Palouse|![](/en-US/2020/04/202004290700PalouseSpring.jpg)|
