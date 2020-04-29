@@ -25,3 +25,4 @@
 202004260400|RubySunset|Coucher du soleil à Ruby Beach dans le Parc National Olympique, Washington (© Adam Mowery/Tandem Stills + Motion)||![](/fr-CA/2020/04/202004260400RubySunset.jpg)|
 202004270400|CartierBridge|Le pont Jacques-Cartier à Montréal est illuminé aux couleurs de l’arc-en-ciel en signe d’espoir et en soutien aux victimes du coronavirus (© ERIC THOMAS/AFP via Getty Images)||![](/fr-CA/2020/04/202004270400CartierBridge.jpg)|
 202004280400|SalisburyCathedral|Cathédrale de Salisbury avec troupeau de moutons paissant, Angleterre (© Slawek Staszczuk Photo/Alamy)||![](/fr-CA/2020/04/202004280400SalisburyCathedral.jpg)|
+202004290400|PalouseSpring|Un tracteur soulève la poussière tout en labourant des champs sur le Palouse près de Pullman, Washington (© Ben Herndon/Tandem Stills + Motion)||![](/fr-CA/2020/04/202004290400PalouseSpring.jpg)|
