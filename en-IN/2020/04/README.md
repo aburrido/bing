@@ -26,3 +26,4 @@
 202004271830|SalisburyCathedral|Salisbury Cathedral with grazing flock of sheep, England (© Slawek Staszczuk Photo/Alamy)|Happy 800th, Salisbury Cathedral|![](/en-IN/2020/04/202004271830SalisburyCathedral.jpg)|
 202004281830|PalouseSpring|A tractor kicks up dust while tilling fields on the Palouse near Pullman, Washington, USA (© Ben Herndon/Tandem Stills + Motion)|Spring comes to the Palouse|![](/en-IN/2020/04/202004281830PalouseSpring.jpg)|
 202004291830|ArcticRedpoll|Arctic redpoll nest in Lapland, Finland (© Maximilian Buzun/Alamy)|What bird will these eggs become?|![](/en-IN/2020/04/202004291830ArcticRedpoll.jpg)|
+202004301830|BurgAltdahn|Altdahn Castle near Dahn, Dahner Felsenland (Dahn Rockland), Palatinate Forest, Rhineland-Palatinate, Germany (© Reinhard Schmid/Huber/eStock Photo)|Rock castle in the Palatinate Forest|![](/en-IN/2020/04/202004301830BurgAltdahn.jpg)|
