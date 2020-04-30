@@ -20,6 +20,7 @@ if(!is_file($path)){
     file_put_contents($path,$imgdata);
 //     file_put_contents("{$lang}.jpg",$imgdata);
     shell_exec ("/opt/mozjpeg/bin/cjpeg -quality 80 {$path} > {$lang}.jpg");
+    file_get_contents('https://cdn.jsdelivr.net/gh/aburrido/bing@latest/'.{$lang}.'.jpg');
     if(!is_file($md_path)){
         file_put_contents($md_path,"|fullstartdate|name|copyright|title|image|\n|--|--|--|--|--|\n");
     }
