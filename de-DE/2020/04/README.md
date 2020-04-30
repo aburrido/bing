@@ -27,3 +27,4 @@
 202004272200|SalisburyCathedral|Grasende Schafherde vor der Kathedrale von Salisbury, England, Vereinigtes Königreich (© Slawek Staszczuk Photo/Alamy)|Alles Gute zum 800. Geburtstag!|![](/de-DE/2020/04/202004272200SalisburyCathedral.jpg)|
 202004282200|RubySunset|Sonnenuntergang am Ruby Beach im Olympic-Nationalpark, US-Bundesstaat Washington (© Adam Mowery/Tandem Stills + Motion)|Abendrot am Ruby Beach|![](/de-DE/2020/04/202004282200RubySunset.jpg)|
 202004292200|ArcticRedpoll|Gelege eines Polar-Birkenzeisigs in Lappland, Finnland (© Maximilian Buzun/Alamy)|Welche Vögel werden aus den Eiern schlüpfen?|![](/de-DE/2020/04/202004292200ArcticRedpoll.jpg)|
+202004302200|BurgAltdahn|Burg Altdahn in der Nähe von Dahn, Rheinland-Pfalz, Germany (© Reinhard Schmid/Huber/eStock Photo)|Im Dahner Felsenland|![](/de-DE/2020/04/202004302200BurgAltdahn.jpg)|
