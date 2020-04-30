@@ -27,3 +27,4 @@
 202004271600|SalisburyCathedral|索尔茲伯里大教堂与放牧的羊群，英格兰 (© Slawek Staszczuk Photo/Alamy)||![](/zh-CN/2020/04/202004271600SalisburyCathedral.jpg)|
 202004281600|PalouseSpring|普尔曼附近的帕卢斯一辆拖拉机在耕作时扬起尘土，华盛顿州 (© Ben Herndon/Tandem Stills + Motion)||![](/zh-CN/2020/04/202004281600PalouseSpring.jpg)|
 202004291600|ArcticRedpoll|极北朱顶雀的巢，芬兰拉普兰 (© Maximilian Buzun/Alamy)||![](/zh-CN/2020/04/202004291600ArcticRedpoll.jpg)|
+202004301600|BurgAltdahn|达恩附近普法尔茨森林中的Altdahn城堡，德国莱茵兰-普法尔茨(Dahn Rockland), Palatinate Forest, Rhineland-Palatinate, Germany (© Reinhard Schmid/Huber/eStock Photo)||![](/zh-CN/2020/04/202004301600BurgAltdahn.jpg)|
