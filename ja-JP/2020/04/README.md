@@ -26,3 +26,4 @@
 202004271500|SalisburyCathedral|｢ソールズベリー大聖堂と羊｣イギリス、ソールズベリー (© Slawek Staszczuk Photo/Alamy)|大聖堂建立800周年|![](/ja-JP/2020/04/202004271500SalisburyCathedral.jpg)|
 202004281500|CapcelTower|｢中銀カプセルタワービル｣東京, 新橋 (© ILYA GENKIN/Alamy Stock Photo)|今日は｢昭和の日｣|![](/ja-JP/2020/04/202004281500CapcelTower.jpg)|
 202004291500|GardenHolland|｢キューケンホフ公園｣オランダ, リッセ (© Jim Zuckerman/Getty Images)|オランダの花の公園|![](/ja-JP/2020/04/202004291500GardenHolland.jpg)|
+202004301500|FujiCha|｢富士山と茶畑｣静岡 (© Hiroshi Ichikawa/Shutterstock)|今日は｢八十八夜｣|![](/ja-JP/2020/04/202004301500FujiCha.jpg)|
