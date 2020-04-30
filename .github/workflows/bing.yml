@@ -42,4 +42,13 @@ jobs:
           git add .
           git commit -m $(date +"%Y-%m-%d.%H:%M:%S")
           git push
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/zh-CN.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-CA.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-GB.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-IN.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/en-US.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-CA.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/fr-FR.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/ja-JP.jpg' --output /dev/null
+          curl 'https://cdn.jsdelivr.net/gh/aburrido/bing@latest/zh-CN.jpg' --output /dev/null
           fi
