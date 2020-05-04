@@ -37,9 +37,14 @@ jobs:
       - name: Commit
         run: |
           if [ -n "$(git status -s)" ];then
+          langs=`git status -s | grep "..-..\.jpg" -o`
           git config --global user.name 'aburrido'
           git config --global user.email 'aburrido@qq.com'
           git add .
           git commit -m $(date +"%Y-%m-%d.%H:%M:%S")
           git push
+          for lang in ${langs}
+          do
+          curl "https://cdn.jsdelivr.net/gh/aburrido/bing@latest/$lang" --output /dev/null
+          done
           fi
