@@ -4,3 +4,4 @@
 202005011400|KasbahRoses|Ruins of a kasbah in Kalaat M'Gouna, Morocco (© Leonid Andronov/Getty Images)|Morocco in bloom|![](/en-AU/2020/05/202005011400KasbahRoses.jpg)|
 202005021400|PerchedKoala|An Australian koala perched in a gum tree overlooking the scenery (© juuce/Getty Images)|It’s Wild Koala Day!|![](/en-AU/2020/05/202005021400PerchedKoala.jpg)|
 202005031400|LastJedi|Salar de Uyuni, Bolivia (© Ignacio Palacios/Getty Images)|It's Star Wars Day|![](/en-AU/2020/05/202005031400LastJedi.jpg)|
+202005041400|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-AU/2020/05/202005041400RubySunset.jpg)|
