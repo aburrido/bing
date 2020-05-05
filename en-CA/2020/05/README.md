@@ -5,3 +5,4 @@
 202005020400|KasbahRoses|Ruins of a kasbah in Kalaat M'Gouna, Morocco (© Leonid Andronov/Getty Images)|Morocco in bloom|![](/en-CA/2020/05/202005020400KasbahRoses.jpg)|
 202005030400|LaughingOwl|Snowy owl at Jones Beach, Long Island, New York (© Vicki Jauron/Getty Images)|World laughter day—it's a hoot|![](/en-CA/2020/05/202005030400LaughingOwl.jpg)|
 202005040400|LastJedi|Salar de Uyuni, Bolivia (© Ignacio Palacios/Getty Images)|It's Star Wars Day|![](/en-CA/2020/05/202005040400LastJedi.jpg)|
+202005050400|StarryLighthouse|An old lighthouse under the starry sky in Rose Blanche, Nfld. (© Adam Woodworth/Cavan)|A proud sentinel|![](/en-CA/2020/05/202005050400StarryLighthouse.jpg)|
