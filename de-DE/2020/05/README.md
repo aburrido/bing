@@ -5,3 +5,4 @@
 202005022200|LaughingOwl|Schnee-Eule am Jonas Beach, Long Island, New York, USA (© Vicki Jauron/Getty Images)|Haben Sie heute schon gelacht?|![](/de-DE/2020/05/202005022200LaughingOwl.jpg)|
 202005032200|LastJedi|Salar de Uyuni, Bolivien (© Ignacio Palacios/Getty Images)|Heute ist Star-Wars-Tag|![](/de-DE/2020/05/202005032200LastJedi.jpg)|
 202005042200|CordovanCourts|Bronzeskulptur eines Kindes und seines Großvaters bei der Pflege von Pflanzen und Blumen, Córdoba, Spanien (© David M G/Alamy)|Von Generation zu Generation|![](/de-DE/2020/05/202005042200CordovanCourts.jpg)|
+202005052200|SiegeofCusco|Inka-Festung Sacsayhuamán in der Nähe von Cusco, Peru (© Susanne Kremer/eStock Photo)|Das (Inka-)Imperium schlägt zurück|![](/de-DE/2020/05/202005052200SiegeofCusco.jpg)|
