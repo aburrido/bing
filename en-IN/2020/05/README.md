@@ -5,3 +5,4 @@
 202005021830|LaughingOwl|Snowy owl at Jones Beach, Long Island, New York (© Vicki Jauron/Getty Images)|World laughter day—it's a hoot|![](/en-IN/2020/05/202005021830LaughingOwl.jpg)|
 202005031830|LastJedi|Salar de Uyuni, Bolivia (© Ignacio Palacios/Getty Images)|It's Star Wars Day|![](/en-IN/2020/05/202005031830LastJedi.jpg)|
 202005041830|CordovanCourts|Bronze sculpture of child and his grandfather caring of plants and flowers, Cordoba, Spain (© David M G/Alamy)|From generation to generation|![](/en-IN/2020/05/202005041830CordovanCourts.jpg)|
+202005051830|SiegeofCusco|Inca fortress of Sacsayhuamán near Cusco, Peru (© Susanne Kremer/eStock Photo)|A piece of Inca history|![](/en-IN/2020/05/202005051830SiegeofCusco.jpg)|
