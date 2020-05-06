@@ -6,3 +6,4 @@
 202005032200|LastJedi|Salar de Uyuni, Bolivien (© Ignacio Palacios/Getty Images)|Heute ist Star-Wars-Tag|![](/de-DE/2020/05/202005032200LastJedi.jpg)|
 202005042200|CordovanCourts|Bronzeskulptur eines Kindes und seines Großvaters bei der Pflege von Pflanzen und Blumen, Córdoba, Spanien (© David M G/Alamy)|Von Generation zu Generation|![](/de-DE/2020/05/202005042200CordovanCourts.jpg)|
 202005052200|SiegeofCusco|Inka-Festung Sacsayhuamán in der Nähe von Cusco, Peru (© Susanne Kremer/eStock Photo)|Das (Inka-)Imperium schlägt zurück|![](/de-DE/2020/05/202005052200SiegeofCusco.jpg)|
+202005062200|WildflowerWeek|Blühende Lupinen an einer alten Straße im Texas Hill Country, USA (© Inge Johnsson/Alamy)|Wo die Wildblumen wachsen|![](/de-DE/2020/05/202005062200WildflowerWeek.jpg)|
