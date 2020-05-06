@@ -6,3 +6,4 @@
 202005031500|LastJedi|｢ウユニ塩湖｣ボリビア (© Ignacio Palacios/Getty Images)|今日は｢スター・ウォーズの日｣|![](/ja-JP/2020/05/202005031500LastJedi.jpg)|
 202005041500|RiverKoi|｢大歩危峡のこいのぼり｣徳島県, 三好市 (© Photo by The Asahi Shimbun via Getty Images)|今日は｢こどもの日｣|![](/ja-JP/2020/05/202005041500RiverKoi.jpg)|
 202005051500|CherryLaurelMaze|｢チェリー・ローレル・メイズ｣イギリス, コーンウォール州 (© Richard Cooke/Alamy)|今日は｢迷路の日｣|![](/ja-JP/2020/05/202005051500CherryLaurelMaze.jpg)|
+202005061500|LaughingOwl|｢笑顔のシロフクロウ｣米国ニューヨーク州, ロングアイランド (© Vicki Jauron/Getty Images)|草原のかわいいハンター|![](/ja-JP/2020/05/202005061500LaughingOwl.jpg)|
