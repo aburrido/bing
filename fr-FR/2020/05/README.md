@@ -7,3 +7,4 @@
 202005042200|CordovanCourts|Sculpture de bronze d’un enfant et son grand-père s’occupant d’un patio, Cordoue, Espagne (© David M G/Alamy)|Murs de fleurs|![](/fr-FR/2020/05/202005042200CordovanCourts.jpg)|
 202005052200|SiegeofCusco|Forteresse Inca de Saqsaywaman près de Cuzco, Pérou (© Susanne Kremer/eStock Photo)|Jeux de pouvoirs|![](/fr-FR/2020/05/202005052200SiegeofCusco.jpg)|
 202005062200|PinkSky|Phare du Cap Fréhel sur la Côte d’Émeraude, Bretagne, France (© Stefan Hefele/mauritius images GmbH/Alamy Stock Photo)|Rose Bretagne|![](/fr-FR/2020/05/202005062200PinkSky.jpg)|
+202005072200|ChampsVEDay|Groupe regardant l’avenue des Champs-Élysées noire de monde, depuis le haut de l’Arc de Triomphe, le 8 mai 1945, Paris, France (© AFP via Getty Images)|Victoire de la liberté|![](/fr-FR/2020/05/202005072200ChampsVEDay.jpg)|
