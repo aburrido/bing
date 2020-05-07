@@ -7,3 +7,4 @@
 202005041600|CordovanCourts|正在照看花草的孩子和祖父铜雕，西班牙科尔多瓦 (© David M G/Alamy)||![](/zh-CN/2020/05/202005041600CordovanCourts.jpg)|
 202005051600|SiegeofCusco|库斯科附近萨克塞华曼的印加要塞，秘鲁 (© Susanne Kremer/eStock Photo)||![](/zh-CN/2020/05/202005051600SiegeofCusco.jpg)|
 202005061600|WildflowerWeek|印克斯湖国家公园中的德克萨斯矢车菊，德克萨斯州 (© Inge Johnsson/Alamy)||![](/zh-CN/2020/05/202005061600WildflowerWeek.jpg)|
+202005071600|AdelaideVineyard|阿德莱德山的葡萄园，澳大利亚 (© Ben Goode/iStock/Getty Images Plus)||![](/zh-CN/2020/05/202005071600AdelaideVineyard.jpg)|
