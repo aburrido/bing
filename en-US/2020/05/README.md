@@ -7,3 +7,4 @@
 202005040700|LastJedi|Salar de Uyuni, Bolivia (© Ignacio Palacios/Getty Images)|It's Star Wars Day|![](/en-US/2020/05/202005040700LastJedi.jpg)|
 202005050700|CordovanCourts|Bronze sculpture of a child and his grandfather caring for plants and flowers in the San Basilio neighborhood of Córdoba, Spain (© David M G/Alamy)|A courtyard scene from Spain|![](/en-US/2020/05/202005050700CordovanCourts.jpg)|
 202005060700|SiegeofCusco|Inca fortress of Sacsayhuamán near Cusco, Peru (© Susanne Kremer/eStock Photo)|The (Inca) empire strikes back|![](/en-US/2020/05/202005060700SiegeofCusco.jpg)|
+202005070700|WildflowerWeek|Bluebonnets growing alongside an old road in the Texas Hill Country (© Inge Johnsson/Alamy)|Where the wildflowers grow|![](/en-US/2020/05/202005070700WildflowerWeek.jpg)|
