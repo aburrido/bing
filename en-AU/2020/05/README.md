@@ -7,3 +7,4 @@
 202005041400|RubySunset|Sunset at Ruby Beach in Olympic National Park, Washington state (© Adam Mowery/Tandem Stills + Motion)|Red skies at Ruby Beach|![](/en-AU/2020/05/202005041400RubySunset.jpg)|
 202005051400|SiegeofCusco|Inca fortress of Sacsayhuamán near Cusco, Peru (© Susanne Kremer/eStock Photo)|The (Inca) empire strikes back|![](/en-AU/2020/05/202005051400SiegeofCusco.jpg)|
 202005061400|CordovanCourts|Bronze sculpture of child and his grandfather caring of plants and flowers, Cordoba, Spain (© David M G/Alamy)|From generation to generation|![](/en-AU/2020/05/202005061400CordovanCourts.jpg)|
+202005071400|ChampsVEDay|People looking at the crowded Avenue des Champs-Élysées from the Arc de Triomphe on May 8, 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years later|![](/en-AU/2020/05/202005071400ChampsVEDay.jpg)|
