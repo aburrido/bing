@@ -7,3 +7,4 @@
 202005042300|KingEider|Male king eider ducks swimming in Troms og Finnmark, Norway (© Pal Hermansen/Minden Pictures)|Ducks in a row|![](/en-GB/2020/05/202005042300KingEider.jpg)|
 202005052300|SiegeofCusco|Inca fortress of Sacsayhuamán near Cusco, Peru (© Susanne Kremer/eStock Photo)|The (Inca) empire strikes back|![](/en-GB/2020/05/202005052300SiegeofCusco.jpg)|
 202005062300|EagleSwoop|Golden eagle flying over a field, Glenfeshie (© Blickwinkel/Alamy Stock Photo)|Winging it|![](/en-GB/2020/05/202005062300EagleSwoop.jpg)|
+202005072300|ChampsVEDay|Crowds on the Champs-Élysées on 8 May 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years later|![](/en-GB/2020/05/202005072300ChampsVEDay.jpg)|
