@@ -7,3 +7,4 @@
 202005040400|LastJedi|Salar de Uyuni, Bolivia (© Ignacio Palacios/Getty Images)|It's Star Wars Day|![](/en-CA/2020/05/202005040400LastJedi.jpg)|
 202005050400|StarryLighthouse|An old lighthouse under the starry sky in Rose Blanche, Nfld. (© Adam Woodworth/Cavan)|A proud sentinel|![](/en-CA/2020/05/202005050400StarryLighthouse.jpg)|
 202005060400|SiegeofCusco|Inca fortress of Sacsayhuamán near Cusco, Peru (© Susanne Kremer/eStock Photo)|The (Inca) empire strikes back|![](/en-CA/2020/05/202005060400SiegeofCusco.jpg)|
+202005070400|WildflowerWeek|Bluebonnets growing alongside an old road in the Texas Hill Country (© Inge Johnsson/Alamy)|Where the wildflowers grow|![](/en-CA/2020/05/202005070400WildflowerWeek.jpg)|
