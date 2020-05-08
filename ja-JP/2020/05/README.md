@@ -8,3 +8,4 @@
 202005051500|CherryLaurelMaze|｢チェリー・ローレル・メイズ｣イギリス, コーンウォール州 (© Richard Cooke/Alamy)|今日は｢迷路の日｣|![](/ja-JP/2020/05/202005051500CherryLaurelMaze.jpg)|
 202005061500|LaughingOwl|｢笑顔のシロフクロウ｣米国ニューヨーク州, ロングアイランド (© Vicki Jauron/Getty Images)|草原のかわいいハンター|![](/ja-JP/2020/05/202005061500LaughingOwl.jpg)|
 202005071500|OldPatriarchTree|｢長老の木｣米国ワイオミング州, グランドティトン国立公園 (© George Sanker/Minden Pictures)|ロッキー山脈と長老松|![](/ja-JP/2020/05/202005071500OldPatriarchTree.jpg)|
+202005081500|PlatteRiver|｢カナダヅルの群れ｣米国ネブラスカ州, プラット川 (© Diana Robinson Photography/Getty Images)|今日は｢世界渡り鳥の日｣|![](/ja-JP/2020/05/202005081500PlatteRiver.jpg)|
