@@ -8,3 +8,4 @@
 202005051830|SiegeofCusco|Inca fortress of Sacsayhuamán near Cusco, Peru (© Susanne Kremer/eStock Photo)|A piece of Inca history|![](/en-IN/2020/05/202005051830SiegeofCusco.jpg)|
 202005061830|BodhiGaya|Bodhi Gaya - site of Buddhist pilgrimage (© Candid168/Shutterstock)|The most revered Buddhist site|![](/en-IN/2020/05/202005061830BodhiGaya.jpg)|
 202005071830|ChampsVEDay|People looking at the crowded Avenue des Champs-Élysées from the Arc de Triomphe on May 8, 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years later|![](/en-IN/2020/05/202005071830ChampsVEDay.jpg)|
+202005081830|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Who are you looking at?|![](/en-IN/2020/05/202005081830BarnOwlMigration.jpg)|
