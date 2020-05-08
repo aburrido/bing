@@ -8,3 +8,4 @@
 202005050400|StarryLighthouse|Un vieux phare sous le ciel étoilé à Rose Blanche, Terre-Neuve-et-Labrador (© Adam Woodworth/Cavan)||![](/fr-CA/2020/05/202005050400StarryLighthouse.jpg)|
 202005060400|SiegeofCusco|Forteresse inca de Sacsayhuamán près de Cusco, Pérou (© Susanne Kremer/eStock Photo)||![](/fr-CA/2020/05/202005060400SiegeofCusco.jpg)|
 202005070400|WildflowerWeek|Bluebonnets du Texas à Inks Lake State Park, Texas (© Inge Johnsson/Alamy)||![](/fr-CA/2020/05/202005070400WildflowerWeek.jpg)|
+202005080400|MapleLeafTulips|Tulipes «Feuille d’érable» dans un jardin à Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)||![](/fr-CA/2020/05/202005080400MapleLeafTulips.jpg)|
