@@ -8,3 +8,4 @@
 202005052200|SiegeofCusco|Inka-Festung Sacsayhuamán in der Nähe von Cusco, Peru (© Susanne Kremer/eStock Photo)|Das (Inka-)Imperium schlägt zurück|![](/de-DE/2020/05/202005052200SiegeofCusco.jpg)|
 202005062200|WildflowerWeek|Blühende Lupinen an einer alten Straße im Texas Hill Country, USA (© Inge Johnsson/Alamy)|Wo die Wildblumen wachsen|![](/de-DE/2020/05/202005062200WildflowerWeek.jpg)|
 202005072200|AdelaideVineyard|Weinberg in den Adelaide Hills, Bundesstaat South Australia, Australien (© Ben Goode/iStock/Getty Images Plus)|Herbst in Australien|![](/de-DE/2020/05/202005072200AdelaideVineyard.jpg)|
+202005082200|BarnOwlMigration|Schleiereule (© blickwinkel/Alamy)|In welchen Regionen lebt diese Eulenart?|![](/de-DE/2020/05/202005082200BarnOwlMigration.jpg)|
