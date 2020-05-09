@@ -9,3 +9,4 @@
 202005061400|CordovanCourts|Bronze sculpture of child and his grandfather caring of plants and flowers, Cordoba, Spain (© David M G/Alamy)|From generation to generation|![](/en-AU/2020/05/202005061400CordovanCourts.jpg)|
 202005071400|ChampsVEDay|People looking at the crowded Avenue des Champs-Élysées from the Arc de Triomphe on May 8, 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years later|![](/en-AU/2020/05/202005071400ChampsVEDay.jpg)|
 202005081400|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Who are you looking at?|![](/en-AU/2020/05/202005081400BarnOwlMigration.jpg)|
+202005091400|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-AU/2020/05/202005091400ZebraMom.jpg)|
