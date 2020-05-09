@@ -9,3 +9,4 @@
 202005062200|WildflowerWeek|Blühende Lupinen an einer alten Straße im Texas Hill Country, USA (© Inge Johnsson/Alamy)|Wo die Wildblumen wachsen|![](/de-DE/2020/05/202005062200WildflowerWeek.jpg)|
 202005072200|AdelaideVineyard|Weinberg in den Adelaide Hills, Bundesstaat South Australia, Australien (© Ben Goode/iStock/Getty Images Plus)|Herbst in Australien|![](/de-DE/2020/05/202005072200AdelaideVineyard.jpg)|
 202005082200|BarnOwlMigration|Schleiereule (© blickwinkel/Alamy)|In welchen Regionen lebt diese Eulenart?|![](/de-DE/2020/05/202005082200BarnOwlMigration.jpg)|
+202005092200|ZebraMom|Weibliches Burchell-Zebra mit seinem Fohlen im Rietvlei Nature Reserve, Südafrika (© Richard Du Toit/Minden Pictures)|Heute ist Muttertag!|![](/de-DE/2020/05/202005092200ZebraMom.jpg)|

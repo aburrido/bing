@@ -9,3 +9,4 @@
 202005062200|PinkSky|Phare du Cap Fréhel sur la Côte d’Émeraude, Bretagne, France (© Stefan Hefele/mauritius images GmbH/Alamy Stock Photo)|Rose Bretagne|![](/fr-FR/2020/05/202005062200PinkSky.jpg)|
 202005072200|ChampsVEDay|Groupe regardant l’avenue des Champs-Élysées noire de monde, depuis le haut de l’Arc de Triomphe, le 8 mai 1945, Paris, France (© AFP via Getty Images)|Victoire de la liberté|![](/fr-FR/2020/05/202005072200ChampsVEDay.jpg)|
 202005082200|BarnOwlMigration|Chouette effraie perchée sur une branche (© blickwinkel/Alamy)|Oiseau globe-trotteur|![](/fr-FR/2020/05/202005082200BarnOwlMigration.jpg)|
+202005092200|SeagullsChat|Mouettes dans la lumière de l’aube, Parc national régional de la Brenne, France (© SandyS/Alamy Banque d'Images)|Conversations matinales|![](/fr-FR/2020/05/202005092200SeagullsChat.jpg)|
