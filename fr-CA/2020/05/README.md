@@ -9,3 +9,4 @@
 202005060400|SiegeofCusco|Forteresse inca de Sacsayhuamán près de Cusco, Pérou (© Susanne Kremer/eStock Photo)||![](/fr-CA/2020/05/202005060400SiegeofCusco.jpg)|
 202005070400|WildflowerWeek|Bluebonnets du Texas à Inks Lake State Park, Texas (© Inge Johnsson/Alamy)||![](/fr-CA/2020/05/202005070400WildflowerWeek.jpg)|
 202005080400|MapleLeafTulips|Tulipes «Feuille d’érable» dans un jardin à Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)||![](/fr-CA/2020/05/202005080400MapleLeafTulips.jpg)|
+202005090400|BarnOwlMigration|Chouette effraie assise sur une branche (© blickwinkel/Alamy)||![](/fr-CA/2020/05/202005090400BarnOwlMigration.jpg)|
