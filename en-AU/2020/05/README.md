@@ -10,3 +10,4 @@
 202005071400|ChampsVEDay|People looking at the crowded Avenue des Champs-Élysées from the Arc de Triomphe on May 8, 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years later|![](/en-AU/2020/05/202005071400ChampsVEDay.jpg)|
 202005081400|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Who are you looking at?|![](/en-AU/2020/05/202005081400BarnOwlMigration.jpg)|
 202005091400|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-AU/2020/05/202005091400ZebraMom.jpg)|
+202005101400|CarltonGardens|Carlton Gardens fountain and autumn trees catching the sunlight in front of the Royal Exhibition Building, Melbourne (© CBCK-Christine/iStock/Getty Images Plus)|Garden views|![](/en-AU/2020/05/202005101400CarltonGardens.jpg)|
