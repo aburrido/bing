@@ -10,3 +10,4 @@
 202005070400|WildflowerWeek|Bluebonnets growing alongside an old road in the Texas Hill Country (© Inge Johnsson/Alamy)|Where the wildflowers grow|![](/en-CA/2020/05/202005070400WildflowerWeek.jpg)|
 202005080400|ChampsVEDay|People looking at the crowded Avenue des Champs-Élysées from the Arc de Triomphe on May 8, 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years later|![](/en-CA/2020/05/202005080400ChampsVEDay.jpg)|
 202005090400|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Who are you looking at?|![](/en-CA/2020/05/202005090400BarnOwlMigration.jpg)|
+202005100400|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-CA/2020/05/202005100400ZebraMom.jpg)|
