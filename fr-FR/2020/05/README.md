@@ -10,3 +10,4 @@
 202005072200|ChampsVEDay|Groupe regardant l’avenue des Champs-Élysées noire de monde, depuis le haut de l’Arc de Triomphe, le 8 mai 1945, Paris, France (© AFP via Getty Images)|Victoire de la liberté|![](/fr-FR/2020/05/202005072200ChampsVEDay.jpg)|
 202005082200|BarnOwlMigration|Chouette effraie perchée sur une branche (© blickwinkel/Alamy)|Oiseau globe-trotteur|![](/fr-FR/2020/05/202005082200BarnOwlMigration.jpg)|
 202005092200|SeagullsChat|Mouettes dans la lumière de l’aube, Parc national régional de la Brenne, France (© SandyS/Alamy Banque d'Images)|Conversations matinales|![](/fr-FR/2020/05/202005092200SeagullsChat.jpg)|
+202005102200|ElevenMai|Photo d'une rue de Nantes, ornée de banderoles en hommage aux soignants fabriquées par les habitants, prise le 27 avril 2020 (© LOIC VENANCE/AFP via Getty Images)|Pour le monde de demain|![](/fr-FR/2020/05/202005102200ElevenMai.jpg)|
