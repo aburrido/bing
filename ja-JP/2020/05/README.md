@@ -10,3 +10,4 @@
 202005071500|OldPatriarchTree|｢長老の木｣米国ワイオミング州, グランドティトン国立公園 (© George Sanker/Minden Pictures)|ロッキー山脈と長老松|![](/ja-JP/2020/05/202005071500OldPatriarchTree.jpg)|
 202005081500|PlatteRiver|｢カナダヅルの群れ｣米国ネブラスカ州, プラット川 (© Diana Robinson Photography/Getty Images)|今日は｢世界渡り鳥の日｣|![](/ja-JP/2020/05/202005081500PlatteRiver.jpg)|
 202005091500|ZebraMom|｢シマウマの母子｣南アフリカ, リットフレイ自然保護区 (© Richard Du Toit/Minden Pictures)|今日は｢母の日｣|![](/ja-JP/2020/05/202005091500ZebraMom.jpg)|
+202005101500|SpainBeeEaters|｢ヨーロッパハチクイ｣スペイン,　エストレマドゥーラ州 (© Martin Demmel/Offset)|｢愛鳥週間｣始まっています|![](/ja-JP/2020/05/202005101500SpainBeeEaters.jpg)|
