@@ -11,3 +11,4 @@
 202005080400|MapleLeafTulips|Tulipes «Feuille d’érable» dans un jardin à Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)||![](/fr-CA/2020/05/202005080400MapleLeafTulips.jpg)|
 202005090400|BarnOwlMigration|Chouette effraie assise sur une branche (© blickwinkel/Alamy)||![](/fr-CA/2020/05/202005090400BarnOwlMigration.jpg)|
 202005100400|ZebraMom|La mère et son poulain zèbre de Burchell dans la réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)||![](/fr-CA/2020/05/202005100400ZebraMom.jpg)|
+202005110400|OldPatriarchTree|Le vieil arbre patriarche du parc national de Grand Teton, Wyoming (© George Sanker/Minden Pictures)||![](/fr-CA/2020/05/202005110400OldPatriarchTree.jpg)|
