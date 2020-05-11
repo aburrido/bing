@@ -11,3 +11,4 @@
 202005082200|BarnOwlMigration|Chouette effraie perchée sur une branche (© blickwinkel/Alamy)|Oiseau globe-trotteur|![](/fr-FR/2020/05/202005082200BarnOwlMigration.jpg)|
 202005092200|SeagullsChat|Mouettes dans la lumière de l’aube, Parc national régional de la Brenne, France (© SandyS/Alamy Banque d'Images)|Conversations matinales|![](/fr-FR/2020/05/202005092200SeagullsChat.jpg)|
 202005102200|ElevenMai|Photo d'une rue de Nantes, ornée de banderoles en hommage aux soignants fabriquées par les habitants, prise le 27 avril 2020 (© LOIC VENANCE/AFP via Getty Images)|Pour le monde de demain|![](/fr-FR/2020/05/202005102200ElevenMai.jpg)|
+202005112200|FlorenceNightingale|Vitrail représentant Florence Nightingale au musée éponyme de Londres (© David Gee/Alamy)|Hommage aux soignants|![](/fr-FR/2020/05/202005112200FlorenceNightingale.jpg)|
