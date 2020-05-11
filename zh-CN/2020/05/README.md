@@ -11,3 +11,4 @@
 202005081600|BarnOwlMigration|一只停在树枝上的仓鸮 (© blickwinkel/Alamy)||![](/zh-CN/2020/05/202005081600BarnOwlMigration.jpg)|
 202005091600|ZebraMom|Rietvlei自然保护区内的布氏斑马母子，南非 (© Richard Du Toit/Minden Pictures)||![](/zh-CN/2020/05/202005091600ZebraMom.jpg)|
 202005101600|OldPatriarchTree|大提顿国家公园中的Old Patriarch Tree，怀俄明州 (© George Sanker/Minden Pictures)||![](/zh-CN/2020/05/202005101600OldPatriarchTree.jpg)|
+202005111600|SeagullsChat|La Brenne的海鸥，法国 (© SandyS/Alamy)||![](/zh-CN/2020/05/202005111600SeagullsChat.jpg)|
