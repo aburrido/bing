@@ -11,3 +11,4 @@
 202005081830|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Who are you looking at?|![](/en-IN/2020/05/202005081830BarnOwlMigration.jpg)|
 202005091830|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-IN/2020/05/202005091830ZebraMom.jpg)|
 202005101830|OldPatriarchTree|The Old Patriarch Tree of Grand Teton National Park, Wyoming, USA (© George Sanker/Minden Pictures)|A tree amid the Tetons|![](/en-IN/2020/05/202005101830OldPatriarchTree.jpg)|
+202005111830|NightingaleIndia2|Birth anniversary of  Florence Nightingale observed in India, 2015 (© NARINDER NANU/AFP via Getty Images)|Nursing the world to health|![](/en-IN/2020/05/202005111830NightingaleIndia2.jpg)|
