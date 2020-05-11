@@ -11,3 +11,4 @@
 202005080700|ChampsVEDay|People looking at the crowded Avenue des Champs-Élysées from the Arc de Triomphe on May 8, 1945, Paris, France (© AFP via Getty Images)|Victory in Europe, 75 years ago|![](/en-US/2020/05/202005080700ChampsVEDay.jpg)|
 202005090700|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Here’s looking at you, teachers|![](/en-US/2020/05/202005090700BarnOwlMigration.jpg)|
 202005100700|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-US/2020/05/202005100700ZebraMom.jpg)|
+202005110700|OldPatriarchTree|The Old Patriarch Tree of Grand Teton National Park, Wyoming (© George Sanker/Minden Pictures)|A tree amid the Tetons|![](/en-US/2020/05/202005110700OldPatriarchTree.jpg)|
