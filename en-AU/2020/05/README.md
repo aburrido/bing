@@ -11,3 +11,4 @@
 202005081400|BarnOwlMigration|Barn owl sitting on a branch (© blickwinkel/Alamy)|Who are you looking at?|![](/en-AU/2020/05/202005081400BarnOwlMigration.jpg)|
 202005091400|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-AU/2020/05/202005091400ZebraMom.jpg)|
 202005101400|CarltonGardens|Carlton Gardens fountain and autumn trees catching the sunlight in front of the Royal Exhibition Building, Melbourne (© CBCK-Christine/iStock/Getty Images Plus)|Garden views|![](/en-AU/2020/05/202005101400CarltonGardens.jpg)|
+202005111400|FlorenceNightingale|Painted and leaded glass window panel on display at the Florence Nightingale Museum, London, England (© David Gee/Alamy)|Nursing the world to health|![](/en-AU/2020/05/202005111400FlorenceNightingale.jpg)|
