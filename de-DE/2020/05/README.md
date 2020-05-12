@@ -12,3 +12,4 @@
 202005092200|ZebraMom|Weibliches Burchell-Zebra mit seinem Fohlen im Rietvlei Nature Reserve, Südafrika (© Richard Du Toit/Minden Pictures)|Heute ist Muttertag!|![](/de-DE/2020/05/202005092200ZebraMom.jpg)|
 202005102200|HaldeHaniel|Installation „Totems“ auf der Halde Haniel, Bottrop, Ruhrgebiet, Nordrhein-Westfalen, Deutschland (© Raimund Linke/Masterfile)|Künstlicher Gipfel im Ruhrgebiet|![](/de-DE/2020/05/202005102200HaldeHaniel.jpg)|
 202005112200|FlorenceNightingale|Bleiglasfenster im Florence Nightingale Museum, London, Vereinigtes Königreich (© David Gee/Alamy)|Krankenpflege für die Welt|![](/de-DE/2020/05/202005112200FlorenceNightingale.jpg)|
+202005122200|MooseWatching|Elch in der Nähe von Millinocket, Maine, USA (© Scott Suriano/Getty Images)|Elchbeobachtung|![](/de-DE/2020/05/202005122200MooseWatching.jpg)|
