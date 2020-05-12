@@ -12,3 +12,4 @@
 202005091500|ZebraMom|｢シマウマの母子｣南アフリカ, リットフレイ自然保護区 (© Richard Du Toit/Minden Pictures)|今日は｢母の日｣|![](/ja-JP/2020/05/202005091500ZebraMom.jpg)|
 202005101500|SpainBeeEaters|｢ヨーロッパハチクイ｣スペイン,　エストレマドゥーラ州 (© Martin Demmel/Offset)|｢愛鳥週間｣始まっています|![](/ja-JP/2020/05/202005101500SpainBeeEaters.jpg)|
 202005111500|FlorenceNightingale|｢フローレンス・ナイチンゲール博物館のステンドグラス｣イギリス, ロンドン (© David Gee/Alamy)|今日は｢国際看護師の日｣|![](/ja-JP/2020/05/202005111500FlorenceNightingale.jpg)|
+202005121500|MooseWatching|｢花を食べるヘラジカ｣米国メイン州, ミリノケット (© Scott Suriano/Getty Images)|米国の野生動物|![](/ja-JP/2020/05/202005121500MooseWatching.jpg)|
