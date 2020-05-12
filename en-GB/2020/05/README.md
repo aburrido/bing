@@ -12,3 +12,4 @@
 202005092300|MetamorphicRocks|Pemaquid Point Light in Maine's Damariscotta region, USA (© Tom Whitney/Adobe Stock)|On the rocks|![](/en-GB/2020/05/202005092300MetamorphicRocks.jpg)|
 202005102300|PoppyDeer|Roe deer (Capreolus capreolus) in meadow with poppies (© Arterra Picture Library/Alamy)|Out of the woods|![](/en-GB/2020/05/202005102300PoppyDeer.jpg)|
 202005112300|FlorenceNightingale|Painted and leaded glass window panel at the Florence Nightingale Museum, London (© David Gee/Alamy)|Saluting our nurses|![](/en-GB/2020/05/202005112300FlorenceNightingale.jpg)|
+202005122300|NantyMoch|High angle view of Nant-y-Moch dam and reservoir, near Aberystwyth (© Jake Gardener/EyeEm/Getty Images)|Holding back the tide|![](/en-GB/2020/05/202005122300NantyMoch.jpg)|
