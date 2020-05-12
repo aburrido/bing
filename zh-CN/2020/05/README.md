@@ -12,3 +12,4 @@
 202005091600|ZebraMom|Rietvlei自然保护区内的布氏斑马母子，南非 (© Richard Du Toit/Minden Pictures)||![](/zh-CN/2020/05/202005091600ZebraMom.jpg)|
 202005101600|OldPatriarchTree|大提顿国家公园中的Old Patriarch Tree，怀俄明州 (© George Sanker/Minden Pictures)||![](/zh-CN/2020/05/202005101600OldPatriarchTree.jpg)|
 202005111600|SeagullsChat|La Brenne的海鸥，法国 (© SandyS/Alamy)||![](/zh-CN/2020/05/202005111600SeagullsChat.jpg)|
+202005121600|MooseWatching|一只正在吃着百合花的驼鹿，缅因州米利诺基特 (© Scott Suriano/Getty Images)||![](/zh-CN/2020/05/202005121600MooseWatching.jpg)|
