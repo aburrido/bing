@@ -12,3 +12,4 @@
 202005090400|BarnOwlMigration|Chouette effraie assise sur une branche (© blickwinkel/Alamy)||![](/fr-CA/2020/05/202005090400BarnOwlMigration.jpg)|
 202005100400|ZebraMom|La mère et son poulain zèbre de Burchell dans la réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)||![](/fr-CA/2020/05/202005100400ZebraMom.jpg)|
 202005110400|OldPatriarchTree|Le vieil arbre patriarche du parc national de Grand Teton, Wyoming (© George Sanker/Minden Pictures)||![](/fr-CA/2020/05/202005110400OldPatriarchTree.jpg)|
+202005120400|FlorenceNightingale|Panneau de fenêtre en verre peint et au plomb exposé au Musée Florence Nightingale, Londres, Royaume-Uni (© David Gee/Alamy)||![](/fr-CA/2020/05/202005120400FlorenceNightingale.jpg)|
