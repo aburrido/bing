@@ -13,3 +13,4 @@
 202005102300|PoppyDeer|Roe deer (Capreolus capreolus) in meadow with poppies (© Arterra Picture Library/Alamy)|Out of the woods|![](/en-GB/2020/05/202005102300PoppyDeer.jpg)|
 202005112300|FlorenceNightingale|Painted and leaded glass window panel at the Florence Nightingale Museum, London (© David Gee/Alamy)|Saluting our nurses|![](/en-GB/2020/05/202005112300FlorenceNightingale.jpg)|
 202005122300|NantyMoch|High angle view of Nant-y-Moch dam and reservoir, near Aberystwyth (© Jake Gardener/EyeEm/Getty Images)|Holding back the tide|![](/en-GB/2020/05/202005122300NantyMoch.jpg)|
+202005132300|BaliRiceHarvest|Rice fields in the Sidemen Valley and Mount Agung, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-GB/2020/05/202005132300BaliRiceHarvest.jpg)|
