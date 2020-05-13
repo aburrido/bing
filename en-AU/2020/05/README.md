@@ -13,3 +13,4 @@
 202005101400|CarltonGardens|Carlton Gardens fountain and autumn trees catching the sunlight in front of the Royal Exhibition Building, Melbourne (© CBCK-Christine/iStock/Getty Images Plus)|Garden views|![](/en-AU/2020/05/202005101400CarltonGardens.jpg)|
 202005111400|FlorenceNightingale|Painted and leaded glass window panel on display at the Florence Nightingale Museum, London, England (© David Gee/Alamy)|Nursing the world to health|![](/en-AU/2020/05/202005111400FlorenceNightingale.jpg)|
 202005121400|MooseWatching|Moose snacking on water lilies in Millinocket, Maine (© Scott Suriano/Getty Images)|Of moose and Maine|![](/en-AU/2020/05/202005121400MooseWatching.jpg)|
+202005131400|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-AU/2020/05/202005131400BaliRiceHarvest.jpg)|
