@@ -13,3 +13,4 @@
 202005100400|ZebraMom|Burchell's zebra mother and foal in Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy Mother's Day|![](/en-CA/2020/05/202005100400ZebraMom.jpg)|
 202005110400|OldPatriarchTree|The Old Patriarch Tree of Grand Teton National Park, Wyoming (© George Sanker/Minden Pictures)|A tree amid the Tetons|![](/en-CA/2020/05/202005110400OldPatriarchTree.jpg)|
 202005120400|FlorenceNightingale|Painted and leaded glass window panel on display at the Florence Nightingale Museum, London, U.K. (© David Gee/Alamy)|Nursing the world to health|![](/en-CA/2020/05/202005120400FlorenceNightingale.jpg)|
+202005130400|MooseWatching|Moose snacking on water lilies in Millinocket, Maine (© Scott Suriano/Getty Images)|Of moose and Maine|![](/en-CA/2020/05/202005130400MooseWatching.jpg)|
