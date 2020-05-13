@@ -13,3 +13,4 @@
 202005102200|ElevenMai|Photo d'une rue de Nantes, ornée de banderoles en hommage aux soignants fabriquées par les habitants, prise le 27 avril 2020 (© LOIC VENANCE/AFP via Getty Images)|Pour le monde de demain|![](/fr-FR/2020/05/202005102200ElevenMai.jpg)|
 202005112200|FlorenceNightingale|Vitrail représentant Florence Nightingale au musée éponyme de Londres (© David Gee/Alamy)|Hommage aux soignants|![](/fr-FR/2020/05/202005112200FlorenceNightingale.jpg)|
 202005122200|MooseWatching|Un élan dégustant des fleurs près de Millinocket, Maine, États-Unis (© Scott Suriano/Getty Images)|De grande envergure|![](/fr-FR/2020/05/202005122200MooseWatching.jpg)|
+202005132200|BaliRiceHarvest|Champs de riz dans la vallée de Sidemen avec le mont Agung en arrière-plan, Bali, Indonésie (© Jon Arnold/Danita Delimont)|Merveilles du bout du monde|![](/fr-FR/2020/05/202005132200BaliRiceHarvest.jpg)|
