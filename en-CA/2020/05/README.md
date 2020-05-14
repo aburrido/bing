@@ -14,3 +14,4 @@
 202005110400|OldPatriarchTree|The Old Patriarch Tree of Grand Teton National Park, Wyoming (© George Sanker/Minden Pictures)|A tree amid the Tetons|![](/en-CA/2020/05/202005110400OldPatriarchTree.jpg)|
 202005120400|FlorenceNightingale|Painted and leaded glass window panel on display at the Florence Nightingale Museum, London, U.K. (© David Gee/Alamy)|Nursing the world to health|![](/en-CA/2020/05/202005120400FlorenceNightingale.jpg)|
 202005130400|MooseWatching|Moose snacking on water lilies in Millinocket, Maine (© Scott Suriano/Getty Images)|Of moose and Maine|![](/en-CA/2020/05/202005130400MooseWatching.jpg)|
+202005140400|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-CA/2020/05/202005140400BaliRiceHarvest.jpg)|

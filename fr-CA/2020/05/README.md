@@ -14,3 +14,4 @@
 202005110400|OldPatriarchTree|Le vieil arbre patriarche du parc national de Grand Teton, Wyoming (© George Sanker/Minden Pictures)||![](/fr-CA/2020/05/202005110400OldPatriarchTree.jpg)|
 202005120400|FlorenceNightingale|Panneau de fenêtre en verre peint et au plomb exposé au Musée Florence Nightingale, Londres, Royaume-Uni (© David Gee/Alamy)||![](/fr-CA/2020/05/202005120400FlorenceNightingale.jpg)|
 202005130400|MooseWatching|Orignal grignotant des lis à Millinocket, Maine (© Scott Suriano/Getty Images)||![](/fr-CA/2020/05/202005130400MooseWatching.jpg)|
+202005140400|BaliRiceHarvest|Champs de riz dans la vallée de Sidemen, avec le mont Agung en arrière-plan, Bali, Indonésie (© Jon Arnold/Danita Delimont)||![](/fr-CA/2020/05/202005140400BaliRiceHarvest.jpg)|
