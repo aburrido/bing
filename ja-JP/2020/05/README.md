@@ -14,3 +14,4 @@
 202005111500|FlorenceNightingale|｢フローレンス・ナイチンゲール博物館のステンドグラス｣イギリス, ロンドン (© David Gee/Alamy)|今日は｢国際看護師の日｣|![](/ja-JP/2020/05/202005111500FlorenceNightingale.jpg)|
 202005121500|MooseWatching|｢花を食べるヘラジカ｣米国メイン州, ミリノケット (© Scott Suriano/Getty Images)|米国の野生動物|![](/ja-JP/2020/05/202005121500MooseWatching.jpg)|
 202005131500|BaliRiceHarvest|｢ アグン山｣インドネシア, バリ (© Jon Arnold/Danita Delimont)|バリ島の聖なる山|![](/ja-JP/2020/05/202005131500BaliRiceHarvest.jpg)|
+202005141500|NorthRimOpens|｢グランドキャニオンとコロラド川｣米国アリゾナ州 (© Matteo Colombo Travel Photo/Shutterstock)|米国の世界遺産|![](/ja-JP/2020/05/202005141500NorthRimOpens.jpg)|
