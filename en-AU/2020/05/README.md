@@ -14,3 +14,4 @@
 202005111400|FlorenceNightingale|Painted and leaded glass window panel on display at the Florence Nightingale Museum, London, England (© David Gee/Alamy)|Nursing the world to health|![](/en-AU/2020/05/202005111400FlorenceNightingale.jpg)|
 202005121400|MooseWatching|Moose snacking on water lilies in Millinocket, Maine (© Scott Suriano/Getty Images)|Of moose and Maine|![](/en-AU/2020/05/202005121400MooseWatching.jpg)|
 202005131400|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-AU/2020/05/202005131400BaliRiceHarvest.jpg)|
+202005141400|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|The last thing seen by Wile E. Coyote|![](/en-AU/2020/05/202005141400NorthRimOpens.jpg)|
