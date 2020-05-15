@@ -15,3 +15,4 @@
 202005122200|MooseWatching|Un élan dégustant des fleurs près de Millinocket, Maine, États-Unis (© Scott Suriano/Getty Images)|De grande envergure|![](/fr-FR/2020/05/202005122200MooseWatching.jpg)|
 202005132200|BaliRiceHarvest|Champs de riz dans la vallée de Sidemen avec le mont Agung en arrière-plan, Bali, Indonésie (© Jon Arnold/Danita Delimont)|Merveilles du bout du monde|![](/fr-FR/2020/05/202005132200BaliRiceHarvest.jpg)|
 202005142200|NorthRimOpens|Le Grand Canyon et le Colorado depuis Toroweap Overlook, Parc national du Grand Canyon, Arizona, États-Unis (© Matteo Colombo Travel Photo/Shutterstock)|Vertigineux|![](/fr-FR/2020/05/202005142200NorthRimOpens.jpg)|
+202005152200|LacMidi|Les lacs d'Ayous et le pic du midi d'Ossau, France (© Eneko Aldaz/Offset by Shutterstock)|Randonnée et patrimoine|![](/fr-FR/2020/05/202005152200LacMidi.jpg)|

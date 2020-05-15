@@ -15,3 +15,4 @@
 202005122200|MooseWatching|Elch in der Nähe von Millinocket, Maine, USA (© Scott Suriano/Getty Images)|Elchbeobachtung|![](/de-DE/2020/05/202005122200MooseWatching.jpg)|
 202005132200|BaliRiceHarvest|Reisfelder im Sidemen Valley mit dem Vulkan Agung im Hintergrund, Bali, Indonesien (© Jon Arnold/Danita Delimont)|Grüne Getreidefelder|![](/de-DE/2020/05/202005132200BaliRiceHarvest.jpg)|
 202005142200|NorthRimOpens|Blick vom Toroweap Overlook auf den Grand Canyon und den Colorado River, Grand-Canyon-Nationalpark, Arizona, USA (© Matteo Colombo Travel Photo/Shutterstock)|Der schönste Ort am Grand Canyon|![](/de-DE/2020/05/202005142200NorthRimOpens.jpg)|
+202005152200|LacMidi|Lacs d'Ayous am Fuß des Pic du Midi d’Ossau, Pyrenäen, Frankreich (© Eneko Aldaz/Offset by Shutterstock)|See-Idyll in den Pyrenäen|![](/de-DE/2020/05/202005152200LacMidi.jpg)|
