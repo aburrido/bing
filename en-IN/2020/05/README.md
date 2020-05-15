@@ -15,3 +15,4 @@
 202005121830|MooseWatching|Moose snacking on water lilies in Millinocket, Maine, USA (© Scott Suriano/Getty Images)|Of moose and Maine|![](/en-IN/2020/05/202005121830MooseWatching.jpg)|
 202005131830|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-IN/2020/05/202005131830BaliRiceHarvest.jpg)|
 202005141830|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|A view like none other|![](/en-IN/2020/05/202005141830NorthRimOpens.jpg)|
+202005151830|LacMidi|Lac d'Ayous hut with Midi d'Ossau mountain, France (© Eneko Aldaz/Offset by Shutterstock)|Beautiful lake in the Pyrenees mountains|![](/en-IN/2020/05/202005151830LacMidi.jpg)|
