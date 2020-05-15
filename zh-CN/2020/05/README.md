@@ -15,3 +15,4 @@
 202005121600|MooseWatching|一只正在吃着百合花的驼鹿，缅因州米利诺基特 (© Scott Suriano/Getty Images)||![](/zh-CN/2020/05/202005121600MooseWatching.jpg)|
 202005131600|BaliRiceHarvest|以阿贡火山为背景Sidemen山谷中的稻田，印度尼西亚巴厘岛 (© Jon Arnold/Danita Delimont)||![](/zh-CN/2020/05/202005131600BaliRiceHarvest.jpg)|
 202005141600|NorthRimOpens|从Toroweap Overlook俯瞰大峡谷和科罗拉多河，亚利桑那州大峡谷国家公园 (© Matteo Colombo Travel Photo/Shutterstock)||![](/zh-CN/2020/05/202005141600NorthRimOpens.jpg)|
+202005151600|LacMidi|南奥索峰的Lac d'Ayous小屋，法国 (© Eneko Aldaz/Offset by Shutterstock)||![](/zh-CN/2020/05/202005151600LacMidi.jpg)|
