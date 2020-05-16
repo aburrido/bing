@@ -16,3 +16,4 @@
 202005130400|MooseWatching|Orignal grignotant des lis à Millinocket, Maine (© Scott Suriano/Getty Images)||![](/fr-CA/2020/05/202005130400MooseWatching.jpg)|
 202005140400|BaliRiceHarvest|Champs de riz dans la vallée de Sidemen, avec le mont Agung en arrière-plan, Bali, Indonésie (© Jon Arnold/Danita Delimont)||![](/fr-CA/2020/05/202005140400BaliRiceHarvest.jpg)|
 202005150400|NorthRimOpens|Grand Canyon et Colorado River de Toroweap Overlook, Parc National du Grand Canyon, Arizona (© Matteo Colombo Travel Photo/Shutterstock)||![](/fr-CA/2020/05/202005150400NorthRimOpens.jpg)|
+202005160400|LacMidi|Refuge du Lac d'Ayous avec la montagne du Midi d'Ossau, France (© Eneko Aldaz/Offset by Shutterstock)||![](/fr-CA/2020/05/202005160400LacMidi.jpg)|

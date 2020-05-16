@@ -16,3 +16,4 @@
 202005130400|MooseWatching|Moose snacking on water lilies in Millinocket, Maine (© Scott Suriano/Getty Images)|Of moose and Maine|![](/en-CA/2020/05/202005130400MooseWatching.jpg)|
 202005140400|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-CA/2020/05/202005140400BaliRiceHarvest.jpg)|
 202005150400|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|The last thing seen by Wile E. Coyote|![](/en-CA/2020/05/202005150400NorthRimOpens.jpg)|
+202005160400|MapleLeafTulips|‘Maple Leaf’ tulips In a garden in Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)|A dazzling display|![](/en-CA/2020/05/202005160400MapleLeafTulips.jpg)|
