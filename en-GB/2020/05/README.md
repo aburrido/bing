@@ -16,3 +16,4 @@
 202005132300|BaliRiceHarvest|Rice fields in the Sidemen Valley and Mount Agung, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-GB/2020/05/202005132300BaliRiceHarvest.jpg)|
 202005142300|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Arizona, USA  (© Matteo Colombo Travel Photo/Shutterstock)|Clouds over the Grand Canyon|![](/en-GB/2020/05/202005142300NorthRimOpens.jpg)|
 202005152300|CordovanCourts|Bronze sculpture of child and his grandfather caring for plants and flowers, Cordoba, Spain (© David M G/Alamy)|A growing tradition|![](/en-GB/2020/05/202005152300CordovanCourts.jpg)|
+202005162300|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-GB/2020/05/202005162300LofotenIslands.jpg)|
