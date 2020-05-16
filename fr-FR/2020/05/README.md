@@ -16,3 +16,4 @@
 202005132200|BaliRiceHarvest|Champs de riz dans la vallée de Sidemen avec le mont Agung en arrière-plan, Bali, Indonésie (© Jon Arnold/Danita Delimont)|Merveilles du bout du monde|![](/fr-FR/2020/05/202005132200BaliRiceHarvest.jpg)|
 202005142200|NorthRimOpens|Le Grand Canyon et le Colorado depuis Toroweap Overlook, Parc national du Grand Canyon, Arizona, États-Unis (© Matteo Colombo Travel Photo/Shutterstock)|Vertigineux|![](/fr-FR/2020/05/202005142200NorthRimOpens.jpg)|
 202005152200|LacMidi|Les lacs d'Ayous et le pic du midi d'Ossau, France (© Eneko Aldaz/Offset by Shutterstock)|Randonnée et patrimoine|![](/fr-FR/2020/05/202005152200LacMidi.jpg)|
+202005162200|LofotenIslands|Village de pêche de Henningsvær et le Henningsvær Idrettslag Stadion, Comté de Nordland, Norvège (© Viktor Posnov/Alamy)|Vivre de pêche et de foot|![](/fr-FR/2020/05/202005162200LofotenIslands.jpg)|
