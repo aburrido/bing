@@ -17,3 +17,4 @@
 202005141500|NorthRimOpens|｢グランドキャニオンとコロラド川｣米国アリゾナ州 (© Matteo Colombo Travel Photo/Shutterstock)|米国の世界遺産|![](/ja-JP/2020/05/202005141500NorthRimOpens.jpg)|
 202005151500|BarnOwlMigration|｢メンフクロウ｣ (© blickwinkel/Alamy)|｢愛鳥週間｣最終日です|![](/ja-JP/2020/05/202005151500BarnOwlMigration.jpg)|
 202005161500|LofotenIslands|｢ヘニングスヴァール村スタジアム｣ノルウェー, ヌールラン県  (© Viktor Posnov/Alamy)|今日は｢ノルウェー独立記念日｣|![](/ja-JP/2020/05/202005161500LofotenIslands.jpg)|
+202005171500|QatarMuseum|｢カタール国立博物館｣カタール, ドーハ (© Hasan Zaidi/Shutterstock)|今日は｢国際博物館の日｣|![](/ja-JP/2020/05/202005171500QatarMuseum.jpg)|
