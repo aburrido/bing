@@ -17,3 +17,4 @@
 202005141830|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|A view like none other|![](/en-IN/2020/05/202005141830NorthRimOpens.jpg)|
 202005151830|LacMidi|Lac d'Ayous hut with Midi d'Ossau mountain, France (© Eneko Aldaz/Offset by Shutterstock)|Beautiful lake in the Pyrenees mountains|![](/en-IN/2020/05/202005151830LacMidi.jpg)|
 202005161830|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-IN/2020/05/202005161830LofotenIslands.jpg)|
+202005171830|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-IN/2020/05/202005171830QatarMuseum.jpg)|
