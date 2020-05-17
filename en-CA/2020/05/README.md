@@ -17,3 +17,4 @@
 202005140400|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-CA/2020/05/202005140400BaliRiceHarvest.jpg)|
 202005150400|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|The last thing seen by Wile E. Coyote|![](/en-CA/2020/05/202005150400NorthRimOpens.jpg)|
 202005160400|MapleLeafTulips|‘Maple Leaf’ tulips In a garden in Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)|A dazzling display|![](/en-CA/2020/05/202005160400MapleLeafTulips.jpg)|
+202005170400|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-CA/2020/05/202005170400LofotenIslands.jpg)|
