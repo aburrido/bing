@@ -17,3 +17,4 @@
 202005142200|NorthRimOpens|Blick vom Toroweap Overlook auf den Grand Canyon und den Colorado River, Grand-Canyon-Nationalpark, Arizona, USA (© Matteo Colombo Travel Photo/Shutterstock)|Der schönste Ort am Grand Canyon|![](/de-DE/2020/05/202005142200NorthRimOpens.jpg)|
 202005152200|LacMidi|Lacs d'Ayous am Fuß des Pic du Midi d’Ossau, Pyrenäen, Frankreich (© Eneko Aldaz/Offset by Shutterstock)|See-Idyll in den Pyrenäen|![](/de-DE/2020/05/202005152200LacMidi.jpg)|
 202005162200|ArithmeumBonn|Nachbau einer Leibniz-Rechenmaschine im Arithmeum, Bonn, Nordrhein-Westfalen, Deutschland (© WALTER BIBIKOW/DanitaDelimont.com)|Welt der Zahlen|![](/de-DE/2020/05/202005162200ArithmeumBonn.jpg)|
+202005172200|QatarMuseum|Nationalmuseum von Katar in Doha (© Hasan Zaidi/Shutterstock)|Wüstenrose|![](/de-DE/2020/05/202005172200QatarMuseum.jpg)|
