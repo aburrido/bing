@@ -17,3 +17,4 @@
 202005141400|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|The last thing seen by Wile E. Coyote|![](/en-AU/2020/05/202005141400NorthRimOpens.jpg)|
 202005151400|OldPatriarchTree|The Old Patriarch Tree of Grand Teton National Park, Wyoming (© George Sanker/Minden Pictures)|A tree amid the Tetons|![](/en-AU/2020/05/202005151400OldPatriarchTree.jpg)|
 202005161400|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-AU/2020/05/202005161400LofotenIslands.jpg)|
+202005171400|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-AU/2020/05/202005171400QatarMuseum.jpg)|
