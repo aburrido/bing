@@ -17,3 +17,4 @@
 202005140700|BaliRiceHarvest|Rice fields in the Sidemen Valley, with Mount Agung in the background, Bali, Indonesia (© Jon Arnold/Danita Delimont)|Green fields of grain|![](/en-US/2020/05/202005140700BaliRiceHarvest.jpg)|
 202005150700|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|The last thing seen by Wile E. Coyote|![](/en-US/2020/05/202005150700NorthRimOpens.jpg)|
 202005160700|ArmedForces|US Air Force Thunderbirds perform over Hampton, Virginia (© gmeland/Shutterstock)|Let's run 'em up!|![](/en-US/2020/05/202005160700ArmedForces.jpg)|
+202005170700|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-US/2020/05/202005170700LofotenIslands.jpg)|
