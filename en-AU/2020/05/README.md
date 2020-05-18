@@ -18,3 +18,4 @@
 202005151400|OldPatriarchTree|The Old Patriarch Tree of Grand Teton National Park, Wyoming (© George Sanker/Minden Pictures)|A tree amid the Tetons|![](/en-AU/2020/05/202005151400OldPatriarchTree.jpg)|
 202005161400|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-AU/2020/05/202005161400LofotenIslands.jpg)|
 202005171400|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-AU/2020/05/202005171400QatarMuseum.jpg)|
+202005181400|RoaringFork|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Paul Hassell/Tandem Stills + Motion)|Loud waters|![](/en-AU/2020/05/202005181400RoaringFork.jpg)|
