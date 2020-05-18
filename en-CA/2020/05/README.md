@@ -18,3 +18,4 @@
 202005150400|NorthRimOpens|Grand Canyon and Colorado River from Toroweap Overlook, Grand Canyon National Park, Arizona (© Matteo Colombo Travel Photo/Shutterstock)|The last thing seen by Wile E. Coyote|![](/en-CA/2020/05/202005150400NorthRimOpens.jpg)|
 202005160400|MapleLeafTulips|‘Maple Leaf’ tulips In a garden in Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)|A dazzling display|![](/en-CA/2020/05/202005160400MapleLeafTulips.jpg)|
 202005170400|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-CA/2020/05/202005170400LofotenIslands.jpg)|
+202005180400|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-CA/2020/05/202005180400QatarMuseum.jpg)|
