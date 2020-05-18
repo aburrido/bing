@@ -18,3 +18,4 @@
 202005151830|LacMidi|Lac d'Ayous hut with Midi d'Ossau mountain, France (© Eneko Aldaz/Offset by Shutterstock)|Beautiful lake in the Pyrenees mountains|![](/en-IN/2020/05/202005151830LacMidi.jpg)|
 202005161830|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-IN/2020/05/202005161830LofotenIslands.jpg)|
 202005171830|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-IN/2020/05/202005171830QatarMuseum.jpg)|
+202005181830|ElephantHerd|Asian Elephant (Elephas maximus indicus) herd in Kaziranga National Park, Assam (© Parameswaran Pillai Karunakaran/Minden Pictures)|Asian elephants on the banks of the Brahmaputra|![](/en-IN/2020/05/202005181830ElephantHerd.jpg)|
