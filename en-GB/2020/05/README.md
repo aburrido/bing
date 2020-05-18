@@ -18,3 +18,4 @@
 202005152300|CordovanCourts|Bronze sculpture of child and his grandfather caring for plants and flowers, Cordoba, Spain (© David M G/Alamy)|A growing tradition|![](/en-GB/2020/05/202005152300CordovanCourts.jpg)|
 202005162300|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-GB/2020/05/202005162300LofotenIslands.jpg)|
 202005172300|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-GB/2020/05/202005172300QatarMuseum.jpg)|
+202005182300|FormentorHolidays|Formentor lighthouse at the tip of Cap de Formentor, Mallorca, Spain (© Lasse Eklöf/DEEPOL by plainpicture)|Meeting point of the winds|![](/en-GB/2020/05/202005182300FormentorHolidays.jpg)|
