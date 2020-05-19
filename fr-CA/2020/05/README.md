@@ -19,3 +19,4 @@
 202005160400|LacMidi|Refuge du Lac d'Ayous avec la montagne du Midi d'Ossau, France (© Eneko Aldaz/Offset by Shutterstock)||![](/fr-CA/2020/05/202005160400LacMidi.jpg)|
 202005170400|LofotenIslands|Village de pêcheurs de Henningsvær avec Henningsvær Idrettslag Stadion, Nordland, Norvège (© Viktor Posnov/Alamy)||![](/fr-CA/2020/05/202005170400LofotenIslands.jpg)|
 202005180400|NileCreekMoss|Arbres et fougères couverts de mousse dans une forêt tropicale le long du ruisseau du Nil, près de Campbell River, en Colombie-Britannique. (© Robert Postma/Plainpicture)||![](/fr-CA/2020/05/202005180400NileCreekMoss.jpg)|
+202005190400|RoaringFork|Roaring Fork dans le parc national des Great Smoky Mountains, Tennessee (© Paul Hassell/Tandem Stills + Motion)||![](/fr-CA/2020/05/202005190400RoaringFork.jpg)|

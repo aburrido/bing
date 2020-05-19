@@ -19,3 +19,4 @@
 202005160400|MapleLeafTulips|‘Maple Leaf’ tulips In a garden in Ottawa (© Bao Le Dinh Quoc/Alamy Stock Photo)|A dazzling display|![](/en-CA/2020/05/202005160400MapleLeafTulips.jpg)|
 202005170400|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-CA/2020/05/202005170400LofotenIslands.jpg)|
 202005180400|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-CA/2020/05/202005180400QatarMuseum.jpg)|
+202005190400|RoaringFork|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Paul Hassell/Tandem Stills + Motion)|Loud waters|![](/en-CA/2020/05/202005190400RoaringFork.jpg)|
