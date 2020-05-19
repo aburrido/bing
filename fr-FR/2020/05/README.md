@@ -19,3 +19,4 @@
 202005162200|LofotenIslands|Village de pêche de Henningsvær et le Henningsvær Idrettslag Stadion, Comté de Nordland, Norvège (© Viktor Posnov/Alamy)|Vivre de pêche et de foot|![](/fr-FR/2020/05/202005162200LofotenIslands.jpg)|
 202005172200|QatarMuseum|Musée national du Qatar, Doha, Qatar (© Hasan Zaidi/Shutterstock)|Tradition et modernité|![](/fr-FR/2020/05/202005172200QatarMuseum.jpg)|
 202005182200|RoaringFork|Roaring Fork dans le parc national des monts Great Smoky, Tennessee, États-Unis (© Paul Hassell/Tandem Stills + Motion)|Le bruit de l’eau|![](/fr-FR/2020/05/202005182200RoaringFork.jpg)|
+202005192200|LavenderBee|Champs de lavande et de tournesols avec des ruches, Provence, France (© leoks/Shutterstock)|Le miel et les abeilles|![](/fr-FR/2020/05/202005192200LavenderBee.jpg)|

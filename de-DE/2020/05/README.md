@@ -19,3 +19,4 @@
 202005162200|ArithmeumBonn|Nachbau einer Leibniz-Rechenmaschine im Arithmeum, Bonn, Nordrhein-Westfalen, Deutschland (© WALTER BIBIKOW/DanitaDelimont.com)|Welt der Zahlen|![](/de-DE/2020/05/202005162200ArithmeumBonn.jpg)|
 202005172200|QatarMuseum|Nationalmuseum von Katar in Doha (© Hasan Zaidi/Shutterstock)|Wüstenrose|![](/de-DE/2020/05/202005172200QatarMuseum.jpg)|
 202005182200|LofotenIslands|Fischerdorf Henningsvær mit dem Henningsvær Idrettslag Stadion, Nordland, Norwegen (© Viktor Posnov/Alamy)|Fischerdorf von oben|![](/de-DE/2020/05/202005182200LofotenIslands.jpg)|
+202005192200|LavenderBee|Lavendel- und Sonnenblumenfelder mit Bienenstöcken in der Provence, Frankreich (© leoks/Shutterstock)|Heute ist Weltbienentag|![](/de-DE/2020/05/202005192200LavenderBee.jpg)|
