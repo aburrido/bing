@@ -19,3 +19,4 @@
 202005160700|ArmedForces|US Air Force Thunderbirds perform over Hampton, Virginia (© gmeland/Shutterstock)|Let's run 'em up!|![](/en-US/2020/05/202005160700ArmedForces.jpg)|
 202005170700|LofotenIslands|Fishing village of Henningsvær with Henningsvær Idrettslag Stadion, Nordland, Norway (© Viktor Posnov/Alamy)|My my, it's Syttende Mai|![](/en-US/2020/05/202005170700LofotenIslands.jpg)|
 202005180700|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-US/2020/05/202005180700QatarMuseum.jpg)|
+202005190700|RoaringFork|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Paul Hassell/Tandem Stills + Motion)|Loud waters|![](/en-US/2020/05/202005190700RoaringFork.jpg)|
