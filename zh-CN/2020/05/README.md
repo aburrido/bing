@@ -19,3 +19,4 @@
 202005161600|LofotenIslands|亨宁斯韦尔渔村的体育场，挪威诺尔兰郡 (© Viktor Posnov/Alamy)||![](/zh-CN/2020/05/202005161600LofotenIslands.jpg)|
 202005171600|ElephantHerd|卡齐兰加国家公园的亚洲象群，印度阿萨姆邦 (© Parameswaran Pillai Karunakaran/Minden Pictures)||![](/zh-CN/2020/05/202005171600ElephantHerd.jpg)|
 202005181600|RoaringFork|大烟山国家公园中的咆哮溪，田纳西州 (© Paul Hassell/Tandem Stills + Motion)||![](/zh-CN/2020/05/202005181600RoaringFork.jpg)|
+202005191600|LavenderBee|薰衣草田和蜂箱旁的向日葵地，法国普罗旺斯 (© leoks/Shutterstock)||![](/zh-CN/2020/05/202005191600LavenderBee.jpg)|
