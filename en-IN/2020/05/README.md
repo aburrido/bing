@@ -20,3 +20,4 @@
 202005171830|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-IN/2020/05/202005171830QatarMuseum.jpg)|
 202005181830|ElephantHerd|Asian Elephant (Elephas maximus indicus) herd in Kaziranga National Park, Assam (© Parameswaran Pillai Karunakaran/Minden Pictures)|Asian elephants on the banks of the Brahmaputra|![](/en-IN/2020/05/202005181830ElephantHerd.jpg)|
 202005191830|LavenderBee|Fields of lavender and sunflowers with beehives in Provence, France (© leoks/Shutterstock)|It's World Bee Day|![](/en-IN/2020/05/202005191830LavenderBee.jpg)|
+202005201830|JeffHanson|'Strolling the Biltmore,' a painting by Jeff Hanson (© Jeff Hanson Art)|A visionary artist paints his own garden view|![](/en-IN/2020/05/202005201830JeffHanson.jpg)|
