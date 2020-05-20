@@ -20,3 +20,4 @@
 202005170400|LofotenIslands|Village de pêcheurs de Henningsvær avec Henningsvær Idrettslag Stadion, Nordland, Norvège (© Viktor Posnov/Alamy)||![](/fr-CA/2020/05/202005170400LofotenIslands.jpg)|
 202005180400|NileCreekMoss|Arbres et fougères couverts de mousse dans une forêt tropicale le long du ruisseau du Nil, près de Campbell River, en Colombie-Britannique. (© Robert Postma/Plainpicture)||![](/fr-CA/2020/05/202005180400NileCreekMoss.jpg)|
 202005190400|RoaringFork|Roaring Fork dans le parc national des Great Smoky Mountains, Tennessee (© Paul Hassell/Tandem Stills + Motion)||![](/fr-CA/2020/05/202005190400RoaringFork.jpg)|
+202005200400|LavenderBee|Champs de lavande et de tournesols avec des ruches en Provence, France (© leoks/Shutterstock)||![](/fr-CA/2020/05/202005200400LavenderBee.jpg)|
