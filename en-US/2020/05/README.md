@@ -21,3 +21,4 @@
 202005180700|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-US/2020/05/202005180700QatarMuseum.jpg)|
 202005190700|RoaringFork|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Paul Hassell/Tandem Stills + Motion)|Loud waters|![](/en-US/2020/05/202005190700RoaringFork.jpg)|
 202005200700|LavenderBee|Fields of lavender and sunflowers with beehives in Provence, France (© leoks/Shutterstock)|It's World Bee Day|![](/en-US/2020/05/202005200700LavenderBee.jpg)|
+202005210700|JeffHanson|‘Strolling the Biltmore,’ a painting by visually impaired artist Jeff Hanson (© Jeff Hanson Art)|A visionary artist paints his own garden view|![](/en-US/2020/05/202005210700JeffHanson.jpg)|
