@@ -21,3 +21,4 @@
 202005180400|QatarMuseum|National Museum of Qatar in Doha, Qatar (© Hasan Zaidi/Shutterstock)|Desert rose of Qatar|![](/en-CA/2020/05/202005180400QatarMuseum.jpg)|
 202005190400|RoaringFork|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Paul Hassell/Tandem Stills + Motion)|Loud waters|![](/en-CA/2020/05/202005190400RoaringFork.jpg)|
 202005200400|NileCreekMoss|Moss-covered trees and ferns in a rainforest along Nile Creek, near Campbell River, B.C. (© Robert Postma/Plainpicture)|A burst of green|![](/en-CA/2020/05/202005200400NileCreekMoss.jpg)|
+202005210400|JeffHanson|'Strolling the Biltmore,' a painting by Jeff Hanson (© Jeff Hanson Art)|A visionary artist paints his own garden view|![](/en-CA/2020/05/202005210400JeffHanson.jpg)|
