@@ -22,3 +22,4 @@
 202005190400|RoaringFork|Roaring Fork dans le parc national des Great Smoky Mountains, Tennessee (© Paul Hassell/Tandem Stills + Motion)||![](/fr-CA/2020/05/202005190400RoaringFork.jpg)|
 202005200400|LavenderBee|Champs de lavande et de tournesols avec des ruches en Provence, France (© leoks/Shutterstock)||![](/fr-CA/2020/05/202005200400LavenderBee.jpg)|
 202005210400|ElephantHerd|Troupeau d'éléphants d'Asie (Elephas maximus indicus) dans le Parc national de Kaziranga, Assam, Inde (© Parameswaran Pillai Karunakaran/Minden Pictures)||![](/fr-CA/2020/05/202005210400ElephantHerd.jpg)|
+202005220400|ReichenbachFalls|Chutes de Reichenbach, Oberland bernois, Suisse (© Chris Milne/Alamy)||![](/fr-CA/2020/05/202005220400ReichenbachFalls.jpg)|
