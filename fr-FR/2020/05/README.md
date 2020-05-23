@@ -23,3 +23,4 @@
 202005202200|JeffHanson|« Promenade dans le Biltmore », une oeuvre de Jeff Hanson (© Jeff Hanson Art)|Le plaisir des yeux|![](/fr-FR/2020/05/202005202200JeffHanson.jpg)|
 202005212200|ReichenbachFalls|Les chutes du Reichenbach, Oberland bernois, Suisse (© Chris Milne/Alamy)|Un seul survivant|![](/fr-FR/2020/05/202005212200ReichenbachFalls.jpg)|
 202005222200|SunSalutation|Une Tortue à ventre jaune (© Marko Markovic Photography/Shutterstock)|Honneur aux tortues|![](/fr-FR/2020/05/202005222200SunSalutation.jpg)|
+202005232200|GreenanMaze|Greenan Maze dans le comté de Wicklow, Irlande (© Peter Krocka/Shutterstock)|Art botanique|![](/fr-FR/2020/05/202005232200GreenanMaze.jpg)|
