@@ -23,3 +23,4 @@
 202005201500|JeffHanson|｢Strolling the Biltmore｣ジェフ・ハンソン (© Jeff Hanson Art)|今日は｢アクセシビリティ・アウェアネス・デー｣|![](/ja-JP/2020/05/202005201500JeffHanson.jpg)|
 202005211500|ReichenbachFalls|｢ライヘンバッハの滝｣スイス, ベルナー・オーバーラント (© Chris Milne/Alamy)|今日は｢国際シャーロック・ホームズの日｣|![](/ja-JP/2020/05/202005211500ReichenbachFalls.jpg)|
 202005221500|CuracaoTurtle|｢イワシの群れとアオウミガメ｣キュラソー島, プラヤ・グランデ (© yfhishinuma/Getty Images Plus)|今日は｢世界カメの日｣|![](/ja-JP/2020/05/202005221500CuracaoTurtle.jpg)|
+202005231500|ReddishEgret|｢アカゲサギ ｣米国フロリダ州, フォートデソト公園 (© Brian Lasenby/Getty Images)|米国の野鳥|![](/ja-JP/2020/05/202005231500ReddishEgret.jpg)|
