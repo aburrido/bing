@@ -24,3 +24,4 @@
 202005212200|ReichenbachFalls|Reichenbachfall, Berner Oberland, Kanton Bern, Schweiz (© Chris Milne/Alamy)|Szene eines fiktiven Kriminalfalls|![](/de-DE/2020/05/202005212200ReichenbachFalls.jpg)|
 202005222200|SunSalutation|Gelbbauch-Schmuckschildkröte (© Marko Markovic Photography/Shutterstock)|Morgengymnastik am Welt-Schildkröten-Tag|![](/de-DE/2020/05/202005222200SunSalutation.jpg)|
 202005232200|GreenanMaze|Greenan Maze im County Wicklow, Irland (© Peter Krocka/Shutterstock)|Der richtige Weg in die Mitte|![](/de-DE/2020/05/202005232200GreenanMaze.jpg)|
+202005242200|TulipFieldsDE|Luftaufnahme von Tulpenfeldern in Sachsen-Anhalt, Deutschland (© Anke Scheibe/Westend61/offset by shutterstock)|Bunte Blütenpracht|![](/de-DE/2020/05/202005242200TulipFieldsDE.jpg)|
