@@ -24,3 +24,4 @@
 202005211830|ReichenbachFalls|Reichenbach Falls, Bernese Oberland, Switzerland (© Chris Milne/Alamy)|The scene of a literary crime|![](/en-IN/2020/05/202005211830ReichenbachFalls.jpg)|
 202005221830|RamadanSpire|Crescent moon behind the Jama Masjid, New Delhi (© Vipin Kumar/Hindustan Times via Getty Images)|The crescent moon of Ramadan|![](/en-IN/2020/05/202005221830RamadanSpire.jpg)|
 202005231830|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-IN/2020/05/202005231830GreenanMaze.jpg)|
+202005241830|WolfPup|Gray wolf with begging pup, Montana (© Tim Fitzharris/Minden Pictures)|Welcome to the pack|![](/en-IN/2020/05/202005241830WolfPup.jpg)|
