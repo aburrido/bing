@@ -24,3 +24,4 @@
 202005210400|ElephantHerd|Troupeau d'éléphants d'Asie (Elephas maximus indicus) dans le Parc national de Kaziranga, Assam, Inde (© Parameswaran Pillai Karunakaran/Minden Pictures)||![](/fr-CA/2020/05/202005210400ElephantHerd.jpg)|
 202005220400|ReichenbachFalls|Chutes de Reichenbach, Oberland bernois, Suisse (© Chris Milne/Alamy)||![](/fr-CA/2020/05/202005220400ReichenbachFalls.jpg)|
 202005230400|SunSalutation|Un curseur à ventre jaune mâle (© Marko Markovic Photography/Shutterstock)||![](/fr-CA/2020/05/202005230400SunSalutation.jpg)|
+202005240400|GreenanMaze|Le Labyrinthe Greenan dans le comté de Wicklow, Irlande (© Peter Krocka/Shutterstock)||![](/fr-CA/2020/05/202005240400GreenanMaze.jpg)|
