@@ -24,3 +24,4 @@
 202005210700|JeffHanson|‘Strolling the Biltmore,’ a painting by visually impaired artist Jeff Hanson (© Jeff Hanson Art)|A visionary artist paints his own garden view|![](/en-US/2020/05/202005210700JeffHanson.jpg)|
 202005220700|ReichenbachFalls|Reichenbach Falls, Bernese Oberland, Switzerland (© Chris Milne/Alamy)|The scene of a literary crime|![](/en-US/2020/05/202005220700ReichenbachFalls.jpg)|
 202005230700|SunSalutation|A male yellow-bellied slider (© Marko Markovic Photography/Shutterstock)|Bask in the glow—It's World Turtle Day|![](/en-US/2020/05/202005230700SunSalutation.jpg)|
+202005240700|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-US/2020/05/202005240700GreenanMaze.jpg)|
