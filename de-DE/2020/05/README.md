@@ -25,3 +25,4 @@
 202005222200|SunSalutation|Gelbbauch-Schmuckschildkröte (© Marko Markovic Photography/Shutterstock)|Morgengymnastik am Welt-Schildkröten-Tag|![](/de-DE/2020/05/202005222200SunSalutation.jpg)|
 202005232200|GreenanMaze|Greenan Maze im County Wicklow, Irland (© Peter Krocka/Shutterstock)|Der richtige Weg in die Mitte|![](/de-DE/2020/05/202005232200GreenanMaze.jpg)|
 202005242200|TulipFieldsDE|Luftaufnahme von Tulpenfeldern in Sachsen-Anhalt, Deutschland (© Anke Scheibe/Westend61/offset by shutterstock)|Bunte Blütenpracht|![](/de-DE/2020/05/202005242200TulipFieldsDE.jpg)|
+202005252200|CheetahCubs|Junge Geparden im Ngorongoro-Schutzgebiet, Tansania (© Paul Souders/Getty Images)|Saison für Baumkletterer|![](/de-DE/2020/05/202005252200CheetahCubs.jpg)|
