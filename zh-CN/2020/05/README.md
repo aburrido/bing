@@ -25,3 +25,4 @@
 202005221600|SunSalutation|一只雄性黄腹彩龟 (© Marko Markovic Photography/Shutterstock)||![](/zh-CN/2020/05/202005221600SunSalutation.jpg)|
 202005231600|GreenanMaze|Greenan迷宫，爱尔兰威克洛郡 (© Peter Krocka/Shutterstock)||![](/zh-CN/2020/05/202005231600GreenanMaze.jpg)|
 202005241600|TulipFieldsDE|郁金香田鸟瞰图，德国萨克森-安哈尔特 (© Anke Scheibe/Westend61/offset by shutterstock)||![](/zh-CN/2020/05/202005241600TulipFieldsDE.jpg)|
+202005251600|CheetahCubs|正在爬相思树的猎豹幼崽们，坦桑尼亚恩戈罗恩戈罗保护区 (© Paul Souders/Getty Images)||![](/zh-CN/2020/05/202005251600CheetahCubs.jpg)|
