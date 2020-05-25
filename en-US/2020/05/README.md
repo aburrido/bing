@@ -25,3 +25,4 @@
 202005220700|ReichenbachFalls|Reichenbach Falls, Bernese Oberland, Switzerland (© Chris Milne/Alamy)|The scene of a literary crime|![](/en-US/2020/05/202005220700ReichenbachFalls.jpg)|
 202005230700|SunSalutation|A male yellow-bellied slider (© Marko Markovic Photography/Shutterstock)|Bask in the glow—It's World Turtle Day|![](/en-US/2020/05/202005230700SunSalutation.jpg)|
 202005240700|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-US/2020/05/202005240700GreenanMaze.jpg)|
+202005250700|FreedomWall|The Freedom Wall at the World War II Memorial in Washington, DC (© John Roush II/Getty Images)|Here we mark the price of freedom|![](/en-US/2020/05/202005250700FreedomWall.jpg)|
