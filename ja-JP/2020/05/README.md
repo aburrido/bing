@@ -25,3 +25,4 @@
 202005221500|CuracaoTurtle|｢イワシの群れとアオウミガメ｣キュラソー島, プラヤ・グランデ (© yfhishinuma/Getty Images Plus)|今日は｢世界カメの日｣|![](/ja-JP/2020/05/202005221500CuracaoTurtle.jpg)|
 202005231500|ReddishEgret|｢アカゲサギ ｣米国フロリダ州, フォートデソト公園 (© Brian Lasenby/Getty Images)|米国の野鳥|![](/ja-JP/2020/05/202005231500ReddishEgret.jpg)|
 202005241500|RubySunset|｢ルビービーチの夕暮れ｣米国ワシントン州, オリンピック国立公園 (© Adam Mowery/Tandem Stills + Motion)|米国の世界遺産|![](/ja-JP/2020/05/202005241500RubySunset.jpg)|
+202005251500|PalouseSpring|｢パルース丘陵｣米国ワシントン州, プルマン (© Ben Herndon/Tandem Stills + Motion)|米国の穀倉地帯|![](/ja-JP/2020/05/202005251500PalouseSpring.jpg)|
