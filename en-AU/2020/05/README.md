@@ -25,3 +25,4 @@
 202005221400|SunSalutation|A male yellow-bellied slider (© Marko Markovic Photography/Shutterstock)|Bask in the glow - It's World Turtle Day|![](/en-AU/2020/05/202005221400SunSalutation.jpg)|
 202005231400|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-AU/2020/05/202005231400GreenanMaze.jpg)|
 202005241400|PansyOrchid|Pansy orchid (diuris magnifica) flowers in Kings Park, Perth (© Christian Ziegler/Minden Pictures)|Beauty in bloom|![](/en-AU/2020/05/202005241400PansyOrchid.jpg)|
+202005251400|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|They grow up so fast|![](/en-AU/2020/05/202005251400CheetahCubs.jpg)|
