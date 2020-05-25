@@ -25,3 +25,4 @@
 202005222300|SunSalutation|A male yellow-bellied slider (© Marko Markovic Photography/Shutterstock)|Happy World Turtle Day!|![](/en-GB/2020/05/202005222300SunSalutation.jpg)|
 202005232300|EvergladesShowers|Aerial view of Everglades National Park, Florida, USA (© Tetra Images/Getty Images)|Clouds over the River of Grass|![](/en-GB/2020/05/202005232300EvergladesShowers.jpg)|
 202005242300|OldManWhiskers|The long plumes of a three-flowered avens as it goes to seed (© Sunshine Haven Photo/Shutterstock)|Old man's whiskers growing wild|![](/en-GB/2020/05/202005242300OldManWhiskers.jpg)|
+202005252300|HalnakerTrees|Halnaker tree tunnel near Chichester, West Sussex (© Lois GoBe/Shutterstock)|Light at the end of the tunnel|![](/en-GB/2020/05/202005252300HalnakerTrees.jpg)|
