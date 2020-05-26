@@ -26,3 +26,4 @@
 202005231830|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-IN/2020/05/202005231830GreenanMaze.jpg)|
 202005241830|WolfPup|Gray wolf with begging pup, Montana (© Tim Fitzharris/Minden Pictures)|Welcome to the pack|![](/en-IN/2020/05/202005241830WolfPup.jpg)|
 202005251830|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|It's tree-climbing season|![](/en-IN/2020/05/202005251830CheetahCubs.jpg)|
+202005261830|EvergladesShowers|Aerial view of Everglades National Park, Florida, USA (© Tetra Images/Getty Images)|Clouds over the 'River of Grass'|![](/en-IN/2020/05/202005261830EvergladesShowers.jpg)|
