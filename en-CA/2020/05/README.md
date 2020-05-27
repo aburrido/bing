@@ -27,3 +27,4 @@
 202005240400|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-CA/2020/05/202005240400GreenanMaze.jpg)|
 202005250400|SpringPeeperOnt|Spring peeper (Hyla crucifer) perched on a black-eyed Susan in a flower garden in Ontario (© Don Johnston/Alamy Stock Photo)|Rarely seen, often heard|![](/en-CA/2020/05/202005250400SpringPeeperOnt.jpg)|
 202005260400|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|It's tree-climbing season|![](/en-CA/2020/05/202005260400CheetahCubs.jpg)|
+202005270400|EvergladesShowers|Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)|Clouds over the 'River of Grass'|![](/en-CA/2020/05/202005270400EvergladesShowers.jpg)|
