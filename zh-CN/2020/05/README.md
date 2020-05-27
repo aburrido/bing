@@ -27,3 +27,4 @@
 202005241600|TulipFieldsDE|郁金香田鸟瞰图，德国萨克森-安哈尔特 (© Anke Scheibe/Westend61/offset by shutterstock)||![](/zh-CN/2020/05/202005241600TulipFieldsDE.jpg)|
 202005251600|CheetahCubs|正在爬相思树的猎豹幼崽们，坦桑尼亚恩戈罗恩戈罗保护区 (© Paul Souders/Getty Images)||![](/zh-CN/2020/05/202005251600CheetahCubs.jpg)|
 202005261600|EvergladesShowers|大沼泽地国家公园鸟瞰图 (© Tetra Images/Getty Images)||![](/zh-CN/2020/05/202005261600EvergladesShowers.jpg)|
+202005271600|OldManWhiskers|结籽时的三花锦葵的长羽 (© Sunshine Haven Photo/Shutterstock)||![](/zh-CN/2020/05/202005271600OldManWhiskers.jpg)|
