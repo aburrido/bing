@@ -28,3 +28,4 @@
 202005251500|PalouseSpring|｢パルース丘陵｣米国ワシントン州, プルマン (© Ben Herndon/Tandem Stills + Motion)|米国の穀倉地帯|![](/ja-JP/2020/05/202005251500PalouseSpring.jpg)|
 202005261500|LacMidi|｢アユー湖とピック・デュ・ミディ・ドソー山｣フランス, ピレネー国立公園 (© Eneko Aldaz/Offset by Shutterstock)|ピレネー山脈の風景|![](/ja-JP/2020/05/202005261500LacMidi.jpg)|
 202005271500|SiegeofCusco|｢サクサイワマン｣ペルー, クスコ (© Susanne Kremer/eStock Photo)|インカ帝国の謎の遺跡|![](/ja-JP/2020/05/202005271500SiegeofCusco.jpg)|
+202005281500|MarleyBeach|｢マーリー・ビーチ｣バミューダ諸島 (© Paul Zizka/Plain Picture)|今日は｢バミューダの日｣|![](/ja-JP/2020/05/202005281500MarleyBeach.jpg)|
