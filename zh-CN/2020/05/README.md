@@ -28,3 +28,4 @@
 202005251600|CheetahCubs|正在爬相思树的猎豹幼崽们，坦桑尼亚恩戈罗恩戈罗保护区 (© Paul Souders/Getty Images)||![](/zh-CN/2020/05/202005251600CheetahCubs.jpg)|
 202005261600|EvergladesShowers|大沼泽地国家公园鸟瞰图 (© Tetra Images/Getty Images)||![](/zh-CN/2020/05/202005261600EvergladesShowers.jpg)|
 202005271600|OldManWhiskers|结籽时的三花锦葵的长羽 (© Sunshine Haven Photo/Shutterstock)||![](/zh-CN/2020/05/202005271600OldManWhiskers.jpg)|
+202005281600|MarleyBeach|百慕大马利海滩鸟瞰图 (© Paul Zizka/plainpicture)||![](/zh-CN/2020/05/202005281600MarleyBeach.jpg)|
