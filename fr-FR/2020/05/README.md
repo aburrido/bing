@@ -28,3 +28,4 @@
 202005252200|CheetahCubs|Petits guépards grimpant sur un acacias dans l’aire de conservation du Ngorongoro, Tanzanie (© Paul Souders/Getty Images)|L’heure de jouer !|![](/fr-FR/2020/05/202005252200CheetahCubs.jpg)|
 202005262200|EvergladesShowers|Vue aérienne du parc national des Everglades, Floride, États-Unis (© Tetra Images/Getty Images)|Ne vous y perdez pas|![](/fr-FR/2020/05/202005262200EvergladesShowers.jpg)|
 202005272200|OldManWhiskers|Une benoîte à trois fleurs (© Sunshine Haven Photo/Shutterstock)|Tourbillon fleuri|![](/fr-FR/2020/05/202005272200OldManWhiskers.jpg)|
+202005282200|MarleyBeach|Vue aérienne de la plage de Marley Beach, Les Bermudes (© Paul Zizka/Plain Picture)|Bermudas autorisés|![](/fr-FR/2020/05/202005282200MarleyBeach.jpg)|

@@ -28,3 +28,4 @@
 202005252200|CheetahCubs|Junge Geparden im Ngorongoro-Schutzgebiet, Tansania (© Paul Souders/Getty Images)|Saison für Baumkletterer|![](/de-DE/2020/05/202005252200CheetahCubs.jpg)|
 202005262200|EvergladesShowers|Luftaufnahme des Everglades-Nationalparks (© Tetra Images/Getty Images)|Wolken über dem „Fluss aus Gras“|![](/de-DE/2020/05/202005262200EvergladesShowers.jpg)|
 202005272200|PontFawr|Die Steinbogenbrücke Pont Fawr in Llanrwst, Wales, Vereinigtes Königreich (© Pajor Pawel/Shutterstock)|Von Ufer zu Ufer|![](/de-DE/2020/05/202005272200PontFawr.jpg)|
+202005282200|MarleyBeach|Luftaufnahme des Marley Beach auf den Bermudas (© Paul Zizka/Plain Picture)|Bermudas großer Tag|![](/de-DE/2020/05/202005282200MarleyBeach.jpg)|
