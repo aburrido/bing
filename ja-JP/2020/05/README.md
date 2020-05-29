@@ -29,3 +29,4 @@
 202005261500|LacMidi|｢アユー湖とピック・デュ・ミディ・ドソー山｣フランス, ピレネー国立公園 (© Eneko Aldaz/Offset by Shutterstock)|ピレネー山脈の風景|![](/ja-JP/2020/05/202005261500LacMidi.jpg)|
 202005271500|SiegeofCusco|｢サクサイワマン｣ペルー, クスコ (© Susanne Kremer/eStock Photo)|インカ帝国の謎の遺跡|![](/ja-JP/2020/05/202005271500SiegeofCusco.jpg)|
 202005281500|MarleyBeach|｢マーリー・ビーチ｣バミューダ諸島 (© Paul Zizka/Plain Picture)|今日は｢バミューダの日｣|![](/ja-JP/2020/05/202005281500MarleyBeach.jpg)|
+202005291500|Manhattanhenge|｢マンハッタンヘンジ｣米国ニューヨーク州, ニューヨーク市 (© Dennis Fischer Photography/Getty Images)|今日は｢マンハッタンヘンジ｣|![](/ja-JP/2020/05/202005291500Manhattanhenge.jpg)|
