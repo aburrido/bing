@@ -29,3 +29,4 @@
 202005260400|CheetahCubs|Guépardons grimpant sur des acacias dans la zone de conservation de Ngorongoro, Tanzanie (© Paul Souders/Getty Images)||![](/fr-CA/2020/05/202005260400CheetahCubs.jpg)|
 202005270400|EvergladesShowers|Vue aérienne du Parc national des Everglades (© Tetra Images/Getty Images)||![](/fr-CA/2020/05/202005270400EvergladesShowers.jpg)|
 202005280400|OldManWhiskers|Les longs panaches d'une benoîte à trois fleurs au moment de la germination (© Sunshine Haven Photo/Shutterstock)||![](/fr-CA/2020/05/202005280400OldManWhiskers.jpg)|
+202005290400|MarleyBeach|Vue aérienne de Marley Beach, Bermudes (© Paul Zizka/plainpicture)||![](/fr-CA/2020/05/202005290400MarleyBeach.jpg)|

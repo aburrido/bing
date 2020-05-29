@@ -29,3 +29,4 @@
 202005260400|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|It's tree-climbing season|![](/en-CA/2020/05/202005260400CheetahCubs.jpg)|
 202005270400|EvergladesShowers|Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)|Clouds over the 'River of Grass'|![](/en-CA/2020/05/202005270400EvergladesShowers.jpg)|
 202005280400|OldManWhiskers|The long plumes of a three-flowered avens as it goes to seed (© Sunshine Haven Photo/Shutterstock)|Old man's whiskers growing wild|![](/en-CA/2020/05/202005280400OldManWhiskers.jpg)|
+202005290400|MarleyBeach|Aerial view of Marley Beach, Bermuda (© Paul Zizka/plainpicture)|It’s Bermuda’s big day|![](/en-CA/2020/05/202005290400MarleyBeach.jpg)|
