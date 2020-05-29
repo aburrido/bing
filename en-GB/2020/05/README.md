@@ -29,3 +29,4 @@
 202005262300|GreenanMaze|Greenan Maze in County Wicklow, Ireland (© Peter Krocka/Shutterstock)|Let's get lost|![](/en-GB/2020/05/202005262300GreenanMaze.jpg)|
 202005272300|CarregCennen|Carreg Cennen castle in the Brecon Beacons, Camarthenshire (© Adam Burton/Alamy Stock Photo)|Castle in the sky|![](/en-GB/2020/05/202005272300CarregCennen.jpg)|
 202005282300|MarleyBeach|Aerial view of Marley Beach, Bermuda (© Paul Zizka/plainpicture)|It’s Bermuda’s big day|![](/en-GB/2020/05/202005282300MarleyBeach.jpg)|
+202005292300|SantaCruzRiver|Santa Cruz River, Patagonia, Argentina (© Coolbiere Photograph/Getty Images)|Meandering through Patagonia|![](/en-GB/2020/05/202005292300SantaCruzRiver.jpg)|
