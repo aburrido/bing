@@ -29,3 +29,4 @@
 202005261830|EvergladesShowers|Aerial view of Everglades National Park, Florida, USA (© Tetra Images/Getty Images)|Clouds over the 'River of Grass'|![](/en-IN/2020/05/202005261830EvergladesShowers.jpg)|
 202005271830|OldManWhiskers|The long plumes of a three-flowered avens as it goes to seed (© Sunshine Haven Photo/Shutterstock)|Old man's whiskers growing wild|![](/en-IN/2020/05/202005271830OldManWhiskers.jpg)|
 202005281830|MarleyBeach|Aerial view of Marley Beach, Bermuda (© Paul Zizka/plainpicture)|It’s Bermuda’s big day|![](/en-IN/2020/05/202005281830MarleyBeach.jpg)|
+202005291830|SantaCruzRiver|Santa Cruz River, Patagonia, Argentina (© Coolbiere Photograph/Getty Images)|Meandering through Patagonia|![](/en-IN/2020/05/202005291830SantaCruzRiver.jpg)|
