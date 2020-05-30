@@ -30,3 +30,4 @@
 202005272200|OldManWhiskers|Une benoîte à trois fleurs (© Sunshine Haven Photo/Shutterstock)|Tourbillon fleuri|![](/fr-FR/2020/05/202005272200OldManWhiskers.jpg)|
 202005282200|MarleyBeach|Vue aérienne de la plage de Marley Beach, Les Bermudes (© Paul Zizka/Plain Picture)|Bermudas autorisés|![](/fr-FR/2020/05/202005282200MarleyBeach.jpg)|
 202005292200|SantaCruzRiver|La rivière Santa Cruz, Patagonie, Argentine (© Coolbiere Photograph/Getty Images)|Eaux indécises|![](/fr-FR/2020/05/202005292200SantaCruzRiver.jpg)|
+202005302200|FoxPups|Renardeaux roux, France (© Karl Van Ginderdeuren/Minden)|Bonjour la vie !|![](/fr-FR/2020/05/202005302200FoxPups.jpg)|
