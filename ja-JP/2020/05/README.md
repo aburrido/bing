@@ -30,3 +30,4 @@
 202005271500|SiegeofCusco|｢サクサイワマン｣ペルー, クスコ (© Susanne Kremer/eStock Photo)|インカ帝国の謎の遺跡|![](/ja-JP/2020/05/202005271500SiegeofCusco.jpg)|
 202005281500|MarleyBeach|｢マーリー・ビーチ｣バミューダ諸島 (© Paul Zizka/Plain Picture)|今日は｢バミューダの日｣|![](/ja-JP/2020/05/202005281500MarleyBeach.jpg)|
 202005291500|Manhattanhenge|｢マンハッタンヘンジ｣米国ニューヨーク州, ニューヨーク市 (© Dennis Fischer Photography/Getty Images)|今日は｢マンハッタンヘンジ｣|![](/ja-JP/2020/05/202005291500Manhattanhenge.jpg)|
+202005301500|GreatReefDay|｢グレート・バリア・リーフ｣オーストラリア, クイーンズランド (© AWL Images/Danita Delimont)|オーストラリアの世界遺産|![](/ja-JP/2020/05/202005301500GreatReefDay.jpg)|
