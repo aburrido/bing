@@ -31,3 +31,4 @@
 202005281600|MarleyBeach|百慕大马利海滩鸟瞰图 (© Paul Zizka/plainpicture)||![](/zh-CN/2020/05/202005281600MarleyBeach.jpg)|
 202005291600|SantaCruzRiver|圣克鲁斯河，阿根廷巴塔哥尼亚 (© Coolbiere Photograph/Getty Images)||![](/zh-CN/2020/05/202005291600SantaCruzRiver.jpg)|
 202005301600|WolfPup|同乞食的小狗在一起的灰狼，蒙大拿州 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2020/05/202005301600WolfPup.jpg)|
+202005311600|GreatReefDay|大堡礁，澳大利亚昆士兰 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/05/202005311600GreatReefDay.jpg)|
