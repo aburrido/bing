@@ -31,3 +31,4 @@
 202005282200|MarleyBeach|Luftaufnahme des Marley Beach auf den Bermudas (© Paul Zizka/Plain Picture)|Bermudas großer Tag|![](/de-DE/2020/05/202005282200MarleyBeach.jpg)|
 202005292200|SantaCruzRiver|Río Santa Cruz, Patagonien, Argentinien (© Coolbiere Photograph/Getty Images)|Schlängelnd durch Patagonien|![](/de-DE/2020/05/202005292200SantaCruzRiver.jpg)|
 202005302200|WolfPup|Wolf und Wolfswelpe, Montana, USA (© Tim Fitzharris/Minden Pictures)|Willkommen im Rudel!|![](/de-DE/2020/05/202005302200WolfPup.jpg)|
+202005312200|GreatReefDay|Great Barrier Reef, Queensland, Australien (© AWL Images/Danita Delimont)|Der größte lebende Organismus der Erde|![](/de-DE/2020/05/202005312200GreatReefDay.jpg)|
