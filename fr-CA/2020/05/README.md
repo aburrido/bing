@@ -31,3 +31,4 @@
 202005280400|OldManWhiskers|Les longs panaches d'une benoîte à trois fleurs au moment de la germination (© Sunshine Haven Photo/Shutterstock)||![](/fr-CA/2020/05/202005280400OldManWhiskers.jpg)|
 202005290400|MarleyBeach|Vue aérienne de Marley Beach, Bermudes (© Paul Zizka/plainpicture)||![](/fr-CA/2020/05/202005290400MarleyBeach.jpg)|
 202005300400|SantaCruzRiver|Rivière Santa Cruz, Patagonie, Argentine (© Coolbiere Photograph/Getty Images)||![](/fr-CA/2020/05/202005300400SantaCruzRiver.jpg)|
+202005310400|WolfPup|Loup gris avec chiot mendiant, Montana (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2020/05/202005310400WolfPup.jpg)|
