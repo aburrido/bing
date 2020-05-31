@@ -31,3 +31,4 @@
 202005280700|OldManWhiskers|The long plumes of a three-flowered avens as it goes to seed (© Sunshine Haven Photo/Shutterstock)|Old man's whiskers growing wild|![](/en-US/2020/05/202005280700OldManWhiskers.jpg)|
 202005290700|MarleyBeach|Aerial view of Marley Beach, Bermuda (© Paul Zizka/plainpicture)|It's Bermuda's big day|![](/en-US/2020/05/202005290700MarleyBeach.jpg)|
 202005300700|SantaCruzRiver|Santa Cruz River, Patagonia, Argentina (© Coolbiere Photograph/Getty Images)|Meandering through Patagonia|![](/en-US/2020/05/202005300700SantaCruzRiver.jpg)|
+202005310700|WolfPup|Gray wolf with begging pup, Montana (© Tim Fitzharris/Minden Pictures)|Welcome to the pack|![](/en-US/2020/05/202005310700WolfPup.jpg)|
