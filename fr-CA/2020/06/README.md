@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202006010400|GreatReefDay|Grande barrière de corail, Queensland, Australie (© AWL Images/Danita Delimont)||![](/fr-CA/2020/06/202006010400GreatReefDay.jpg)|
 202006020400|JasperSunwaptaVideo|Chutes Sunwapta dans le Parc national Jasper, Alberta (© Schroptschop/Getty Images)||![](/fr-CA/2020/06/202006020400JasperSunwaptaVideo.jpg)|
+202006030400|WhiteRimTrail|Deux coureurs de vélo de montagne descendent les lacets de Shafer Trail sur White Rim Road dans le Parc National de Canyonlands, Utah (© Grant Ordelheide/Tandem Stills + Motion)||![](/fr-CA/2020/06/202006030400WhiteRimTrail.jpg)|
