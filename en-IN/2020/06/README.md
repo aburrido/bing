@@ -5,3 +5,4 @@
 202006021830|WhiteRimTrail|Two mountain bike riders make their way down the Shafer Trail switchbacks on White Rim Road in Canyonlands National Park, Utah, USA (© Grant Ordelheide/Tandem Stills + Motion)|For the love of bikes|![](/en-IN/2020/06/202006021830WhiteRimTrail.jpg)|
 202006031830|PontFawr|Pont Fawr, a stone arch bridge in Llanrwst, Wales, UK (© Pajor Pawel/Shutterstock)|A bridge too Fawr|![](/en-IN/2020/06/202006031830PontFawr.jpg)|
 202006041830|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, USA (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-IN/2020/06/202006041830SynchronousFireflies.jpg)|
+202006051830|WaltersWiggles|Walter's Wiggles trail in Zion National Park, Utah, USA (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-IN/2020/06/202006051830WaltersWiggles.jpg)|
