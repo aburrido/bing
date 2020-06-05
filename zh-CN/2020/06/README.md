@@ -5,3 +5,4 @@
 202006021600|WhiteRimTrail|两名山地车骑手在白缘公路上沿着谢福小道的转弯处骑行 ，犹他州峡谷地国家公园 (© Grant Ordelheide/Tandem Stills + Motion)||![](/zh-CN/2020/06/202006021600WhiteRimTrail.jpg)|
 202006031600|PontFawr|兰鲁斯特一座名为Pont Fawr的石拱桥，英国威尔士 (© Pajor Pawel/Shutterstock)||![](/zh-CN/2020/06/202006031600PontFawr.jpg)|
 202006041600|SynchronousFireflies|同步发光萤火虫照亮了大烟山国家公园中的森林 (© Floris van Breugel/Minden Pictures)||![](/zh-CN/2020/06/202006041600SynchronousFireflies.jpg)|
+202006051600|WaltersWiggles|锡安国家公园中的Walter's Wiggles小径，犹他州 (© Dennis Frates/Alamy)||![](/zh-CN/2020/06/202006051600WaltersWiggles.jpg)|
