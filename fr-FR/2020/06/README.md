@@ -5,3 +5,4 @@
 202006022200|WhiteRimTrail|Deux cyclistes de montagne descendent le méandreux Shafer Trail de White Rim Road dans le parc national des Canyonlands, Utah, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)|Roulez jeunesse !|![](/fr-FR/2020/06/202006022200WhiteRimTrail.jpg)|
 202006032200|PontFawr|Pont Fawr, un pont à trois arches en pierres, Llanrwst, Pays de Galles, Royaume-Uni (© Pajor Pawel/Shutterstock)|Campagne galloise|![](/fr-FR/2020/06/202006032200PontFawr.jpg)|
 202006042200|SynchronousFireflies|Des lucioles illuminent la forêt du parc national des monts Great Smoky aux États-Unis (© Floris van Breugel/Minden Pictures)|Magie de la nature|![](/fr-FR/2020/06/202006042200SynchronousFireflies.jpg)|
+202006052200|WaltersWiggles|Le sentier Walter's Wiggles dans le parc national de Zion, Utah, États-Unis (© Dennis Frates/Alamy)|Zigzaguer en paix|![](/fr-FR/2020/06/202006052200WaltersWiggles.jpg)|
