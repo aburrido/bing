@@ -5,3 +5,4 @@
 202006022300|WhiteRimTrail|Two mountain bike riders in Canyonlands National Park, Utah, USA (© Grant Ordelheide/Tandem Stills + Motion)|Pedal power|![](/en-GB/2020/06/202006022300WhiteRimTrail.jpg)|
 202006032300|PontFawr|Pont Fawr and Tu Hwnt I’r Bont in Llanrwst (© Pajor Pawel/Shutterstock)|Spanning the centuries|![](/en-GB/2020/06/202006032300PontFawr.jpg)|
 202006042300|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, Tennessee, USA (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-GB/2020/06/202006042300SynchronousFireflies.jpg)|
+202006052300|WaltersWiggles|Walter's Wiggles trail in Zion National Park, Utah, USA (© Dennis Frates/Alamy)|The long and wiggly path|![](/en-GB/2020/06/202006052300WaltersWiggles.jpg)|
