@@ -6,3 +6,4 @@
 202006032200|OlympiabergM|Luftaufnahme des Olympiabergs im Olympiapark in München, Bayern, Deutschland (© Michael Malorny/Westend61/offset by shutterstock)|Münchner Gipfel|![](/de-DE/2020/06/202006032200OlympiabergM.jpg)|
 202006042200|LaPertusa|Einsiedelei von La Pertusa, Provinz Lleida, Katalonien, Spanien (© bbsferrari/Getty Images)|Einsiedelei mit Aussicht|![](/de-DE/2020/06/202006042200LaPertusa.jpg)|
 202006052200|Havasupai|Beaver Falls am Havasu Creek im Grand-Canyon-Nationalpark, Arizona, USA (© Edwin Verin/Alamy)|Wasserspiele im Grand Canyon|![](/de-DE/2020/06/202006052200Havasupai.jpg)|
+202006062200|Unteruhldingen|Pfahlbaumuseum in Unteruhldingen, Baden-Württemberg, Deutschland (© Reinhard Schmid/Huber/eStock Photo)|Welterbe auf dem Wasser|![](/de-DE/2020/06/202006062200Unteruhldingen.jpg)|
