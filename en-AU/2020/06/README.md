@@ -6,3 +6,4 @@
 202006031400|BlueMountainsSunset|Beautiful sunset in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|Exploring a natural wonder|![](/en-AU/2020/06/202006031400BlueMountainsSunset.jpg)|
 202006041400|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, Tennessee, USA (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-AU/2020/06/202006041400SynchronousFireflies.jpg)|
 202006051400|WaltersWiggles|Walter's Wiggles trail in Zion National Park, Utah, USA (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-AU/2020/06/202006051400WaltersWiggles.jpg)|
+202006061400|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-AU/2020/06/202006061400LaPertusa.jpg)|
