@@ -5,3 +5,4 @@
 202006030400|MysticBeach|View of a waterfall at Mystic Beach in Juan de Fuca Provincial Park, B.C. during dusk  (© DEEPOL/Plainpicture)|Rugged hikes and scenic vistas|![](/en-CA/2020/06/202006030400MysticBeach.jpg)|
 202006040400|PontFawr|Pont Fawr, a stone arch bridge in Llanrwst, Wales, UK (© Pajor Pawel/Shutterstock)|A bridge too Fawr|![](/en-CA/2020/06/202006040400PontFawr.jpg)|
 202006050400|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, Tennessee (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-CA/2020/06/202006050400SynchronousFireflies.jpg)|
+202006060400|OpalRangeFog|Opal Range surrounded by fog, Kananaskis Country, Alberta (© Tim Fitzharris/Minden Pictures)|Misty mountains in the clouds|![](/en-CA/2020/06/202006060400OpalRangeFog.jpg)|
