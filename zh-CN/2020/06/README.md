@@ -6,3 +6,4 @@
 202006031600|PontFawr|兰鲁斯特一座名为Pont Fawr的石拱桥，英国威尔士 (© Pajor Pawel/Shutterstock)||![](/zh-CN/2020/06/202006031600PontFawr.jpg)|
 202006041600|SynchronousFireflies|同步发光萤火虫照亮了大烟山国家公园中的森林 (© Floris van Breugel/Minden Pictures)||![](/zh-CN/2020/06/202006041600SynchronousFireflies.jpg)|
 202006051600|WaltersWiggles|锡安国家公园中的Walter's Wiggles小径，犹他州 (© Dennis Frates/Alamy)||![](/zh-CN/2020/06/202006051600WaltersWiggles.jpg)|
+202006061600|LaPertusa|La Pertusa教堂，西班牙莱里达 (© bbsferrari/Getty Images)||![](/zh-CN/2020/06/202006061600LaPertusa.jpg)|
