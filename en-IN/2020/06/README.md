@@ -6,3 +6,4 @@
 202006031830|PontFawr|Pont Fawr, a stone arch bridge in Llanrwst, Wales, UK (© Pajor Pawel/Shutterstock)|A bridge too Fawr|![](/en-IN/2020/06/202006031830PontFawr.jpg)|
 202006041830|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, USA (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-IN/2020/06/202006041830SynchronousFireflies.jpg)|
 202006051830|WaltersWiggles|Walter's Wiggles trail in Zion National Park, Utah, USA (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-IN/2020/06/202006051830WaltersWiggles.jpg)|
+202006061830|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-IN/2020/06/202006061830LaPertusa.jpg)|
