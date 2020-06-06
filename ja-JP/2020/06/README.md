@@ -6,3 +6,4 @@
 202006031500|Firefliesforest|｢森の中のホタル｣岡山, 岡山市 (© Trevor Williams/Getty Images.)|ホタルのシーズンです|![](/ja-JP/2020/06/202006031500Firefliesforest.jpg)|
 202006041500|WildflowerWeek|｢テキサス・ブルーボネット｣米国テキサス州, テキサス・ヒル・カントリー (© dhughes9/Getty Images)|米国の野草|![](/ja-JP/2020/06/202006041500WildflowerWeek.jpg)|
 202006051500|SheepCoteClod|｢アイスランディックシープの群れ｣アイスランド (© John Porter LRPS/Alamy)|今日は｢ひつじの日｣|![](/ja-JP/2020/06/202006051500SheepCoteClod.jpg)|
+202006061500|LaPertusa|｢マーレ・デ・デウ・デ・ラ・ペルトゥサ教会｣スペイン, リェイダ (© bbsferrari/Getty Images)|スペイン辺境の中世教会|![](/ja-JP/2020/06/202006061500LaPertusa.jpg)|
