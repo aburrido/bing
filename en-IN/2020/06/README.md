@@ -7,3 +7,4 @@
 202006041830|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, USA (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-IN/2020/06/202006041830SynchronousFireflies.jpg)|
 202006051830|WaltersWiggles|Walter's Wiggles trail in Zion National Park, Utah, USA (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-IN/2020/06/202006051830WaltersWiggles.jpg)|
 202006061830|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-IN/2020/06/202006061830LaPertusa.jpg)|
+202006071830|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-IN/2020/06/202006071830LionSurfing.jpg)|
