@@ -6,3 +6,4 @@
 202006040400|PontFawr|Pont Fawr, a stone arch bridge in Llanrwst, Wales, UK (© Pajor Pawel/Shutterstock)|A bridge too Fawr|![](/en-CA/2020/06/202006040400PontFawr.jpg)|
 202006050400|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, Tennessee (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-CA/2020/06/202006050400SynchronousFireflies.jpg)|
 202006060400|OpalRangeFog|Opal Range surrounded by fog, Kananaskis Country, Alberta (© Tim Fitzharris/Minden Pictures)|Misty mountains in the clouds|![](/en-CA/2020/06/202006060400OpalRangeFog.jpg)|
+202006070400|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-CA/2020/06/202006070400LaPertusa.jpg)|
