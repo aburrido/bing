@@ -7,3 +7,4 @@
 202006041600|SynchronousFireflies|同步发光萤火虫照亮了大烟山国家公园中的森林 (© Floris van Breugel/Minden Pictures)||![](/zh-CN/2020/06/202006041600SynchronousFireflies.jpg)|
 202006051600|WaltersWiggles|锡安国家公园中的Walter's Wiggles小径，犹他州 (© Dennis Frates/Alamy)||![](/zh-CN/2020/06/202006051600WaltersWiggles.jpg)|
 202006061600|LaPertusa|La Pertusa教堂，西班牙莱里达 (© bbsferrari/Getty Images)||![](/zh-CN/2020/06/202006061600LaPertusa.jpg)|
+202006071600|LionSurfing|费尔南迪纳岛海岸的加拉帕戈斯海狮，厄瓜多尔科隆群岛 (© Tui De Roy/Minden Pictures)||![](/zh-CN/2020/06/202006071600LionSurfing.jpg)|
