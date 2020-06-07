@@ -7,3 +7,4 @@
 202006042200|SynchronousFireflies|Des lucioles illuminent la forêt du parc national des monts Great Smoky aux États-Unis (© Floris van Breugel/Minden Pictures)|Magie de la nature|![](/fr-FR/2020/06/202006042200SynchronousFireflies.jpg)|
 202006052200|WaltersWiggles|Le sentier Walter's Wiggles dans le parc national de Zion, Utah, États-Unis (© Dennis Frates/Alamy)|Zigzaguer en paix|![](/fr-FR/2020/06/202006052200WaltersWiggles.jpg)|
 202006062200|LaPertusa|L’ermita de la mare de Déu, province de Lérida, Espagne (© bbsferrari/Getty Images)|Surprise catalane|![](/fr-FR/2020/06/202006062200LaPertusa.jpg)|
+202006072200|LionSurfing|Otarie des Galápagos près de l’île Fernandina, Équateur (© Tui De Roy/Minden Pictures)|Journée de l’océan|![](/fr-FR/2020/06/202006072200LionSurfing.jpg)|
