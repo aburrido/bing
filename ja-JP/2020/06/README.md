@@ -7,3 +7,4 @@
 202006041500|WildflowerWeek|｢テキサス・ブルーボネット｣米国テキサス州, テキサス・ヒル・カントリー (© dhughes9/Getty Images)|米国の野草|![](/ja-JP/2020/06/202006041500WildflowerWeek.jpg)|
 202006051500|SheepCoteClod|｢アイスランディックシープの群れ｣アイスランド (© John Porter LRPS/Alamy)|今日は｢ひつじの日｣|![](/ja-JP/2020/06/202006051500SheepCoteClod.jpg)|
 202006061500|LaPertusa|｢マーレ・デ・デウ・デ・ラ・ペルトゥサ教会｣スペイン, リェイダ (© bbsferrari/Getty Images)|スペイン辺境の中世教会|![](/ja-JP/2020/06/202006061500LaPertusa.jpg)|
+202006071500|LionSurfing|｢ガラパゴスアシカ｣エクアドル, ガラパゴス諸島沖合 (© Tui De Roy/Minden Pictures)|今日は｢世界海洋デー｣|![](/ja-JP/2020/06/202006071500LionSurfing.jpg)|
