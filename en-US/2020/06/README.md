@@ -8,3 +8,4 @@
 202006050700|SynchronousFireflies|Synchronous fireflies illuminate the forests of Great Smoky Mountains National Park, Tennessee (© Floris van Breugel/Minden Pictures)|By the light of the fireflies|![](/en-US/2020/06/202006050700SynchronousFireflies.jpg)|
 202006060700|WaltersWiggles|Walter's Wiggles on the Angels Landing Trail in Zion National Park, Utah (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-US/2020/06/202006060700WaltersWiggles.jpg)|
 202006070700|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-US/2020/06/202006070700LaPertusa.jpg)|
+202006080700|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-US/2020/06/202006080700LionSurfing.jpg)|
