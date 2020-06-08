@@ -8,3 +8,4 @@
 202006051400|WaltersWiggles|Walter's Wiggles trail in Zion National Park, Utah, USA (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-AU/2020/06/202006051400WaltersWiggles.jpg)|
 202006061400|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-AU/2020/06/202006061400LaPertusa.jpg)|
 202006071400|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-AU/2020/06/202006071400LionSurfing.jpg)|
+202006081400|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Stunning lakeside views|![](/en-AU/2020/06/202006081400BaronLakes.jpg)|
