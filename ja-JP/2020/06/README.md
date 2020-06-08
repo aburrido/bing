@@ -8,3 +8,4 @@
 202006051500|SheepCoteClod|｢アイスランディックシープの群れ｣アイスランド (© John Porter LRPS/Alamy)|今日は｢ひつじの日｣|![](/ja-JP/2020/06/202006051500SheepCoteClod.jpg)|
 202006061500|LaPertusa|｢マーレ・デ・デウ・デ・ラ・ペルトゥサ教会｣スペイン, リェイダ (© bbsferrari/Getty Images)|スペイン辺境の中世教会|![](/ja-JP/2020/06/202006061500LaPertusa.jpg)|
 202006071500|LionSurfing|｢ガラパゴスアシカ｣エクアドル, ガラパゴス諸島沖合 (© Tui De Roy/Minden Pictures)|今日は｢世界海洋デー｣|![](/ja-JP/2020/06/202006071500LionSurfing.jpg)|
+202006081500|BaronLakes|｢バロン湖｣米国アイダホ州, ソートゥース国有森林 (© Patrick Brandenburg/Tandem Stills + Motion)|森に隠された静かな湖|![](/ja-JP/2020/06/202006081500BaronLakes.jpg)|
