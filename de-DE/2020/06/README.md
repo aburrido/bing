@@ -8,3 +8,4 @@
 202006052200|Havasupai|Beaver Falls am Havasu Creek im Grand-Canyon-Nationalpark, Arizona, USA (© Edwin Verin/Alamy)|Wasserspiele im Grand Canyon|![](/de-DE/2020/06/202006052200Havasupai.jpg)|
 202006062200|Unteruhldingen|Pfahlbaumuseum in Unteruhldingen, Baden-Württemberg, Deutschland (© Reinhard Schmid/Huber/eStock Photo)|Welterbe auf dem Wasser|![](/de-DE/2020/06/202006062200Unteruhldingen.jpg)|
 202006072200|LionSurfing|Galapagos-Seelöwe vor der Küste der Insel Fernandina, Galapagosinseln, Ecuador (© Tui De Roy/Minden Pictures)|Ein Tag für die Ozeane|![](/de-DE/2020/06/202006072200LionSurfing.jpg)|
+202006082200|BaronLakes|Baron Lake, Sawtooth Wilderness, Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Traumhafte Aussichten im Edelstein-Staat|![](/de-DE/2020/06/202006082200BaronLakes.jpg)|
