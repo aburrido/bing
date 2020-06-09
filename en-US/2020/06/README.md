@@ -9,3 +9,4 @@
 202006060700|WaltersWiggles|Walter's Wiggles on the Angels Landing Trail in Zion National Park, Utah (© Dennis Frates/Alamy)|The long and wiggling path|![](/en-US/2020/06/202006060700WaltersWiggles.jpg)|
 202006070700|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-US/2020/06/202006070700LaPertusa.jpg)|
 202006080700|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-US/2020/06/202006080700LionSurfing.jpg)|
+202006090700|BaronLakes|Baron Lake and Upper Baron Lake in the Sawtooth Wilderness in Idaho (© Patrick Brandenburg/Tandem Stills + Motion)|Gem State views|![](/en-US/2020/06/202006090700BaronLakes.jpg)|
