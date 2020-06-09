@@ -8,3 +8,4 @@
 202006060400|OpalRangeFog|Opal Range surrounded by fog, Kananaskis Country, Alberta (© Tim Fitzharris/Minden Pictures)|Misty mountains in the clouds|![](/en-CA/2020/06/202006060400OpalRangeFog.jpg)|
 202006070400|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-CA/2020/06/202006070400LaPertusa.jpg)|
 202006080400|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-CA/2020/06/202006080400LionSurfing.jpg)|
+202006090400|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho (© Patrick Brandenburg/Tandem Stills + Motion)|Views from the American gem-state|![](/en-CA/2020/06/202006090400BaronLakes.jpg)|

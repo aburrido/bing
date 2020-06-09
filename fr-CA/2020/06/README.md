@@ -8,3 +8,4 @@
 202006060400|WaltersWiggles|La piste Walter's Wiggles dans le Parc national de Zion, Utah (© Dennis Frates/Alamy)||![](/fr-CA/2020/06/202006060400WaltersWiggles.jpg)|
 202006070400|LaPertusa|L’ermitage de La Pertusa, province de Lérida, Espagne (© bbsferrari/Getty Images)||![](/fr-CA/2020/06/202006070400LaPertusa.jpg)|
 202006080400|LionSurfing|Lion de mer des Galápagos au large de l'île de Fernandina, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)||![](/fr-CA/2020/06/202006080400LionSurfing.jpg)|
+202006090400|BaronLakes|Lac Baron dans le désert en dents de scie dans l'Idaho (© Patrick Brandenburg/Tandem Stills + Motion)||![](/fr-CA/2020/06/202006090400BaronLakes.jpg)|
