@@ -9,3 +9,4 @@
 202006061830|LaPertusa|Hermitage of La Pertusa, Lleida province, Spain (© bbsferrari/Getty Images)|A hermitage with a view|![](/en-IN/2020/06/202006061830LaPertusa.jpg)|
 202006071830|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-IN/2020/06/202006071830LionSurfing.jpg)|
 202006081830|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho (© Patrick Brandenburg/Tandem Stills + Motion)|Gem-state views|![](/en-IN/2020/06/202006081830BaronLakes.jpg)|
+202006091830|WobblyBridge|London Millennium Bridge with St. Paul's Cathedral in the background, London, England (© Scott Baldock/Getty Images)|The Millennium Bridge at 20|![](/en-IN/2020/06/202006091830WobblyBridge.jpg)|
