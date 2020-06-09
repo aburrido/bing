@@ -9,3 +9,4 @@
 202006062200|Unteruhldingen|Pfahlbaumuseum in Unteruhldingen, Baden-Württemberg, Deutschland (© Reinhard Schmid/Huber/eStock Photo)|Welterbe auf dem Wasser|![](/de-DE/2020/06/202006062200Unteruhldingen.jpg)|
 202006072200|LionSurfing|Galapagos-Seelöwe vor der Küste der Insel Fernandina, Galapagosinseln, Ecuador (© Tui De Roy/Minden Pictures)|Ein Tag für die Ozeane|![](/de-DE/2020/06/202006072200LionSurfing.jpg)|
 202006082200|BaronLakes|Baron Lake, Sawtooth Wilderness, Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Traumhafte Aussichten im Edelstein-Staat|![](/de-DE/2020/06/202006082200BaronLakes.jpg)|
+202006092200|WobblyBridge|Millennium Bridge mit St Paul's Cathedral im Hintergrund, London, England, Vereinigtes Königreich (© Scott Baldock/Getty Images)|Eine Brücke wird 20|![](/de-DE/2020/06/202006092200WobblyBridge.jpg)|
