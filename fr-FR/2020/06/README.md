@@ -10,3 +10,4 @@
 202006072200|LionSurfing|Otarie des Galápagos près de l’île Fernandina, Équateur (© Tui De Roy/Minden Pictures)|Journée de l’océan|![](/fr-FR/2020/06/202006072200LionSurfing.jpg)|
 202006082200|BaronLakes|Le lac Baron dans la Sawtooth Wilderness dans l’Idaho, États-Unis (© Patrick Brandenburg/Tandem Stills + Motion)|La perle rare|![](/fr-FR/2020/06/202006082200BaronLakes.jpg)|
 202006092200|WobblyBridge|Le Pont du Millénium avec la cathedral de St Paul en arrière-plan, Londres, Angleterre (© Scott Baldock/Getty Images)|Multi-facettes|![](/fr-FR/2020/06/202006092200WobblyBridge.jpg)|
+202006102200|GriboyedovCanal|Canal Griboïedov et la cathédrale Saint-Sauveur-sur-le-Sang-Versé, Saint-Pétersbourg, Russie (© Tomas Sereda/Getty Images)|Mère-Patrie|![](/fr-FR/2020/06/202006102200GriboyedovCanal.jpg)|
