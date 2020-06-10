@@ -10,3 +10,4 @@
 202006071500|LionSurfing|｢ガラパゴスアシカ｣エクアドル, ガラパゴス諸島沖合 (© Tui De Roy/Minden Pictures)|今日は｢世界海洋デー｣|![](/ja-JP/2020/06/202006071500LionSurfing.jpg)|
 202006081500|BaronLakes|｢バロン湖｣米国アイダホ州, ソートゥース国有森林 (© Patrick Brandenburg/Tandem Stills + Motion)|森に隠された静かな湖|![](/ja-JP/2020/06/202006081500BaronLakes.jpg)|
 202006091500|AbseilersBigBen|｢ビッグ・ベンの掃除｣イギリス, ロンドン (© Reuters)|｢時の記念日｣100周年|![](/ja-JP/2020/06/202006091500AbseilersBigBen.jpg)|
+202006101500|KamakuraAjisai|｢明月院｣神奈川, 鎌倉 (© Aflo Relax/Masterfile)|梅雨のシーズンです|![](/ja-JP/2020/06/202006101500KamakuraAjisai.jpg)|
