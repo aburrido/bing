@@ -10,3 +10,4 @@
 202006071600|LionSurfing|费尔南迪纳岛海岸的加拉帕戈斯海狮，厄瓜多尔科隆群岛 (© Tui De Roy/Minden Pictures)||![](/zh-CN/2020/06/202006071600LionSurfing.jpg)|
 202006081600|BaronLakes|锯齿原野中的Baron湖，爱达荷州 (© Patrick Brandenburg/Tandem Stills + Motion)||![](/zh-CN/2020/06/202006081600BaronLakes.jpg)|
 202006091600|WobblyBridge|以圣保罗大教堂为背景的千禧桥，英国伦敦 (© Scott Baldock/Getty Images)||![](/zh-CN/2020/06/202006091600WobblyBridge.jpg)|
+202006101600|GriboyedovCanal|格里博耶多夫运河和滴血救世主教堂，俄罗斯圣彼得堡 (© Tomas Sereda/Getty Images)||![](/zh-CN/2020/06/202006101600GriboyedovCanal.jpg)|
