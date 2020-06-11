@@ -11,3 +11,4 @@
 202006081830|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho (© Patrick Brandenburg/Tandem Stills + Motion)|Gem-state views|![](/en-IN/2020/06/202006081830BaronLakes.jpg)|
 202006091830|WobblyBridge|London Millennium Bridge with St. Paul's Cathedral in the background, London, England (© Scott Baldock/Getty Images)|The Millennium Bridge at 20|![](/en-IN/2020/06/202006091830WobblyBridge.jpg)|
 202006101830|GriboyedovCanal|Griboyedov Canal and the Church of the Savior on Spilled Blood in Saint Petersburg, Russia (© Tomas Sereda/Getty Images)|A midsummer twilight's dream|![](/en-IN/2020/06/202006101830GriboyedovCanal.jpg)|
+202006111830|SantaElena|Santa Elena Canyon under the Milky Way in Big Bend National Park, Texas, USA (© Stanley Ford/Shutterstock)|Big sky at Big Bend|![](/en-IN/2020/06/202006111830SantaElena.jpg)|
