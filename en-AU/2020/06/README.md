@@ -11,3 +11,4 @@
 202006081400|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Stunning lakeside views|![](/en-AU/2020/06/202006081400BaronLakes.jpg)|
 202006091400|WobblyBridge|London Millennium Bridge with St. Paul's Cathedral in the background, London, England (© Scott Baldock/Getty Images)|The Millennium at 20|![](/en-AU/2020/06/202006091400WobblyBridge.jpg)|
 202006101400|GriboyedovCanal|Griboyedov Canal and the Church of the Savior on Spilled Blood in Saint Petersburg, Russia (© Tomas Sereda/Getty Images)|A midsummer twilight's dream|![](/en-AU/2020/06/202006101400GriboyedovCanal.jpg)|
+202006111400|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona, USA (© Edwin Verin/Alamy)|Don’t go chasing waterfalls|![](/en-AU/2020/06/202006111400Havasupai.jpg)|
