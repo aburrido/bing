@@ -10,3 +10,4 @@
 202006080400|LionSurfing|Galápagos sea lion off the shore of Fernandina Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A day for the oceans|![](/en-CA/2020/06/202006080400LionSurfing.jpg)|
 202006090400|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho (© Patrick Brandenburg/Tandem Stills + Motion)|Views from the American gem-state|![](/en-CA/2020/06/202006090400BaronLakes.jpg)|
 202006100400|WobblyBridge|London Millennium Bridge with St. Paul's Cathedral in the background, London, England (© Scott Baldock/Getty Images)|The Millennium at 20|![](/en-CA/2020/06/202006100400WobblyBridge.jpg)|
+202006110400|GriboyedovCanal|Griboyedov Canal and the Church of the Savior on Spilled Blood in Saint Petersburg, Russia (© Tomas Sereda/Getty Images)|A midsummer twilight's dream|![](/en-CA/2020/06/202006110400GriboyedovCanal.jpg)|
