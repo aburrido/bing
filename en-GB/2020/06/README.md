@@ -11,3 +11,4 @@
 202006082300|OldHarryRocks|Sunrise at the chalk pinnacles of Old Harry Rocks, near Studland, Dorset (© Graham Hunt/Alamy Stock Photo)|Carved by the sea|![](/en-GB/2020/06/202006082300OldHarryRocks.jpg)|
 202006092300|WobblyBridge|Millennium Bridge and St Paul's Cathedral, London (© Scott Baldock/Getty Images)|The Millennium Bridge at 20|![](/en-GB/2020/06/202006092300WobblyBridge.jpg)|
 202006102300|GriboyedovCanal|Griboyedov Canal and the Church of the Savior on Spilled Blood in Saint Petersburg, Russia (© Tomas Sereda/Getty Images)|A midsummer twilight dream|![](/en-GB/2020/06/202006102300GriboyedovCanal.jpg)|
+202006112300|PortreeHarbour|Portree before sunset, Isle of Skye (© zhuzhu/iStock/Getty Images Plus)|Harbour of many hues|![](/en-GB/2020/06/202006112300PortreeHarbour.jpg)|
