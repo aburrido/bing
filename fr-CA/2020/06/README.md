@@ -11,3 +11,4 @@
 202006090400|BaronLakes|Lac Baron dans le désert en dents de scie dans l'Idaho (© Patrick Brandenburg/Tandem Stills + Motion)||![](/fr-CA/2020/06/202006090400BaronLakes.jpg)|
 202006100400|WobblyBridge|London Millennium Bridge avec la cathédrale Saint-Paul en arrière-plan, Londres, Angleterre (© Scott Baldock/Getty Images)||![](/fr-CA/2020/06/202006100400WobblyBridge.jpg)|
 202006110400|GriboyedovCanal|Canal Griboïedov et l'église du Sauveur sur le sang versé à Saint-Pétersbourg, Russie (© Tomas Sereda/Getty Images)||![](/fr-CA/2020/06/202006110400GriboyedovCanal.jpg)|
+202006120400|SantaElena|Santa Elena Canyon sous la voie lactée dans le parc national de Big Bend, Texas (© Stanley Ford/Shutterstock)||![](/fr-CA/2020/06/202006120400SantaElena.jpg)|
