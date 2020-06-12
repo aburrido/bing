@@ -12,3 +12,4 @@
 202006092200|WobblyBridge|Millennium Bridge mit St Paul's Cathedral im Hintergrund, London, England, Vereinigtes Königreich (© Scott Baldock/Getty Images)|Eine Brücke wird 20|![](/de-DE/2020/06/202006092200WobblyBridge.jpg)|
 202006102200|GriboyedovCanal|Gribojedow-Kanal und Auferstehungskirche in Sankt Petersburg, Russland (© Tomas Sereda/Getty Images)|Weiße Nächte|![](/de-DE/2020/06/202006102200GriboyedovCanal.jpg)|
 202006112200|SantaElena|Milchstraße über dem Santa Elena Canyon im Big-Bend-Nationalpark, Texas, USA (© Stanley Ford/Shutterstock)|Galaktisches Spektakel|![](/de-DE/2020/06/202006112200SantaElena.jpg)|
+202006122200|WildflowersBC|Das Erholungsgebiet am Kettle River im kanadischen British Columbia strotzt vor Wildblumen, nachdem ein Feuer einen Großteil des Waldes zerstört hat (© Debra Brash/Plainpicture)|Blumen am Ne-hoi-al-pit-kwu|![](/de-DE/2020/06/202006122200WildflowersBC.jpg)|
