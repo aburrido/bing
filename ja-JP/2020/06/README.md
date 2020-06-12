@@ -12,3 +12,4 @@
 202006091500|AbseilersBigBen|｢ビッグ・ベンの掃除｣イギリス, ロンドン (© Reuters)|｢時の記念日｣100周年|![](/ja-JP/2020/06/202006091500AbseilersBigBen.jpg)|
 202006101500|KamakuraAjisai|｢明月院｣神奈川, 鎌倉 (© Aflo Relax/Masterfile)|梅雨のシーズンです|![](/ja-JP/2020/06/202006101500KamakuraAjisai.jpg)|
 202006111500|SantaElena|｢サンタ・エレナ渓谷と銀河｣米国テキサス州, ビッグ・ベンド国立公園 (© Stanley Ford/Shutterstock)|今日はこの自然公園の誕生日|![](/ja-JP/2020/06/202006111500SantaElena.jpg)|
+202006121500|GrandsCausses|｢ドゥルビ渓谷の製粉所｣フランス, グラン・コース地域圏自然公園 (© Hemis/Alamy)|フランスの世界遺産|![](/ja-JP/2020/06/202006121500GrandsCausses.jpg)|
