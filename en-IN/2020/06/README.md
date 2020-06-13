@@ -13,3 +13,4 @@
 202006101830|GriboyedovCanal|Griboyedov Canal and the Church of the Savior on Spilled Blood in Saint Petersburg, Russia (© Tomas Sereda/Getty Images)|A midsummer twilight's dream|![](/en-IN/2020/06/202006101830GriboyedovCanal.jpg)|
 202006111830|SantaElena|Santa Elena Canyon under the Milky Way in Big Bend National Park, Texas, USA (© Stanley Ford/Shutterstock)|Big sky at Big Bend|![](/en-IN/2020/06/202006111830SantaElena.jpg)|
 202006121830|GrandsCausses|The Dourbie Gorge Corps Mill and adjoining bridge in Grands Causses Natural Regional Park, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-IN/2020/06/202006121830GrandsCausses.jpg)|
+202006131830|IndiaOwlet|Spotted Owlet in Bharatpur, India (© Bernard Castelein/Minden Pictures)|The common Spotted Owlet|![](/en-IN/2020/06/202006131830IndiaOwlet.jpg)|
