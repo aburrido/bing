@@ -13,3 +13,4 @@
 202006102300|GriboyedovCanal|Griboyedov Canal and the Church of the Savior on Spilled Blood in Saint Petersburg, Russia (© Tomas Sereda/Getty Images)|A midsummer twilight dream|![](/en-GB/2020/06/202006102300GriboyedovCanal.jpg)|
 202006112300|PortreeHarbour|Portree before sunset, Isle of Skye (© zhuzhu/iStock/Getty Images Plus)|Harbour of many hues|![](/en-GB/2020/06/202006112300PortreeHarbour.jpg)|
 202006122300|GrandsCausses|The Dourbie Gorge in Grands Causses Natural Regional Park, Occitanie, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-GB/2020/06/202006122300GrandsCausses.jpg)|
+202006132300|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Discovering hidden gems|![](/en-GB/2020/06/202006132300BaronLakes.jpg)|
