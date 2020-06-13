@@ -13,3 +13,4 @@
 202006102200|GriboyedovCanal|Canal Griboïedov et la cathédrale Saint-Sauveur-sur-le-Sang-Versé, Saint-Pétersbourg, Russie (© Tomas Sereda/Getty Images)|Mère-Patrie|![](/fr-FR/2020/06/202006102200GriboyedovCanal.jpg)|
 202006112200|SantaElena|Canyon de Santa Elena sous la voie lactée et le parc national de Big Bend, Texas, États-Unis (© Stanley Ford/Shutterstock)|Mille millions d’étoiles|![](/fr-FR/2020/06/202006112200SantaElena.jpg)|
 202006122200|GrandsCausses|La Dourbie dans le parc naturel régional des Grands Causses (© Hemis/Alamy)|Douce France|![](/fr-FR/2020/06/202006122200GrandsCausses.jpg)|
+202006132200|PoppiesAndTrees|Oliviers et coquelicots dans le parc naturel régional du Luberon (© Hemis/Alamy)|Richesses de notre pays|![](/fr-FR/2020/06/202006132200PoppiesAndTrees.jpg)|
