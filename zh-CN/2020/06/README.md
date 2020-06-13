@@ -13,3 +13,4 @@
 202006101600|GriboyedovCanal|格里博耶多夫运河和滴血救世主教堂，俄罗斯圣彼得堡 (© Tomas Sereda/Getty Images)||![](/zh-CN/2020/06/202006101600GriboyedovCanal.jpg)|
 202006111600|SantaElena|银河下的圣埃伦娜峡谷，德克萨斯州大弯国家公园 (© Stanley Ford/Shutterstock)||![](/zh-CN/2020/06/202006111600SantaElena.jpg)|
 202006121600|GrandsCausses|杜尔比河峡谷中的Moulin de Corp和小桥，法国Grands Causses自然公园 (© Hemis/Alamy)||![](/zh-CN/2020/06/202006121600GrandsCausses.jpg)|
+202006131600|WildflowersBC|火灾烧毁大部分森林后，野花遍地的凯尔特河野营地 (© Debra Brash/plainpicture)||![](/zh-CN/2020/06/202006131600WildflowersBC.jpg)|
