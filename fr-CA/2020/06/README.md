@@ -13,3 +13,4 @@
 202006110400|GriboyedovCanal|Canal Griboïedov et l'église du Sauveur sur le sang versé à Saint-Pétersbourg, Russie (© Tomas Sereda/Getty Images)||![](/fr-CA/2020/06/202006110400GriboyedovCanal.jpg)|
 202006120400|SantaElena|Santa Elena Canyon sous la voie lactée dans le parc national de Big Bend, Texas (© Stanley Ford/Shutterstock)||![](/fr-CA/2020/06/202006120400SantaElena.jpg)|
 202006130400|GrandsCausses|Le moulin de Dourbie Gorge Corps et le pont adjacent dans le Parc Naturel Régional des Grands Causses, France (© Hemis/Alamy)||![](/fr-CA/2020/06/202006130400GrandsCausses.jpg)|
+202006140400|WildflowersBC|Zone de loisirs de la rivière Kettle regorgeant de fleurs sauvages, après qu'un incendie a détruit une grande partie de la forêt (© Debra Brash/Plainpicture)||![](/fr-CA/2020/06/202006140400WildflowersBC.jpg)|
