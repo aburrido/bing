@@ -14,3 +14,4 @@
 202006112200|SantaElena|Milchstraße über dem Santa Elena Canyon im Big-Bend-Nationalpark, Texas, USA (© Stanley Ford/Shutterstock)|Galaktisches Spektakel|![](/de-DE/2020/06/202006112200SantaElena.jpg)|
 202006122200|WildflowersBC|Das Erholungsgebiet am Kettle River im kanadischen British Columbia strotzt vor Wildblumen, nachdem ein Feuer einen Großteil des Waldes zerstört hat (© Debra Brash/Plainpicture)|Blumen am Ne-hoi-al-pit-kwu|![](/de-DE/2020/06/202006122200WildflowersBC.jpg)|
 202006132200|GrandsCausses|Die Moulin de Corp in der Gorges de la Dourbie im Regionalen Naturpark Grands Causses, Département Aveyron, Region Okzitanien, Frankreich (© Hemis/Alamy)|Nah am Wasser gebaut|![](/de-DE/2020/06/202006132200GrandsCausses.jpg)|
+202006142200|LeuchtturmFluegge|Wendeltreppe im Leuchtturm Flügge auf der Insel Fehmarn, Schleswig-Holstein, Deutschland (© Raimund Linke/Masterfile)|162 Stufen bis zur Aussicht|![](/de-DE/2020/06/202006142200LeuchtturmFluegge.jpg)|

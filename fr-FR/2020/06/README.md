@@ -14,3 +14,4 @@
 202006112200|SantaElena|Canyon de Santa Elena sous la voie lactée et le parc national de Big Bend, Texas, États-Unis (© Stanley Ford/Shutterstock)|Mille millions d’étoiles|![](/fr-FR/2020/06/202006112200SantaElena.jpg)|
 202006122200|GrandsCausses|La Dourbie dans le parc naturel régional des Grands Causses (© Hemis/Alamy)|Douce France|![](/fr-FR/2020/06/202006122200GrandsCausses.jpg)|
 202006132200|PoppiesAndTrees|Oliviers et coquelicots dans le parc naturel régional du Luberon (© Hemis/Alamy)|Richesses de notre pays|![](/fr-FR/2020/06/202006132200PoppiesAndTrees.jpg)|
+202006142200|SurfSeason|Un surfeur marchant entre les ombres des palmiers à Medewi, Bali, Indonésie (© helivideo/GettyImages)|Paradis de la vague|![](/fr-FR/2020/06/202006142200SurfSeason.jpg)|
