@@ -14,3 +14,4 @@
 202006111500|SantaElena|｢サンタ・エレナ渓谷と銀河｣米国テキサス州, ビッグ・ベンド国立公園 (© Stanley Ford/Shutterstock)|今日はこの自然公園の誕生日|![](/ja-JP/2020/06/202006111500SantaElena.jpg)|
 202006121500|GrandsCausses|｢ドゥルビ渓谷の製粉所｣フランス, グラン・コース地域圏自然公園 (© Hemis/Alamy)|フランスの世界遺産|![](/ja-JP/2020/06/202006121500GrandsCausses.jpg)|
 202006131500|BurgAltdahn|｢アルトダーン城｣ドイツ, ラインラント＝プファルツ州 (© Reinhard Schmid/Huber/eStock Photo)|ドイツの古城|![](/ja-JP/2020/06/202006131500BurgAltdahn.jpg)|
+202006141500|SurfSeason|｢マデウィ・ビーチ｣インドネシア, バリ島 (© helivideo/GettyImages)|バリ島のサーフ・リゾート|![](/ja-JP/2020/06/202006141500SurfSeason.jpg)|
