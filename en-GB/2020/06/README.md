@@ -15,3 +15,4 @@
 202006122300|GrandsCausses|The Dourbie Gorge in Grands Causses Natural Regional Park, Occitanie, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-GB/2020/06/202006122300GrandsCausses.jpg)|
 202006132300|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Discovering hidden gems|![](/en-GB/2020/06/202006132300BaronLakes.jpg)|
 202006142300|SurfSeason|Surfer walking between palm trees in Medewi, Bali, Indonesia (© helivideo/GettyImages)|Surfer’s paradise|![](/en-GB/2020/06/202006142300SurfSeason.jpg)|
+202006152300|StStephens|St Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|Ambling through Ulysses|![](/en-GB/2020/06/202006152300StStephens.jpg)|
