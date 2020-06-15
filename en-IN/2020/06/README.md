@@ -15,3 +15,4 @@
 202006121830|GrandsCausses|The Dourbie Gorge Corps Mill and adjoining bridge in Grands Causses Natural Regional Park, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-IN/2020/06/202006121830GrandsCausses.jpg)|
 202006131830|IndiaOwlet|Spotted Owlet in Bharatpur, India (© Bernard Castelein/Minden Pictures)|The common Spotted Owlet|![](/en-IN/2020/06/202006131830IndiaOwlet.jpg)|
 202006141830|SurfSeason|Surfer walking between palm trees in Medewi, Bali, Indonesia (© helivideo/GettyImages)|Surfer’s paradise|![](/en-IN/2020/06/202006141830SurfSeason.jpg)|
+202006151830|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-IN/2020/06/202006151830StStephens.jpg)|
