@@ -14,3 +14,4 @@
 202006120400|SantaElena|Santa Elena Canyon sous la voie lactée dans le parc national de Big Bend, Texas (© Stanley Ford/Shutterstock)||![](/fr-CA/2020/06/202006120400SantaElena.jpg)|
 202006130400|GrandsCausses|Le moulin de Dourbie Gorge Corps et le pont adjacent dans le Parc Naturel Régional des Grands Causses, France (© Hemis/Alamy)||![](/fr-CA/2020/06/202006130400GrandsCausses.jpg)|
 202006140400|WildflowersBC|Zone de loisirs de la rivière Kettle regorgeant de fleurs sauvages, après qu'un incendie a détruit une grande partie de la forêt (© Debra Brash/Plainpicture)||![](/fr-CA/2020/06/202006140400WildflowersBC.jpg)|
+202006150400|SurfSeason|Surfeur marchant entre palmiers à Medewi, Bali, Indonésie (© helivideo/GettyImages)||![](/fr-CA/2020/06/202006150400SurfSeason.jpg)|
