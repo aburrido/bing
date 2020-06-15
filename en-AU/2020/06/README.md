@@ -15,3 +15,4 @@
 202006121400|GrandsCausses|The Dourbie Gorge Corps Mill and adjoining bridge in Grands Causses Natural Regional Park, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-AU/2020/06/202006121400GrandsCausses.jpg)|
 202006131400|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|We’re gonna need a bigger bird house|![](/en-AU/2020/06/202006131400JabiruStork.jpg)|
 202006141400|MelaleucaTrees|Melaleuca trees in a stream after cyclonic rainfall, Western Australia (© Ted Mead/Getty Images)|Tree time|![](/en-AU/2020/06/202006141400MelaleucaTrees.jpg)|
+202006151400|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-AU/2020/06/202006151400StStephens.jpg)|
