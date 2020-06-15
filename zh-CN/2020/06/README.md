@@ -15,3 +15,4 @@
 202006121600|GrandsCausses|杜尔比河峡谷中的Moulin de Corp和小桥，法国Grands Causses自然公园 (© Hemis/Alamy)||![](/zh-CN/2020/06/202006121600GrandsCausses.jpg)|
 202006131600|WildflowersBC|火灾烧毁大部分森林后，野花遍地的凯尔特河野营地 (© Debra Brash/plainpicture)||![](/zh-CN/2020/06/202006131600WildflowersBC.jpg)|
 202006141600|SurfSeason|梅德威海滩棕榈树间散步的冲浪者，印尼巴厘岛 (© helivideo/GettyImages)||![](/zh-CN/2020/06/202006141600SurfSeason.jpg)|
+202006151600|StStephens|都柏林的圣斯蒂芬绿地，爱尔兰 (© L_E/Shutterstock)||![](/zh-CN/2020/06/202006151600StStephens.jpg)|
