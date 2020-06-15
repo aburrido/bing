@@ -15,3 +15,4 @@
 202006120700|SantaElena|Santa Elena Canyon under the Milky Way in Big Bend National Park, Texas (© Stanley Ford/Shutterstock)|Big sky at Big Bend|![](/en-US/2020/06/202006120700SantaElena.jpg)|
 202006130700|GrandsCausses|The Dourbie Gorge Corps Mill and adjoining bridge in Grands Causses Regional Nature Park, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-US/2020/06/202006130700GrandsCausses.jpg)|
 202006140700|FlagPlazaLiberty|US Flag Plaza at Liberty State Park in Jersey City, New Jersey (© Antonino Bartuccio/eStock Photo)|Celebrating Flag Day|![](/en-US/2020/06/202006140700FlagPlazaLiberty.jpg)|
+202006150700|SurfSeason|Surfer on the beach in Medewi, Bali, Indonesia (© helivideo/Getty Images)|Surfer's paradise|![](/en-US/2020/06/202006150700SurfSeason.jpg)|
