@@ -15,3 +15,4 @@
 202006122200|GrandsCausses|La Dourbie dans le parc naturel régional des Grands Causses (© Hemis/Alamy)|Douce France|![](/fr-FR/2020/06/202006122200GrandsCausses.jpg)|
 202006132200|PoppiesAndTrees|Oliviers et coquelicots dans le parc naturel régional du Luberon (© Hemis/Alamy)|Richesses de notre pays|![](/fr-FR/2020/06/202006132200PoppiesAndTrees.jpg)|
 202006142200|SurfSeason|Un surfeur marchant entre les ombres des palmiers à Medewi, Bali, Indonésie (© helivideo/GettyImages)|Paradis de la vague|![](/fr-FR/2020/06/202006142200SurfSeason.jpg)|
+202006152200|StStephens|Parc public St. Stephen's Green à Dublin, Irlande (© L_E/Shutterstock)|Les heures littéraires|![](/fr-FR/2020/06/202006152200StStephens.jpg)|
