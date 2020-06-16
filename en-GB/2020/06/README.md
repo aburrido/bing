@@ -16,3 +16,4 @@
 202006132300|BaronLakes|Baron Lake in the Sawtooth Wilderness in Idaho, USA (© Patrick Brandenburg/Tandem Stills + Motion)|Discovering hidden gems|![](/en-GB/2020/06/202006132300BaronLakes.jpg)|
 202006142300|SurfSeason|Surfer walking between palm trees in Medewi, Bali, Indonesia (© helivideo/GettyImages)|Surfer’s paradise|![](/en-GB/2020/06/202006142300SurfSeason.jpg)|
 202006152300|StStephens|St Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|Ambling through Ulysses|![](/en-GB/2020/06/202006152300StStephens.jpg)|
+202006162300|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona, USA (© Edwin Verin/Alamy)|Turquoise turbulence|![](/en-GB/2020/06/202006162300Havasupai.jpg)|
