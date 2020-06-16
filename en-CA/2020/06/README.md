@@ -15,3 +15,4 @@
 202006130400|GrandsCausses|The Dourbie Gorge Corps Mill and adjoining bridge in Grands Causses Natural Regional Park, France (© Hemis/Alamy)|A gorge-ous mill in the Causses|![](/en-CA/2020/06/202006130400GrandsCausses.jpg)|
 202006140400|WildflowersBC|Kettle River Recreation Area bursting with wildflowers after a fire destroyed much of the forest (© Debra Brash/Plainpicture)|Rising from the ashes|![](/en-CA/2020/06/202006140400WildflowersBC.jpg)|
 202006150400|SurfSeason|Surfer walking between palm trees in Medewi, Bali, Indonesia (© helivideo/GettyImages)|Surfer’s paradise|![](/en-CA/2020/06/202006150400SurfSeason.jpg)|
+202006160400|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-CA/2020/06/202006160400StStephens.jpg)|

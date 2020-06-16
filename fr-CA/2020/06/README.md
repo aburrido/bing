@@ -15,3 +15,4 @@
 202006130400|GrandsCausses|Le moulin de Dourbie Gorge Corps et le pont adjacent dans le Parc Naturel Régional des Grands Causses, France (© Hemis/Alamy)||![](/fr-CA/2020/06/202006130400GrandsCausses.jpg)|
 202006140400|WildflowersBC|Zone de loisirs de la rivière Kettle regorgeant de fleurs sauvages, après qu'un incendie a détruit une grande partie de la forêt (© Debra Brash/Plainpicture)||![](/fr-CA/2020/06/202006140400WildflowersBC.jpg)|
 202006150400|SurfSeason|Surfeur marchant entre palmiers à Medewi, Bali, Indonésie (© helivideo/GettyImages)||![](/fr-CA/2020/06/202006150400SurfSeason.jpg)|
+202006160400|StStephens|St. Stephen's Green à Dublin, Irlande (© L_E/Shutterstock)||![](/fr-CA/2020/06/202006160400StStephens.jpg)|
