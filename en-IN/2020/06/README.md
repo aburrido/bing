@@ -16,3 +16,4 @@
 202006131830|IndiaOwlet|Spotted Owlet in Bharatpur, India (© Bernard Castelein/Minden Pictures)|The common Spotted Owlet|![](/en-IN/2020/06/202006131830IndiaOwlet.jpg)|
 202006141830|SurfSeason|Surfer walking between palm trees in Medewi, Bali, Indonesia (© helivideo/GettyImages)|Surfer’s paradise|![](/en-IN/2020/06/202006141830SurfSeason.jpg)|
 202006151830|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-IN/2020/06/202006151830StStephens.jpg)|
+202006161830|MumtazMehal|View of the Taj Mahal, south gate (© Benjawan Sittidech/Getty Images)|In memory of Mumtaz Mahal|![](/en-IN/2020/06/202006161830MumtazMehal.jpg)|
