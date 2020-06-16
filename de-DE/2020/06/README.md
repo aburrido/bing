@@ -16,3 +16,4 @@
 202006132200|GrandsCausses|Die Moulin de Corp in der Gorges de la Dourbie im Regionalen Naturpark Grands Causses, Département Aveyron, Region Okzitanien, Frankreich (© Hemis/Alamy)|Nah am Wasser gebaut|![](/de-DE/2020/06/202006132200GrandsCausses.jpg)|
 202006142200|LeuchtturmFluegge|Wendeltreppe im Leuchtturm Flügge auf der Insel Fehmarn, Schleswig-Holstein, Deutschland (© Raimund Linke/Masterfile)|162 Stufen bis zur Aussicht|![](/de-DE/2020/06/202006142200LeuchtturmFluegge.jpg)|
 202006152200|StStephens|St. Stephen's Green in Dublin, Irland (© L_E/Shutterstock)|In den Fußstapfen von Leopold Bloom|![](/de-DE/2020/06/202006152200StStephens.jpg)|
+202006162200|SurfSeason|Surfer zwischen Palmen in Medewi, Bali, Indonesien (© helivideo/GettyImages)|Paradies für Surfer|![](/de-DE/2020/06/202006162200SurfSeason.jpg)|
