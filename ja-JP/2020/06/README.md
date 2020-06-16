@@ -16,3 +16,4 @@
 202006131500|BurgAltdahn|｢アルトダーン城｣ドイツ, ラインラント＝プファルツ州 (© Reinhard Schmid/Huber/eStock Photo)|ドイツの古城|![](/ja-JP/2020/06/202006131500BurgAltdahn.jpg)|
 202006141500|SurfSeason|｢マデウィ・ビーチ｣インドネシア, バリ島 (© helivideo/GettyImages)|バリ島のサーフ・リゾート|![](/ja-JP/2020/06/202006141500SurfSeason.jpg)|
 202006151500|StStephens|｢セント・スティーブンス・グリーン｣アイルランド,　ダブリン (© L_E/Shutterstock)|今日は｢ブルームの日｣|![](/ja-JP/2020/06/202006151500StStephens.jpg)|
+202006161500|StravinskyFountain|｢ストラヴィンスキー噴水｣パリ, フランス (© Alessandro Saffo/eStock Photo)|今日はストラヴィンスキーの誕生日|![](/ja-JP/2020/06/202006161500StravinskyFountain.jpg)|
