@@ -16,3 +16,4 @@
 202006140400|WildflowersBC|Zone de loisirs de la rivière Kettle regorgeant de fleurs sauvages, après qu'un incendie a détruit une grande partie de la forêt (© Debra Brash/Plainpicture)||![](/fr-CA/2020/06/202006140400WildflowersBC.jpg)|
 202006150400|SurfSeason|Surfeur marchant entre palmiers à Medewi, Bali, Indonésie (© helivideo/GettyImages)||![](/fr-CA/2020/06/202006150400SurfSeason.jpg)|
 202006160400|StStephens|St. Stephen's Green à Dublin, Irlande (© L_E/Shutterstock)||![](/fr-CA/2020/06/202006160400StStephens.jpg)|
+202006170400|OpalRangeFog|Opal Range entouré de brouillard, Kananaskis Country, Alberta (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2020/06/202006170400OpalRangeFog.jpg)|
