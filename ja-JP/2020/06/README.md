@@ -17,3 +17,4 @@
 202006141500|SurfSeason|｢マデウィ・ビーチ｣インドネシア, バリ島 (© helivideo/GettyImages)|バリ島のサーフ・リゾート|![](/ja-JP/2020/06/202006141500SurfSeason.jpg)|
 202006151500|StStephens|｢セント・スティーブンス・グリーン｣アイルランド,　ダブリン (© L_E/Shutterstock)|今日は｢ブルームの日｣|![](/ja-JP/2020/06/202006151500StStephens.jpg)|
 202006161500|StravinskyFountain|｢ストラヴィンスキー噴水｣パリ, フランス (© Alessandro Saffo/eStock Photo)|今日はストラヴィンスキーの誕生日|![](/ja-JP/2020/06/202006161500StravinskyFountain.jpg)|
+202006171500|FormentorHolidays|｢フォルメントール灯台｣スペイン, フォルメントール岬 (© Lasse Eklöf/DEEPOL by plainpicture)|地中海の灯台|![](/ja-JP/2020/06/202006171500FormentorHolidays.jpg)|
