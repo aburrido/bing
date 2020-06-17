@@ -17,3 +17,4 @@
 202006141830|SurfSeason|Surfer walking between palm trees in Medewi, Bali, Indonesia (© helivideo/GettyImages)|Surfer’s paradise|![](/en-IN/2020/06/202006141830SurfSeason.jpg)|
 202006151830|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-IN/2020/06/202006151830StStephens.jpg)|
 202006161830|MumtazMehal|View of the Taj Mahal, south gate (© Benjawan Sittidech/Getty Images)|In memory of Mumtaz Mahal|![](/en-IN/2020/06/202006161830MumtazMehal.jpg)|
+202006171830|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|We’re gonna need a bigger bird house|![](/en-IN/2020/06/202006171830JabiruStork.jpg)|
