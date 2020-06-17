@@ -17,3 +17,4 @@
 202006140700|FlagPlazaLiberty|US Flag Plaza at Liberty State Park in Jersey City, New Jersey (© Antonino Bartuccio/eStock Photo)|Celebrating Flag Day|![](/en-US/2020/06/202006140700FlagPlazaLiberty.jpg)|
 202006150700|SurfSeason|Surfer on the beach in Medewi, Bali, Indonesia (© helivideo/Getty Images)|Surfer's paradise|![](/en-US/2020/06/202006150700SurfSeason.jpg)|
 202006160700|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-US/2020/06/202006160700StStephens.jpg)|
+202006170700|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona (© Edwin Verin/Alamy)|Don't go chasing waterfalls|![](/en-US/2020/06/202006170700Havasupai.jpg)|
