@@ -17,3 +17,4 @@
 202006141600|SurfSeason|梅德威海滩棕榈树间散步的冲浪者，印尼巴厘岛 (© helivideo/GettyImages)||![](/zh-CN/2020/06/202006141600SurfSeason.jpg)|
 202006151600|StStephens|都柏林的圣斯蒂芬绿地，爱尔兰 (© L_E/Shutterstock)||![](/zh-CN/2020/06/202006151600StStephens.jpg)|
 202006161600|Havasupai|大峡谷哈瓦苏溪上的海狸瀑布，亚利桑那州 (© Edwin Verin/Alamy)||![](/zh-CN/2020/06/202006161600Havasupai.jpg)|
+202006171600|JabiruStork|潘塔纳尔湿地中的裸颈鹳，巴西 (© Juan-Carlos Munoz/Minden Pictures)||![](/zh-CN/2020/06/202006171600JabiruStork.jpg)|
