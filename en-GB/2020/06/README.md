@@ -18,3 +18,4 @@
 202006152300|StStephens|St Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|Ambling through Ulysses|![](/en-GB/2020/06/202006152300StStephens.jpg)|
 202006162300|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona, USA (© Edwin Verin/Alamy)|Turquoise turbulence|![](/en-GB/2020/06/202006162300Havasupai.jpg)|
 202006172300|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|Out on a limb|![](/en-GB/2020/06/202006172300JabiruStork.jpg)|
+||||![](/en-GB/2020/06/.jpg)|
