@@ -19,3 +19,4 @@
 202006162300|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona, USA (© Edwin Verin/Alamy)|Turquoise turbulence|![](/en-GB/2020/06/202006162300Havasupai.jpg)|
 202006172300|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|Out on a limb|![](/en-GB/2020/06/202006172300JabiruStork.jpg)|
 ||||![](/en-GB/2020/06/.jpg)|
+202006182300|SantaElena|Santa Elena Canyon under the Milky Way in Big Bend National Park, Texas, USA (© Stanley Ford/Shutterstock)|Big sky at Big Bend|![](/en-GB/2020/06/202006182300SantaElena.jpg)|
