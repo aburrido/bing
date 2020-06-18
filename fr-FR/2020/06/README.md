@@ -18,3 +18,4 @@
 202006152200|StStephens|Parc public St. Stephen's Green à Dublin, Irlande (© L_E/Shutterstock)|Les heures littéraires|![](/fr-FR/2020/06/202006152200StStephens.jpg)|
 202006162200|Havasupai|Les chutes de Beaver Falls à Havasu Creek, Grand Canyon, États-Unis (© Edwin Verin/Alamy)|Chutes d’eau bleue-verte|![](/fr-FR/2020/06/202006162200Havasupai.jpg)|
 202006172200|DeGaulle|Photographie de Charles de Gaulle au mémorial éponyme de Colombey les Deux Églises (© Alexandre MARCHI/Gamma-Rapho via Getty Images)|Appel historique|![](/fr-FR/2020/06/202006172200DeGaulle.jpg)|
+202006182200|MidsummerEve|Lumière de minuit sur un lac près d’Örebro, Suède (© Anders Jorulf/Getty Images)|Soleil de minuit|![](/fr-FR/2020/06/202006182200MidsummerEve.jpg)|
