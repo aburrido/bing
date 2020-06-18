@@ -18,3 +18,4 @@
 202006151600|StStephens|都柏林的圣斯蒂芬绿地，爱尔兰 (© L_E/Shutterstock)||![](/zh-CN/2020/06/202006151600StStephens.jpg)|
 202006161600|Havasupai|大峡谷哈瓦苏溪上的海狸瀑布，亚利桑那州 (© Edwin Verin/Alamy)||![](/zh-CN/2020/06/202006161600Havasupai.jpg)|
 202006171600|JabiruStork|潘塔纳尔湿地中的裸颈鹳，巴西 (© Juan-Carlos Munoz/Minden Pictures)||![](/zh-CN/2020/06/202006171600JabiruStork.jpg)|
+202006181600|MidsummerEve|厄勒布鲁附近湖上的仲夏之光，瑞典 (© Anders Jorulf/Getty Images)||![](/zh-CN/2020/06/202006181600MidsummerEve.jpg)|
