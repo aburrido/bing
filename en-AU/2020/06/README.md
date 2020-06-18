@@ -18,3 +18,4 @@
 202006151400|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-AU/2020/06/202006151400StStephens.jpg)|
 202006161400|Zugspitze|Eibsee lake at the base of Zugspitze mountain, Bavaria, Germany (© Marc Hohenleitner/Huber/eStock Photo)|The Zugspitze: Germany's highest point|![](/en-AU/2020/06/202006161400Zugspitze.jpg)|
 202006171400|EchoPoint|A snow-covered rocky cliff at Echo Point lookout, Katoomba, New South Wales  (© Andrew Merry/Getty Images)|Winter arrives in Katoomba|![](/en-AU/2020/06/202006171400EchoPoint.jpg)|
+202006181400|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Under the midnight sun|![](/en-AU/2020/06/202006181400MidsummerEve.jpg)|
