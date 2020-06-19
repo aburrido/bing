@@ -18,3 +18,4 @@
 202006160400|StStephens|St. Stephen's Green in Dublin, Ireland (© L_E/Shutterstock)|In the footsteps of Leopold Bloom|![](/en-CA/2020/06/202006160400StStephens.jpg)|
 202006170400|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona (© Edwin Verin/Alamy)|Don’t go chasing waterfalls|![](/en-CA/2020/06/202006170400Havasupai.jpg)|
 202006180400|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|We’re gonna need a bigger bird house|![](/en-CA/2020/06/202006180400JabiruStork.jpg)|
+202006190400|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Midsummer's Eve in Sweden|![](/en-CA/2020/06/202006190400MidsummerEve.jpg)|
