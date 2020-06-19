@@ -19,3 +19,4 @@
 202006162200|SurfSeason|Surfer zwischen Palmen in Medewi, Bali, Indonesien (© helivideo/GettyImages)|Paradies für Surfer|![](/de-DE/2020/06/202006162200SurfSeason.jpg)|
 202006172200|JabiruStork|Jabiru-Störche im Pantanal, Brasilien (© Juan-Carlos Munoz/Minden Pictures)|Wir werden ein größeres Vogelhaus brauchen|![](/de-DE/2020/06/202006172200JabiruStork.jpg)|
 202006182200|MidsummerEve|Mittsommer-Licht an einem See in der Nähe von Örebro, Schweden (© Anders Jorulf/Getty Images)|Mittsommer-Stimmung in Schweden|![](/de-DE/2020/06/202006182200MidsummerEve.jpg)|
+202006192200|BeyondWalls|Die Installation „Beyond Walls“ des Künstlers Saype im Parc de la Grange, Genf, Schweiz (© Valentin Flauraud/Shutterstock)|„Beyond Walls“ zum Weltflüchtlingstag|![](/de-DE/2020/06/202006192200BeyondWalls.jpg)|

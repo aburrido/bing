@@ -19,3 +19,4 @@
 202006162200|Havasupai|Les chutes de Beaver Falls à Havasu Creek, Grand Canyon, États-Unis (© Edwin Verin/Alamy)|Chutes d’eau bleue-verte|![](/fr-FR/2020/06/202006162200Havasupai.jpg)|
 202006172200|DeGaulle|Photographie de Charles de Gaulle au mémorial éponyme de Colombey les Deux Églises (© Alexandre MARCHI/Gamma-Rapho via Getty Images)|Appel historique|![](/fr-FR/2020/06/202006172200DeGaulle.jpg)|
 202006182200|MidsummerEve|Lumière de minuit sur un lac près d’Örebro, Suède (© Anders Jorulf/Getty Images)|Soleil de minuit|![](/fr-FR/2020/06/202006182200MidsummerEve.jpg)|
+202006192200|BeyondWalls|« Beyond Walls », l’installation artistique de Saype, dans le Parc de la Grange, Genève, Suisse (© Valentin Flauraud/Shutterstock)|Le pouvoir d’une main tendue|![](/fr-FR/2020/06/202006192200BeyondWalls.jpg)|
