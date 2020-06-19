@@ -19,3 +19,4 @@
 202006161830|MumtazMehal|View of the Taj Mahal, south gate (© Benjawan Sittidech/Getty Images)|In memory of Mumtaz Mahal|![](/en-IN/2020/06/202006161830MumtazMehal.jpg)|
 202006171830|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|We’re gonna need a bigger bird house|![](/en-IN/2020/06/202006171830JabiruStork.jpg)|
 202006181830|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Midsummer's Eve in Sweden|![](/en-IN/2020/06/202006181830MidsummerEve.jpg)|
+202006191830|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|‘Beyond Walls’ for World Refugee Day|![](/en-IN/2020/06/202006191830BeyondWalls.jpg)|
