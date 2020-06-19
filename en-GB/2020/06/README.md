@@ -20,3 +20,4 @@
 202006172300|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|Out on a limb|![](/en-GB/2020/06/202006172300JabiruStork.jpg)|
 ||||![](/en-GB/2020/06/.jpg)|
 202006182300|SantaElena|Santa Elena Canyon under the Milky Way in Big Bend National Park, Texas, USA (© Stanley Ford/Shutterstock)|Big sky at Big Bend|![](/en-GB/2020/06/202006182300SantaElena.jpg)|
+202006192300|SarsenStones|Dawn breaks over the ancient Sarsen Stones at Avebury, Wiltshire, at Summer Solstice (© Terry Mathews/Alamy Stock Photo)|The longest day|![](/en-GB/2020/06/202006192300SarsenStones.jpg)|
