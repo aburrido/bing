@@ -20,3 +20,4 @@
 202006170700|Havasupai|Beaver Falls on Havasu Creek in the Grand Canyon, Arizona (© Edwin Verin/Alamy)|Don't go chasing waterfalls|![](/en-US/2020/06/202006170700Havasupai.jpg)|
 202006180700|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-US/2020/06/202006180700BojoRiver.jpg)|
 202006190700|Juneteenth|The Texas African American History Memorial on the State Capitol grounds in Austin, Texas (© Moab Republic/Shutterstock)|Celebrating freedom|![](/en-US/2020/06/202006190700Juneteenth.jpg)|
+202006200700|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|'Beyond Walls' for World Refugee Day|![](/en-US/2020/06/202006200700BeyondWalls.jpg)|
