@@ -20,3 +20,4 @@
 202006171500|FormentorHolidays|｢フォルメントール灯台｣スペイン, フォルメントール岬 (© Lasse Eklöf/DEEPOL by plainpicture)|地中海の灯台|![](/ja-JP/2020/06/202006171500FormentorHolidays.jpg)|
 202006181500|BullPoint|｢ ブル・ポイント｣イギリス, デヴォン州 (© Robert Harding World Imagery/Offset by Shutterstock)|イギリスのナショナル・トレイル|![](/ja-JP/2020/06/202006181500BullPoint.jpg)|
 202006191500|BeyondWalls|｢Beyond Walls｣スイス, ジュネーブ (© Valentin Flauraud/Shutterstock)|今日は｢世界難民の日｣|![](/ja-JP/2020/06/202006191500BeyondWalls.jpg)|
+202006201500|BeardedTamarin|｢エンペラータマリンの親子｣ (© Chris White/iStock/Getty Images Plus)|今日は｢父の日｣|![](/ja-JP/2020/06/202006201500BeardedTamarin.jpg)|
