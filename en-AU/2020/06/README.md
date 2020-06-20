@@ -20,3 +20,4 @@
 202006171400|EchoPoint|A snow-covered rocky cliff at Echo Point lookout, Katoomba, New South Wales  (© Andrew Merry/Getty Images)|Winter arrives in Katoomba|![](/en-AU/2020/06/202006171400EchoPoint.jpg)|
 202006181400|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Under the midnight sun|![](/en-AU/2020/06/202006181400MidsummerEve.jpg)|
 202006191400|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|‘Beyond Walls’ for World Refugee Day|![](/en-AU/2020/06/202006191400BeyondWalls.jpg)|
+202006201400|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-AU/2020/06/202006201400BojoRiver.jpg)|
