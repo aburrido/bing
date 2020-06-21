@@ -20,3 +20,4 @@
 202006180400|JabiruStork|Jabiru storks in the Pantanal of Brazil (© Juan-Carlos Munoz/Minden Pictures)|We’re gonna need a bigger bird house|![](/en-CA/2020/06/202006180400JabiruStork.jpg)|
 202006190400|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Midsummer's Eve in Sweden|![](/en-CA/2020/06/202006190400MidsummerEve.jpg)|
 202006200400|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|‘Beyond Walls’ for World Refugee Day|![](/en-CA/2020/06/202006200400BeyondWalls.jpg)|
+202006210400|BeardedTamarin|A bearded emperor tamarin monkey carrying a baby (© Chris White/iStock/Getty Images Plus)|Grab onto the handlebars, kid|![](/en-CA/2020/06/202006210400BeardedTamarin.jpg)|
