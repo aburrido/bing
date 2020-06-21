@@ -22,3 +22,4 @@
 202006182300|SantaElena|Santa Elena Canyon under the Milky Way in Big Bend National Park, Texas, USA (© Stanley Ford/Shutterstock)|Big sky at Big Bend|![](/en-GB/2020/06/202006182300SantaElena.jpg)|
 202006192300|SarsenStones|Dawn breaks over the ancient Sarsen Stones at Avebury, Wiltshire, at Summer Solstice (© Terry Mathews/Alamy Stock Photo)|The longest day|![](/en-GB/2020/06/202006192300SarsenStones.jpg)|
 202006202300|BeardedTamarin|A bearded emperor tamarin monkey carrying a baby (© Chris White/iStock/Getty Images Plus)|Happy Father's Day|![](/en-GB/2020/06/202006202300BeardedTamarin.jpg)|
+202006212300|SouthernSunbird|Male southern double-collared sunbird on rocket pincushion flower, Kirstenbosch Garden, Cape Town, South Africa (© Martin Willis/Minden Pictures)|Flying colours|![](/en-GB/2020/06/202006212300SouthernSunbird.jpg)|
