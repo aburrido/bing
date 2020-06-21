@@ -21,3 +21,4 @@
 202006181830|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Midsummer's Eve in Sweden|![](/en-IN/2020/06/202006181830MidsummerEve.jpg)|
 202006191830|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|‘Beyond Walls’ for World Refugee Day|![](/en-IN/2020/06/202006191830BeyondWalls.jpg)|
 202006201830|BeardedTamarin|A bearded emperor tamarin monkey carrying a baby (© Chris White/iStock/Getty Images Plus)|Grab onto the handlebars, kid|![](/en-IN/2020/06/202006201830BeardedTamarin.jpg)|
+202006211830|AkbarTomb|Akbar's tomb at Sikandra near Agra (© Howard Mitchell/Getty Images)|The tomb of Akbar the Great near Agra|![](/en-IN/2020/06/202006211830AkbarTomb.jpg)|
