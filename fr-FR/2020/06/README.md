@@ -21,3 +21,4 @@
 202006182200|MidsummerEve|Lumière de minuit sur un lac près d’Örebro, Suède (© Anders Jorulf/Getty Images)|Soleil de minuit|![](/fr-FR/2020/06/202006182200MidsummerEve.jpg)|
 202006192200|BeyondWalls|« Beyond Walls », l’installation artistique de Saype, dans le Parc de la Grange, Genève, Suisse (© Valentin Flauraud/Shutterstock)|Le pouvoir d’une main tendue|![](/fr-FR/2020/06/202006192200BeyondWalls.jpg)|
 202006202200|BeardedTamarin|Un Tamarin empereur transportant un bébé sur son dos (© Chris White/iStock/Getty Images Plus)|Merci Papa|![](/fr-FR/2020/06/202006202200BeardedTamarin.jpg)|
+202006212200|FoggyCastle|Château de Castelnaud dans la brume, Périgord, France (© Infografick/iStock/Getty Images Plus)|Chez les Visiteurs|![](/fr-FR/2020/06/202006212200FoggyCastle.jpg)|
