@@ -21,3 +21,4 @@
 202006181400|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Under the midnight sun|![](/en-AU/2020/06/202006181400MidsummerEve.jpg)|
 202006191400|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|‘Beyond Walls’ for World Refugee Day|![](/en-AU/2020/06/202006191400BeyondWalls.jpg)|
 202006201400|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-AU/2020/06/202006201400BojoRiver.jpg)|
+202006211400|CattlemansHut|Cattleman’s hut at Dinner Plain, Victoria (© Viewhillphoto/iStock/Getty Images Plus)|A seriously snowy scene|![](/en-AU/2020/06/202006211400CattlemansHut.jpg)|
