@@ -22,3 +22,4 @@
 202006192200|BeyondWalls|Die Installation „Beyond Walls“ des Künstlers Saype im Parc de la Grange, Genf, Schweiz (© Valentin Flauraud/Shutterstock)|„Beyond Walls“ zum Weltflüchtlingstag|![](/de-DE/2020/06/202006192200BeyondWalls.jpg)|
 202006202200|BeardedTamarin|Kaiserschnurrbarttamarin mit Jungtier (© Chris White/iStock/Getty Images Plus)|Gut festhalten, Kind!|![](/de-DE/2020/06/202006202200BeardedTamarin.jpg)|
 202006212200|FoehrAerialDE|Luftaufnahme der Insel Föhr, Schleswig-Holstein, Deutschland (© Holger Weitzel/imageBROKER/Alamy Stock Photo)|Die „grüne Insel“ ruft|![](/de-DE/2020/06/202006212200FoehrAerialDE.jpg)|
+202006222200|BullPoint|Bull Point in Devon, England, Vereinigtes Königreich (© Robert Harding World Imagery/Offset by Shutterstock)|Blumen am Meer|![](/de-DE/2020/06/202006222200BullPoint.jpg)|
