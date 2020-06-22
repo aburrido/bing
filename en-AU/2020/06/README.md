@@ -22,3 +22,4 @@
 202006191400|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|‘Beyond Walls’ for World Refugee Day|![](/en-AU/2020/06/202006191400BeyondWalls.jpg)|
 202006201400|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-AU/2020/06/202006201400BojoRiver.jpg)|
 202006211400|CattlemansHut|Cattleman’s hut at Dinner Plain, Victoria (© Viewhillphoto/iStock/Getty Images Plus)|A seriously snowy scene|![](/en-AU/2020/06/202006211400CattlemansHut.jpg)|
+202006221400|BullPoint|Bull Point in Devon, England (© Robert Harding World Imagery/Offset by Shutterstock)|Flowers by the sea|![](/en-AU/2020/06/202006221400BullPoint.jpg)|
