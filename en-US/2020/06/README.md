@@ -23,3 +23,4 @@
 202006200700|BeyondWalls|Artist Saype's 'Beyond Walls' installation in the Parc de la Grange, Geneva, Switzerland (© Valentin Flauraud/Shutterstock)|'Beyond Walls' for World Refugee Day|![](/en-US/2020/06/202006200700BeyondWalls.jpg)|
 202006210700|BeardedTamarin|A bearded emperor tamarin monkey carrying a baby (© Chris White/iStock/Getty Images Plus)|Grab onto the handlebars, kid|![](/en-US/2020/06/202006210700BeardedTamarin.jpg)|
 202006210700|HierapolisTurkey|Aerial view of the theater at the ancient city of Hierapolis, adjacent to Pamukkale, Turkey (© Amazing Aerial Agency/Offset by Shutterstock)|Take in a show on your Roman holiday|![](/en-US/2020/06/202006210700HierapolisTurkey.jpg)|
+202006220700|SouthernSunbird|Male southern double-collared sunbird on a rocket pincushion flower, Cape Town, South Africa (© Martin Willis/Minden Pictures)|Pollinators: not to be sneezed at|![](/en-US/2020/06/202006220700SouthernSunbird.jpg)|
