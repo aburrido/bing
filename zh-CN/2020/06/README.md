@@ -22,3 +22,4 @@
 202006191600|HuntingCat|正在捕猎的丛林猫，印度 (© Lila/Alamy)||![](/zh-CN/2020/06/202006191600HuntingCat.jpg)|
 202006201600|BeardedTamarin|一只带着幼崽的长胡子皇狨猴 (© Chris White/iStock/Getty Images Plus)||![](/zh-CN/2020/06/202006201600BeardedTamarin.jpg)|
 202006211600|SouthernSunbird|伯斯国家植物园针垫花上的一只雄性南方双领太阳鸟，南非开普敦 (© Martin Willis/Minden Pictures)||![](/zh-CN/2020/06/202006211600SouthernSunbird.jpg)|
+202006221600|BullPoint|公牛角，英国德文郡 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2020/06/202006221600BullPoint.jpg)|
