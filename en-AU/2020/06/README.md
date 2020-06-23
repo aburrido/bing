@@ -23,3 +23,4 @@
 202006201400|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-AU/2020/06/202006201400BojoRiver.jpg)|
 202006211400|CattlemansHut|Cattleman’s hut at Dinner Plain, Victoria (© Viewhillphoto/iStock/Getty Images Plus)|A seriously snowy scene|![](/en-AU/2020/06/202006211400CattlemansHut.jpg)|
 202006221400|BullPoint|Bull Point in Devon, England (© Robert Harding World Imagery/Offset by Shutterstock)|Flowers by the sea|![](/en-AU/2020/06/202006221400BullPoint.jpg)|
+202006231400|PontFawr|Pont Fawr, a stone arch bridge in Llanrwst, Wales, UK (© Pajor Pawel/Shutterstock)|A bridge too Fawr|![](/en-AU/2020/06/202006231400PontFawr.jpg)|
