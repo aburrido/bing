@@ -24,3 +24,4 @@
 202006202300|BeardedTamarin|A bearded emperor tamarin monkey carrying a baby (© Chris White/iStock/Getty Images Plus)|Happy Father's Day|![](/en-GB/2020/06/202006202300BeardedTamarin.jpg)|
 202006212300|SouthernSunbird|Male southern double-collared sunbird on rocket pincushion flower, Kirstenbosch Garden, Cape Town, South Africa (© Martin Willis/Minden Pictures)|Flying colours|![](/en-GB/2020/06/202006212300SouthernSunbird.jpg)|
 202006222300|BullPoint|Bull Point in Devon (© Robert Harding World Imagery/Offset by Shutterstock)|Wildflowers on the rocks|![](/en-GB/2020/06/202006222300BullPoint.jpg)|
+202006232300|PuzzlewoodPath|Path through Puzzlewood, Forest of Dean, Gloucestershire (© GuyBerresfordPhotography/iStock/Getty Images Plus)|Pathway to Middle Earth?|![](/en-GB/2020/06/202006232300PuzzlewoodPath.jpg)|
