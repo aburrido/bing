@@ -24,3 +24,4 @@
 202006210700|BeardedTamarin|A bearded emperor tamarin monkey carrying a baby (© Chris White/iStock/Getty Images Plus)|Grab onto the handlebars, kid|![](/en-US/2020/06/202006210700BeardedTamarin.jpg)|
 202006210700|HierapolisTurkey|Aerial view of the theater at the ancient city of Hierapolis, adjacent to Pamukkale, Turkey (© Amazing Aerial Agency/Offset by Shutterstock)|Take in a show on your Roman holiday|![](/en-US/2020/06/202006210700HierapolisTurkey.jpg)|
 202006220700|SouthernSunbird|Male southern double-collared sunbird on a rocket pincushion flower, Cape Town, South Africa (© Martin Willis/Minden Pictures)|Pollinators: not to be sneezed at|![](/en-US/2020/06/202006220700SouthernSunbird.jpg)|
+202006230700|BullPoint|Bull Point in Devon, England (© Robert Harding World Imagery/Offset by Shutterstock)|Flowers by the sea|![](/en-US/2020/06/202006230700BullPoint.jpg)|
