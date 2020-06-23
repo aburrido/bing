@@ -23,3 +23,4 @@
 202006201500|BeardedTamarin|｢エンペラータマリンの親子｣ (© Chris White/iStock/Getty Images Plus)|今日は｢父の日｣|![](/ja-JP/2020/06/202006201500BeardedTamarin.jpg)|
 202006211500|MidsummerEve|｢夏至の白夜｣スウェーデン, エレブルー (© Anders Jorulf/Getty Images)|昨日は｢夏至｣|![](/ja-JP/2020/06/202006211500MidsummerEve.jpg)|
 202006221500|SouthernSunbird|｢ミナミゴシキタイヨウチョウ｣南アフリカ, ケープタウン (© Martin Willis/Minden Pictures)|南アフリカの野鳥|![](/ja-JP/2020/06/202006221500SouthernSunbird.jpg)|
+202006231500|RhodesIsland|｢岩石海岸のパラソル｣ギリシャ, ロドス島 (© Amazing Aerial Agency/Offset by Shutterstock)|ギリシャのリゾートアイランド|![](/ja-JP/2020/06/202006231500RhodesIsland.jpg)|
