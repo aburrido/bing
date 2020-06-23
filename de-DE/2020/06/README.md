@@ -23,3 +23,4 @@
 202006202200|BeardedTamarin|Kaiserschnurrbarttamarin mit Jungtier (© Chris White/iStock/Getty Images Plus)|Gut festhalten, Kind!|![](/de-DE/2020/06/202006202200BeardedTamarin.jpg)|
 202006212200|FoehrAerialDE|Luftaufnahme der Insel Föhr, Schleswig-Holstein, Deutschland (© Holger Weitzel/imageBROKER/Alamy Stock Photo)|Die „grüne Insel“ ruft|![](/de-DE/2020/06/202006212200FoehrAerialDE.jpg)|
 202006222200|BullPoint|Bull Point in Devon, England, Vereinigtes Königreich (© Robert Harding World Imagery/Offset by Shutterstock)|Blumen am Meer|![](/de-DE/2020/06/202006222200BullPoint.jpg)|
+202006232200|SouthernSunbird|Männlicher Miombonektarvogel auf der Blüte eines Nadelkissens (Leucospermum reflexum), Botanischer Garten Kirstenbosch, Kapstadt, Südafrika (© Martin Willis/Minden Pictures)|Bestäuber: nicht zu verachten|![](/de-DE/2020/06/202006232200SouthernSunbird.jpg)|
