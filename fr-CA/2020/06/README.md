@@ -22,3 +22,4 @@
 202006200400|PyramidLakeJasper|Pyramid Lake dans le Parc National Jasper, Alberta (© Peter Adams Photography Ltd/Alamy Stock Photo)||![](/fr-CA/2020/06/202006200400PyramidLakeJasper.jpg)|
 202006210400|BeardedTamarin|Un singe tamarin empereur barbu portant un bébé (© Chris White/iStock/Getty Images Plus)||![](/fr-CA/2020/06/202006210400BeardedTamarin.jpg)|
 202006220400|SouthernSunbird|Mâle de souimanga chalybée méridional sur fleur en coussin de fusée, Kirstenbosch Garden, Cape Town, Afrique du Sud (© Martin Willis/Minden Pictures)||![](/fr-CA/2020/06/202006220400SouthernSunbird.jpg)|
+202006230400|BullPoint|Bull Point dans le Devon, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2020/06/202006230400BullPoint.jpg)|
