@@ -23,3 +23,4 @@
 202006201600|BeardedTamarin|一只带着幼崽的长胡子皇狨猴 (© Chris White/iStock/Getty Images Plus)||![](/zh-CN/2020/06/202006201600BeardedTamarin.jpg)|
 202006211600|SouthernSunbird|伯斯国家植物园针垫花上的一只雄性南方双领太阳鸟，南非开普敦 (© Martin Willis/Minden Pictures)||![](/zh-CN/2020/06/202006211600SouthernSunbird.jpg)|
 202006221600|BullPoint|公牛角，英国德文郡 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2020/06/202006221600BullPoint.jpg)|
+202006231600|RhodesIsland|鸟瞰希腊罗德岛岩石海岸上蓝白相间的遮阳伞 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2020/06/202006231600RhodesIsland.jpg)|
