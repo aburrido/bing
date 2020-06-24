@@ -24,3 +24,4 @@
 202006211500|MidsummerEve|｢夏至の白夜｣スウェーデン, エレブルー (© Anders Jorulf/Getty Images)|昨日は｢夏至｣|![](/ja-JP/2020/06/202006211500MidsummerEve.jpg)|
 202006221500|SouthernSunbird|｢ミナミゴシキタイヨウチョウ｣南アフリカ, ケープタウン (© Martin Willis/Minden Pictures)|南アフリカの野鳥|![](/ja-JP/2020/06/202006221500SouthernSunbird.jpg)|
 202006231500|RhodesIsland|｢岩石海岸のパラソル｣ギリシャ, ロドス島 (© Amazing Aerial Agency/Offset by Shutterstock)|ギリシャのリゾートアイランド|![](/ja-JP/2020/06/202006231500RhodesIsland.jpg)|
+202006241500|MtBaldoSantuario|｢マドンナ ・ デッラ ・ コロナ・サンクチュアリ｣イタリア, ヴェローナ (© Volodymyr Kalyniuk/Alamy)|イタリアの断崖教会|![](/ja-JP/2020/06/202006241500MtBaldoSantuario.jpg)|
