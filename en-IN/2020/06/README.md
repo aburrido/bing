@@ -24,3 +24,4 @@
 202006211830|AkbarTomb|Akbar's tomb at Sikandra near Agra (© Howard Mitchell/Getty Images)|The tomb of Akbar the Great near Agra|![](/en-IN/2020/06/202006211830AkbarTomb.jpg)|
 202006221830|BullPoint|Bull Point in Devon, England (© Robert Harding World Imagery/Offset by Shutterstock)|Flowers by the sea|![](/en-IN/2020/06/202006221830BullPoint.jpg)|
 202006231830|RhodesIsland|Aerial view of blue and white parasols on the rocky coast of Rhodes, an island in Greece (© Amazing Aerial Agency/Offset by Shutterstock)|All Rhodes lead to the beach|![](/en-IN/2020/06/202006231830RhodesIsland.jpg)|
+202006241830|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-IN/2020/06/202006241830GorchFock.jpg)|
