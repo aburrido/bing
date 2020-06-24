@@ -24,3 +24,4 @@
 202006212200|FoggyCastle|Château de Castelnaud dans la brume, Périgord, France (© Infografick/iStock/Getty Images Plus)|Chez les Visiteurs|![](/fr-FR/2020/06/202006212200FoggyCastle.jpg)|
 202006222200|BullPoint|Bull Point dans le comté de Devon, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)|Côte fleurie|![](/fr-FR/2020/06/202006222200BullPoint.jpg)|
 202006232200|RhodesIsland|Vue aérienne de parasols sur la côte de l’île de Rhodes, Grèce (© Amazing Aerial Agency/Offset by Shutterstock)|Merveille du monde|![](/fr-FR/2020/06/202006232200RhodesIsland.jpg)|
+202006242200|GorchFock|Navire de la marine allemande, Gorch Fock, photographié près de Reykjavík, Islande (© DEEPOL by plainpicture/Henn Photography)|Marins d'eau douce|![](/fr-FR/2020/06/202006242200GorchFock.jpg)|
