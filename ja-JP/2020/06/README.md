@@ -25,3 +25,4 @@
 202006221500|SouthernSunbird|｢ミナミゴシキタイヨウチョウ｣南アフリカ, ケープタウン (© Martin Willis/Minden Pictures)|南アフリカの野鳥|![](/ja-JP/2020/06/202006221500SouthernSunbird.jpg)|
 202006231500|RhodesIsland|｢岩石海岸のパラソル｣ギリシャ, ロドス島 (© Amazing Aerial Agency/Offset by Shutterstock)|ギリシャのリゾートアイランド|![](/ja-JP/2020/06/202006231500RhodesIsland.jpg)|
 202006241500|MtBaldoSantuario|｢マドンナ ・ デッラ ・ コロナ・サンクチュアリ｣イタリア, ヴェローナ (© Volodymyr Kalyniuk/Alamy)|イタリアの断崖教会|![](/ja-JP/2020/06/202006241500MtBaldoSantuario.jpg)|
+202006251500|AdansoniaGrandidieri|｢バオバブ並木｣マダガスカル, モロンダバ (© Thomas Marent/Minden Pictures)|今日はマダガスカルの独立記念日|![](/ja-JP/2020/06/202006251500AdansoniaGrandidieri.jpg)|
