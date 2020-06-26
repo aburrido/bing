@@ -26,3 +26,4 @@
 202006231830|RhodesIsland|Aerial view of blue and white parasols on the rocky coast of Rhodes, an island in Greece (© Amazing Aerial Agency/Offset by Shutterstock)|All Rhodes lead to the beach|![](/en-IN/2020/06/202006231830RhodesIsland.jpg)|
 202006241830|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-IN/2020/06/202006241830GorchFock.jpg)|
 202006251830|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-IN/2020/06/202006251830AdansoniaGrandidieri.jpg)|
+202006261830|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-IN/2020/06/202006261830MtBaldoSantuario.jpg)|
