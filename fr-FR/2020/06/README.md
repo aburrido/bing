@@ -26,3 +26,4 @@
 202006232200|RhodesIsland|Vue aérienne de parasols sur la côte de l’île de Rhodes, Grèce (© Amazing Aerial Agency/Offset by Shutterstock)|Merveille du monde|![](/fr-FR/2020/06/202006232200RhodesIsland.jpg)|
 202006242200|GorchFock|Navire de la marine allemande, Gorch Fock, photographié près de Reykjavík, Islande (© DEEPOL by plainpicture/Henn Photography)|Marins d'eau douce|![](/fr-FR/2020/06/202006242200GorchFock.jpg)|
 202006252200|AdansoniaGrandidieri|Forêt de baobabs de Grandidier près de Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Toujours plus haut|![](/fr-FR/2020/06/202006252200AdansoniaGrandidieri.jpg)|
+202006262200|MtBaldoSantuario|Le sanctuaire de Madonna della Corona, Italie (© Volodymyr Kalyniuk/Alamy)|Lieu d’éveil spirituel|![](/fr-FR/2020/06/202006262200MtBaldoSantuario.jpg)|
