@@ -26,3 +26,4 @@
 202006231600|RhodesIsland|鸟瞰希腊罗德岛岩石海岸上蓝白相间的遮阳伞 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2020/06/202006231600RhodesIsland.jpg)|
 202006241600|duanwu2020|【今日端午】 (© su_pei/iStock/Getty Images Plus)||![](/zh-CN/2020/06/202006241600duanwu2020.jpg)|
 202006251600|AdansoniaGrandidieri|穆龙达瓦附近的格兰迪尔猴面包树林，马达加斯加 (© Thomas Marent/Minden Pictures)||![](/zh-CN/2020/06/202006251600AdansoniaGrandidieri.jpg)|
+202006261600|MtBaldoSantuario|Madonna della Corona教堂，意大利 (© Volodymyr Kalyniuk/Alamy)||![](/zh-CN/2020/06/202006261600MtBaldoSantuario.jpg)|
