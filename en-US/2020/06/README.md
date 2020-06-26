@@ -27,3 +27,4 @@
 202006230700|BullPoint|Bull Point in Devon, England (© Robert Harding World Imagery/Offset by Shutterstock)|Flowers by the sea|![](/en-US/2020/06/202006230700BullPoint.jpg)|
 202006240700|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Midsummer in Sweden|![](/en-US/2020/06/202006240700MidsummerEve.jpg)|
 202006250700|GorchFock|German navy tall ship Gorch Fock in waters off Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-US/2020/06/202006250700GorchFock.jpg)|
+202006260700|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-US/2020/06/202006260700AdansoniaGrandidieri.jpg)|
