@@ -25,3 +25,4 @@
 202006230400|BullPoint|Bull Point dans le Devon, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2020/06/202006230400BullPoint.jpg)|
 202006240400|RhodesIsland|Vue aérienne de parasols bleus et blancs sur la côte rocheuse de Rhodes, une île de Grèce (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2020/06/202006240400RhodesIsland.jpg)|
 202006250400|GorchFock|Gorch Fock, grand voilier la marine allemande dans les eaux proches de Reykjavik, Islande (© DEEPOL by plainpicture/Henn Photography)||![](/fr-CA/2020/06/202006250400GorchFock.jpg)|
+202006260400|AdansoniaGrandidieri|Forêt de baobabs de Grandidier près de Morondava, Madagascar (© Thomas Marent/Minden Pictures)||![](/fr-CA/2020/06/202006260400AdansoniaGrandidieri.jpg)|

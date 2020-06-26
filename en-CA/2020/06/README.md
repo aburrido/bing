@@ -25,3 +25,4 @@
 202006230400|PyramidLakeJasper|Pyramid Lake in Jasper National Park, Alta. (© Peter Adams Photography Ltd/Alamy Stock Photo)|Pristine and picturesque|![](/en-CA/2020/06/202006230400PyramidLakeJasper.jpg)|
 202006240400|RhodesIsland|Aerial view of blue and white parasols on the rocky coast of Rhodes, an island in Greece (© Amazing Aerial Agency/Offset by Shutterstock)|All Rhodes lead to the beach|![](/en-CA/2020/06/202006240400RhodesIsland.jpg)|
 202006250400|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-CA/2020/06/202006250400GorchFock.jpg)|
+202006260400|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-CA/2020/06/202006260400AdansoniaGrandidieri.jpg)|
