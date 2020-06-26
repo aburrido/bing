@@ -26,3 +26,4 @@
 202006231400|PontFawr|Pont Fawr, a stone arch bridge in Llanrwst, Wales, UK (© Pajor Pawel/Shutterstock)|A bridge too Fawr|![](/en-AU/2020/06/202006231400PontFawr.jpg)|
 202006241400|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-AU/2020/06/202006241400GorchFock.jpg)|
 202006251400|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-AU/2020/06/202006251400AdansoniaGrandidieri.jpg)|
+202006261400|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-AU/2020/06/202006261400MtBaldoSantuario.jpg)|
