@@ -27,3 +27,4 @@
 202006232300|PuzzlewoodPath|Path through Puzzlewood, Forest of Dean, Gloucestershire (© GuyBerresfordPhotography/iStock/Getty Images Plus)|Pathway to Middle Earth?|![](/en-GB/2020/06/202006232300PuzzlewoodPath.jpg)|
 202006242300|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Saluting seafarers|![](/en-GB/2020/06/202006242300GorchFock.jpg)|
 202006252300|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-GB/2020/06/202006252300AdansoniaGrandidieri.jpg)|
+202006262300|MtBaldoSantuario|The Sanctuary of Madonna della Corona, near Verona, Italy (© Volodymyr Kalyniuk/Alamy)|Peace on the precipice|![](/en-GB/2020/06/202006262300MtBaldoSantuario.jpg)|
