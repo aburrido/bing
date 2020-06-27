@@ -28,3 +28,4 @@
 202006240700|MidsummerEve|Midsummer light captured at a lake near the city of Örebro, Sweden (© Anders Jorulf/Getty Images)|Midsummer in Sweden|![](/en-US/2020/06/202006240700MidsummerEve.jpg)|
 202006250700|GorchFock|German navy tall ship Gorch Fock in waters off Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-US/2020/06/202006250700GorchFock.jpg)|
 202006260700|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-US/2020/06/202006260700AdansoniaGrandidieri.jpg)|
+202006270700|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-US/2020/06/202006270700MtBaldoSantuario.jpg)|
