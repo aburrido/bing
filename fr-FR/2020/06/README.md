@@ -27,3 +27,4 @@
 202006242200|GorchFock|Navire de la marine allemande, Gorch Fock, photographié près de Reykjavík, Islande (© DEEPOL by plainpicture/Henn Photography)|Marins d'eau douce|![](/fr-FR/2020/06/202006242200GorchFock.jpg)|
 202006252200|AdansoniaGrandidieri|Forêt de baobabs de Grandidier près de Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Toujours plus haut|![](/fr-FR/2020/06/202006252200AdansoniaGrandidieri.jpg)|
 202006262200|MtBaldoSantuario|Le sanctuaire de Madonna della Corona, Italie (© Volodymyr Kalyniuk/Alamy)|Lieu d’éveil spirituel|![](/fr-FR/2020/06/202006262200MtBaldoSantuario.jpg)|
+202006272200|PrideEmpire|L’Empire State Building illuminé aux couleurs de l’arc-en-ciel, en l’honneur du week-end de la Fierté de 2014, New York, États-Unis (© C. Taylor Crothers/Offset by Shutterstock)|La Marche des Fiertés|![](/fr-FR/2020/06/202006272200PrideEmpire.jpg)|

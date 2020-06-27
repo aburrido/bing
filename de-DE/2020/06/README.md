@@ -27,3 +27,4 @@
 202006242200|MtBaldoSantuario|Die Wallfahrtskirche der Madonna della Corona in Italien (© Volodymyr Kalyniuk/Alamy)|Auf der Suche nach Frieden am Steilhang|![](/de-DE/2020/06/202006242200MtBaldoSantuario.jpg)|
 202006252200|AdansoniaGrandidieri|Affenbrotbäume bei Morondava, Madagaskar (© Thomas Marent/Minden Pictures)|Wunderschöne Affenbrotbäume|![](/de-DE/2020/06/202006252200AdansoniaGrandidieri.jpg)|
 202006262200|KingEider|Prachteiderenten, Provinz Troms og Finnmark, Norwegen (© Pal Hermansen/Minden Pictures)|Prachtexemplare aus Norwegen|![](/de-DE/2020/06/202006262200KingEider.jpg)|
+202006272200|HHArchitektur|Außenansicht der Behörde für Stadtentwicklung und Umwelt, Hamburg, Deutschland (© Liz Eve/Arcaid Images/Alamy Stock Photo)|Bunt ist das neue Schwarz|![](/de-DE/2020/06/202006272200HHArchitektur.jpg)|
