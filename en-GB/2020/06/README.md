@@ -28,3 +28,4 @@
 202006242300|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Saluting seafarers|![](/en-GB/2020/06/202006242300GorchFock.jpg)|
 202006252300|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-GB/2020/06/202006252300AdansoniaGrandidieri.jpg)|
 202006262300|MtBaldoSantuario|The Sanctuary of Madonna della Corona, near Verona, Italy (© Volodymyr Kalyniuk/Alamy)|Peace on the precipice|![](/en-GB/2020/06/202006262300MtBaldoSantuario.jpg)|
+202006272300|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|Spotting cheetahs|![](/en-GB/2020/06/202006272300CheetahCubs.jpg)|
