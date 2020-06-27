@@ -27,3 +27,4 @@
 202006241830|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-IN/2020/06/202006241830GorchFock.jpg)|
 202006251830|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-IN/2020/06/202006251830AdansoniaGrandidieri.jpg)|
 202006261830|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-IN/2020/06/202006261830MtBaldoSantuario.jpg)|
+202006271830|PrideEmpire|The Empire State Building lit up in honour of Pride Weekend in 2014, New York City, USA (© C. Taylor Crothers/Offset by Shutterstock)|Keep shining|![](/en-IN/2020/06/202006271830PrideEmpire.jpg)|
