@@ -27,3 +27,4 @@
 202006241600|duanwu2020|【今日端午】 (© su_pei/iStock/Getty Images Plus)||![](/zh-CN/2020/06/202006241600duanwu2020.jpg)|
 202006251600|AdansoniaGrandidieri|穆龙达瓦附近的格兰迪尔猴面包树林，马达加斯加 (© Thomas Marent/Minden Pictures)||![](/zh-CN/2020/06/202006251600AdansoniaGrandidieri.jpg)|
 202006261600|MtBaldoSantuario|Madonna della Corona教堂，意大利 (© Volodymyr Kalyniuk/Alamy)||![](/zh-CN/2020/06/202006261600MtBaldoSantuario.jpg)|
+202006271600|FoggyCastle|雾中的卡斯特诺城堡，法国佩里戈尔 (© Infografick/iStock/Getty Images Plus)||![](/zh-CN/2020/06/202006271600FoggyCastle.jpg)|
