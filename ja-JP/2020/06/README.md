@@ -27,3 +27,4 @@
 202006241500|MtBaldoSantuario|｢マドンナ ・ デッラ ・ コロナ・サンクチュアリ｣イタリア, ヴェローナ (© Volodymyr Kalyniuk/Alamy)|イタリアの断崖教会|![](/ja-JP/2020/06/202006241500MtBaldoSantuario.jpg)|
 202006251500|AdansoniaGrandidieri|｢バオバブ並木｣マダガスカル, モロンダバ (© Thomas Marent/Minden Pictures)|今日はマダガスカルの独立記念日|![](/ja-JP/2020/06/202006251500AdansoniaGrandidieri.jpg)|
 202006261500|SantoriniAerial|｢サントリーニ島｣ギリシャ (© Amazing Aerial Agency/Offset)|エーゲ海の白亜の島|![](/ja-JP/2020/06/202006261500SantoriniAerial.jpg)|
+202006271500|PrideEmpire|｢エンパイア・ステート・ビルディングのライトアップ｣米国ニューヨーク州, ニューヨーク市 (© C. Taylor Crothers/Offset by Shutterstock)|多様性について考えよう|![](/ja-JP/2020/06/202006271500PrideEmpire.jpg)|
