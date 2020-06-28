@@ -29,3 +29,4 @@
 202006252300|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-GB/2020/06/202006252300AdansoniaGrandidieri.jpg)|
 202006262300|MtBaldoSantuario|The Sanctuary of Madonna della Corona, near Verona, Italy (© Volodymyr Kalyniuk/Alamy)|Peace on the precipice|![](/en-GB/2020/06/202006262300MtBaldoSantuario.jpg)|
 202006272300|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|Spotting cheetahs|![](/en-GB/2020/06/202006272300CheetahCubs.jpg)|
+202006282300|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|A bizarre balancing act|![](/en-GB/2020/06/202006282300ArganGoats.jpg)|
