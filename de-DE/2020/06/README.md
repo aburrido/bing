@@ -28,3 +28,4 @@
 202006252200|AdansoniaGrandidieri|Affenbrotbäume bei Morondava, Madagaskar (© Thomas Marent/Minden Pictures)|Wunderschöne Affenbrotbäume|![](/de-DE/2020/06/202006252200AdansoniaGrandidieri.jpg)|
 202006262200|KingEider|Prachteiderenten, Provinz Troms og Finnmark, Norwegen (© Pal Hermansen/Minden Pictures)|Prachtexemplare aus Norwegen|![](/de-DE/2020/06/202006262200KingEider.jpg)|
 202006272200|HHArchitektur|Außenansicht der Behörde für Stadtentwicklung und Umwelt, Hamburg, Deutschland (© Liz Eve/Arcaid Images/Alamy Stock Photo)|Bunt ist das neue Schwarz|![](/de-DE/2020/06/202006272200HHArchitektur.jpg)|
+202006282200|ArganGoats|Ziegen in einem Arganbaum in der Nähe von Essaouira, Marokko (© Nizz/Shutterstock)|Ziegen wachsen nicht auf Bäumen|![](/de-DE/2020/06/202006282200ArganGoats.jpg)|
