@@ -28,3 +28,4 @@
 202006251500|AdansoniaGrandidieri|｢バオバブ並木｣マダガスカル, モロンダバ (© Thomas Marent/Minden Pictures)|今日はマダガスカルの独立記念日|![](/ja-JP/2020/06/202006251500AdansoniaGrandidieri.jpg)|
 202006261500|SantoriniAerial|｢サントリーニ島｣ギリシャ (© Amazing Aerial Agency/Offset)|エーゲ海の白亜の島|![](/ja-JP/2020/06/202006261500SantoriniAerial.jpg)|
 202006271500|PrideEmpire|｢エンパイア・ステート・ビルディングのライトアップ｣米国ニューヨーク州, ニューヨーク市 (© C. Taylor Crothers/Offset by Shutterstock)|多様性について考えよう|![](/ja-JP/2020/06/202006271500PrideEmpire.jpg)|
+202006281500|HinodeFarm|｢日の出ラベンダー園｣北海道, 上富良野町 (© DoctorEgg/Getty Images)|北海道のラベンダー畑|![](/ja-JP/2020/06/202006281500HinodeFarm.jpg)|
