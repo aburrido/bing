@@ -27,3 +27,4 @@
 202006250400|GorchFock|German Navy tall ship Gorch Fock in waters close to Reykjavík, Iceland (© DEEPOL by plainpicture/Henn Photography)|Hoisting a flag for seafarers|![](/en-CA/2020/06/202006250400GorchFock.jpg)|
 202006260400|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-CA/2020/06/202006260400AdansoniaGrandidieri.jpg)|
 202006270400|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-CA/2020/06/202006270400MtBaldoSantuario.jpg)|
+202006280400|LakeMoraineVideo|Moraine Lake in Banff National Park, Alta. (© Schroptschop/Getty Images)|The $20 view|![](/en-CA/2020/06/202006280400LakeMoraineVideo.jpg)|
