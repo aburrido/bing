@@ -29,3 +29,4 @@
 202006261500|SantoriniAerial|｢サントリーニ島｣ギリシャ (© Amazing Aerial Agency/Offset)|エーゲ海の白亜の島|![](/ja-JP/2020/06/202006261500SantoriniAerial.jpg)|
 202006271500|PrideEmpire|｢エンパイア・ステート・ビルディングのライトアップ｣米国ニューヨーク州, ニューヨーク市 (© C. Taylor Crothers/Offset by Shutterstock)|多様性について考えよう|![](/ja-JP/2020/06/202006271500PrideEmpire.jpg)|
 202006281500|HinodeFarm|｢日の出ラベンダー園｣北海道, 上富良野町 (© DoctorEgg/Getty Images)|北海道のラベンダー畑|![](/ja-JP/2020/06/202006281500HinodeFarm.jpg)|
+202006291500|ArganGoats|｢アルガンの木に登るヤギ｣モロッコ, エッサウィラ (© Nizz/Shutterstock)|モロッコの不思議な風景|![](/ja-JP/2020/06/202006291500ArganGoats.jpg)|
