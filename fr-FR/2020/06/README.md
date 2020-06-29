@@ -29,3 +29,4 @@
 202006262200|MtBaldoSantuario|Le sanctuaire de Madonna della Corona, Italie (© Volodymyr Kalyniuk/Alamy)|Lieu d’éveil spirituel|![](/fr-FR/2020/06/202006262200MtBaldoSantuario.jpg)|
 202006272200|PrideEmpire|L’Empire State Building illuminé aux couleurs de l’arc-en-ciel, en l’honneur du week-end de la Fierté de 2014, New York, États-Unis (© C. Taylor Crothers/Offset by Shutterstock)|La Marche des Fiertés|![](/fr-FR/2020/06/202006272200PrideEmpire.jpg)|
 202006282200|BavellaSunrise|Lever de soleil au-dessus des aiguilles de Bavella, Corse, France (© Infografick/iStock/Getty Images Plus)|Aux pointes de la Corse|![](/fr-FR/2020/06/202006282200BavellaSunrise.jpg)|
+202006292200|BojoRiver|La rivière Bojo dans la province de Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Hors des sentiers battus|![](/fr-FR/2020/06/202006292200BojoRiver.jpg)|
