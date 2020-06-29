@@ -28,3 +28,4 @@
 202006260400|AdansoniaGrandidieri|Forêt de baobabs de Grandidier près de Morondava, Madagascar (© Thomas Marent/Minden Pictures)||![](/fr-CA/2020/06/202006260400AdansoniaGrandidieri.jpg)|
 202006270400|MtBaldoSantuario|Le sanctuaire de Madonna della Corona en Italie (© Volodymyr Kalyniuk/Alamy)||![](/fr-CA/2020/06/202006270400MtBaldoSantuario.jpg)|
 202006280400|LakeMoraineVideo|Vidéo accélérée du lac Moraine dans le Parc national Banff, Alberta (© Schroptschop/Getty Images)||![](/fr-CA/2020/06/202006280400LakeMoraineVideo.jpg)|
+202006290400|ArganGoats|Chèvres dans un arganier près d'Essaouira, Maroc (© Nizz/Shutterstock)||![](/fr-CA/2020/06/202006290400ArganGoats.jpg)|
