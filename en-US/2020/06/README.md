@@ -30,3 +30,4 @@
 202006260700|AdansoniaGrandidieri|Grandidier's baobab forest near Morondava, Madagascar (© Thomas Marent/Minden Pictures)|Beautiful baobabs|![](/en-US/2020/06/202006260700AdansoniaGrandidieri.jpg)|
 202006270700|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-US/2020/06/202006270700MtBaldoSantuario.jpg)|
 202006280700|PrideEmpire|The Empire State Building lit up in honor of Pride Week in 2014, New York City (© C. Taylor Crothers/Offset by Shutterstock)|Keep shining|![](/en-US/2020/06/202006280700PrideEmpire.jpg)|
+202006290700|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|Goats don't grow on trees|![](/en-US/2020/06/202006290700ArganGoats.jpg)|
