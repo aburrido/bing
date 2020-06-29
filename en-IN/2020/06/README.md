@@ -29,3 +29,4 @@
 202006261830|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-IN/2020/06/202006261830MtBaldoSantuario.jpg)|
 202006271830|PrideEmpire|The Empire State Building lit up in honour of Pride Weekend in 2014, New York City, USA (© C. Taylor Crothers/Offset by Shutterstock)|Keep shining|![](/en-IN/2020/06/202006271830PrideEmpire.jpg)|
 202006281830|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|Goats don't grow on trees|![](/en-IN/2020/06/202006281830ArganGoats.jpg)|
+202006291830|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-IN/2020/06/202006291830BojoRiver.jpg)|
