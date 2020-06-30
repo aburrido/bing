@@ -29,3 +29,4 @@
 202006270400|MtBaldoSantuario|The Sanctuary of Madonna della Corona in Italy (© Volodymyr Kalyniuk/Alamy)|Looking for peace on the precipice|![](/en-CA/2020/06/202006270400MtBaldoSantuario.jpg)|
 202006280400|LakeMoraineVideo|Moraine Lake in Banff National Park, Alta. (© Schroptschop/Getty Images)|The $20 view|![](/en-CA/2020/06/202006280400LakeMoraineVideo.jpg)|
 202006290400|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|Goats don't grow on trees|![](/en-CA/2020/06/202006290400ArganGoats.jpg)|
+202006300400|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-CA/2020/06/202006300400BojoRiver.jpg)|

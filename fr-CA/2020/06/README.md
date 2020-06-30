@@ -29,3 +29,4 @@
 202006270400|MtBaldoSantuario|Le sanctuaire de Madonna della Corona en Italie (© Volodymyr Kalyniuk/Alamy)||![](/fr-CA/2020/06/202006270400MtBaldoSantuario.jpg)|
 202006280400|LakeMoraineVideo|Vidéo accélérée du lac Moraine dans le Parc national Banff, Alberta (© Schroptschop/Getty Images)||![](/fr-CA/2020/06/202006280400LakeMoraineVideo.jpg)|
 202006290400|ArganGoats|Chèvres dans un arganier près d'Essaouira, Maroc (© Nizz/Shutterstock)||![](/fr-CA/2020/06/202006290400ArganGoats.jpg)|
+202006300400|BojoRiver|La rivière Bojo à Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2020/06/202006300400BojoRiver.jpg)|
