@@ -30,3 +30,4 @@
 202006271400|PrideEmpire|The Empire State Building lit up in honour of Pride Weekend in 2014, New York City, USA (© C. Taylor Crothers/Offset by Shutterstock)|Keep shining|![](/en-AU/2020/06/202006271400PrideEmpire.jpg)|
 202006281400|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|Goats don't grow on trees|![](/en-AU/2020/06/202006281400ArganGoats.jpg)|
 202006291400|TasmaniaTarn|Frozen tarn, Cradle Mountain, Tasmania (© TED MEAD/Getty Images)|Embracing the winter freeze|![](/en-AU/2020/06/202006291400TasmaniaTarn.jpg)|
+202006301400|LakeMoraineVideo|Moraine Lake in Banff National Park, Alberta, Canada (© Schroptschop/Getty Images)|Celebrating Canada Day|![](/en-AU/2020/06/202006301400LakeMoraineVideo.jpg)|
