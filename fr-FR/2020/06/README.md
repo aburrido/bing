@@ -30,3 +30,4 @@
 202006272200|PrideEmpire|L’Empire State Building illuminé aux couleurs de l’arc-en-ciel, en l’honneur du week-end de la Fierté de 2014, New York, États-Unis (© C. Taylor Crothers/Offset by Shutterstock)|La Marche des Fiertés|![](/fr-FR/2020/06/202006272200PrideEmpire.jpg)|
 202006282200|BavellaSunrise|Lever de soleil au-dessus des aiguilles de Bavella, Corse, France (© Infografick/iStock/Getty Images Plus)|Aux pointes de la Corse|![](/fr-FR/2020/06/202006282200BavellaSunrise.jpg)|
 202006292200|BojoRiver|La rivière Bojo dans la province de Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Hors des sentiers battus|![](/fr-FR/2020/06/202006292200BojoRiver.jpg)|
+202006302200|LakeMoraineVideo|Vidéo en time-lapse du lac Moraine dans le parc national de Banff, Alberta, Canada (© Schroptschop/Getty Images)|Une vue à 20$|![](/fr-FR/2020/06/202006302200LakeMoraineVideo.jpg)|

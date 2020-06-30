@@ -30,3 +30,4 @@
 202006272200|HHArchitektur|Außenansicht der Behörde für Stadtentwicklung und Umwelt, Hamburg, Deutschland (© Liz Eve/Arcaid Images/Alamy Stock Photo)|Bunt ist das neue Schwarz|![](/de-DE/2020/06/202006272200HHArchitektur.jpg)|
 202006282200|ArganGoats|Ziegen in einem Arganbaum in der Nähe von Essaouira, Marokko (© Nizz/Shutterstock)|Ziegen wachsen nicht auf Bäumen|![](/de-DE/2020/06/202006282200ArganGoats.jpg)|
 202006292200|BojoRiver|Der Bojo River in Cebu, Philippinen (© Amazing Aerial Agency/Offset by Shutterstock)|Bootfahren auf dem Bojo|![](/de-DE/2020/06/202006292200BojoRiver.jpg)|
+202006302200|LakeMoraineVideo|Zeitraffervideo vom Moraine Lake im Banff-Nationalpark, Alberta, Kanada (© Schroptschop/Getty Images)|Kanadas 20-Dollar-Ansicht|![](/de-DE/2020/06/202006302200LakeMoraineVideo.jpg)|
