@@ -31,3 +31,4 @@
 202006272300|CheetahCubs|Cheetah cubs climbing acacia trees in Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|Spotting cheetahs|![](/en-GB/2020/06/202006272300CheetahCubs.jpg)|
 202006282300|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|A bizarre balancing act|![](/en-GB/2020/06/202006282300ArganGoats.jpg)|
 202006292300|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-GB/2020/06/202006292300BojoRiver.jpg)|
+202006302300|LakeMoraineVideo|Moraine Lake in Banff National Park, Alberta, Canada (© Schroptschop/Getty Images)|The glacial beauty of Moraine Lake|![](/en-GB/2020/06/202006302300LakeMoraineVideo.jpg)|
