@@ -30,3 +30,4 @@
 202006271830|PrideEmpire|The Empire State Building lit up in honour of Pride Weekend in 2014, New York City, USA (© C. Taylor Crothers/Offset by Shutterstock)|Keep shining|![](/en-IN/2020/06/202006271830PrideEmpire.jpg)|
 202006281830|ArganGoats|Goats in an argan tree near Essaouira, Morocco (© Nizz/Shutterstock)|Goats don't grow on trees|![](/en-IN/2020/06/202006281830ArganGoats.jpg)|
 202006291830|BojoRiver|The Bojo River in Cebu, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Boating on the Bojo|![](/en-IN/2020/06/202006291830BojoRiver.jpg)|
+202006301830|HuntingCat|Jungle cat hunting somewhere in India (© Lila/Alamy)|Jungle cat on the hunt|![](/en-IN/2020/06/202006301830HuntingCat.jpg)|
