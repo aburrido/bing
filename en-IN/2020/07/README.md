@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202006301830|HuntingCat|Jungle cat hunting somewhere in India (© Lila/Alamy)|Jungle cat on the hunt|![](/en-IN/2020/07/202006301830HuntingCat.jpg)|
+202007011830|HierapolisTurkey|Aerial view of the theater at the ancient city of Hierapolis, adjacent to Pamukkale, Turkey (© Amazing Aerial Agency/Offset by Shutterstock)|Take in a show on your Roman holiday|![](/en-IN/2020/07/202007011830HierapolisTurkey.jpg)|
