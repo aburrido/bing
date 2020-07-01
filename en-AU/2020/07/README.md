@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202006301400|LakeMoraineVideo|Moraine Lake in Banff National Park, Alberta, Canada (© Schroptschop/Getty Images)|Celebrating Canada Day|![](/en-AU/2020/07/202006301400LakeMoraineVideo.jpg)|
+202007011400|HierapolisTurkey|Aerial view of the theatre at the ancient city of Hierapolis, adjacent to Pamukkale, Turkey (© Amazing Aerial Agency/Offset by Shutterstock)|Take in a historic show|![](/en-AU/2020/07/202007011400HierapolisTurkey.jpg)|
