@@ -3,3 +3,4 @@
 202006302200|LakeMoraineVideo|Vidéo en time-lapse du lac Moraine dans le parc national de Banff, Alberta, Canada (© Schroptschop/Getty Images)|Une vue à 20$|![](/fr-FR/2020/07/202006302200LakeMoraineVideo.jpg)|
 202007012200|HierapolisTurkey|Vue aérienne du théâtre de l’ancienne ville de Hiérapolis, près de Pamukkale, Turquie (© Amazing Aerial Agency/Offset by Shutterstock)|Antiquité préservée|![](/fr-FR/2020/07/202007012200HierapolisTurkey.jpg)|
 202007022200|DogDays|Renards du Cap dans le désert du Kalahari, Afrique du Sud (© NSP-RF/Alamy)|De bon matin|![](/fr-FR/2020/07/202007022200DogDays.jpg)|
+202007032200|NaturalPools|Piscine naturelle au nord-est de Saint Barthélemy, mer des Caraïbes, Antilles françaises (© dbimages/Alamy banque d’images)|Plouf !|![](/fr-FR/2020/07/202007032200NaturalPools.jpg)|
