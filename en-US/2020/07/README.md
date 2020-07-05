@@ -5,3 +5,4 @@
 202007020700|RhodesIsland|Aerial view of blue and white parasols on the rocky coast of Rhodes, an island in Greece (© Amazing Aerial Agency/Offset by Shutterstock)|All Rhodes lead to the beach|![](/en-US/2020/07/202007020700RhodesIsland.jpg)|
 202007030700|DogDays|Cape foxes in the Kalahari Desert, South Africa (© NSP-RF/Alamy)|Dog days of summer|![](/en-US/2020/07/202007030700DogDays.jpg)|
 202007040700|DCFireworksVideo|Independence Day fireworks over the National Mall, Washington, DC (© Jon Bilous/Shutterstock)|Happy Independence Day!|![](/en-US/2020/07/202007040700DCFireworksVideo.jpg)|
+202007050700|NantucketIsland|Great Point Light on Nantucket Island, Massachusetts (© Cate Brown/Cavan Images)|There once was a lighthouse from...|![](/en-US/2020/07/202007050700NantucketIsland.jpg)|
