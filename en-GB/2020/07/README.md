@@ -5,3 +5,4 @@
 202007022300|DogDays|Cape foxes in the Kalahari Desert in South Africa (© NSP-RF/Alamy)|Dog days of summer|![](/en-GB/2020/07/202007022300DogDays.jpg)|
 202007032300|WildflowersBC|Wildflowers in Kettle River Recreation Area, British Columbia, Canada (© Debra Brash/plainpicture)|Risen from the ashes|![](/en-GB/2020/07/202007032300WildflowersBC.jpg)|
 202007042300|NantucketIsland|Great Point Light on Nantucket Island, Massachusetts, USA (© Cate Brown/Cavan Images)|Shedding light on Nantucket|![](/en-GB/2020/07/202007042300NantucketIsland.jpg)|
+202007052300|Kamchatka|Tolbachik volcanic complex on the Kamchatka Peninsula, Russia (© Egor Vlasov/Shutterstock)|Welcome to the Ring of Fire|![](/en-GB/2020/07/202007052300Kamchatka.jpg)|
