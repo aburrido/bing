@@ -5,3 +5,4 @@
 202007022200|DogDays|Kapfüchse in der Kalahari, Südafrika (© NSP-RF/Alamy)|Begegnung in der Wüste|![](/de-DE/2020/07/202007022200DogDays.jpg)|
 202007032200|OwlSunflowers|Ein Steinkauz rastet auf einer Sonnenblume, Cadiz, Andalusien, Spanien (© Andres M. Dominguez/Minden Pictures)|Alles im Blick|![](/de-DE/2020/07/202007032200OwlSunflowers.jpg)|
 202007042200|NantucketIsland|Leuchtturm Great Point Light auf der Insel Nantucket, Massachusetts, USA (© Cate Brown/Cavan Images)|Es war einmal ein Leuchtturm auf …|![](/de-DE/2020/07/202007042200NantucketIsland.jpg)|
+202007052200|KleinerFuchs|Kleiner Fuchs bei der Nektaraufnahme auf einem Sonnenhut, Niedersachsen (© Duncan Usher/Minden Pictures)|Edelfalter trifft Sonnenhut|![](/de-DE/2020/07/202007052200KleinerFuchs.jpg)|
