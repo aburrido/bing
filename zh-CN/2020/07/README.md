@@ -6,3 +6,4 @@
 202007031600|OwlSunflowers|栖息在向日葵上的一只小猫头鹰，西班牙加的斯 (© Andres M. Dominguez/Minden Pictures)||![](/zh-CN/2020/07/202007031600OwlSunflowers.jpg)|
 202007041600|NantucketIsland|楠塔基特岛大点灯塔，麻萨诸塞州 (© Cate Brown/Cavan Images)||![](/zh-CN/2020/07/202007041600NantucketIsland.jpg)|
 202007051600|Kamchatka|堪察加半岛上的扎尔巴奇克火山，俄罗斯 (© Egor Vlasov/Shutterstock)||![](/zh-CN/2020/07/202007051600Kamchatka.jpg)|
+202007061600|CalorisMDIS|卡洛里盆地的合成全彩图，水星 (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)||![](/zh-CN/2020/07/202007061600CalorisMDIS.jpg)|
