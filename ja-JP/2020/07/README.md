@@ -6,3 +6,4 @@
 202007031500|GriboyedovCanal|｢グリボエードフ運河と血の上の救世主教会｣ロシア, サンクトペテルブルク (© Tomas Sereda/Getty Images)|ロシアの歴史的建築|![](/ja-JP/2020/07/202007031500GriboyedovCanal.jpg)|
 202007041500|NantucketIsland|｢グレート・ポイント灯台｣米国マサチューセッツ州 (© Cate Brown/Cavan Images)|米国の国家歴史登録財|![](/ja-JP/2020/07/202007041500NantucketIsland.jpg)|
 202007051500|Kamchatka|｢トルバチク山｣ロシア, カムチャツカ半島 (© Egor Vlasov/Shutterstock)|カムチャツカの複合火山|![](/ja-JP/2020/07/202007051500Kamchatka.jpg)|
+202007061500|MilkyWayCanyonlands|｢キャニオンランズ国立公園の天の川｣米国ユタ州 (© Cavan Images/Offset)|今日は｢七夕｣|![](/ja-JP/2020/07/202007061500MilkyWayCanyonlands.jpg)|
