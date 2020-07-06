@@ -5,3 +5,4 @@
 202007030400|DogDays|Renards du Cap dans le désert du Kalahari en Afrique du Sud (© NSP-RF/Alamy)||![](/fr-CA/2020/07/202007030400DogDays.jpg)|
 202007040400|TransTaiga|Forêt boréale dans la région du chemin Trans-Taïga dans le Nord du Québec (© Posnov/Getty Images)||![](/fr-CA/2020/07/202007040400TransTaiga.jpg)|
 202007050400|NantucketIsland|Great Point Light sur Nantucket Island, Massachusetts (© Cate Brown/Cavan Images)||![](/fr-CA/2020/07/202007050400NantucketIsland.jpg)|
+202007060400|Kamchatka|Complexe volcanique de Tolbachik sur la péninsule du Kamchatka, Russie (© Egor Vlasov/Shutterstock)||![](/fr-CA/2020/07/202007060400Kamchatka.jpg)|
