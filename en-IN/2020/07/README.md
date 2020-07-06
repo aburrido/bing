@@ -6,3 +6,4 @@
 202007031830|MinivetBengal|A scarlet Minivet during rainfall, West Bengal (© Debapratim Saha/Minden Pictures)|Lovable south Asian songbird|![](/en-IN/2020/07/202007031830MinivetBengal.jpg)|
 202007041830|NantucketIsland|Great Point Light on Nantucket Island, United States (© Cate Brown/Cavan Images)|There once was a lighthouse from...|![](/en-IN/2020/07/202007041830NantucketIsland.jpg)|
 202007051830|Kamchatka|Tolbachik volcanic complex on the Kamchatka Peninsula, Russia (© Egor Vlasov/Shutterstock)|Welcome to the Ring of Fire|![](/en-IN/2020/07/202007051830Kamchatka.jpg)|
+202007061830|CalorisMDIS|Enhanced-colour composite of the Caloris Basin, Mercury (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|Mercury in retrograde|![](/en-IN/2020/07/202007061830CalorisMDIS.jpg)|
