@@ -6,3 +6,4 @@
 202007030700|DogDays|Cape foxes in the Kalahari Desert, South Africa (© NSP-RF/Alamy)|Dog days of summer|![](/en-US/2020/07/202007030700DogDays.jpg)|
 202007040700|DCFireworksVideo|Independence Day fireworks over the National Mall, Washington, DC (© Jon Bilous/Shutterstock)|Happy Independence Day!|![](/en-US/2020/07/202007040700DCFireworksVideo.jpg)|
 202007050700|NantucketIsland|Great Point Light on Nantucket Island, Massachusetts (© Cate Brown/Cavan Images)|There once was a lighthouse from...|![](/en-US/2020/07/202007050700NantucketIsland.jpg)|
+202007060700|Kamchatka|Tolbachik volcanic complex on the Kamchatka Peninsula, Russia (© Egor Vlasov/Shutterstock)|Welcome to the Ring of Fire|![](/en-US/2020/07/202007060700Kamchatka.jpg)|
