@@ -7,3 +7,4 @@
 202007042200|NantucketIsland|Leuchtturm Great Point Light auf der Insel Nantucket, Massachusetts, USA (© Cate Brown/Cavan Images)|Es war einmal ein Leuchtturm auf …|![](/de-DE/2020/07/202007042200NantucketIsland.jpg)|
 202007052200|KleinerFuchs|Kleiner Fuchs bei der Nektaraufnahme auf einem Sonnenhut, Niedersachsen (© Duncan Usher/Minden Pictures)|Edelfalter trifft Sonnenhut|![](/de-DE/2020/07/202007052200KleinerFuchs.jpg)|
 202007062200|CalorisMDIS|Farbkorrigierte Composite-Aufnahme des Calorisbeckens auf dem Merkur (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|Rückläufiger Merkur|![](/de-DE/2020/07/202007062200CalorisMDIS.jpg)|
+202007072200|NorfolkPups|Junge Kegelrobbe am Strand im Blakeney National Nature Reserve, England, Vereinigtes Königreich (© Kevin Sawford/Getty Images)|Heute ist erst Mittwoch|![](/de-DE/2020/07/202007072200NorfolkPups.jpg)|
