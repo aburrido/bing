@@ -8,3 +8,4 @@
 202007051400|Kamchatka|Tolbachik volcanic complex on the Kamchatka Peninsula, Russia (© Egor Vlasov/Shutterstock)|Welcome to the Ring of Fire|![](/en-AU/2020/07/202007051400Kamchatka.jpg)|
 202007061400|CalorisMDIS|Enhanced-color composite of the Caloris Basin, Mercury (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|Mercury in retrograde|![](/en-AU/2020/07/202007061400CalorisMDIS.jpg)|
 202007071400|NorfolkPups|Grey seal pup resting on a beach in Blakeney National Nature Reserve, England (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-AU/2020/07/202007071400NorfolkPups.jpg)|
+202007081400|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi Province, Vietnam (© Robert Harding World Imagery/Offset)|How Quảng Ngãi got its grove back|![](/en-AU/2020/07/202007081400MangroveForest.jpg)|
