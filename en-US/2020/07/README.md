@@ -8,3 +8,4 @@
 202007050700|NantucketIsland|Great Point Light on Nantucket Island, Massachusetts (© Cate Brown/Cavan Images)|There once was a lighthouse from...|![](/en-US/2020/07/202007050700NantucketIsland.jpg)|
 202007060700|Kamchatka|Tolbachik volcanic complex on the Kamchatka Peninsula, Russia (© Egor Vlasov/Shutterstock)|Welcome to the Ring of Fire|![](/en-US/2020/07/202007060700Kamchatka.jpg)|
 202007070700|CalorisMDIS|Enhanced-color composite of the Caloris Basin, Mercury (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|Mercury in retrograde|![](/en-US/2020/07/202007070700CalorisMDIS.jpg)|
+202007080700|NorfolkPups|Gray seal pup resting on a beach in Blakeney National Nature Reserve, England (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-US/2020/07/202007080700NorfolkPups.jpg)|
