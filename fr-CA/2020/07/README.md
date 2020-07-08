@@ -7,3 +7,4 @@
 202007050400|NantucketIsland|Great Point Light sur Nantucket Island, Massachusetts (© Cate Brown/Cavan Images)||![](/fr-CA/2020/07/202007050400NantucketIsland.jpg)|
 202007060400|Kamchatka|Complexe volcanique de Tolbachik sur la péninsule du Kamchatka, Russie (© Egor Vlasov/Shutterstock)||![](/fr-CA/2020/07/202007060400Kamchatka.jpg)|
 202007070400|CalorisMDIS|Composite de couleur améliorée du bassin de Caloris, Mercure (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)||![](/fr-CA/2020/07/202007070400CalorisMDIS.jpg)|
+202007080400|NorfolkPups|Bébé phoque gris reposant sur une plage de la Réserve naturelle nationale de Blakeney, Angleterre (© Kevin Sawford/Getty Images)||![](/fr-CA/2020/07/202007080400NorfolkPups.jpg)|
