@@ -8,3 +8,4 @@
 202007051830|Kamchatka|Tolbachik volcanic complex on the Kamchatka Peninsula, Russia (© Egor Vlasov/Shutterstock)|Welcome to the Ring of Fire|![](/en-IN/2020/07/202007051830Kamchatka.jpg)|
 202007061830|CalorisMDIS|Enhanced-colour composite of the Caloris Basin, Mercury (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|Mercury in retrograde|![](/en-IN/2020/07/202007061830CalorisMDIS.jpg)|
 202007071830|NorfolkPups|Gray seal pup resting on a beach in Blakeney National Nature Reserve, England (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-IN/2020/07/202007071830NorfolkPups.jpg)|
+202007081830|ColoradoColumbine|American Basin in San Juan Mountains, USA (© Blaine Harrington III/Alamy)|High alpine colour in Colorado, USA|![](/en-IN/2020/07/202007081830ColoradoColumbine.jpg)|
