@@ -9,3 +9,4 @@
 202007061500|MilkyWayCanyonlands|｢キャニオンランズ国立公園の天の川｣米国ユタ州 (© Cavan Images/Offset)|今日は｢七夕｣|![](/ja-JP/2020/07/202007061500MilkyWayCanyonlands.jpg)|
 202007071500|TaishoAsagao|｢青い朝顔｣ (© Elena Rostunova/Sutterstock)|昨日は｢小暑｣|![](/ja-JP/2020/07/202007071500TaishoAsagao.jpg)|
 202007081500|CalorisMDIS|｢水星のカロリス盆地｣ (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|水星の巨大クレーター|![](/ja-JP/2020/07/202007081500CalorisMDIS.jpg)|
+202007091500|MangroveForest|｢バウカカイのマングローブ林｣ベトナム, クアンガイ省 (© Robert Harding World Imagery/Offset)|ベトナムのマングローブ林|![](/ja-JP/2020/07/202007091500MangroveForest.jpg)|
