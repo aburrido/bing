@@ -9,3 +9,4 @@
 202007061600|CalorisMDIS|卡洛里盆地的合成全彩图，水星 (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)||![](/zh-CN/2020/07/202007061600CalorisMDIS.jpg)|
 202007071600|NorfolkPups|在沙滩上休息的灰海豹幼崽，英国Blakeney Point自然保护区 (© Kevin Sawford/Getty Images)||![](/zh-CN/2020/07/202007071600NorfolkPups.jpg)|
 202007081600|ColoradoColumbine|位于科罗拉多南部圣胡安山脉的美国盆地 (© Blaine Harrington III/Alamy)||![](/zh-CN/2020/07/202007081600ColoradoColumbine.jpg)|
+202007091600|BellTowerItaly|雷西亚湖上的钟楼 ，意大利博尔扎诺 (© Scacciamosche/Getty Images)||![](/zh-CN/2020/07/202007091600BellTowerItaly.jpg)|
