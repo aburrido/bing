@@ -8,3 +8,4 @@
 202007060400|Kamchatka|Complexe volcanique de Tolbachik sur la péninsule du Kamchatka, Russie (© Egor Vlasov/Shutterstock)||![](/fr-CA/2020/07/202007060400Kamchatka.jpg)|
 202007070400|CalorisMDIS|Composite de couleur améliorée du bassin de Caloris, Mercure (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)||![](/fr-CA/2020/07/202007070400CalorisMDIS.jpg)|
 202007080400|NorfolkPups|Bébé phoque gris reposant sur une plage de la Réserve naturelle nationale de Blakeney, Angleterre (© Kevin Sawford/Getty Images)||![](/fr-CA/2020/07/202007080400NorfolkPups.jpg)|
+202007090400|ColoradoColumbine|Bassin américain dans le sud du Colorado, les montagnes de San Juan (© Blaine Harrington III/Alamy)||![](/fr-CA/2020/07/202007090400ColoradoColumbine.jpg)|
