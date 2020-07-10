@@ -10,3 +10,4 @@
 202007072300|NorfolkPups|Grey seal pup resting on a beach in Blakeney National Nature Reserve, Norfolk (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-GB/2020/07/202007072300NorfolkPups.jpg)|
 202007082300|AberFalls|Aber Falls in Snowdonia National Park, Gwynedd (© ValeryEgorov/iStock/Getty Images Plus)|Chasing waterfalls in Snowdonia|![](/en-GB/2020/07/202007082300AberFalls.jpg)|
 202007092300|BellTowerItaly|The bell tower in Lake Reschen in South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy's submerged village|![](/en-GB/2020/07/202007092300BellTowerItaly.jpg)|
+202007102300|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi Province, Vietnam (© Robert Harding World Imagery/Offset)|A floating forest|![](/en-GB/2020/07/202007102300MangroveForest.jpg)|
