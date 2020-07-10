@@ -9,3 +9,4 @@
 202007070400|CalorisMDIS|Enhanced-colour composite of the Caloris Basin, Mercury (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|Mercury in retrograde|![](/en-CA/2020/07/202007070400CalorisMDIS.jpg)|
 202007080400|NorfolkPups|Grey seal pup resting on a beach in Blakeney National Nature Reserve, England (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-CA/2020/07/202007080400NorfolkPups.jpg)|
 202007090400|ColoradoColumbine|American Basin in southern Colorado's San Juan Mountains (© Blaine Harrington III/Alamy)|High alpine colour in Colorado|![](/en-CA/2020/07/202007090400ColoradoColumbine.jpg)|
+202007100400|BellTowerItaly|The bell tower in Lake Reschen in South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy’s submerged village|![](/en-CA/2020/07/202007100400BellTowerItaly.jpg)|
