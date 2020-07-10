@@ -10,3 +10,4 @@
 202007071500|TaishoAsagao|｢青い朝顔｣ (© Elena Rostunova/Sutterstock)|昨日は｢小暑｣|![](/ja-JP/2020/07/202007071500TaishoAsagao.jpg)|
 202007081500|CalorisMDIS|｢水星のカロリス盆地｣ (© NASA/Johns Hopkins University Applied Physics Laboratory/Carnegie Institution of Washington)|水星の巨大クレーター|![](/ja-JP/2020/07/202007081500CalorisMDIS.jpg)|
 202007091500|MangroveForest|｢バウカカイのマングローブ林｣ベトナム, クアンガイ省 (© Robert Harding World Imagery/Offset)|ベトナムのマングローブ林|![](/ja-JP/2020/07/202007091500MangroveForest.jpg)|
+202007101500|ColoradoColumbine|｢サンファン山脈の野草｣米国コロラド州 (© Blaine Harrington III/Alamy)|米国の高山植物|![](/ja-JP/2020/07/202007101500ColoradoColumbine.jpg)|
