@@ -10,3 +10,4 @@
 202007071830|NorfolkPups|Gray seal pup resting on a beach in Blakeney National Nature Reserve, England (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-IN/2020/07/202007071830NorfolkPups.jpg)|
 202007081830|ColoradoColumbine|American Basin in San Juan Mountains, USA (© Blaine Harrington III/Alamy)|High alpine colour in Colorado, USA|![](/en-IN/2020/07/202007081830ColoradoColumbine.jpg)|
 202007091830|BellTowerItaly|The bell tower in Lake Reschen in South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy’s submerged village|![](/en-IN/2020/07/202007091830BellTowerItaly.jpg)|
+202007101830|FlamingosMumbai|Migrating flock of flamingos in Mumbai (© Gaurav Ojha/500px/Getty Images)|Migrating flamingos in Mumbai|![](/en-IN/2020/07/202007101830FlamingosMumbai.jpg)|
