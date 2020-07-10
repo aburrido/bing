@@ -10,3 +10,4 @@
 202007071400|NorfolkPups|Grey seal pup resting on a beach in Blakeney National Nature Reserve, England (© Kevin Sawford/Getty Images)|It's only Wednesday|![](/en-AU/2020/07/202007071400NorfolkPups.jpg)|
 202007081400|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi Province, Vietnam (© Robert Harding World Imagery/Offset)|How Quảng Ngãi got its grove back|![](/en-AU/2020/07/202007081400MangroveForest.jpg)|
 202007091400|BellTowerItaly|The bell tower in Lake Reschen in South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy’s submerged village|![](/en-AU/2020/07/202007091400BellTowerItaly.jpg)|
+202007101400|ColoradoColumbine|American Basin in southern Colorado's San Juan Mountains, USA (© Blaine Harrington III/Alamy)|High alpine colour in Colorado|![](/en-AU/2020/07/202007101400ColoradoColumbine.jpg)|
