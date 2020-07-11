@@ -11,3 +11,4 @@
 202007082300|AberFalls|Aber Falls in Snowdonia National Park, Gwynedd (© ValeryEgorov/iStock/Getty Images Plus)|Chasing waterfalls in Snowdonia|![](/en-GB/2020/07/202007082300AberFalls.jpg)|
 202007092300|BellTowerItaly|The bell tower in Lake Reschen in South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy's submerged village|![](/en-GB/2020/07/202007092300BellTowerItaly.jpg)|
 202007102300|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi Province, Vietnam (© Robert Harding World Imagery/Offset)|A floating forest|![](/en-GB/2020/07/202007102300MangroveForest.jpg)|
+202007112300|WaterRipplesVideo|Water ripples on the surface of Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-GB/2020/07/202007112300WaterRipplesVideo.jpg)|
