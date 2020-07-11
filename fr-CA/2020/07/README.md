@@ -10,3 +10,4 @@
 202007080400|NorfolkPups|Bébé phoque gris reposant sur une plage de la Réserve naturelle nationale de Blakeney, Angleterre (© Kevin Sawford/Getty Images)||![](/fr-CA/2020/07/202007080400NorfolkPups.jpg)|
 202007090400|ColoradoColumbine|Bassin américain dans le sud du Colorado, les montagnes de San Juan (© Blaine Harrington III/Alamy)||![](/fr-CA/2020/07/202007090400ColoradoColumbine.jpg)|
 202007100400|BellTowerItaly|Le clocher du lac Reschen dans le Tyrol du Sud, Italie (© Scacciamosche/Getty Images)||![](/fr-CA/2020/07/202007100400BellTowerItaly.jpg)|
+202007110400|MangroveForest|Forêt de mangroves de Bàu Cá Cái dans la province de Quảng Ngãi, Vietnam (© Robert Harding World Imagery/Offset)||![](/fr-CA/2020/07/202007110400MangroveForest.jpg)|
