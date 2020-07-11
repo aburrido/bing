@@ -11,3 +11,4 @@
 202007082200|Kamchatka|Der Vulkan Tolbatschik auf der Halbinsel Kamtschatka, Russland (© Egor Vlasov/Shutterstock)|Willkommen im Feuerring!|![](/de-DE/2020/07/202007082200Kamchatka.jpg)|
 202007092200|BellTowerItaly|Kirchturm im Reschensee, Südtirol, Italien (© Scacciamosche/GettyImages)|Italiens versunkenes Dorf|![](/de-DE/2020/07/202007092200BellTowerItaly.jpg)|
 202007102200|MangroveForest|Bàu-Cá-Cái-Mangrovenwald in der Provinz Quảng Ngãi, Vietnam (© Robert Harding World Imagery/Offset)|Wie Quảng Ngãi seinen Wald wiederbekam|![](/de-DE/2020/07/202007102200MangroveForest.jpg)|
+202007112200|WaterRipplesVideo|Kräuselnde Oberfläche des Sees Ežezers in der Region Lettgallen, Lettland (© Eaglewood Films/Nimia)|Im „Land der blauen Seen“|![](/de-DE/2020/07/202007112200WaterRipplesVideo.jpg)|
