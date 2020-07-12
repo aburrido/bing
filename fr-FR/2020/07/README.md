@@ -12,3 +12,4 @@
 202007092200|BellTowerItaly|Le clocher au milieu du lac de Résia, Province autonome de Bolzano, Italie (© Scacciamosche/GettyImages)|Seul au monde|![](/fr-FR/2020/07/202007092200BellTowerItaly.jpg)|
 202007102200|MangroveForest|La forêt de mangrove de Bàu Cá Cái dans la province de Quảng Ngãi, Vietnam (© Robert Harding World Imagery/Offset)|Bouclier protecteur|![](/fr-FR/2020/07/202007102200MangroveForest.jpg)|
 202007112200|WaterRipplesVideo|Eaux ondulantes du lac Ežezers dans le Latgale, Lettonie (© Eaglewood Films/Nimia)|Éloge de la simplicité|![](/fr-FR/2020/07/202007112200WaterRipplesVideo.jpg)|
+202007122200|SunnyRainforest|Forêt humide de Hoh dans le parc national Olympique de l’état de Washington, États-Unis (© Jorge Romano/Offset by Shutterstock)|Forêt enchantée|![](/fr-FR/2020/07/202007122200SunnyRainforest.jpg)|
