@@ -12,3 +12,4 @@
 202007091600|BellTowerItaly|雷西亚湖上的钟楼 ，意大利博尔扎诺 (© Scacciamosche/Getty Images)||![](/zh-CN/2020/07/202007091600BellTowerItaly.jpg)|
 202007101600|MangroveForest|Bàu Cá Cái的红树林，越南广义 (© Robert Harding World Imagery/Offset)||![](/zh-CN/2020/07/202007101600MangroveForest.jpg)|
 202007111600|WaterRipplesVideo|埃热泽尔斯湖面上的波纹，拉脱维亚拉特加尔地区 (© Eaglewood Films/Nimia)||![](/zh-CN/2020/07/202007111600WaterRipplesVideo.jpg)|
+202007121600|SunnyRainforest|奥林匹克国家公园中的可可西里雨林，华盛顿州 (© Jorge Romano/Offset by Shutterstock)||![](/zh-CN/2020/07/202007121600SunnyRainforest.jpg)|
