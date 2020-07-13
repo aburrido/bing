@@ -13,3 +13,4 @@
 202007101830|FlamingosMumbai|Migrating flock of flamingos in Mumbai (© Gaurav Ojha/500px/Getty Images)|Migrating flamingos in Mumbai|![](/en-IN/2020/07/202007101830FlamingosMumbai.jpg)|
 202007111830|WaterRipplesVideo|Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-IN/2020/07/202007111830WaterRipplesVideo.jpg)|
 202007121830|SunnyRainforest|The Hoh Rainforest in Olympic National Park, Washington state, USA (© Jorge Romano/Offset by Shutterstock)|Welcome to the Hoh|![](/en-IN/2020/07/202007121830SunnyRainforest.jpg)|
+202007131830|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Paris skies|![](/en-IN/2020/07/202007131830PantheonParis.jpg)|
