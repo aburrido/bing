@@ -13,3 +13,4 @@
 202007101500|ColoradoColumbine|｢サンファン山脈の野草｣米国コロラド州 (© Blaine Harrington III/Alamy)|米国の高山植物|![](/ja-JP/2020/07/202007101500ColoradoColumbine.jpg)|
 202007111500|WaterRipplesVideo|｢エジェゼルス湖｣ラトビア, ラトガレ (© Eaglewood Films/Nimia)|湖水地方の夕暮れ|![](/ja-JP/2020/07/202007111500WaterRipplesVideo.jpg)|
 202007121500|WindBell|｢風鈴祭り」 (© chikaphotograph/Getty Images)|風鈴祭りのシーズンです|![](/ja-JP/2020/07/202007121500WindBell.jpg)|
+202007131500|PantheonParis|｢パンテオン｣フランス, パリ (© manjik/Shutterstock)|今日は｢バスティーユ襲撃｣の日|![](/ja-JP/2020/07/202007131500PantheonParis.jpg)|
