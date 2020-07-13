@@ -13,3 +13,4 @@
 202007102300|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi Province, Vietnam (© Robert Harding World Imagery/Offset)|A floating forest|![](/en-GB/2020/07/202007102300MangroveForest.jpg)|
 202007112300|WaterRipplesVideo|Water ripples on the surface of Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-GB/2020/07/202007112300WaterRipplesVideo.jpg)|
 202007122300|TollesburySaltings|Boats in Tollesbury Marina, Essex (© Geoffrey Robinson/Alamy Stock Photo)|A landscape worth its salt|![](/en-GB/2020/07/202007122300TollesburySaltings.jpg)|
+202007132300|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Paris skies|![](/en-GB/2020/07/202007132300PantheonParis.jpg)|
