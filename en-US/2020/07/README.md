@@ -13,3 +13,4 @@
 202007100700|BellTowerItaly|The bell tower in Lake Reschen, South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy's submerged village|![](/en-US/2020/07/202007100700BellTowerItaly.jpg)|
 202007110700|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi province, Vietnam (© Robert Harding World Imagery/Offset)|How Quảng Ngãi got its grove back|![](/en-US/2020/07/202007110700MangroveForest.jpg)|
 202007120700|WaterRipplesVideo|Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-US/2020/07/202007120700WaterRipplesVideo.jpg)|
+202007130700|SunnyRainforest|The Hoh Rainforest in Olympic National Park, Washington state (© Jorge Romano/Offset by Shutterstock)|Welcome to the Hoh|![](/en-US/2020/07/202007130700SunnyRainforest.jpg)|
