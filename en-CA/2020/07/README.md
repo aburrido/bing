@@ -12,3 +12,4 @@
 202007100400|BellTowerItaly|The bell tower in Lake Reschen in South Tyrol, Italy (© Scacciamosche/Getty Images)|Italy’s submerged village|![](/en-CA/2020/07/202007100400BellTowerItaly.jpg)|
 202007110400|MangroveForest|Bàu Cá Cái mangrove forest in Quảng Ngãi Province, Vietnam (© Robert Harding World Imagery/Offset)|How Quảng Ngãi got its grove back|![](/en-CA/2020/07/202007110400MangroveForest.jpg)|
 202007120400|WaterRipplesVideo|Water ripples on the surface of Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-CA/2020/07/202007120400WaterRipplesVideo.jpg)|
+202007130400|GrizzlyBC|Adult female Grizzly Bear (Ursus arctos horribilis) and cub feeding on sedges in Great Bear Rainforest, B.C. (© Jack Chapman/Minden Pictures)|The mighty grizzly|![](/en-CA/2020/07/202007130400GrizzlyBC.jpg)|

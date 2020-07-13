@@ -12,3 +12,4 @@
 202007100400|BellTowerItaly|Le clocher du lac Reschen dans le Tyrol du Sud, Italie (© Scacciamosche/Getty Images)||![](/fr-CA/2020/07/202007100400BellTowerItaly.jpg)|
 202007110400|MangroveForest|Forêt de mangroves de Bàu Cá Cái dans la province de Quảng Ngãi, Vietnam (© Robert Harding World Imagery/Offset)||![](/fr-CA/2020/07/202007110400MangroveForest.jpg)|
 202007120400|WaterRipplesVideo|Ondulations d'eau à la surface du lac Ežezers dans la région de Latgale, Lettonie (© Eaglewood Films/Nimia)||![](/fr-CA/2020/07/202007120400WaterRipplesVideo.jpg)|
+202007130400|SunnyRainforest|La forêt tropicale de Hoh dans Olympic National Park, Washington (© Jorge Romano/Offset by Shutterstock)||![](/fr-CA/2020/07/202007130400SunnyRainforest.jpg)|
