@@ -14,3 +14,4 @@
 202007111830|WaterRipplesVideo|Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-IN/2020/07/202007111830WaterRipplesVideo.jpg)|
 202007121830|SunnyRainforest|The Hoh Rainforest in Olympic National Park, Washington state, USA (© Jorge Romano/Offset by Shutterstock)|Welcome to the Hoh|![](/en-IN/2020/07/202007121830SunnyRainforest.jpg)|
 202007131830|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Paris skies|![](/en-IN/2020/07/202007131830PantheonParis.jpg)|
+202007141830|WinchesterCrypt|The flooded crypt at Winchester Cathedral, Hampshire, England (© Oliver Hoffmann/Alamy)|Who left the tub running?|![](/en-IN/2020/07/202007141830WinchesterCrypt.jpg)|
