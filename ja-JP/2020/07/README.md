@@ -14,3 +14,4 @@
 202007111500|WaterRipplesVideo|｢エジェゼルス湖｣ラトビア, ラトガレ (© Eaglewood Films/Nimia)|湖水地方の夕暮れ|![](/ja-JP/2020/07/202007111500WaterRipplesVideo.jpg)|
 202007121500|WindBell|｢風鈴祭り」 (© chikaphotograph/Getty Images)|風鈴祭りのシーズンです|![](/ja-JP/2020/07/202007121500WindBell.jpg)|
 202007131500|PantheonParis|｢パンテオン｣フランス, パリ (© manjik/Shutterstock)|今日は｢バスティーユ襲撃｣の日|![](/ja-JP/2020/07/202007131500PantheonParis.jpg)|
+202007141500|WinchesterCrypt|｢ウィンチェスター大聖堂の地下室｣イギリス, ハンプシャー  (© Oliver Hoffmann/Alamy)|今日は｢聖スウィジンズ・デー｣|![](/ja-JP/2020/07/202007141500WinchesterCrypt.jpg)|
