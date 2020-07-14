@@ -14,3 +14,4 @@
 202007112300|WaterRipplesVideo|Water ripples on the surface of Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-GB/2020/07/202007112300WaterRipplesVideo.jpg)|
 202007122300|TollesburySaltings|Boats in Tollesbury Marina, Essex (© Geoffrey Robinson/Alamy Stock Photo)|A landscape worth its salt|![](/en-GB/2020/07/202007122300TollesburySaltings.jpg)|
 202007132300|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Paris skies|![](/en-GB/2020/07/202007132300PantheonParis.jpg)|
+202007142300|WinchesterCrypt|The flooded crypt at Winchester Cathedral, Hampshire (© Oliver Hoffmann/Alamy)|Who left the tap on?|![](/en-GB/2020/07/202007142300WinchesterCrypt.jpg)|
