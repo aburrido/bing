@@ -14,3 +14,4 @@
 202007112200|WaterRipplesVideo|Eaux ondulantes du lac Ežezers dans le Latgale, Lettonie (© Eaglewood Films/Nimia)|Éloge de la simplicité|![](/fr-FR/2020/07/202007112200WaterRipplesVideo.jpg)|
 202007122200|SunnyRainforest|Forêt humide de Hoh dans le parc national Olympique de l’état de Washington, États-Unis (© Jorge Romano/Offset by Shutterstock)|Forêt enchantée|![](/fr-FR/2020/07/202007122200SunnyRainforest.jpg)|
 202007132200|PantheonParis|Le Panthéon à Paris  (© manjik/Shutterstock)|« Du temps aux amoureux »|![](/fr-FR/2020/07/202007132200PantheonParis.jpg)|
+202007142200|WinchesterCrypt|La crypte inondée de la cathédrale de Winchester, Hampshire, Angleterre (© Oliver Hoffmann/Alamy)|Penseur inondé|![](/fr-FR/2020/07/202007142200WinchesterCrypt.jpg)|

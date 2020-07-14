@@ -14,3 +14,4 @@
 202007112200|WaterRipplesVideo|Kräuselnde Oberfläche des Sees Ežezers in der Region Lettgallen, Lettland (© Eaglewood Films/Nimia)|Im „Land der blauen Seen“|![](/de-DE/2020/07/202007112200WaterRipplesVideo.jpg)|
 202007122200|DonauGeisingen|Donau bei Geisingen, Baden-Württemberg (© plainpicture/Jochen Knobloch)|An der jungen Donau|![](/de-DE/2020/07/202007122200DonauGeisingen.jpg)|
 202007132200|PantheonParis|Das Panthéon in Paris, Frankreich (© manjik/Shutterstock)|Unter dem Himmel von Paris|![](/de-DE/2020/07/202007132200PantheonParis.jpg)|
+202007142200|WinchesterCrypt|Die überflutete Krypta in der Kathedrale von Winchester, Grafschaft Hampshire, England, Vereinigtes Königreich (© Oliver Hoffmann/Alamy)|Wer hat hier das Wasser laufen lassen?|![](/de-DE/2020/07/202007142200WinchesterCrypt.jpg)|
