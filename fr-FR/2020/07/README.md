@@ -15,3 +15,4 @@
 202007122200|SunnyRainforest|Forêt humide de Hoh dans le parc national Olympique de l’état de Washington, États-Unis (© Jorge Romano/Offset by Shutterstock)|Forêt enchantée|![](/fr-FR/2020/07/202007122200SunnyRainforest.jpg)|
 202007132200|PantheonParis|Le Panthéon à Paris  (© manjik/Shutterstock)|« Du temps aux amoureux »|![](/fr-FR/2020/07/202007132200PantheonParis.jpg)|
 202007142200|WinchesterCrypt|La crypte inondée de la cathédrale de Winchester, Hampshire, Angleterre (© Oliver Hoffmann/Alamy)|Penseur inondé|![](/fr-FR/2020/07/202007142200WinchesterCrypt.jpg)|
+202007152200|FrederickSound|Baleine à Bosse sautant hors de l’eau dans le Passage Frederick, Alsaska (© Tony Wu/Minden Pictures)|Acrobaties|![](/fr-FR/2020/07/202007152200FrederickSound.jpg)|
