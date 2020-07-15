@@ -15,3 +15,4 @@
 202007121600|SunnyRainforest|奥林匹克国家公园中的可可西里雨林，华盛顿州 (© Jorge Romano/Offset by Shutterstock)||![](/zh-CN/2020/07/202007121600SunnyRainforest.jpg)|
 202007131600|PantheonParis|巴黎的先贤祠，法国 (© manjik/Shutterstock)||![](/zh-CN/2020/07/202007131600PantheonParis.jpg)|
 202007141600|WinchesterCrypt|被洪水淹没的温彻斯特大教堂地下室，英国汉普郡 (© Oliver Hoffmann/Alamy)||![](/zh-CN/2020/07/202007141600WinchesterCrypt.jpg)|
+202007151600|FrederickSound|北太平洋弗雷德里克海峡中的座头鲸冲出海面，阿拉斯加 (© Tony Wu/Minden Pictures)||![](/zh-CN/2020/07/202007151600FrederickSound.jpg)|
