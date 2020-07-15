@@ -15,3 +15,4 @@
 202007121830|SunnyRainforest|The Hoh Rainforest in Olympic National Park, Washington state, USA (© Jorge Romano/Offset by Shutterstock)|Welcome to the Hoh|![](/en-IN/2020/07/202007121830SunnyRainforest.jpg)|
 202007131830|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Paris skies|![](/en-IN/2020/07/202007131830PantheonParis.jpg)|
 202007141830|WinchesterCrypt|The flooded crypt at Winchester Cathedral, Hampshire, England (© Oliver Hoffmann/Alamy)|Who left the tub running?|![](/en-IN/2020/07/202007141830WinchesterCrypt.jpg)|
+202007151830|FrederickSound|North Pacific humpback whale breaching in Frederick Sound, Alaska, USA (© Tony Wu/Minden Pictures)|Summertime in Alaska, USA|![](/en-IN/2020/07/202007151830FrederickSound.jpg)|
