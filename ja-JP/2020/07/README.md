@@ -15,3 +15,4 @@
 202007121500|WindBell|｢風鈴祭り」 (© chikaphotograph/Getty Images)|風鈴祭りのシーズンです|![](/ja-JP/2020/07/202007121500WindBell.jpg)|
 202007131500|PantheonParis|｢パンテオン｣フランス, パリ (© manjik/Shutterstock)|今日は｢バスティーユ襲撃｣の日|![](/ja-JP/2020/07/202007131500PantheonParis.jpg)|
 202007141500|WinchesterCrypt|｢ウィンチェスター大聖堂の地下室｣イギリス, ハンプシャー  (© Oliver Hoffmann/Alamy)|今日は｢聖スウィジンズ・デー｣|![](/ja-JP/2020/07/202007141500WinchesterCrypt.jpg)|
+202007151500|FalklandRockhoppers|｢イワトビペンギン｣フォークランド諸島 (© Heike Odermatt/Minden Pictures)|夏だ！海だ！ペンギンだ！|![](/ja-JP/2020/07/202007151500FalklandRockhoppers.jpg)|
