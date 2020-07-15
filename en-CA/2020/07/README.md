@@ -14,3 +14,4 @@
 202007120400|WaterRipplesVideo|Water ripples on the surface of Ežezers Lake in the Latgale region, Latvia (© Eaglewood Films/Nimia)|A day to take a moment|![](/en-CA/2020/07/202007120400WaterRipplesVideo.jpg)|
 202007130400|GrizzlyBC|Adult female Grizzly Bear (Ursus arctos horribilis) and cub feeding on sedges in Great Bear Rainforest, B.C. (© Jack Chapman/Minden Pictures)|The mighty grizzly|![](/en-CA/2020/07/202007130400GrizzlyBC.jpg)|
 202007140400|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Paris skies|![](/en-CA/2020/07/202007140400PantheonParis.jpg)|
+202007150400|WinchesterCrypt|The flooded crypt at Winchester Cathedral, Hampshire, England (© Oliver Hoffmann/Alamy)|Who left the tub running?|![](/en-CA/2020/07/202007150400WinchesterCrypt.jpg)|

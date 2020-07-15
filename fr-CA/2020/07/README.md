@@ -14,3 +14,4 @@
 202007120400|WaterRipplesVideo|Ondulations d'eau à la surface du lac Ežezers dans la région de Latgale, Lettonie (© Eaglewood Films/Nimia)||![](/fr-CA/2020/07/202007120400WaterRipplesVideo.jpg)|
 202007130400|SunnyRainforest|La forêt tropicale de Hoh dans Olympic National Park, Washington (© Jorge Romano/Offset by Shutterstock)||![](/fr-CA/2020/07/202007130400SunnyRainforest.jpg)|
 202007140400|PantheonParis|Le Panthéon à Paris, France (© manjik/Shutterstock)||![](/fr-CA/2020/07/202007140400PantheonParis.jpg)|
+202007150400|GrizzlyBC|Grizzly femelle adulte (Ursus arctos horribilis) et ourson se nourrissant de carex dans la Forêt pluviale de Great Bear, en Colombie-Britannique (© Jack Chapman/Minden Pictures)||![](/fr-CA/2020/07/202007150400GrizzlyBC.jpg)|
