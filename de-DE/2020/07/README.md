@@ -16,3 +16,4 @@
 202007132200|PantheonParis|Das Panthéon in Paris, Frankreich (© manjik/Shutterstock)|Unter dem Himmel von Paris|![](/de-DE/2020/07/202007132200PantheonParis.jpg)|
 202007142200|WinchesterCrypt|Die überflutete Krypta in der Kathedrale von Winchester, Grafschaft Hampshire, England, Vereinigtes Königreich (© Oliver Hoffmann/Alamy)|Wer hat hier das Wasser laufen lassen?|![](/de-DE/2020/07/202007142200WinchesterCrypt.jpg)|
 202007152200|FrederickSound|Springender Buckelwal im Frederick Sound, Nordpazifik, Alaska, USA (© Tony Wu/Minden Pictures)|Sommer in Alaska|![](/de-DE/2020/07/202007152200FrederickSound.jpg)|
+202007162200|HappyBalloon|Ein fröhlicher Heißluftballon (© Leonsbox/Getty Images Plus)|Bitte lächeln! Heute ist Welt-Emoji-Tag 😊|![](/de-DE/2020/07/202007162200HappyBalloon.jpg)|
