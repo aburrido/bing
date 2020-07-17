@@ -17,3 +17,4 @@
 202007140700|PantheonParis|The Panthéon in Paris, France (© manjik/Shutterstock)|Under Parisian skies|![](/en-US/2020/07/202007140700PantheonParis.jpg)|
 202007150700|WinchesterCrypt|The flooded crypt at Winchester Cathedral, Hampshire, England (© Oliver Hoffmann/Alamy)|Who left the tub running?|![](/en-US/2020/07/202007150700WinchesterCrypt.jpg)|
 202007160700|FrederickSound|North Pacific humpback whale breaching in Frederick Sound, Alaska (© Tony Wu/Minden Pictures)|Summertime in Alaska|![](/en-US/2020/07/202007160700FrederickSound.jpg)|
+202007170700|HappyBalloon|Happy hot air balloon (© Leonsbox/Getty Images Plus)|Let's face it: It's World Emoji Day|![](/en-US/2020/07/202007170700HappyBalloon.jpg)|
