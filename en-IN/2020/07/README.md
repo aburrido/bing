@@ -17,3 +17,4 @@
 202007141830|WinchesterCrypt|The flooded crypt at Winchester Cathedral, Hampshire, England (© Oliver Hoffmann/Alamy)|Who left the tub running?|![](/en-IN/2020/07/202007141830WinchesterCrypt.jpg)|
 202007151830|FrederickSound|North Pacific humpback whale breaching in Frederick Sound, Alaska, USA (© Tony Wu/Minden Pictures)|Summertime in Alaska, USA|![](/en-IN/2020/07/202007151830FrederickSound.jpg)|
 202007161830|HappyBalloon|Happy hot air balloon (© Leonsbox/Getty Images Plus)|Let's face it: It's World Emoji Day|![](/en-IN/2020/07/202007161830HappyBalloon.jpg)|
+202007171830|NineSpotted|Nine-spotted moth in Switzerland (© Thomas Marent/Minden Pictures)|The moth wonderful time of the year|![](/en-IN/2020/07/202007171830NineSpotted.jpg)|
