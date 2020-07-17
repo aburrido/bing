@@ -17,3 +17,4 @@
 202007141500|WinchesterCrypt|｢ウィンチェスター大聖堂の地下室｣イギリス, ハンプシャー  (© Oliver Hoffmann/Alamy)|今日は｢聖スウィジンズ・デー｣|![](/ja-JP/2020/07/202007141500WinchesterCrypt.jpg)|
 202007151500|FalklandRockhoppers|｢イワトビペンギン｣フォークランド諸島 (© Heike Odermatt/Minden Pictures)|夏だ！海だ！ペンギンだ！|![](/ja-JP/2020/07/202007151500FalklandRockhoppers.jpg)|
 202007161500|HappyBalloon|｢絵文字熱気球｣ (© Leonsbox/Getty Images Plus)|今日は ｢世界絵文字デー｣|![](/ja-JP/2020/07/202007161500HappyBalloon.jpg)|
+202007171500|JigokuDani|「登別地獄谷」北海道, 登別 (© Sean Pavone/Shutterstock)|昨日は「道みんの日」|![](/ja-JP/2020/07/202007171500JigokuDani.jpg)|
