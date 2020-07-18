@@ -18,3 +18,4 @@
 202007152200|FrederickSound|Baleine à Bosse sautant hors de l’eau dans le Passage Frederick, Alsaska (© Tony Wu/Minden Pictures)|Acrobaties|![](/fr-FR/2020/07/202007152200FrederickSound.jpg)|
 202007162200|HappyBalloon|Montgolfière contente (© Leonsbox/Getty Images Plus)|Journée des smileys !|![](/fr-FR/2020/07/202007162200HappyBalloon.jpg)|
 202007172200|NineSpotted|Sphinx du pissenlit, Suisse (© Thomas Marent/Minden Pictures)|Papillonnez !|![](/fr-FR/2020/07/202007172200NineSpotted.jpg)|
+202007182200|GrandCanalGondolas|Le Grand Canal et la Basilique Santa Maria della Salute, Venise, Italie (© Jim Richardson/Offset by Shutterstock)|La fête du Rédempteur|![](/fr-FR/2020/07/202007182200GrandCanalGondolas.jpg)|

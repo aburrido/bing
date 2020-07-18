@@ -18,3 +18,4 @@
 202007152200|FrederickSound|Springender Buckelwal im Frederick Sound, Nordpazifik, Alaska, USA (© Tony Wu/Minden Pictures)|Sommer in Alaska|![](/de-DE/2020/07/202007152200FrederickSound.jpg)|
 202007162200|HappyBalloon|Ein fröhlicher Heißluftballon (© Leonsbox/Getty Images Plus)|Bitte lächeln! Heute ist Welt-Emoji-Tag 😊|![](/de-DE/2020/07/202007162200HappyBalloon.jpg)|
 202007172200|RedBlueWildebeest|Wandernde Streifengnu-Herde im Sonnenuntergang, Masai Mara, Kenia (© Denis-Huot/Minden Pictures)|Gnus unterwegs|![](/de-DE/2020/07/202007172200RedBlueWildebeest.jpg)|
+202007182200|GrandCanalGondolas|Der Canal Grande und die Basilika Santa Maria della Salute in Venedig, Italien (© Jim Richardson/Offset by Shutterstock)|Venedig bei Nacht|![](/de-DE/2020/07/202007182200GrandCanalGondolas.jpg)|
