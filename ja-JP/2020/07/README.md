@@ -18,3 +18,4 @@
 202007151500|FalklandRockhoppers|｢イワトビペンギン｣フォークランド諸島 (© Heike Odermatt/Minden Pictures)|夏だ！海だ！ペンギンだ！|![](/ja-JP/2020/07/202007151500FalklandRockhoppers.jpg)|
 202007161500|HappyBalloon|｢絵文字熱気球｣ (© Leonsbox/Getty Images Plus)|今日は ｢世界絵文字デー｣|![](/ja-JP/2020/07/202007161500HappyBalloon.jpg)|
 202007171500|JigokuDani|「登別地獄谷」北海道, 登別 (© Sean Pavone/Shutterstock)|昨日は「道みんの日」|![](/ja-JP/2020/07/202007171500JigokuDani.jpg)|
+202007181500|GrandCanalGondolas|｢カナル・グランデとサンタ・マリア・デッラ・サルーテ聖堂｣イタリア, ベネチア  (© Jim Richardson/Offset by Shutterstock)|レデントーレ祭の季節です|![](/ja-JP/2020/07/202007181500GrandCanalGondolas.jpg)|
