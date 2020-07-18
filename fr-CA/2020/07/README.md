@@ -17,3 +17,4 @@
 202007150400|GrizzlyBC|Grizzly femelle adulte (Ursus arctos horribilis) et ourson se nourrissant de carex dans la Forêt pluviale de Great Bear, en Colombie-Britannique (© Jack Chapman/Minden Pictures)||![](/fr-CA/2020/07/202007150400GrizzlyBC.jpg)|
 202007160400|FrederickSound|Baleine à bosse du Pacifique Nord pénétrant dans Frederick Sound, Alaska (© Tony Wu/Minden Pictures)||![](/fr-CA/2020/07/202007160400FrederickSound.jpg)|
 202007170400|HappyBalloon|Ballon à air chaud heureux (© Leonsbox/Getty Images Plus)||![](/fr-CA/2020/07/202007170400HappyBalloon.jpg)|
+202007180400|NineSpotted|Papillon à neuf points en Suisse (© Thomas Marent/Minden Pictures)||![](/fr-CA/2020/07/202007180400NineSpotted.jpg)|
