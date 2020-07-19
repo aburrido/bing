@@ -18,3 +18,4 @@
 202007160400|FrederickSound|North Pacific humpback whale breaching in Frederick Sound, Alaska (© Tony Wu/Minden Pictures)|Summertime in Alaska|![](/en-CA/2020/07/202007160400FrederickSound.jpg)|
 202007170400|HappyBalloon|Happy hot air balloon (© Leonsbox/Getty Images Plus)|Let's face it: It's World Emoji Day|![](/en-CA/2020/07/202007170400HappyBalloon.jpg)|
 202007180400|NineSpotted|Nine-spotted moth in Switzerland (© Thomas Marent/Minden Pictures)|The moth wonderful time of the year|![](/en-CA/2020/07/202007180400NineSpotted.jpg)|
+202007190400|GrandCanalGondolas|The Grand Canal and Basilica di Santa Maria della Salute in Venice, Italy (© Jim Richardson/Offset by Shutterstock)|Venice by night|![](/en-CA/2020/07/202007190400GrandCanalGondolas.jpg)|

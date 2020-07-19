@@ -18,3 +18,4 @@
 202007160400|FrederickSound|Baleine à bosse du Pacifique Nord pénétrant dans Frederick Sound, Alaska (© Tony Wu/Minden Pictures)||![](/fr-CA/2020/07/202007160400FrederickSound.jpg)|
 202007170400|HappyBalloon|Ballon à air chaud heureux (© Leonsbox/Getty Images Plus)||![](/fr-CA/2020/07/202007170400HappyBalloon.jpg)|
 202007180400|NineSpotted|Papillon à neuf points en Suisse (© Thomas Marent/Minden Pictures)||![](/fr-CA/2020/07/202007180400NineSpotted.jpg)|
+202007190400|GrandCanalGondolas|Le Grand Canal et la Basilique de Santa Maria della Salute à Venise, Italie (© Jim Richardson/Offset by Shutterstock)||![](/fr-CA/2020/07/202007190400GrandCanalGondolas.jpg)|
