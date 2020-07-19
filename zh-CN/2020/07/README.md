@@ -19,3 +19,4 @@
 202007161600|HappyBalloon|笑脸热气球 (© Leonsbox/Getty Images Plus)||![](/zh-CN/2020/07/202007161600HappyBalloon.jpg)|
 202007171600|NineSpotted|九斑蛾，瑞士 (© Thomas Marent/Minden Pictures)||![](/zh-CN/2020/07/202007171600NineSpotted.jpg)|
 202007181600|GrandCanalGondolas|大运河和安康圣母圣殿，意大利威尼斯 (© Jim Richardson/Offset by Shutterstock)||![](/zh-CN/2020/07/202007181600GrandCanalGondolas.jpg)|
+202007191600|EarthriseSequence|穿过月球上史密斯海的“地出” (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)||![](/zh-CN/2020/07/202007191600EarthriseSequence.jpg)|
