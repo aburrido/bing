@@ -20,3 +20,4 @@
 202007172200|RedBlueWildebeest|Wandernde Streifengnu-Herde im Sonnenuntergang, Masai Mara, Kenia (© Denis-Huot/Minden Pictures)|Gnus unterwegs|![](/de-DE/2020/07/202007172200RedBlueWildebeest.jpg)|
 202007182200|GrandCanalGondolas|Der Canal Grande und die Basilika Santa Maria della Salute in Venedig, Italien (© Jim Richardson/Offset by Shutterstock)|Venedig bei Nacht|![](/de-DE/2020/07/202007182200GrandCanalGondolas.jpg)|
 202007192200|EarthriseSequence|Erdaufgang über dem Mare Smythii auf dem Mond (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)|Erdaufgang am Tag des Mondes|![](/de-DE/2020/07/202007192200EarthriseSequence.jpg)|
+202007202200|DinantBelgium|Die Stadt Dinant und die Maas in Namur, Belgien (© Kadagan/Shutterstock)|Belgien feiert seine Unabhängigkeit|![](/de-DE/2020/07/202007202200DinantBelgium.jpg)|
