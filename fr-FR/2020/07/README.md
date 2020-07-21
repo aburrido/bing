@@ -21,3 +21,4 @@
 202007182200|GrandCanalGondolas|Le Grand Canal et la Basilique Santa Maria della Salute, Venise, Italie (© Jim Richardson/Offset by Shutterstock)|La fête du Rédempteur|![](/fr-FR/2020/07/202007182200GrandCanalGondolas.jpg)|
 202007192200|EarthriseSequence|Lever de Terre au-dessus de Mare Smythii, sur la Lune (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)|Lever de Terre|![](/fr-FR/2020/07/202007192200EarthriseSequence.jpg)|
 202007202200|DinantBelgium|Dinant et la Meuse, Belgique (© Kadagan/Shutterstock)|C’est la fête, une fois !|![](/fr-FR/2020/07/202007202200DinantBelgium.jpg)|
+202007212200|RedBlueWildebeest|Harde de gnous bleus migrant au coucher du soleil, Réserve nationale du Masai Mara, Kenya (© Denis-Huot/Minden Pictures)|Le grand voyage|![](/fr-FR/2020/07/202007212200RedBlueWildebeest.jpg)|
