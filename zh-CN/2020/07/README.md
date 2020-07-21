@@ -21,3 +21,4 @@
 202007181600|GrandCanalGondolas|大运河和安康圣母圣殿，意大利威尼斯 (© Jim Richardson/Offset by Shutterstock)||![](/zh-CN/2020/07/202007181600GrandCanalGondolas.jpg)|
 202007191600|EarthriseSequence|穿过月球上史密斯海的“地出” (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)||![](/zh-CN/2020/07/202007191600EarthriseSequence.jpg)|
 202007201600|DinantBelgium|迪南镇和默兹河，比利时纳穆尔 (© Kadagan/Shutterstock)||![](/zh-CN/2020/07/202007201600DinantBelgium.jpg)|
+202007211600|RedBlueWildebeest|日落时分正在迁徙的斑纹角马群，肯尼亚马赛马拉野生动物保护区 (© Denis-Huot/Minden Pictures)||![](/zh-CN/2020/07/202007211600RedBlueWildebeest.jpg)|
