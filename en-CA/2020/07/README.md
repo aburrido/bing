@@ -20,3 +20,4 @@
 202007180400|NineSpotted|Nine-spotted moth in Switzerland (© Thomas Marent/Minden Pictures)|The moth wonderful time of the year|![](/en-CA/2020/07/202007180400NineSpotted.jpg)|
 202007190400|GrandCanalGondolas|The Grand Canal and Basilica di Santa Maria della Salute in Venice, Italy (© Jim Richardson/Offset by Shutterstock)|Venice by night|![](/en-CA/2020/07/202007190400GrandCanalGondolas.jpg)|
 202007200400|EarthriseSequence|Earthrise across Mare Smythii on the moon (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)|Earthrise on Moon Day|![](/en-CA/2020/07/202007200400EarthriseSequence.jpg)|
+202007210400|DinantBelgium|The town of Dinant and the River Meuse in Namur, Belgium (© Kadagan/Shutterstock)|Belgium celebrates its independence|![](/en-CA/2020/07/202007210400DinantBelgium.jpg)|
