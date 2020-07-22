@@ -21,3 +21,4 @@
 202007190400|GrandCanalGondolas|The Grand Canal and Basilica di Santa Maria della Salute in Venice, Italy (© Jim Richardson/Offset by Shutterstock)|Venice by night|![](/en-CA/2020/07/202007190400GrandCanalGondolas.jpg)|
 202007200400|EarthriseSequence|Earthrise across Mare Smythii on the moon (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)|Earthrise on Moon Day|![](/en-CA/2020/07/202007200400EarthriseSequence.jpg)|
 202007210400|DinantBelgium|The town of Dinant and the River Meuse in Namur, Belgium (© Kadagan/Shutterstock)|Belgium celebrates its independence|![](/en-CA/2020/07/202007210400DinantBelgium.jpg)|
+202007220400|RedBlueWildebeest|Blue wildebeest herd migrating at sunset, Maasai Mara Game Reserve, Kenya (© Denis-Huot/Minden Pictures)|Wildebeest on the move|![](/en-CA/2020/07/202007220400RedBlueWildebeest.jpg)|

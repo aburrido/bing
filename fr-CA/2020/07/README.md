@@ -21,3 +21,4 @@
 202007190400|GrandCanalGondolas|Le Grand Canal et la Basilique de Santa Maria della Salute à Venise, Italie (© Jim Richardson/Offset by Shutterstock)||![](/fr-CA/2020/07/202007190400GrandCanalGondolas.jpg)|
 202007200400|EarthriseSequence|Earthrise à travers Mare Smythii sur la lune (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)||![](/fr-CA/2020/07/202007200400EarthriseSequence.jpg)|
 202007210400|DinantBelgium|La ville de Dinant et la Meuse à Namur, Belgique (© Kadagan/Shutterstock)||![](/fr-CA/2020/07/202007210400DinantBelgium.jpg)|
+202007220400|RedBlueWildebeest|Troupeau de gnous bleus migrant au coucher du soleil, Réserve de chasse Maasai Mara, Kenya (© Denis-Huot/Minden Pictures)||![](/fr-CA/2020/07/202007220400RedBlueWildebeest.jpg)|
