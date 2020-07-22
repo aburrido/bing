@@ -22,3 +22,4 @@
 202007192200|EarthriseSequence|Erdaufgang über dem Mare Smythii auf dem Mond (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)|Erdaufgang am Tag des Mondes|![](/de-DE/2020/07/202007192200EarthriseSequence.jpg)|
 202007202200|DinantBelgium|Die Stadt Dinant und die Maas in Namur, Belgien (© Kadagan/Shutterstock)|Belgien feiert seine Unabhängigkeit|![](/de-DE/2020/07/202007202200DinantBelgium.jpg)|
 202007212200|NuernbergBurg|Sinwellturm der Kaiserburg, Nürnberg, Bayern (© Rüdiger Hess/geo-select FotoArt)|Das Wahrzeichen von Nürnberg|![](/de-DE/2020/07/202007212200NuernbergBurg.jpg)|
+202007222200|DubrovnikDoors|Die Festung Lovrijenac in der Kolorina-Bucht, Dubrovnik, Kroatien (© Barbara Vallance/Getty Images)|Am Fuße von „Dubrovniks Gibraltar“|![](/de-DE/2020/07/202007222200DubrovnikDoors.jpg)|
