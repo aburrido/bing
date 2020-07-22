@@ -22,3 +22,4 @@
 202007191500|EarthriseSequence|｢スミス海に昇る地球｣ (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)|今日は｢月面着陸の日｣|![](/ja-JP/2020/07/202007191500EarthriseSequence.jpg)|
 202007201500|HemingwayHome|｢アーネスト・ヘミングウェイ博物館｣米国フロリダ州, キーウェスト (© Werner Bertsch/eStock Photo)|今日は｢ヘミングウェイの誕生日｣|![](/ja-JP/2020/07/202007201500HemingwayHome.jpg)|
 202007211500|OwlSunflowers|｢ヒマワリとコキンメフクロウ｣スペイン, アンダルシア州 (© Andres M. Dominguez/Minden Pictures)|今日は｢大暑｣|![](/ja-JP/2020/07/202007211500OwlSunflowers.jpg)|
+202007221500|CormorantMackerel|｢サバを追うアオノドヒメウ｣米国ロサンゼルス沖 (© Alex Mustard/Minden Pictures)|今日は｢海の日｣|![](/ja-JP/2020/07/202007221500CormorantMackerel.jpg)|
