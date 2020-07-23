@@ -23,3 +23,4 @@
 202007202200|DinantBelgium|Die Stadt Dinant und die Maas in Namur, Belgien (© Kadagan/Shutterstock)|Belgien feiert seine Unabhängigkeit|![](/de-DE/2020/07/202007202200DinantBelgium.jpg)|
 202007212200|NuernbergBurg|Sinwellturm der Kaiserburg, Nürnberg, Bayern (© Rüdiger Hess/geo-select FotoArt)|Das Wahrzeichen von Nürnberg|![](/de-DE/2020/07/202007212200NuernbergBurg.jpg)|
 202007222200|DubrovnikDoors|Die Festung Lovrijenac in der Kolorina-Bucht, Dubrovnik, Kroatien (© Barbara Vallance/Getty Images)|Am Fuße von „Dubrovniks Gibraltar“|![](/de-DE/2020/07/202007222200DubrovnikDoors.jpg)|
+202007232200|KapamaCousins|Elefanten im Kapama Private Game Reserve in Südafrika (© Simon Eeman/Getty Images)|Rüssel an Rüssel|![](/de-DE/2020/07/202007232200KapamaCousins.jpg)|
