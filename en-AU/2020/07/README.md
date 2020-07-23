@@ -23,3 +23,4 @@
 202007201400|DinantBelgium|The town of Dinant and the River Meuse in Namur, Belgium (© Kadagan/Shutterstock)|Belgium celebrates its independence|![](/en-AU/2020/07/202007201400DinantBelgium.jpg)|
 202007211400|RedBlueWildebeest|Blue wildebeest herd migrating at sunset, Maasai Mara Game Reserve, Kenya (© Denis-Huot/Minden Pictures)|Wildebeest on the move|![](/en-AU/2020/07/202007211400RedBlueWildebeest.jpg)|
 202007221400|CradleMountainMorning|Cradle Mountain, Tasmania, on a very cold morning (© Steve Daggar Photography/Getty Images)|Time for a winter walk?|![](/en-AU/2020/07/202007221400CradleMountainMorning.jpg)|
+202007231400|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-AU/2020/07/202007231400KapamaCousins.jpg)|
