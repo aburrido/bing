@@ -22,3 +22,4 @@
 202007200400|EarthriseSequence|Earthrise à travers Mare Smythii sur la lune (© Image Science and Analysis Laboratory, NASA-Johnson Space Center)||![](/fr-CA/2020/07/202007200400EarthriseSequence.jpg)|
 202007210400|DinantBelgium|La ville de Dinant et la Meuse à Namur, Belgique (© Kadagan/Shutterstock)||![](/fr-CA/2020/07/202007210400DinantBelgium.jpg)|
 202007220400|RedBlueWildebeest|Troupeau de gnous bleus migrant au coucher du soleil, Réserve de chasse Maasai Mara, Kenya (© Denis-Huot/Minden Pictures)||![](/fr-CA/2020/07/202007220400RedBlueWildebeest.jpg)|
+202007230400|BrookfieldCeiling|La galerie Allen Lambert à Brookfield Place, Toronto (© AWL Images/DanitaDelimont)||![](/fr-CA/2020/07/202007230400BrookfieldCeiling.jpg)|
