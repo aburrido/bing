@@ -23,3 +23,4 @@
 202007201600|DinantBelgium|迪南镇和默兹河，比利时纳穆尔 (© Kadagan/Shutterstock)||![](/zh-CN/2020/07/202007201600DinantBelgium.jpg)|
 202007211600|RedBlueWildebeest|日落时分正在迁徙的斑纹角马群，肯尼亚马赛马拉野生动物保护区 (© Denis-Huot/Minden Pictures)||![](/zh-CN/2020/07/202007211600RedBlueWildebeest.jpg)|
 202007221600|CausewayStones|巨人堤道，英国北爱尔兰布什米尔斯 (© Chiara Salvadori/Getty Images)||![](/zh-CN/2020/07/202007221600CausewayStones.jpg)|
+202007231600|KapamaCousins|南非卡帕马私人野生动物保护区的大象 (© Simon Eeman/Getty Images)||![](/zh-CN/2020/07/202007231600KapamaCousins.jpg)|
