@@ -24,3 +24,4 @@
 202007211600|RedBlueWildebeest|日落时分正在迁徙的斑纹角马群，肯尼亚马赛马拉野生动物保护区 (© Denis-Huot/Minden Pictures)||![](/zh-CN/2020/07/202007211600RedBlueWildebeest.jpg)|
 202007221600|CausewayStones|巨人堤道，英国北爱尔兰布什米尔斯 (© Chiara Salvadori/Getty Images)||![](/zh-CN/2020/07/202007221600CausewayStones.jpg)|
 202007231600|KapamaCousins|南非卡帕马私人野生动物保护区的大象 (© Simon Eeman/Getty Images)||![](/zh-CN/2020/07/202007231600KapamaCousins.jpg)|
+202007241600|RedSailboat|迪斯科湾，格陵兰岛伊卢利萨特 (© Kertu/Shutterstock)||![](/zh-CN/2020/07/202007241600RedSailboat.jpg)|
