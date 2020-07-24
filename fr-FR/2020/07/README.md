@@ -24,3 +24,4 @@
 202007212200|RedBlueWildebeest|Harde de gnous bleus migrant au coucher du soleil, Réserve nationale du Masai Mara, Kenya (© Denis-Huot/Minden Pictures)|Le grand voyage|![](/fr-FR/2020/07/202007212200RedBlueWildebeest.jpg)|
 202007222200|DubrovnikDoors|Portes en bois et chemin de pierres à la base de Fort Lovrijenac, Kolorina Bay, Dubrovnik (© Barbara Vallance/Getty Images)|Des airs de Kings Landing|![](/fr-FR/2020/07/202007222200DubrovnikDoors.jpg)|
 202007232200|KapamaCousins|Éléphants dans la réserve Kapama Game, Afrique du Sud (© Simon Eeman/Getty Images)|Honneur aux cousins !|![](/fr-FR/2020/07/202007232200KapamaCousins.jpg)|
+202007242200|RedSailboat|Baie de Disko, Ilulissat, Groenland (© Kertu/Shutterstock)|Infatigable soleil|![](/fr-FR/2020/07/202007242200RedSailboat.jpg)|
