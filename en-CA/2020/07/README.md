@@ -23,3 +23,4 @@
 202007210400|DinantBelgium|The town of Dinant and the River Meuse in Namur, Belgium (© Kadagan/Shutterstock)|Belgium celebrates its independence|![](/en-CA/2020/07/202007210400DinantBelgium.jpg)|
 202007220400|RedBlueWildebeest|Blue wildebeest herd migrating at sunset, Maasai Mara Game Reserve, Kenya (© Denis-Huot/Minden Pictures)|Wildebeest on the move|![](/en-CA/2020/07/202007220400RedBlueWildebeest.jpg)|
 202007230400|DubrovnikDoors|Wooden doors and a stone path at the base of Fort Lovrijenac in Kolorina Bay, Dubrovnik (© Barbara Vallance/Getty Images)|At the foot of 'Dubrovnik's Gibraltar'|![](/en-CA/2020/07/202007230400DubrovnikDoors.jpg)|
+202007240400|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-CA/2020/07/202007240400KapamaCousins.jpg)|
