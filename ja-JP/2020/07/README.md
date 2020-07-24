@@ -24,3 +24,4 @@
 202007211500|OwlSunflowers|｢ヒマワリとコキンメフクロウ｣スペイン, アンダルシア州 (© Andres M. Dominguez/Minden Pictures)|今日は｢大暑｣|![](/ja-JP/2020/07/202007211500OwlSunflowers.jpg)|
 202007221500|CormorantMackerel|｢サバを追うアオノドヒメウ｣米国ロサンゼルス沖 (© Alex Mustard/Minden Pictures)|今日は｢海の日｣|![](/ja-JP/2020/07/202007221500CormorantMackerel.jpg)|
 202007231500|DinantBelgium|｢ディナンの街とマース川｣ベルギー, ナミュール州 (© Kadagan/Shutterstock)|ベルギーの水辺の風景|![](/ja-JP/2020/07/202007231500DinantBelgium.jpg)|
+202007241500|RedSailboat|｢イルリサット・アイスフィヨルド｣グリーンランド, イルリサット (© Kertu/Shutterstock)|グリーンランドの世界遺産|![](/ja-JP/2020/07/202007241500RedSailboat.jpg)|
