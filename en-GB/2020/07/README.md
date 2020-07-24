@@ -24,3 +24,4 @@
 202007212300|RedBlueWildebeest|Blue wildebeest herd migrating at sunset, Maasai Mara Game Reserve, Kenya (© Denis-Huot/Minden Pictures)|Wildebeest on the move|![](/en-GB/2020/07/202007212300RedBlueWildebeest.jpg)|
 202007222300|DubrovnikDoors|Wooden doors and a stone path at the base of Fort Lovrijenac in Kolorina Bay, Dubrovnik (© Barbara Vallance/Getty Images)|Stepping back in time|![](/en-GB/2020/07/202007222300DubrovnikDoors.jpg)|
 202007232300|CausewayStones|The Giant's Causeway, Bushmills, County Antrim (© Chiara Salvadori/Getty Images)|A geological giant|![](/en-GB/2020/07/202007232300CausewayStones.jpg)|
+202007242300|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-GB/2020/07/202007242300RedSailboat.jpg)|
