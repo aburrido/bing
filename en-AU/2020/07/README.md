@@ -25,3 +25,4 @@
 202007221400|CradleMountainMorning|Cradle Mountain, Tasmania, on a very cold morning (© Steve Daggar Photography/Getty Images)|Time for a winter walk?|![](/en-AU/2020/07/202007221400CradleMountainMorning.jpg)|
 202007231400|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-AU/2020/07/202007231400KapamaCousins.jpg)|
 202007241400|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-AU/2020/07/202007241400RedSailboat.jpg)|
+202007251400|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-AU/2020/07/202007251400AerialTamul.jpg)|
