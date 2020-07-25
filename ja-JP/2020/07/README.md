@@ -25,3 +25,4 @@
 202007221500|CormorantMackerel|｢サバを追うアオノドヒメウ｣米国ロサンゼルス沖 (© Alex Mustard/Minden Pictures)|今日は｢海の日｣|![](/ja-JP/2020/07/202007221500CormorantMackerel.jpg)|
 202007231500|DinantBelgium|｢ディナンの街とマース川｣ベルギー, ナミュール州 (© Kadagan/Shutterstock)|ベルギーの水辺の風景|![](/ja-JP/2020/07/202007231500DinantBelgium.jpg)|
 202007241500|RedSailboat|｢イルリサット・アイスフィヨルド｣グリーンランド, イルリサット (© Kertu/Shutterstock)|グリーンランドの世界遺産|![](/ja-JP/2020/07/202007241500RedSailboat.jpg)|
+202007251500|WheatCastilla|｢小麦畑｣スペイン, カスティーリャ・イ・レオン州 (© Carlos Javier Garc.a Prieto/EyeEm/Getty Images)|スペインの夏の耕作地帯|![](/ja-JP/2020/07/202007251500WheatCastilla.jpg)|
