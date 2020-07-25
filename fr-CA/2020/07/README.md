@@ -24,3 +24,4 @@
 202007220400|RedBlueWildebeest|Troupeau de gnous bleus migrant au coucher du soleil, Réserve de chasse Maasai Mara, Kenya (© Denis-Huot/Minden Pictures)||![](/fr-CA/2020/07/202007220400RedBlueWildebeest.jpg)|
 202007230400|BrookfieldCeiling|La galerie Allen Lambert à Brookfield Place, Toronto (© AWL Images/DanitaDelimont)||![](/fr-CA/2020/07/202007230400BrookfieldCeiling.jpg)|
 202007240400|KapamaCousins|Des éléphants dans la réserve de chasse Kapama Private en Afrique du Sud (© Simon Eeman/Getty Images)||![](/fr-CA/2020/07/202007240400KapamaCousins.jpg)|
+202007250400|RedSailboat|Disko Bay, Ilulissat, Groenland (© Kertu/Shutterstock)||![](/fr-CA/2020/07/202007250400RedSailboat.jpg)|
