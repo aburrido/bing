@@ -25,3 +25,4 @@
 202007221830|DubrovnikDoors|Wooden doors and a stone path at the base of Fort Lovrijenac in Kolorina Bay, Dubrovnik (© Barbara Vallance/Getty Images)|At the foot of 'Dubrovnik's Gibraltar'|![](/en-IN/2020/07/202007221830DubrovnikDoors.jpg)|
 202007231830|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-IN/2020/07/202007231830KapamaCousins.jpg)|
 202007241830|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-IN/2020/07/202007241830RedSailboat.jpg)|
+202007251830|MunnarHills|The valleys of Munnar, Kerala (© Through the beauty of Kerala ...../Getty Images)|The valleys of Munnar|![](/en-IN/2020/07/202007251830MunnarHills.jpg)|
