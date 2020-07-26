@@ -26,3 +26,4 @@
 202007232300|CausewayStones|The Giant's Causeway, Bushmills, County Antrim (© Chiara Salvadori/Getty Images)|A geological giant|![](/en-GB/2020/07/202007232300CausewayStones.jpg)|
 202007242300|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-GB/2020/07/202007242300RedSailboat.jpg)|
 202007252300|HamelinPool|Hamelin Pool Marine Nature Reserve, Shark Bay, Australia (© Abstract Aerial Art/Getty Images)|What’s under the boardwalk?|![](/en-GB/2020/07/202007252300HamelinPool.jpg)|
+202007262300|AerialTamul|Tamul waterfall in San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|Falling for Mexico’s wilderness|![](/en-GB/2020/07/202007262300AerialTamul.jpg)|
