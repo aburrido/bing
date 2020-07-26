@@ -25,3 +25,4 @@
 202007230400|DubrovnikDoors|Wooden doors and a stone path at the base of Fort Lovrijenac in Kolorina Bay, Dubrovnik (© Barbara Vallance/Getty Images)|At the foot of 'Dubrovnik's Gibraltar'|![](/en-CA/2020/07/202007230400DubrovnikDoors.jpg)|
 202007240400|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-CA/2020/07/202007240400KapamaCousins.jpg)|
 202007250400|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-CA/2020/07/202007250400RedSailboat.jpg)|
+202007260400|TurquoiseYoho|Glacial turquoise water of Kicking Horse River, Yoho National Park, B.C. (© Oleg Charykov/Getty Imgaes)|A spectacular landscape|![](/en-CA/2020/07/202007260400TurquoiseYoho.jpg)|
