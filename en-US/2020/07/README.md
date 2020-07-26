@@ -26,3 +26,4 @@
 202007230700|DubrovnikDoors|Base of Fort Lovrijenac in Kolorina Bay, Dubrovnik, Croatia (© Barbara Vallance/Getty Images)|At the foot of 'Dubrovnik's Gibraltar'|![](/en-US/2020/07/202007230700DubrovnikDoors.jpg)|
 202007240700|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-US/2020/07/202007240700KapamaCousins.jpg)|
 202007250700|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-US/2020/07/202007250700RedSailboat.jpg)|
+202007260700|ADA30|Frank Gehry's BP Pedestrian Bridge connecting Millennium Park and Maggie Daley Park in Chicago (© Devon Neff/Shutterstock)|A path to access|![](/en-US/2020/07/202007260700ADA30.jpg)|
