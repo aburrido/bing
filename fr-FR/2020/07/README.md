@@ -26,3 +26,4 @@
 202007232200|KapamaCousins|Éléphants dans la réserve Kapama Game, Afrique du Sud (© Simon Eeman/Getty Images)|Honneur aux cousins !|![](/fr-FR/2020/07/202007232200KapamaCousins.jpg)|
 202007242200|RedSailboat|Baie de Disko, Ilulissat, Groenland (© Kertu/Shutterstock)|Infatigable soleil|![](/fr-FR/2020/07/202007242200RedSailboat.jpg)|
 202007252200|HiddenFall|Vue panoramique de la cascade de Gavarnie dans les Pyrénées françaises (© Bartek Naprawa/Getty Images)|La  plus grande cascade|![](/fr-FR/2020/07/202007252200HiddenFall.jpg)|
+202007262200|AerialTamul|Cascades de Tamul dans l’état de San Luis Potosí, Mexique (© Robert Harding World Imagery/Offset by Shutterstock)|Attention ça tombe !|![](/fr-FR/2020/07/202007262200AerialTamul.jpg)|
