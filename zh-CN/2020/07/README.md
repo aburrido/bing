@@ -26,3 +26,4 @@
 202007231600|KapamaCousins|南非卡帕马私人野生动物保护区的大象 (© Simon Eeman/Getty Images)||![](/zh-CN/2020/07/202007231600KapamaCousins.jpg)|
 202007241600|RedSailboat|迪斯科湾，格陵兰岛伊卢利萨特 (© Kertu/Shutterstock)||![](/zh-CN/2020/07/202007241600RedSailboat.jpg)|
 202007251600|WheatCastilla|云下的麦田，西班牙巴利亚多利德 (© Carlos Javier García Prieto/EyeEm/Getty Images)||![](/zh-CN/2020/07/202007251600WheatCastilla.jpg)|
+202007261600|AerialTamul|圣路易斯波托西州的Tamul瀑布，墨西哥 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2020/07/202007261600AerialTamul.jpg)|
