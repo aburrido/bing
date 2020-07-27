@@ -27,3 +27,4 @@
 202007241500|RedSailboat|｢イルリサット・アイスフィヨルド｣グリーンランド, イルリサット (© Kertu/Shutterstock)|グリーンランドの世界遺産|![](/ja-JP/2020/07/202007241500RedSailboat.jpg)|
 202007251500|WheatCastilla|｢小麦畑｣スペイン, カスティーリャ・イ・レオン州 (© Carlos Javier Garc.a Prieto/EyeEm/Getty Images)|スペインの夏の耕作地帯|![](/ja-JP/2020/07/202007251500WheatCastilla.jpg)|
 202007261500|AerialTamul|｢タムル滝｣メキシコ, サン・ルイス・ポトシ州 (© Robert Harding World Imagery/Offset by Shutterstock)|メキシコの巨大カスケード滝|![](/ja-JP/2020/07/202007261500AerialTamul.jpg)|
+202007271500|HamelinPool|｢ハメリン・プール海洋自然保護区｣オーストラリア (© Abstract Aerial Art/Getty Images)|オーストラリアの世界遺産|![](/ja-JP/2020/07/202007271500HamelinPool.jpg)|
