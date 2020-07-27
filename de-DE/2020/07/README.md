@@ -27,3 +27,4 @@
 202007242200|RedSailboat|Diskobucht, Ilulissat, Grönland (© Kertu/Shutterstock)|Mitternachtssonne am Horizont|![](/de-DE/2020/07/202007242200RedSailboat.jpg)|
 202007252200|AerialTamul|Der Tamul-Wasserfall im Bundesstaat San Luis Potosí, Mexiko (© Robert Harding World Imagery/Offset by Shutterstock)|Naturwunder in Mexikos Wildnis|![](/de-DE/2020/07/202007252200AerialTamul.jpg)|
 202007262200|BergweltKarwendel|Natur-Informationszentrum Bergwelt Karwendel mit der Bergstation der Karwendelbahn und der Westlichen Karwendelspitze, Mittenwald, Bayern (© Reinhard Schmid/Huber/eStock Photo)|Fernblick mit Riesenfernrohr|![](/de-DE/2020/07/202007262200BergweltKarwendel.jpg)|
+202007272200|HamelinPool|Hamelin Pool Marine Nature Reserve, Shark Bay, Western Australia, Australien (© Abstract Aerial Art/Getty Images)|Trockenen Fußes über die Shark Bay|![](/de-DE/2020/07/202007272200HamelinPool.jpg)|
