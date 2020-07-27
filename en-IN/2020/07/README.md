@@ -27,3 +27,4 @@
 202007241830|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-IN/2020/07/202007241830RedSailboat.jpg)|
 202007251830|MunnarHills|The valleys of Munnar, Kerala (© Through the beauty of Kerala ...../Getty Images)|The valleys of Munnar|![](/en-IN/2020/07/202007251830MunnarHills.jpg)|
 202007261830|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-IN/2020/07/202007261830AerialTamul.jpg)|
+202007271830|HamelinPool|Hamelin Pool Marine Nature Reserve in Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-IN/2020/07/202007271830HamelinPool.jpg)|
