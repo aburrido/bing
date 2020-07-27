@@ -27,3 +27,4 @@
 202007240700|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-US/2020/07/202007240700KapamaCousins.jpg)|
 202007250700|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-US/2020/07/202007250700RedSailboat.jpg)|
 202007260700|ADA30|Frank Gehry's BP Pedestrian Bridge connecting Millennium Park and Maggie Daley Park in Chicago (© Devon Neff/Shutterstock)|A path to access|![](/en-US/2020/07/202007260700ADA30.jpg)|
+202007270700|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-US/2020/07/202007270700AerialTamul.jpg)|
