@@ -26,3 +26,4 @@
 202007240400|KapamaCousins|Elephants at Kapama Private Game Reserve in South Africa (© Simon Eeman/Getty Images)|Trunks stick together|![](/en-CA/2020/07/202007240400KapamaCousins.jpg)|
 202007250400|RedSailboat|Disko Bay, Ilulissat, Greenland (© Kertu/Shutterstock)|Going with the floe|![](/en-CA/2020/07/202007250400RedSailboat.jpg)|
 202007260400|TurquoiseYoho|Glacial turquoise water of Kicking Horse River, Yoho National Park, B.C. (© Oleg Charykov/Getty Imgaes)|A spectacular landscape|![](/en-CA/2020/07/202007260400TurquoiseYoho.jpg)|
+202007270400|BrookfieldCeiling|The Allen Lambert Galleria in Brookfield Place, Toronto (© AWL Images/DanitaDelimont)|Crystal cathedral of commerce|![](/en-CA/2020/07/202007270400BrookfieldCeiling.jpg)|
