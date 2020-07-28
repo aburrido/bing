@@ -28,3 +28,4 @@
 202007251600|WheatCastilla|云下的麦田，西班牙巴利亚多利德 (© Carlos Javier García Prieto/EyeEm/Getty Images)||![](/zh-CN/2020/07/202007251600WheatCastilla.jpg)|
 202007261600|AerialTamul|圣路易斯波托西州的Tamul瀑布，墨西哥 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2020/07/202007261600AerialTamul.jpg)|
 202007271600|HamelinPool|澳大利亚哈梅林浦 (© Abstract Aerial Art/Getty Images)||![](/zh-CN/2020/07/202007271600HamelinPool.jpg)|
+202007281600|KallurLighthouse|法罗群岛中的卡尔斯岛 (© Swen Stroop/Getty Images Plus)||![](/zh-CN/2020/07/202007281600KallurLighthouse.jpg)|
