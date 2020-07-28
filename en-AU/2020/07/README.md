@@ -28,3 +28,4 @@
 202007251400|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-AU/2020/07/202007251400AerialTamul.jpg)|
 202007261400|NumbatAustralia|A numbat (Myrmecobius fasciatus) in Australia (© FRANS LANTING, MINT IMAGES/SCIENCE PHOTO LIBRARY)|Going nuts for numbats|![](/en-AU/2020/07/202007261400NumbatAustralia.jpg)|
 202007271400|HamelinPool|Hamelin Pool Marine Nature Reserve in Western Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-AU/2020/07/202007271400HamelinPool.jpg)|
+202007281400|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-AU/2020/07/202007281400KallurLighthouse.jpg)|
