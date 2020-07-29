@@ -29,3 +29,4 @@
 202007261830|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-IN/2020/07/202007261830AerialTamul.jpg)|
 202007271830|HamelinPool|Hamelin Pool Marine Nature Reserve in Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-IN/2020/07/202007271830HamelinPool.jpg)|
 202007281830|TigerWalk|Tiger at the Bandhavgarh National Park, Madhya Pradesh (© Mint Images/offset by shutterstock)|Tiger on the prowl|![](/en-IN/2020/07/202007281830TigerWalk.jpg)|
+202007291830|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|International Day of Friendship|![](/en-IN/2020/07/202007291830HamerkopHunting.jpg)|
