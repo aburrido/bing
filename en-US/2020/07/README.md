@@ -29,3 +29,4 @@
 202007260700|ADA30|Frank Gehry's BP Pedestrian Bridge connecting Millennium Park and Maggie Daley Park in Chicago (© Devon Neff/Shutterstock)|A path to access|![](/en-US/2020/07/202007260700ADA30.jpg)|
 202007270700|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-US/2020/07/202007270700AerialTamul.jpg)|
 202007280700|HamelinPool|Hamelin Pool Marine Nature Reserve in Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-US/2020/07/202007280700HamelinPool.jpg)|
+202007290700|KallurLighthouse|Kalsoy Island, one of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku, from the Faroes!|![](/en-US/2020/07/202007290700KallurLighthouse.jpg)|
