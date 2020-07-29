@@ -29,3 +29,4 @@
 202007262200|AerialTamul|Cascades de Tamul dans l’état de San Luis Potosí, Mexique (© Robert Harding World Imagery/Offset by Shutterstock)|Attention ça tombe !|![](/fr-FR/2020/07/202007262200AerialTamul.jpg)|
 202007272200|BoraBora|Vue aérienne de bungalows sur l’île de Bora-Bora, Polynésie française (© Amazing Aerial Agency/Offset by Shutterstock)|À la recherche du paradis perdu|![](/fr-FR/2020/07/202007272200BoraBora.jpg)|
 202007282200|KallurLighthouse|L’île de Kalsoy, l’une des dix-huit îles Féroé (© Swen Stroop/Getty Images Plus)|En l’honneur d’un roi|![](/fr-FR/2020/07/202007282200KallurLighthouse.jpg)|
+202007292200|HamerkopHunting|Ombrette africaine perchée sur le dos d’un hippopotame, Parc national de Mana Pools, Zimbabwe (© David Fettes/Getty Images)|Journée internationale de l’amitié|![](/fr-FR/2020/07/202007292200HamerkopHunting.jpg)|
