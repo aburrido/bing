@@ -28,3 +28,4 @@
 202007260400|TurquoiseYoho|Eau turquoise glaciaire de la rivière Kicking Horse, Parc national Yoho, Colombie-Britannique (© Oleg Charykov/Getty Imgaes)||![](/fr-CA/2020/07/202007260400TurquoiseYoho.jpg)|
 202007270400|AerialTamul|Cascade de Tamul dans l'état de San Luis Potosí, Mexique (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2020/07/202007270400AerialTamul.jpg)|
 202007280400|HamelinPool|Hamelin Pool Marine Nature Reserve en Australie (© Abstract Aerial Art/Getty Images)||![](/fr-CA/2020/07/202007280400HamelinPool.jpg)|
+202007290400|KallurLighthouse|Île Kalsoy, partie des îles Féroé (© Swen Stroop/Getty Images Plus)||![](/fr-CA/2020/07/202007290400KallurLighthouse.jpg)|

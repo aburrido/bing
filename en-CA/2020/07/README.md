@@ -28,3 +28,4 @@
 202007260400|TurquoiseYoho|Glacial turquoise water of Kicking Horse River, Yoho National Park, B.C. (© Oleg Charykov/Getty Imgaes)|A spectacular landscape|![](/en-CA/2020/07/202007260400TurquoiseYoho.jpg)|
 202007270400|BrookfieldCeiling|The Allen Lambert Galleria in Brookfield Place, Toronto (© AWL Images/DanitaDelimont)|Crystal cathedral of commerce|![](/en-CA/2020/07/202007270400BrookfieldCeiling.jpg)|
 202007280400|HamelinPool|Hamelin Pool Marine Nature Reserve in Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-CA/2020/07/202007280400HamelinPool.jpg)|
+202007290400|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-CA/2020/07/202007290400KallurLighthouse.jpg)|
