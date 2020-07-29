@@ -29,3 +29,4 @@
 202007261400|NumbatAustralia|A numbat (Myrmecobius fasciatus) in Australia (© FRANS LANTING, MINT IMAGES/SCIENCE PHOTO LIBRARY)|Going nuts for numbats|![](/en-AU/2020/07/202007261400NumbatAustralia.jpg)|
 202007271400|HamelinPool|Hamelin Pool Marine Nature Reserve in Western Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-AU/2020/07/202007271400HamelinPool.jpg)|
 202007281400|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-AU/2020/07/202007281400KallurLighthouse.jpg)|
+202007291400|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|International Day of Friendship|![](/en-AU/2020/07/202007291400HamerkopHunting.jpg)|
