@@ -29,3 +29,4 @@
 202007262300|AerialTamul|Tamul waterfall in San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|Falling for Mexico’s wilderness|![](/en-GB/2020/07/202007262300AerialTamul.jpg)|
 202007272300|FlyingGannet|Northern gannet (Morus bassanus) in flight, Troupe Head RSPB Reserve, Aberdeenshire (© Dave Pressland/Minden Pictures)|Ready to dive in|![](/en-GB/2020/07/202007272300FlyingGannet.jpg)|
 202007282300|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-GB/2020/07/202007282300KallurLighthouse.jpg)|
+202007292300|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|A friend in need…|![](/en-GB/2020/07/202007292300HamerkopHunting.jpg)|
