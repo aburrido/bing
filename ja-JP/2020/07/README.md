@@ -29,3 +29,4 @@
 202007261500|AerialTamul|｢タムル滝｣メキシコ, サン・ルイス・ポトシ州 (© Robert Harding World Imagery/Offset by Shutterstock)|メキシコの巨大カスケード滝|![](/ja-JP/2020/07/202007261500AerialTamul.jpg)|
 202007271500|HamelinPool|｢ハメリン・プール海洋自然保護区｣オーストラリア (© Abstract Aerial Art/Getty Images)|オーストラリアの世界遺産|![](/ja-JP/2020/07/202007271500HamelinPool.jpg)|
 202007281500|KallurLighthouse|｢ケァルソイ島｣デンマーク, フェロー諸島 (© Swen Stroop/Getty Images Plus)|今日は｢オラフ祭｣|![](/ja-JP/2020/07/202007281500KallurLighthouse.jpg)|
+202007291500|KapamaCousins|｢仲良しゾウ｣南アフリカ, カパマ・プライベート・ゲーム保護区 (© Simon Eeman/Getty Images)|今日は｢国際フレンドシップ・デー｣|![](/ja-JP/2020/07/202007291500KapamaCousins.jpg)|
