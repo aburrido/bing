@@ -30,3 +30,4 @@
 202007271400|HamelinPool|Hamelin Pool Marine Nature Reserve in Western Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-AU/2020/07/202007271400HamelinPool.jpg)|
 202007281400|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-AU/2020/07/202007281400KallurLighthouse.jpg)|
 202007291400|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|International Day of Friendship|![](/en-AU/2020/07/202007291400HamerkopHunting.jpg)|
+202007301400|LavaShip|A lava flow hits water to create an explosion as a tourist boat passes, Hawaii Volcanoes National Park, USA (© Patrick Kelley/Getty Images)|Where fire meets water|![](/en-AU/2020/07/202007301400LavaShip.jpg)|
