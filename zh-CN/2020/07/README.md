@@ -30,3 +30,4 @@
 202007271600|HamelinPool|澳大利亚哈梅林浦 (© Abstract Aerial Art/Getty Images)||![](/zh-CN/2020/07/202007271600HamelinPool.jpg)|
 202007281600|KallurLighthouse|法罗群岛中的卡尔斯岛 (© Swen Stroop/Getty Images Plus)||![](/zh-CN/2020/07/202007281600KallurLighthouse.jpg)|
 202007291600|HamerkopHunting|站在河马身上的锤头鹳，津巴布韦马纳潭国家公园 (© David Fettes/Getty Images)||![](/zh-CN/2020/07/202007291600HamerkopHunting.jpg)|
+202007301600|TahoeBeach|塔霍湖国家公园中的沙港，内华达州 (© Mariusz Blach/Getty Images Plus)||![](/zh-CN/2020/07/202007301600TahoeBeach.jpg)|
