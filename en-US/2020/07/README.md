@@ -30,3 +30,4 @@
 202007270700|AerialTamul|Tamul waterfall in the state of San Luis Potosí, Mexico (© Robert Harding World Imagery/Offset by Shutterstock)|A stunning sight in Mexico's wilderness|![](/en-US/2020/07/202007270700AerialTamul.jpg)|
 202007280700|HamelinPool|Hamelin Pool Marine Nature Reserve in Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-US/2020/07/202007280700HamelinPool.jpg)|
 202007290700|KallurLighthouse|Kalsoy Island, one of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku, from the Faroes!|![](/en-US/2020/07/202007290700KallurLighthouse.jpg)|
+202007300700|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|International Day of Friendship|![](/en-US/2020/07/202007300700HamerkopHunting.jpg)|
