@@ -30,3 +30,4 @@
 202007272300|FlyingGannet|Northern gannet (Morus bassanus) in flight, Troupe Head RSPB Reserve, Aberdeenshire (© Dave Pressland/Minden Pictures)|Ready to dive in|![](/en-GB/2020/07/202007272300FlyingGannet.jpg)|
 202007282300|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-GB/2020/07/202007282300KallurLighthouse.jpg)|
 202007292300|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|A friend in need…|![](/en-GB/2020/07/202007292300HamerkopHunting.jpg)|
+202007302300|BristolBalloons|Hot air balloons over Clifton Suspension Bridge at sunrise, Bristol (© Rich Jones Photography/Getty Images)|Balloons over Bristol|![](/en-GB/2020/07/202007302300BristolBalloons.jpg)|
