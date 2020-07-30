@@ -30,3 +30,4 @@
 202007272200|HamelinPool|Hamelin Pool Marine Nature Reserve, Shark Bay, Western Australia, Australien (© Abstract Aerial Art/Getty Images)|Trockenen Fußes über die Shark Bay|![](/de-DE/2020/07/202007272200HamelinPool.jpg)|
 202007282200|KallurLighthouse|Die Insel Kalsoy, Färöer (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/de-DE/2020/07/202007282200KallurLighthouse.jpg)|
 202007292200|HamerkopHunting|Ein Hammerkopf steht auf einem Flusspferd, Mana-Pools-Nationalpark, Simbabwe (© David Fettes/Getty Images)|Internationaler Tag der Freundschaft|![](/de-DE/2020/07/202007292200HamerkopHunting.jpg)|
+202007302200|TahoeBeach|Sand Harbor, Lake Tahoe Nevada State Park, Nevada, USA (© Mariusz Blach/Getty Images Plus)|„The Big Blue“ am Fuß der Sierra Nevada|![](/de-DE/2020/07/202007302200TahoeBeach.jpg)|
