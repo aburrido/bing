@@ -29,3 +29,4 @@
 202007270400|AerialTamul|Cascade de Tamul dans l'état de San Luis Potosí, Mexique (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2020/07/202007270400AerialTamul.jpg)|
 202007280400|HamelinPool|Hamelin Pool Marine Nature Reserve en Australie (© Abstract Aerial Art/Getty Images)||![](/fr-CA/2020/07/202007280400HamelinPool.jpg)|
 202007290400|KallurLighthouse|Île Kalsoy, partie des îles Féroé (© Swen Stroop/Getty Images Plus)||![](/fr-CA/2020/07/202007290400KallurLighthouse.jpg)|
+202007300400|HamerkopHunting|Hamerkop debout sur un hippopotame, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)||![](/fr-CA/2020/07/202007300400HamerkopHunting.jpg)|

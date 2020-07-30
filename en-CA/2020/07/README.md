@@ -29,3 +29,4 @@
 202007270400|BrookfieldCeiling|The Allen Lambert Galleria in Brookfield Place, Toronto (© AWL Images/DanitaDelimont)|Crystal cathedral of commerce|![](/en-CA/2020/07/202007270400BrookfieldCeiling.jpg)|
 202007280400|HamelinPool|Hamelin Pool Marine Nature Reserve in Australia (© Abstract Aerial Art/Getty Images)|Over the boardwalk|![](/en-CA/2020/07/202007280400HamelinPool.jpg)|
 202007290400|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-CA/2020/07/202007290400KallurLighthouse.jpg)|
+202007300400|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|International Day of Friendship|![](/en-CA/2020/07/202007300400HamerkopHunting.jpg)|
