@@ -30,3 +30,4 @@
 202007280400|HamelinPool|Hamelin Pool Marine Nature Reserve en Australie (© Abstract Aerial Art/Getty Images)||![](/fr-CA/2020/07/202007280400HamelinPool.jpg)|
 202007290400|KallurLighthouse|Île Kalsoy, partie des îles Féroé (© Swen Stroop/Getty Images Plus)||![](/fr-CA/2020/07/202007290400KallurLighthouse.jpg)|
 202007300400|HamerkopHunting|Hamerkop debout sur un hippopotame, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)||![](/fr-CA/2020/07/202007300400HamerkopHunting.jpg)|
+202007310400|TahoeBeach|Sand Harbor, Parc d'état du lac Tahoe, Nevada (© Mariusz Blach/Getty Images Plus)||![](/fr-CA/2020/07/202007310400TahoeBeach.jpg)|
