@@ -31,3 +31,4 @@
 202007281830|TigerWalk|Tiger at the Bandhavgarh National Park, Madhya Pradesh (© Mint Images/offset by shutterstock)|Tiger on the prowl|![](/en-IN/2020/07/202007281830TigerWalk.jpg)|
 202007291830|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|International Day of Friendship|![](/en-IN/2020/07/202007291830HamerkopHunting.jpg)|
 202007301830|CharminarDome|The dome of the Charminar, Hyderabad (© Sujith Gopinath/shutterstock)|Interior of an icon of Hyderabad|![](/en-IN/2020/07/202007301830CharminarDome.jpg)|
+202007311830|LavaShip|A lava flow hits water to create an explosion as a tourist boat passes, Hawaii Volcanoes National Park (© Patrick Kelley/Getty Images)|Where fire meets water|![](/en-IN/2020/07/202007311830LavaShip.jpg)|
