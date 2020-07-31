@@ -31,3 +31,4 @@
 202007281600|KallurLighthouse|法罗群岛中的卡尔斯岛 (© Swen Stroop/Getty Images Plus)||![](/zh-CN/2020/07/202007281600KallurLighthouse.jpg)|
 202007291600|HamerkopHunting|站在河马身上的锤头鹳，津巴布韦马纳潭国家公园 (© David Fettes/Getty Images)||![](/zh-CN/2020/07/202007291600HamerkopHunting.jpg)|
 202007301600|TahoeBeach|塔霍湖国家公园中的沙港，内华达州 (© Mariusz Blach/Getty Images Plus)||![](/zh-CN/2020/07/202007301600TahoeBeach.jpg)|
+202007311600|LavaShip|一艘游船经过时熔岩流撞击水面产生爆炸，夏威夷火山国家公园 (© Patrick Kelley/Getty Images)||![](/zh-CN/2020/07/202007311600LavaShip.jpg)|
