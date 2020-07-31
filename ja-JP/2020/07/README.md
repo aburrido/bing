@@ -31,3 +31,4 @@
 202007281500|KallurLighthouse|｢ケァルソイ島｣デンマーク, フェロー諸島 (© Swen Stroop/Getty Images Plus)|今日は｢オラフ祭｣|![](/ja-JP/2020/07/202007281500KallurLighthouse.jpg)|
 202007291500|KapamaCousins|｢仲良しゾウ｣南アフリカ, カパマ・プライベート・ゲーム保護区 (© Simon Eeman/Getty Images)|今日は｢国際フレンドシップ・デー｣|![](/ja-JP/2020/07/202007291500KapamaCousins.jpg)|
 202007301500|TahoeBeach|｢サンド・ハーバー｣米国ネバダ州, レイクタホ州立公園 (© Mariusz Blach/Getty Images Plus)|米国の自然公園|![](/ja-JP/2020/07/202007301500TahoeBeach.jpg)|
+202007311500|MizuNoHI|｢雨上がりのユーカリの木｣広島 (© AFROG DESIGN UNIT/Getty Images)|今日は｢水の日｣|![](/ja-JP/2020/07/202007311500MizuNoHI.jpg)|
