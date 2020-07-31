@@ -31,3 +31,4 @@
 202007282300|KallurLighthouse|Kalsoy Island, part of the Faroe Islands (© Swen Stroop/Getty Images Plus)|Góða ólavsøku!|![](/en-GB/2020/07/202007282300KallurLighthouse.jpg)|
 202007292300|HamerkopHunting|Hamerkop standing on a hippo, Mana Pools National Park, Zimbabwe (© David Fettes/Getty Images)|A friend in need…|![](/en-GB/2020/07/202007292300HamerkopHunting.jpg)|
 202007302300|BristolBalloons|Hot air balloons over Clifton Suspension Bridge at sunrise, Bristol (© Rich Jones Photography/Getty Images)|Balloons over Bristol|![](/en-GB/2020/07/202007302300BristolBalloons.jpg)|
+202007312300|LavaShip|A lava flow hits water to create an explosion as a tourist boat passes, Hawaii Volcanoes National Park, USA  (© Patrick Kelley/Getty Images)|Where fire meets water|![](/en-GB/2020/07/202007312300LavaShip.jpg)|
