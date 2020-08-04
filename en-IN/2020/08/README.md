@@ -4,3 +4,4 @@
 202008011830|IsolaBella|Isola Bella, Lake Maggiore, Piedmont, Italy (© Massimo Ripani/eStock Photo)|Bellissima!|![](/en-IN/2020/08/202008011830IsolaBella.jpg)|
 202008021830|RakhiSoldier|Officer wearing a rakhi on his wrist during rakshabandhan (© Jaipal Singh/EPA/Shutterstock)|In honour of the brother-sister bond|![](/en-IN/2020/08/202008021830RakhiSoldier.jpg)|
 202008031830|VirginiaDeer|White-tailed doe and fawn in Wisconsin, USA (© Karel Bock/Shutterstock)|Into the woods|![](/en-IN/2020/08/202008031830VirginiaDeer.jpg)|
+202008041830|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|Aw shucks, It's Oyster Day|![](/en-IN/2020/08/202008041830OysterFarm.jpg)|
