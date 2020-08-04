@@ -4,3 +4,4 @@
 202008012300|IsolaBella|Isola Bella, Lake Maggiore, Piedmont, Italy (© Massimo Ripani/eStock Photo)|Bellissima!|![](/en-GB/2020/08/202008012300IsolaBella.jpg)|
 202008022300|RhodesIsland|Aerial view of blue and white parasols on the coast of Rhodes, Greece (© Amazing Aerial Agency/Offset by Shutterstock)|Rocky Rhodes|![](/en-GB/2020/08/202008022300RhodesIsland.jpg)|
 202008032300|VirginiaDeer|White-tailed doe and fawn in Wisconsin, USA (© Karel Bock/Shutterstock)|Into the woods|![](/en-GB/2020/08/202008032300VirginiaDeer.jpg)|
+202008042300|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|On the ropes|![](/en-GB/2020/08/202008042300OysterFarm.jpg)|
