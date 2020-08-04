@@ -4,3 +4,4 @@
 202008012200|IsolaBella|Isola Bella, Lac Majeur, Piémont, Italie (© Massimo Ripani/eStock Photo)|Bellissima !|![](/fr-FR/2020/08/202008012200IsolaBella.jpg)|
 202008022200|SaguaroLightning|La foudre s’abat sur les contreforts des montagnes Tortolita, au nord de Tucson dans le désert de Sonora, Arizona, États-Unis (© Jack Dykinga/Minden Pictures)|La mousson arrive dans le désert|![](/fr-FR/2020/08/202008022200SaguaroLightning.jpg)|
 202008032200|VirginiaDeer|Une biche de Virginie et un faon dans le Wisconsin, États-Unis (© Karel Bock/Shutterstock)|Dans les bois|![](/fr-FR/2020/08/202008032200VirginiaDeer.jpg)|
+202008042200|OysterFarm|Une ferme ostréicole au large de l’île de Notojima, Préfecture d'Ishikawa, Japon (© divedog/Shutterstock)|Une pratique ancestrale d’ostréiculture|![](/fr-FR/2020/08/202008042200OysterFarm.jpg)|
