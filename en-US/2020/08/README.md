@@ -5,3 +5,4 @@
 202008020700|IsolaBella|Isola Bella, Lake Maggiore, Piedmont, Italy (© Massimo Ripani/eStock Photo)|Bellissima!|![](/en-US/2020/08/202008020700IsolaBella.jpg)|
 202008030700|SaguaroLightning|Lightning storm in the Tortolita Mountain foothills, north of Tucson, Arizona, in the Sonoran Desert (© Jack Dykinga/Minden Pictures)|The monsoon arrives in the desert|![](/en-US/2020/08/202008030700SaguaroLightning.jpg)|
 202008040700|VirginiaDeer|White-tailed doe and fawn in Wisconsin (© Karel Bock/Shutterstock)|Into the woods|![](/en-US/2020/08/202008040700VirginiaDeer.jpg)|
+202008050700|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa prefecture, Japan (© divedog/Shutterstock)|Aw shucks, It's Oyster Day|![](/en-US/2020/08/202008050700OysterFarm.jpg)|
