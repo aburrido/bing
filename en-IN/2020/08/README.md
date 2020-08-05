@@ -5,3 +5,4 @@
 202008021830|RakhiSoldier|Officer wearing a rakhi on his wrist during rakshabandhan (© Jaipal Singh/EPA/Shutterstock)|In honour of the brother-sister bond|![](/en-IN/2020/08/202008021830RakhiSoldier.jpg)|
 202008031830|VirginiaDeer|White-tailed doe and fawn in Wisconsin, USA (© Karel Bock/Shutterstock)|Into the woods|![](/en-IN/2020/08/202008031830VirginiaDeer.jpg)|
 202008041830|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|Aw shucks, It's Oyster Day|![](/en-IN/2020/08/202008041830OysterFarm.jpg)|
+202008051830|Rettungsstation|Former lifeguard station on the island of Rügen, Mecklenburg-Western Pomerania, Germany (© DR pics/Shutterstock)|Space-age style by the sea|![](/en-IN/2020/08/202008051830Rettungsstation.jpg)|
