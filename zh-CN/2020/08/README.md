@@ -5,3 +5,4 @@
 202008021600|SaguaroLightning|图森北部托托利塔山麓上空的雷暴，亚利桑那州索诺拉沙漠 (© Jack Dykinga/Minden Pictures)||![](/zh-CN/2020/08/202008021600SaguaroLightning.jpg)|
 202008031600|VirginiaDeer|威斯康星州的白尾母鹿和小鹿 (© Karel Bock/Shutterstock)||![](/zh-CN/2020/08/202008031600VirginiaDeer.jpg)|
 202008041600|OysterFarm|Notojima岛附近的牡蛎养殖场，日本石川县 (© divedog/Shutterstock)||![](/zh-CN/2020/08/202008041600OysterFarm.jpg)|
+202008051600|SyltWenningstedt|通往海滩的木板路，德国叙尔特岛 (© Kerstin Bittner/Westend61/Offset by Shutterstock)||![](/zh-CN/2020/08/202008051600SyltWenningstedt.jpg)|
