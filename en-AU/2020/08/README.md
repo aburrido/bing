@@ -5,3 +5,4 @@
 202008021400|IsolaBella|Isola Bella, Lake Maggiore, Piedmont, Italy (© Massimo Ripani/eStock Photo)|Bellissima!|![](/en-AU/2020/08/202008021400IsolaBella.jpg)|
 202008031400|VirginiaDeer|White-tailed doe and fawn in Wisconsin (© Karel Bock/Shutterstock)|Into the woods|![](/en-AU/2020/08/202008031400VirginiaDeer.jpg)|
 202008041400|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|Aw shucks, It's Oyster Day|![](/en-AU/2020/08/202008041400OysterFarm.jpg)|
+202008051400|Rettungsstation|Former lifeguard station on the island of Rügen, Mecklenburg-Western Pomerania, Germany (© DR pics/Shutterstock)|Space-age style by the sea|![](/en-AU/2020/08/202008051400Rettungsstation.jpg)|
