@@ -6,3 +6,4 @@
 202008032300|VirginiaDeer|White-tailed doe and fawn in Wisconsin, USA (© Karel Bock/Shutterstock)|Into the woods|![](/en-GB/2020/08/202008032300VirginiaDeer.jpg)|
 202008042300|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|On the ropes|![](/en-GB/2020/08/202008042300OysterFarm.jpg)|
 202008052300|Rettungsstation|Former lifeguard station on the island of Rügen, Mecklenburg-Western Pomerania, Germany (© DR pics/Shutterstock)|Space-age style|![](/en-GB/2020/08/202008052300Rettungsstation.jpg)|
+202008062300|CribynView|Cribyn viewed from Pen y Fan, Brecon Beacons National Park, Powys (© Adam Burton/Alamy Stock Photo)|The view from Pen y Fan|![](/en-GB/2020/08/202008062300CribynView.jpg)|
