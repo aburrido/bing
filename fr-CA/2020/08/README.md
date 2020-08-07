@@ -6,3 +6,4 @@
 202008040400|VirginiaDeer|Chevreuil et faon dans le Wisconsin (© Karel Bock/Shutterstock)||![](/fr-CA/2020/08/202008040400VirginiaDeer.jpg)|
 202008050400|OysterFarm|Ferme ostréicole au large de l'île de Notojima, préfecture d'Ishikawa, Japon (© divedog/Shutterstock)||![](/fr-CA/2020/08/202008050400OysterFarm.jpg)|
 202008060400|GoldenEarsForest|Un sentier à travers la forêt dense du parc provincial Golden Ears, en Colombie-Britannique (© SibsUK/Shutterstock)||![](/fr-CA/2020/08/202008060400GoldenEarsForest.jpg)|
+202008070400|WhaleHug|Jeune baleine à bosse donnant un câlin à sa mère au large des Tonga (© Biosphoto/Alamy)||![](/fr-CA/2020/08/202008070400WhaleHug.jpg)|
