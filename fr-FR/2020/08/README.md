@@ -7,3 +7,4 @@
 202008042200|OysterFarm|Une ferme ostréicole au large de l’île de Notojima, Préfecture d'Ishikawa, Japon (© divedog/Shutterstock)|Une pratique ancestrale d’ostréiculture|![](/fr-FR/2020/08/202008042200OysterFarm.jpg)|
 202008052200|Rettungsstation|Une ancienne station de sauveteurs sur l’île de Rügen, Mecklembourg-Poméranie-Occidentale, Allemagne (© DR pics/Shutterstock)|Une forme spatiale au bord de l’eau|![](/fr-FR/2020/08/202008052200Rettungsstation.jpg)|
 202008062200|WhaleHug|Un baleineau à bosse câlinant sa mère au large des Tonga (© Biosphoto/Alamy)|Un câlin entre baleines|![](/fr-FR/2020/08/202008062200WhaleHug.jpg)|
+202008072200|InfinityBridge|La passerelle Infinity Bridge à Stockton-on-Tees, Angleterre (© Robert Smith/Alamy)|C’est le jour de l’∞ !|![](/fr-FR/2020/08/202008072200InfinityBridge.jpg)|
