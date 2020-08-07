@@ -7,3 +7,4 @@
 202008042300|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|On the ropes|![](/en-GB/2020/08/202008042300OysterFarm.jpg)|
 202008052300|Rettungsstation|Former lifeguard station on the island of Rügen, Mecklenburg-Western Pomerania, Germany (© DR pics/Shutterstock)|Space-age style|![](/en-GB/2020/08/202008052300Rettungsstation.jpg)|
 202008062300|CribynView|Cribyn viewed from Pen y Fan, Brecon Beacons National Park, Powys (© Adam Burton/Alamy Stock Photo)|The view from Pen y Fan|![](/en-GB/2020/08/202008062300CribynView.jpg)|
+202008072300|InfinityBridge|Infinity Bridge in Stockton-on-Tees (© Robert Smith/Alamy)|It's ∞ Day!|![](/en-GB/2020/08/202008072300InfinityBridge.jpg)|
