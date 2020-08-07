@@ -7,3 +7,4 @@
 202008040700|VirginiaDeer|White-tailed doe and fawn in Wisconsin (© Karel Bock/Shutterstock)|Into the woods|![](/en-US/2020/08/202008040700VirginiaDeer.jpg)|
 202008050700|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa prefecture, Japan (© divedog/Shutterstock)|Aw shucks, It's Oyster Day|![](/en-US/2020/08/202008050700OysterFarm.jpg)|
 202008060700|Rettungsstation|Former lifeguard station on the island of Rügen, Mecklenburg-Western Pomerania, Germany (© DR pics/Shutterstock)|Space-age style by the sea|![](/en-US/2020/08/202008060700Rettungsstation.jpg)|
+202008070700|WhaleHug|Young humpback whale giving its mother a hug off the coast of the Tongan archipelago (© Biosphoto/Alamy)|A whale of a hug|![](/en-US/2020/08/202008070700WhaleHug.jpg)|
