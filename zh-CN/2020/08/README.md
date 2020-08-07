@@ -7,3 +7,4 @@
 202008041600|OysterFarm|Notojima岛附近的牡蛎养殖场，日本石川县 (© divedog/Shutterstock)||![](/zh-CN/2020/08/202008041600OysterFarm.jpg)|
 202008051600|SyltWenningstedt|通往海滩的木板路，德国叙尔特岛 (© Kerstin Bittner/Westend61/Offset by Shutterstock)||![](/zh-CN/2020/08/202008051600SyltWenningstedt.jpg)|
 202008061600|WhaleHug|汤加海岸正要拥抱妈妈的小座头鲸 (© Biosphoto/Alamy)||![](/zh-CN/2020/08/202008061600WhaleHug.jpg)|
+202008071600|LosOrganos|鸟瞰戈梅拉岛上管风琴形状的玄武岩，西班牙加那利群岛 (© Martin Siepmann/Image BROKER/Offset by Shutterstock)||![](/zh-CN/2020/08/202008071600LosOrganos.jpg)|
