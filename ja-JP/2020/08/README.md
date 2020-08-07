@@ -7,3 +7,4 @@
 202008041500|LavaShip|｢海に流れる溶岩｣ハワイ火山国立公園 (© Patrick Kelley/Getty Images)|ハワイの世界遺産|![](/ja-JP/2020/08/202008041500LavaShip.jpg)|
 202008051500|AtomicDome|｢夕暮れの原爆ドーム｣広島, 広島市 (© clumpner/Getty Images)|原爆投下から75年|![](/ja-JP/2020/08/202008051500AtomicDome.jpg)|
 202008061500|IsolaBella|｢ベッラ島｣イタリア, ピエモンテ州 (© Massimo Ripani/eStock Photo)|湖上に浮かぶイタリアン・バロックの傑作|![](/ja-JP/2020/08/202008061500IsolaBella.jpg)|
+202008071500|CheetahCubs|｢アカシアの木に登るチーターの子どもたち｣タンザニア, ンゴロンゴロ保全地域 (© Paul Souders/Getty Images)|今日は｢世界猫の日｣|![](/ja-JP/2020/08/202008071500CheetahCubs.jpg)|
