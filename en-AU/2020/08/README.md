@@ -7,3 +7,4 @@
 202008041400|OysterFarm|Oyster farm offshore from Notojima Island, Ishikawa Prefecture, Japan (© divedog/Shutterstock)|Aw shucks, It's Oyster Day|![](/en-AU/2020/08/202008041400OysterFarm.jpg)|
 202008051400|Rettungsstation|Former lifeguard station on the island of Rügen, Mecklenburg-Western Pomerania, Germany (© DR pics/Shutterstock)|Space-age style by the sea|![](/en-AU/2020/08/202008051400Rettungsstation.jpg)|
 202008061400|WhaleHug|Young humpback whale giving its mother a hug off the coast of Tonga (© Biosphoto/Alamy)|A whale of a hug|![](/en-AU/2020/08/202008061400WhaleHug.jpg)|
+202008071400|InfinityBridge|Infinity Bridge in Stockton-on-Tees, England (© Robert Smith/Alamy)|It's ∞ Day!|![](/en-AU/2020/08/202008071400InfinityBridge.jpg)|
