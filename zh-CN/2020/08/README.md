@@ -8,3 +8,4 @@
 202008051600|SyltWenningstedt|通往海滩的木板路，德国叙尔特岛 (© Kerstin Bittner/Westend61/Offset by Shutterstock)||![](/zh-CN/2020/08/202008051600SyltWenningstedt.jpg)|
 202008061600|WhaleHug|汤加海岸正要拥抱妈妈的小座头鲸 (© Biosphoto/Alamy)||![](/zh-CN/2020/08/202008061600WhaleHug.jpg)|
 202008071600|LosOrganos|鸟瞰戈梅拉岛上管风琴形状的玄武岩，西班牙加那利群岛 (© Martin Siepmann/Image BROKER/Offset by Shutterstock)||![](/zh-CN/2020/08/202008071600LosOrganos.jpg)|
+202008081600|LassenPeak|森火山国家公园中的拉森峰，加利福尼亚 (© Engel Ching/Shutterstock)||![](/zh-CN/2020/08/202008081600LassenPeak.jpg)|
