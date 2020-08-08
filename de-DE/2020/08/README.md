@@ -8,3 +8,4 @@
 202008052200|Rettungsstation|Ehemalige Seenot-Rettungsstation in Binz auf der Insel Rügen, Mecklenburg-Vorpommern (© DR pics/Shutterstock)|„Ufo“ in den Dünen|![](/de-DE/2020/08/202008052200Rettungsstation.jpg)|
 202008062200|WhaleHug|Buckelwal-Weibchen mit seinem Kalb vor der Küste von Tonga (© Biosphoto/Alamy)|Zärtliche Umarmung|![](/de-DE/2020/08/202008062200WhaleHug.jpg)|
 202008072200|WheatCastilla|Weizenfeld in der Provinz Valladolid, Kastilien und León, Spanien (© Carlos Javier Garc.a Prieto/EyeEm/Getty Images)|Erntezeit|![](/de-DE/2020/08/202008072200WheatCastilla.jpg)|
+202008082200|LassenPeak|Der Lassen Peak im Lassen-Volcanic-Nationalpark, Kalifornien, USA (© Engel Ching/Shutterstock)|Schlafender Riese|![](/de-DE/2020/08/202008082200LassenPeak.jpg)|
