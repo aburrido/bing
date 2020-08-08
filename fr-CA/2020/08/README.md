@@ -7,3 +7,4 @@
 202008050400|OysterFarm|Ferme ostréicole au large de l'île de Notojima, préfecture d'Ishikawa, Japon (© divedog/Shutterstock)||![](/fr-CA/2020/08/202008050400OysterFarm.jpg)|
 202008060400|GoldenEarsForest|Un sentier à travers la forêt dense du parc provincial Golden Ears, en Colombie-Britannique (© SibsUK/Shutterstock)||![](/fr-CA/2020/08/202008060400GoldenEarsForest.jpg)|
 202008070400|WhaleHug|Jeune baleine à bosse donnant un câlin à sa mère au large des Tonga (© Biosphoto/Alamy)||![](/fr-CA/2020/08/202008070400WhaleHug.jpg)|
+202008080400|LosOrganos|(Orgues à tuyaux) vue aérienne de la formation rocheuse de basalte, La Gomera, Îles Canaries, Espagne (© Martin Siepmann/Image BROKER/Offset by Shutterstock)||![](/fr-CA/2020/08/202008080400LosOrganos.jpg)|
