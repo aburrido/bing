@@ -9,3 +9,4 @@
 202008062300|CribynView|Cribyn viewed from Pen y Fan, Brecon Beacons National Park, Powys (© Adam Burton/Alamy Stock Photo)|The view from Pen y Fan|![](/en-GB/2020/08/202008062300CribynView.jpg)|
 202008072300|InfinityBridge|Infinity Bridge in Stockton-on-Tees (© Robert Smith/Alamy)|It's ∞ Day!|![](/en-GB/2020/08/202008072300InfinityBridge.jpg)|
 202008082300|OwlSunflowers|Little owl (Athene noctua) perched on sunflower, Cádiz, Andalusia, Spain (© Andres M. Dominguez/Minden Pictures)|The gaze of wisdom|![](/en-GB/2020/08/202008082300OwlSunflowers.jpg)|
+202008092300|LionDay|Lion cubs hiding in tall grass in the Kalahari Desert, Botswana (© Jami Tarris/Getty Images)|Kings of the Kalahari|![](/en-GB/2020/08/202008092300LionDay.jpg)|
