@@ -9,3 +9,4 @@
 202008061600|WhaleHug|汤加海岸正要拥抱妈妈的小座头鲸 (© Biosphoto/Alamy)||![](/zh-CN/2020/08/202008061600WhaleHug.jpg)|
 202008071600|LosOrganos|鸟瞰戈梅拉岛上管风琴形状的玄武岩，西班牙加那利群岛 (© Martin Siepmann/Image BROKER/Offset by Shutterstock)||![](/zh-CN/2020/08/202008071600LosOrganos.jpg)|
 202008081600|LassenPeak|森火山国家公园中的拉森峰，加利福尼亚 (© Engel Ching/Shutterstock)||![](/zh-CN/2020/08/202008081600LassenPeak.jpg)|
+202008091600|LionDay|藏在高高的草丛中的狮子幼崽，博茨瓦纳卡拉哈里沙漠 (© Jami Tarris/Getty Images)||![](/zh-CN/2020/08/202008091600LionDay.jpg)|
