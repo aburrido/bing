@@ -9,3 +9,4 @@
 202008070400|WhaleHug|Young humpback whale giving its mother a hug off the coast of Tonga (© Biosphoto/Alamy)|A whale of a hug|![](/en-CA/2020/08/202008070400WhaleHug.jpg)|
 202008080400|InfinityBridge|Infinity Bridge in Stockton-on-Tees, England (© Robert Smith/Alamy)|It's ∞ Day!|![](/en-CA/2020/08/202008080400InfinityBridge.jpg)|
 202008090400|LassenPeak|Lassen Peak in Lassen Volcanic National Park, California (© Engel Ching/Shutterstock)|A peek at an explosive peak|![](/en-CA/2020/08/202008090400LassenPeak.jpg)|
+202008100400|LionDay|Lion cubs hiding in tall grass in the Kalahari Desert of Botswana (© Jami Tarris/Getty Images)|Kings of the Kalahari|![](/en-CA/2020/08/202008100400LionDay.jpg)|
