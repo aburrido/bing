@@ -10,3 +10,4 @@
 202008071500|CheetahCubs|｢アカシアの木に登るチーターの子どもたち｣タンザニア, ンゴロンゴロ保全地域 (© Paul Souders/Getty Images)|今日は｢世界猫の日｣|![](/ja-JP/2020/08/202008071500CheetahCubs.jpg)|
 202008081500|Rakan|｢五百羅漢庭園｣広島, 宮島 (© Malcolm Fairman/Alamy)|宮島の五百羅漢庭園|![](/ja-JP/2020/08/202008081500Rakan.jpg)|
 202008091500|YamaNoHi|｢白馬三山と八方池｣長野, 白馬村 (© sayaka kishimoto/Getty Images)|今日は｢山の日｣|![](/ja-JP/2020/08/202008091500YamaNoHi.jpg)|
+202008101500|LionDay|｢ライオンの子ども｣ボツワナ, カラハリ砂漠 (© Jami Tarris/Getty Images)|昨日は｢ライオンの日｣|![](/ja-JP/2020/08/202008101500LionDay.jpg)|
