@@ -11,3 +11,4 @@
 202008080700|InfinityBridge|Infinity Bridge in Stockton-on-Tees, England (© Robert Smith/Alamy)|It's ∞ Day!|![](/en-US/2020/08/202008080700InfinityBridge.jpg)|
 202008090700|LassenPeak|Lassen Peak in Lassen Volcanic National Park, California (© Engel Ching/Shutterstock)|A peek at an explosive peak|![](/en-US/2020/08/202008090700LassenPeak.jpg)|
 202008100700|LionDay|Lion cubs hiding in tall grass in the Kalahari Desert region of Botswana (© Jami Tarris/Getty Images)|Kings of the Kalahari|![](/en-US/2020/08/202008100700LionDay.jpg)|
+202008110700|SeaFireflies|Bioluminescent sea fireflies along the shore of Okayama, Japan (© tdub_video/Getty Images)|Sea fireflies at the seashore|![](/en-US/2020/08/202008110700SeaFireflies.jpg)|
