@@ -11,3 +11,4 @@
 202008082200|LassenPeak|Le pic Lassen dans le parc national volcanique de Lassen, Californie, États-Unis (© Engel Ching/Shutterstock)|Un pic explosif|![](/fr-FR/2020/08/202008082200LassenPeak.jpg)|
 202008092200|LionDay|Des lionceaux se cachant dans les herbes hautes du désert du Kalahari, Botswana (© Jami Tarris/Getty Images)|Les rois du Kalahari|![](/fr-FR/2020/08/202008092200LionDay.jpg)|
 202008102200|SeaFireflies|Libellules bioluminescentes le long des côtes d’Okayama, Japon (© tdub_video/Getty Images)|Mer étoilée|![](/fr-FR/2020/08/202008102200SeaFireflies.jpg)|
+202008112200|TRex|Squelette d’un Tyrannosaure rex (© Corbin17/Alamy)|Le roi des dinosaures|![](/fr-FR/2020/08/202008112200TRex.jpg)|
