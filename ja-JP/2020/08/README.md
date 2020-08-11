@@ -11,3 +11,4 @@
 202008081500|Rakan|｢五百羅漢庭園｣広島, 宮島 (© Malcolm Fairman/Alamy)|宮島の五百羅漢庭園|![](/ja-JP/2020/08/202008081500Rakan.jpg)|
 202008091500|YamaNoHi|｢白馬三山と八方池｣長野, 白馬村 (© sayaka kishimoto/Getty Images)|今日は｢山の日｣|![](/ja-JP/2020/08/202008091500YamaNoHi.jpg)|
 202008101500|LionDay|｢ライオンの子ども｣ボツワナ, カラハリ砂漠 (© Jami Tarris/Getty Images)|昨日は｢ライオンの日｣|![](/ja-JP/2020/08/202008101500LionDay.jpg)|
+202008111500|TRex|｢ティラノサウルスの化石｣ (© Corbin17/Alamy)|ティラノサウルス・スーが発見された日|![](/ja-JP/2020/08/202008111500TRex.jpg)|
