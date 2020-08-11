@@ -11,3 +11,4 @@
 202008082300|OwlSunflowers|Little owl (Athene noctua) perched on sunflower, Cádiz, Andalusia, Spain (© Andres M. Dominguez/Minden Pictures)|The gaze of wisdom|![](/en-GB/2020/08/202008082300OwlSunflowers.jpg)|
 202008092300|LionDay|Lion cubs hiding in tall grass in the Kalahari Desert, Botswana (© Jami Tarris/Getty Images)|Kings of the Kalahari|![](/en-GB/2020/08/202008092300LionDay.jpg)|
 202008102300|SeaFireflies|Bioluminescent sea fireflies along the shore of Okayama, Japan (© tdub_video/Getty Images)|Glow with the flow|![](/en-GB/2020/08/202008102300SeaFireflies.jpg)|
+202008112300|TRex|Fossil of a Tyrannosaurus rex skeleton (© Corbin17/Alamy)|King of the dinosaurs|![](/en-GB/2020/08/202008112300TRex.jpg)|
