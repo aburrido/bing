@@ -11,3 +11,4 @@
 202008090400|LassenPeak|Pic Lassen dans le parc national volcanique de Lassen, Californie (© Engel Ching/Shutterstock)||![](/fr-CA/2020/08/202008090400LassenPeak.jpg)|
 202008100400|LionDay|Lionceaux se cachant dans les hautes herbes dans le désert du Kalahari au Botswana (© Jami Tarris/Getty Images)||![](/fr-CA/2020/08/202008100400LionDay.jpg)|
 202008110400|SeaFireflies|Lucioles de mer bioluminescentes le long du rivage d'Okayama, Japon (© tdub_video/Getty Images)||![](/fr-CA/2020/08/202008110400SeaFireflies.jpg)|
+202008120400|PentictonGrapes|Grappes de raisins violet foncé accrochées à une vigne à Penticton, Colombie-Britannique (© Design Pics/Offset)||![](/fr-CA/2020/08/202008120400PentictonGrapes.jpg)|
