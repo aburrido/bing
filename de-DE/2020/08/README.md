@@ -12,3 +12,4 @@
 202008092200|LionDay|Löwenjunge im hohen Gras der Kalahari in Botswana (© Jami Tarris/Getty Images)|Könige der Kalahari|![](/de-DE/2020/08/202008092200LionDay.jpg)|
 202008102200|SeaFireflies|Biolumineszenz entlang der Küste von Okayama, Japan (© tdub_video/Getty Images)|„Meeres-Glühwürmchen“|![](/de-DE/2020/08/202008102200SeaFireflies.jpg)|
 202008112200|TRex|Fossiles Skelett eines Tyrannosaurus Rex (© Corbin17/Alamy)|Der König der Dinosaurier|![](/de-DE/2020/08/202008112200TRex.jpg)|
+202008122200|SyltWenningstedt|Bohlenweg bei Wenningstedt-Braderup auf Sylt, Schleswig-Holstein (© Kerstin Bittner/Westend61/offset by shutterstock)|Willkommen in Nordfriesland!|![](/de-DE/2020/08/202008122200SyltWenningstedt.jpg)|

@@ -12,3 +12,4 @@
 202008092200|LionDay|Des lionceaux se cachant dans les herbes hautes du désert du Kalahari, Botswana (© Jami Tarris/Getty Images)|Les rois du Kalahari|![](/fr-FR/2020/08/202008092200LionDay.jpg)|
 202008102200|SeaFireflies|Libellules bioluminescentes le long des côtes d’Okayama, Japon (© tdub_video/Getty Images)|Mer étoilée|![](/fr-FR/2020/08/202008102200SeaFireflies.jpg)|
 202008112200|TRex|Squelette d’un Tyrannosaure rex (© Corbin17/Alamy)|Le roi des dinosaures|![](/fr-FR/2020/08/202008112200TRex.jpg)|
+202008122200|PRNLCavern|Grotte dans le Pictured Rocks National Lakeshore sur le lac supérieur, Michigan, États-Unis (© Kenneth Keifer/Getty Images)|Grotte avec vue|![](/fr-FR/2020/08/202008122200PRNLCavern.jpg)|
