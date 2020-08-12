@@ -12,3 +12,4 @@
 202008091600|LionDay|藏在高高的草丛中的狮子幼崽，博茨瓦纳卡拉哈里沙漠 (© Jami Tarris/Getty Images)||![](/zh-CN/2020/08/202008091600LionDay.jpg)|
 202008101600|SeaFireflies|冈山沿岸的发光海洋萤火虫，日本 (© tdub_video/Getty Images)||![](/zh-CN/2020/08/202008101600SeaFireflies.jpg)|
 202008111600|WeaverBird|浦那的黄胸织布鸟鸟巢，马哈拉施特拉邦 (© Samyak Kaninde/Alamy Stock Photo)||![](/zh-CN/2020/08/202008111600WeaverBird.jpg)|
+202008121600|PRNLCavern|彩岩国家湖滨区的岩洞，密歇根 (© Kenneth Keifer/Getty Images)||![](/zh-CN/2020/08/202008121600PRNLCavern.jpg)|
