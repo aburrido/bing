@@ -12,3 +12,4 @@
 202008091500|YamaNoHi|｢白馬三山と八方池｣長野, 白馬村 (© sayaka kishimoto/Getty Images)|今日は｢山の日｣|![](/ja-JP/2020/08/202008091500YamaNoHi.jpg)|
 202008101500|LionDay|｢ライオンの子ども｣ボツワナ, カラハリ砂漠 (© Jami Tarris/Getty Images)|昨日は｢ライオンの日｣|![](/ja-JP/2020/08/202008101500LionDay.jpg)|
 202008111500|TRex|｢ティラノサウルスの化石｣ (© Corbin17/Alamy)|ティラノサウルス・スーが発見された日|![](/ja-JP/2020/08/202008111500TRex.jpg)|
+202008121500|SeaFireflies|｢ウミホタル｣岡山, 瀬戸内海沿岸 (© tdub_video/Getty Images)|瀬戸内海のウミホタル|![](/ja-JP/2020/08/202008121500SeaFireflies.jpg)|
