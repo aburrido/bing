@@ -13,3 +13,4 @@
 202008101500|LionDay|｢ライオンの子ども｣ボツワナ, カラハリ砂漠 (© Jami Tarris/Getty Images)|昨日は｢ライオンの日｣|![](/ja-JP/2020/08/202008101500LionDay.jpg)|
 202008111500|TRex|｢ティラノサウルスの化石｣ (© Corbin17/Alamy)|ティラノサウルス・スーが発見された日|![](/ja-JP/2020/08/202008111500TRex.jpg)|
 202008121500|SeaFireflies|｢ウミホタル｣岡山, 瀬戸内海沿岸 (© tdub_video/Getty Images)|瀬戸内海のウミホタル|![](/ja-JP/2020/08/202008121500SeaFireflies.jpg)|
+202008131500|SurfboardRow|｢並んだサーフボード｣ (© plainpicture/Tony Arruza)|マリンスポーツのシーズンです|![](/ja-JP/2020/08/202008131500SurfboardRow.jpg)|
