@@ -12,3 +12,4 @@
 202008100400|LionDay|Lion cubs hiding in tall grass in the Kalahari Desert of Botswana (© Jami Tarris/Getty Images)|Kings of the Kalahari|![](/en-CA/2020/08/202008100400LionDay.jpg)|
 202008110400|SeaFireflies|Bioluminescent sea fireflies along the shore of Okayama, Japan (© tdub_video/Getty Images)|Sea fireflies at the seashore|![](/en-CA/2020/08/202008110400SeaFireflies.jpg)|
 202008120400|TRex|Fossil skeleton of Tyrannosaurus rex (© Corbin17/Alamy)|King of the dinosaurs|![](/en-CA/2020/08/202008120400TRex.jpg)|
+202008130400|PRNLCavern|Cavern in Pictured Rocks National Lakeshore on Lake Superior, Michigan (© Kenneth Keifer/Getty Images)|At the shore of an inland sea|![](/en-CA/2020/08/202008130400PRNLCavern.jpg)|
