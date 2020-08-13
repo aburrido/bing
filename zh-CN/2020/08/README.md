@@ -13,3 +13,4 @@
 202008101600|SeaFireflies|冈山沿岸的发光海洋萤火虫，日本 (© tdub_video/Getty Images)||![](/zh-CN/2020/08/202008101600SeaFireflies.jpg)|
 202008111600|WeaverBird|浦那的黄胸织布鸟鸟巢，马哈拉施特拉邦 (© Samyak Kaninde/Alamy Stock Photo)||![](/zh-CN/2020/08/202008111600WeaverBird.jpg)|
 202008121600|PRNLCavern|彩岩国家湖滨区的岩洞，密歇根 (© Kenneth Keifer/Getty Images)||![](/zh-CN/2020/08/202008121600PRNLCavern.jpg)|
+202008131600|HuntsMesa|从亨茨梅萨俯瞰纪念碑谷，亚利桑那州与犹他州之间纳瓦霍族保留地 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/08/202008131600HuntsMesa.jpg)|
