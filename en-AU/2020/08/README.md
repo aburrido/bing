@@ -13,3 +13,4 @@
 202008101400|SeaFireflies|Bioluminescent sea fireflies along the shore of Okayama, Japan (© tdub_video/Getty Images)|Sea fireflies at the seashore|![](/en-AU/2020/08/202008101400SeaFireflies.jpg)|
 202008111400|TRex|Fossil skeleton of Tyrannosaurus rex (© Corbin17/Alamy)|King of the dinosaurs|![](/en-AU/2020/08/202008111400TRex.jpg)|
 202008121400|LochArdGorgeDawn|Window arch at Loch Ard Gorge at dawn, Port Campbell National Park, Victoria (© David Noton/Minden Pictures)|History worth diving into|![](/en-AU/2020/08/202008121400LochArdGorgeDawn.jpg)|
+202008131400|WhirlpoolFinland|The whirlpool in Myllykoski scenic area at winter in Oulanka National Park, Kuusamo, Finland (© Lassi Rautiainen/Minden Pictures)|Winter in the Finnish wilds|![](/en-AU/2020/08/202008131400WhirlpoolFinland.jpg)|
