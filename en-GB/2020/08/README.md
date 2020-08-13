@@ -13,3 +13,4 @@
 202008102300|SeaFireflies|Bioluminescent sea fireflies along the shore of Okayama, Japan (© tdub_video/Getty Images)|Glow with the flow|![](/en-GB/2020/08/202008102300SeaFireflies.jpg)|
 202008112300|TRex|Fossil of a Tyrannosaurus rex skeleton (© Corbin17/Alamy)|King of the dinosaurs|![](/en-GB/2020/08/202008112300TRex.jpg)|
 202008122300|PRNLCavern|Cavern in Pictured Rocks National Lakeshore on Lake Superior, Michigan, USA (© Kenneth Keifer/Getty Images)|Picture perfect|![](/en-GB/2020/08/202008122300PRNLCavern.jpg)|
+202008132300|HuntsMesa|Monument Valley Navajo Tribal Park, between Arizona and Utah, USA (© AWL Images/Danita Delimont)|Welcome to Tsé Biiʼ Ndzisgaii|![](/en-GB/2020/08/202008132300HuntsMesa.jpg)|
