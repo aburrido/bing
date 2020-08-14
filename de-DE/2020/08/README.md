@@ -14,3 +14,4 @@
 202008112200|TRex|Fossiles Skelett eines Tyrannosaurus Rex (© Corbin17/Alamy)|Der König der Dinosaurier|![](/de-DE/2020/08/202008112200TRex.jpg)|
 202008122200|SyltWenningstedt|Bohlenweg bei Wenningstedt-Braderup auf Sylt, Schleswig-Holstein (© Kerstin Bittner/Westend61/offset by shutterstock)|Willkommen in Nordfriesland!|![](/de-DE/2020/08/202008122200SyltWenningstedt.jpg)|
 202008132200|HuntsMesa|Blick von Hunts Mesa auf das Monument Valley im Navajo Nation Reservation zwischen Arizona und Utah, USA (© AWL Images/Danita Delimont)|Blick auf das „Tsé Biiʼ Ndzisgaii“|![](/de-DE/2020/08/202008132200HuntsMesa.jpg)|
+202008142200|AcadianDay|Höhlen und Felsformationen bei Ebbe in der Bay of Fundy nahe St. Martins, New Brunswick, Kanada (© Jamie Roach/Shutterstock)|Am „tiefen Fluss“|![](/de-DE/2020/08/202008142200AcadianDay.jpg)|
