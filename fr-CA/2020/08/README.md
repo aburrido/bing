@@ -13,3 +13,4 @@
 202008110400|SeaFireflies|Lucioles de mer bioluminescentes le long du rivage d'Okayama, Japon (© tdub_video/Getty Images)||![](/fr-CA/2020/08/202008110400SeaFireflies.jpg)|
 202008120400|PentictonGrapes|Grappes de raisins violet foncé accrochées à une vigne à Penticton, Colombie-Britannique (© Design Pics/Offset)||![](/fr-CA/2020/08/202008120400PentictonGrapes.jpg)|
 202008130400|PRNLCavern|Caverne à Pictured Rocks National Lakeshore sur le lac Supérieur, Michigan (© Kenneth Keifer/Getty Images)||![](/fr-CA/2020/08/202008130400PRNLCavern.jpg)|
+202008140400|HuntsMesa|Une vue du Monument Valley Navajo Tribal Park de Hunts Mesa, la Nation Navajo entre l'Arizona et l'Utah (© AWL Images/Danita Delimont)||![](/fr-CA/2020/08/202008140400HuntsMesa.jpg)|
