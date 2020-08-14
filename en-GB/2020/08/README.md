@@ -14,3 +14,4 @@
 202008112300|TRex|Fossil of a Tyrannosaurus rex skeleton (© Corbin17/Alamy)|King of the dinosaurs|![](/en-GB/2020/08/202008112300TRex.jpg)|
 202008122300|PRNLCavern|Cavern in Pictured Rocks National Lakeshore on Lake Superior, Michigan, USA (© Kenneth Keifer/Getty Images)|Picture perfect|![](/en-GB/2020/08/202008122300PRNLCavern.jpg)|
 202008132300|HuntsMesa|Monument Valley Navajo Tribal Park, between Arizona and Utah, USA (© AWL Images/Danita Delimont)|Welcome to Tsé Biiʼ Ndzisgaii|![](/en-GB/2020/08/202008132300HuntsMesa.jpg)|
+202008142300|WhaleHug|Young humpback whale giving its mother a hug off the coast of Tonga (© Biosphoto/Alamy)|A whale of a hug|![](/en-GB/2020/08/202008142300WhaleHug.jpg)|
