@@ -14,3 +14,4 @@
 202008111500|TRex|｢ティラノサウルスの化石｣ (© Corbin17/Alamy)|ティラノサウルス・スーが発見された日|![](/ja-JP/2020/08/202008111500TRex.jpg)|
 202008121500|SeaFireflies|｢ウミホタル｣岡山, 瀬戸内海沿岸 (© tdub_video/Getty Images)|瀬戸内海のウミホタル|![](/ja-JP/2020/08/202008121500SeaFireflies.jpg)|
 202008131500|SurfboardRow|｢並んだサーフボード｣ (© plainpicture/Tony Arruza)|マリンスポーツのシーズンです|![](/ja-JP/2020/08/202008131500SurfboardRow.jpg)|
+202008141500|AcadianDay|｢干潮時のファンディ湾｣カナダ, ニューブランズウィック州 (© Jamie Roach/Shutterstock)|今日は｢アカディアの日｣|![](/ja-JP/2020/08/202008141500AcadianDay.jpg)|
