@@ -15,3 +15,4 @@
 202008120700|TRex|Fossil skeleton of a Tyrannosaurus rex (© Corbin17/Alamy)|King of the dinosaurs|![](/en-US/2020/08/202008120700TRex.jpg)|
 202008130700|WWMatera|Matera, Italy (© Marco Ilari/Getty Images)|Life in the slow lane|![](/en-US/2020/08/202008130700WWMatera.jpg)|
 202008140700|HuntsMesa|A view of Monument Valley Navajo Tribal Park from Hunts Mesa, Navajo Nation, between Arizona and Utah (© AWL Images/Danita Delimont)|In the Navajo Nation for Code Talkers Day|![](/en-US/2020/08/202008140700HuntsMesa.jpg)|
+202008150700|AcadianDay|Caves and coastal features at low tide on the Bay of Fundy, near St. Martins, New Brunswick, Canada (© Jamie Roach/Shutterstock)|Celebrating the Acadians|![](/en-US/2020/08/202008150700AcadianDay.jpg)|
