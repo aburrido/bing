@@ -15,3 +15,4 @@
 202008121500|SeaFireflies|｢ウミホタル｣岡山, 瀬戸内海沿岸 (© tdub_video/Getty Images)|瀬戸内海のウミホタル|![](/ja-JP/2020/08/202008121500SeaFireflies.jpg)|
 202008131500|SurfboardRow|｢並んだサーフボード｣ (© plainpicture/Tony Arruza)|マリンスポーツのシーズンです|![](/ja-JP/2020/08/202008131500SurfboardRow.jpg)|
 202008141500|AcadianDay|｢干潮時のファンディ湾｣カナダ, ニューブランズウィック州 (© Jamie Roach/Shutterstock)|今日は｢アカディアの日｣|![](/ja-JP/2020/08/202008141500AcadianDay.jpg)|
+202008151500|BurrowingOwl|｢アナホリフクロウ｣米国カリフォルニア州, デイビス (© Neil Losin/Tandem Stills + Motion)|北米の野鳥|![](/ja-JP/2020/08/202008151500BurrowingOwl.jpg)|
