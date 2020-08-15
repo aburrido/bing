@@ -15,3 +15,4 @@
 202008121830|PRNLCavern|Cavern in Pictured Rocks National Lakeshore on Lake Superior, USA (© Kenneth Keifer/Getty Images)|At the shore of an inland sea|![](/en-IN/2020/08/202008121830PRNLCavern.jpg)|
 202008131830|HuntsMesa|A view of Monument Valley Navajo Tribal Park from Hunts Mesa, Navajo Nation, USA (© AWL Images/Danita Delimont)|A monumental view of 'Tsé Biiʼ Ndzisgaii'|![](/en-IN/2020/08/202008131830HuntsMesa.jpg)|
 202008141830|TricolorSoldiers|Soldiers stand guard in front of a tricolour flag rehearsal (© Adnan Abidi/Reuters)|In celebration of I-Day|![](/en-IN/2020/08/202008141830TricolorSoldiers.jpg)|
+202008151830|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Here’s looking at you|![](/en-IN/2020/08/202008151830BurrowingOwl.jpg)|
