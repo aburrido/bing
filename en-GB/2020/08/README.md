@@ -15,3 +15,4 @@
 202008122300|PRNLCavern|Cavern in Pictured Rocks National Lakeshore on Lake Superior, Michigan, USA (© Kenneth Keifer/Getty Images)|Picture perfect|![](/en-GB/2020/08/202008122300PRNLCavern.jpg)|
 202008132300|HuntsMesa|Monument Valley Navajo Tribal Park, between Arizona and Utah, USA (© AWL Images/Danita Delimont)|Welcome to Tsé Biiʼ Ndzisgaii|![](/en-GB/2020/08/202008132300HuntsMesa.jpg)|
 202008142300|WhaleHug|Young humpback whale giving its mother a hug off the coast of Tonga (© Biosphoto/Alamy)|A whale of a hug|![](/en-GB/2020/08/202008142300WhaleHug.jpg)|
+202008152300|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Owl be seeing you|![](/en-GB/2020/08/202008152300BurrowingOwl.jpg)|
