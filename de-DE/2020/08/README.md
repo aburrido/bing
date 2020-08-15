@@ -15,3 +15,4 @@
 202008122200|SyltWenningstedt|Bohlenweg bei Wenningstedt-Braderup auf Sylt, Schleswig-Holstein (© Kerstin Bittner/Westend61/offset by shutterstock)|Willkommen in Nordfriesland!|![](/de-DE/2020/08/202008122200SyltWenningstedt.jpg)|
 202008132200|HuntsMesa|Blick von Hunts Mesa auf das Monument Valley im Navajo Nation Reservation zwischen Arizona und Utah, USA (© AWL Images/Danita Delimont)|Blick auf das „Tsé Biiʼ Ndzisgaii“|![](/de-DE/2020/08/202008132200HuntsMesa.jpg)|
 202008142200|AcadianDay|Höhlen und Felsformationen bei Ebbe in der Bay of Fundy nahe St. Martins, New Brunswick, Kanada (© Jamie Roach/Shutterstock)|Am „tiefen Fluss“|![](/de-DE/2020/08/202008142200AcadianDay.jpg)|
+202008152200|BurrowingOwl|Ein Kaninchenkauz schaut bei Sonnenuntergang aus seiner Bodenhöhle heraus, Davis, Kalifornien, USA (© Neil Losin/Tandem Stills + Motion)|Augen auf bei der Höhlenwahl!|![](/de-DE/2020/08/202008152200BurrowingOwl.jpg)|
