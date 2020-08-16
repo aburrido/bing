@@ -16,3 +16,4 @@
 202008132200|HuntsMesa|Monument Valley dans le Navajo Tribal Park, Nation Navajo, entre l’Arizona et l’Utah, États-Unis (© AWL Images/Danita Delimont)|Message codé|![](/fr-FR/2020/08/202008132200HuntsMesa.jpg)|
 202008142200|AcadianDay|Caves et falaises à marée basse sur la baie de Fundy, Canada (© Jamie Roach/Shutterstock)|Une longue histoire|![](/fr-FR/2020/08/202008142200AcadianDay.jpg)|
 202008152200|BurrowingOwl|Une chouette des terriers émergeant de sa tanière au coucher du soleil à Davis, Californie, États-Unis (© Neil Losin/Tandem Stills + Motion)|L’art de ne pas faire comme les autres|![](/fr-FR/2020/08/202008152200BurrowingOwl.jpg)|
+202008162200|BorobudurTemple|Temple buddhiste Borobudur au centre de Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|Spiritualité cachée|![](/fr-FR/2020/08/202008162200BorobudurTemple.jpg)|
