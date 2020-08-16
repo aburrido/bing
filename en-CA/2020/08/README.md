@@ -15,3 +15,4 @@
 202008130400|PRNLCavern|Cavern in Pictured Rocks National Lakeshore on Lake Superior, Michigan (© Kenneth Keifer/Getty Images)|At the shore of an inland sea|![](/en-CA/2020/08/202008130400PRNLCavern.jpg)|
 202008140400|HuntsMesa|A view of Monument Valley Navajo Tribal Park from Hunts Mesa, Navajo Nation, between Arizona and Utah (© AWL Images/Danita Delimont)|A monumental view of 'Tsé Biiʼ Ndzisgaii'|![](/en-CA/2020/08/202008140400HuntsMesa.jpg)|
 202008150400|AcadianDay|Caves and coastal features at low tide on the Bay of Fundy, near St. Martins, New Brunswick (© Jamie Roach/Shutterstock)|It's National Acadian Day|![](/en-CA/2020/08/202008150400AcadianDay.jpg)|
+202008160400|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California (© Neil Losin/Tandem Stills + Motion)|Here’s looking at you|![](/en-CA/2020/08/202008160400BurrowingOwl.jpg)|
