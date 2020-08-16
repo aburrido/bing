@@ -16,3 +16,4 @@
 202008131600|HuntsMesa|从亨茨梅萨俯瞰纪念碑谷，亚利桑那州与犹他州之间纳瓦霍族保留地 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/08/202008131600HuntsMesa.jpg)|
 202008141600|AcadianDay|芬迪湾低潮时的洞穴及海岸地貌 ，加拿大新不伦瑞克 (© Jamie Roach/Shutterstock)||![](/zh-CN/2020/08/202008141600AcadianDay.jpg)|
 202008151600|BurrowingOwl|一只成年的穴居猫头鹰在日落时从洞穴中钻出来，加利福尼亚戴维斯 (© Neil Losin/Tandem Stills + Motion)||![](/zh-CN/2020/08/202008151600BurrowingOwl.jpg)|
+202008161600|BorobudurTemple|中爪哇省的婆罗浮屠，印度尼西亚 (© Oleh Slobodeniuk/Getty Images)||![](/zh-CN/2020/08/202008161600BorobudurTemple.jpg)|
