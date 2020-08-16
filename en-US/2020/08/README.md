@@ -16,3 +16,4 @@
 202008130700|WWMatera|Matera, Italy (© Marco Ilari/Getty Images)|Life in the slow lane|![](/en-US/2020/08/202008130700WWMatera.jpg)|
 202008140700|HuntsMesa|A view of Monument Valley Navajo Tribal Park from Hunts Mesa, Navajo Nation, between Arizona and Utah (© AWL Images/Danita Delimont)|In the Navajo Nation for Code Talkers Day|![](/en-US/2020/08/202008140700HuntsMesa.jpg)|
 202008150700|AcadianDay|Caves and coastal features at low tide on the Bay of Fundy, near St. Martins, New Brunswick, Canada (© Jamie Roach/Shutterstock)|Celebrating the Acadians|![](/en-US/2020/08/202008150700AcadianDay.jpg)|
+202008160700|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California (© Neil Losin/Tandem Stills + Motion)|Here's looking at you|![](/en-US/2020/08/202008160700BurrowingOwl.jpg)|
