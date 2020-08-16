@@ -16,3 +16,4 @@
 202008131400|WhirlpoolFinland|The whirlpool in Myllykoski scenic area at winter in Oulanka National Park, Kuusamo, Finland (© Lassi Rautiainen/Minden Pictures)|Winter in the Finnish wilds|![](/en-AU/2020/08/202008131400WhirlpoolFinland.jpg)|
 202008141400|AcadianDay|Caves and coastal features at low tide on the Bay of Fundy, near St. Martins, New Brunswick, Canada (© Jamie Roach/Shutterstock)|A bit of Canadian history|![](/en-AU/2020/08/202008141400AcadianDay.jpg)|
 202008151400|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Here’s looking at you|![](/en-AU/2020/08/202008151400BurrowingOwl.jpg)|
+202008161400|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-AU/2020/08/202008161400BorobudurTemple.jpg)|
