@@ -16,3 +16,4 @@
 202008131500|SurfboardRow|｢並んだサーフボード｣ (© plainpicture/Tony Arruza)|マリンスポーツのシーズンです|![](/ja-JP/2020/08/202008131500SurfboardRow.jpg)|
 202008141500|AcadianDay|｢干潮時のファンディ湾｣カナダ, ニューブランズウィック州 (© Jamie Roach/Shutterstock)|今日は｢アカディアの日｣|![](/ja-JP/2020/08/202008141500AcadianDay.jpg)|
 202008151500|BurrowingOwl|｢アナホリフクロウ｣米国カリフォルニア州, デイビス (© Neil Losin/Tandem Stills + Motion)|北米の野鳥|![](/ja-JP/2020/08/202008151500BurrowingOwl.jpg)|
+202008161500|BorobudurTemple|｢ボロブドゥール遺跡｣インドネシア, ジャワ島 (© Oleh Slobodeniuk/Getty Images)|今日は｢インドネシア独立記念日｣|![](/ja-JP/2020/08/202008161500BorobudurTemple.jpg)|
