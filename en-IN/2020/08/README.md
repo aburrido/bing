@@ -18,3 +18,4 @@
 202008151830|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Here’s looking at you|![](/en-IN/2020/08/202008151830BurrowingOwl.jpg)|
 202008161830|SmilingSun|Sun deity on arch of Parsi Fire-Temple, south Mumbai (© Danny Ye/Shutterstock)|In observance of Parsi New Year|![](/en-IN/2020/08/202008161830SmilingSun.jpg)|
 ||||![](/en-IN/2020/08/.jpg)|
+202008171830|LaGeria|Aerial view of La Geria vineyards, Lanzarote, Canary Islands, Spain (© Orbon Alija/Getty Images)|Volcanic vineyards|![](/en-IN/2020/08/202008171830LaGeria.jpg)|
