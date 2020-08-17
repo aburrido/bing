@@ -18,3 +18,4 @@
 202008151500|BurrowingOwl|｢アナホリフクロウ｣米国カリフォルニア州, デイビス (© Neil Losin/Tandem Stills + Motion)|北米の野鳥|![](/ja-JP/2020/08/202008151500BurrowingOwl.jpg)|
 202008161500|BorobudurTemple|｢ボロブドゥール遺跡｣インドネシア, ジャワ島 (© Oleh Slobodeniuk/Getty Images)|今日は｢インドネシア独立記念日｣|![](/ja-JP/2020/08/202008161500BorobudurTemple.jpg)|
 202008171500|PurpleWeekend|｢モッズバイク｣ (© stocknshares/Getty Images)|明日は｢バイクの日｣|![](/ja-JP/2020/08/202008171500PurpleWeekend.jpg)|
+||||![](/ja-JP/2020/08/.jpg)|
