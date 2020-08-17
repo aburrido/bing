@@ -18,3 +18,4 @@
 202008152200|BurrowingOwl|Une chouette des terriers émergeant de sa tanière au coucher du soleil à Davis, Californie, États-Unis (© Neil Losin/Tandem Stills + Motion)|L’art de ne pas faire comme les autres|![](/fr-FR/2020/08/202008152200BurrowingOwl.jpg)|
 202008162200|BorobudurTemple|Temple buddhiste Borobudur au centre de Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|Spiritualité cachée|![](/fr-FR/2020/08/202008162200BorobudurTemple.jpg)|
 ||||![](/fr-FR/2020/08/.jpg)|
+202008172200|CorsicaFort|Vue aérienne de l’archipel des Sanguinaires, Corse, France. (© sam74100/Getty Images Plus)|Pour rêver et être seul|![](/fr-FR/2020/08/202008172200CorsicaFort.jpg)|
