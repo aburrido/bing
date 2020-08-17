@@ -17,3 +17,4 @@
 202008142300|WhaleHug|Young humpback whale giving its mother a hug off the coast of Tonga (© Biosphoto/Alamy)|A whale of a hug|![](/en-GB/2020/08/202008142300WhaleHug.jpg)|
 202008152300|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Owl be seeing you|![](/en-GB/2020/08/202008152300BurrowingOwl.jpg)|
 202008162300|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|Borobudur revealed|![](/en-GB/2020/08/202008162300BorobudurTemple.jpg)|
+202008172300|LulworthDusk|Panoramic view of Lulworth Cove at sunset, Dorset (© Adrian Baker/Shutterstock)|Carving the cove|![](/en-GB/2020/08/202008172300LulworthDusk.jpg)|
