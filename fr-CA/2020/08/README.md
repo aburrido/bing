@@ -16,3 +16,4 @@
 202008140400|HuntsMesa|Une vue du Monument Valley Navajo Tribal Park de Hunts Mesa, la Nation Navajo entre l'Arizona et l'Utah (© AWL Images/Danita Delimont)||![](/fr-CA/2020/08/202008140400HuntsMesa.jpg)|
 202008150400|AcadianDay|Grottes et caractéristiques côtières à marée basse dans la baie de Fundy, près de Saint Martins, Nouveau-Brunswick (© Jamie Roach/Shutterstock)||![](/fr-CA/2020/08/202008150400AcadianDay.jpg)|
 202008160400|BurrowingOwl|Un adulte chevêche des terriers émerge de son terrier au coucher du soleil à Davis, Californie (© Neil Losin/Tandem Stills + Motion)||![](/fr-CA/2020/08/202008160400BurrowingOwl.jpg)|
+202008170400|BorobudurTemple|Borobudur dans le centre de Java, Indonésie (© Oleh Slobodeniuk/Getty Images)||![](/fr-CA/2020/08/202008170400BorobudurTemple.jpg)|
