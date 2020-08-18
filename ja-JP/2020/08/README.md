@@ -19,3 +19,4 @@
 202008161500|BorobudurTemple|｢ボロブドゥール遺跡｣インドネシア, ジャワ島 (© Oleh Slobodeniuk/Getty Images)|今日は｢インドネシア独立記念日｣|![](/ja-JP/2020/08/202008161500BorobudurTemple.jpg)|
 202008171500|PurpleWeekend|｢モッズバイク｣ (© stocknshares/Getty Images)|明日は｢バイクの日｣|![](/ja-JP/2020/08/202008171500PurpleWeekend.jpg)|
 ||||![](/ja-JP/2020/08/.jpg)|
+202008181500|PhotographyEmperor|｢カメラを覗き込むコウテイペンギン｣ (© Mint Images Limited/Alamy)|今日は｢世界写真の日｣|![](/ja-JP/2020/08/202008181500PhotographyEmperor.jpg)|
