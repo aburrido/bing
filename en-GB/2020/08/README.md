@@ -18,3 +18,4 @@
 202008152300|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Owl be seeing you|![](/en-GB/2020/08/202008152300BurrowingOwl.jpg)|
 202008162300|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|Borobudur revealed|![](/en-GB/2020/08/202008162300BorobudurTemple.jpg)|
 202008172300|LulworthDusk|Panoramic view of Lulworth Cove at sunset, Dorset (© Adrian Baker/Shutterstock)|Carving the cove|![](/en-GB/2020/08/202008172300LulworthDusk.jpg)|
+202008182300|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-GB/2020/08/202008182300PhotographyEmperor.jpg)|
