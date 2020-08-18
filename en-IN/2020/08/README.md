@@ -19,3 +19,4 @@
 202008161830|SmilingSun|Sun deity on arch of Parsi Fire-Temple, south Mumbai (© Danny Ye/Shutterstock)|In observance of Parsi New Year|![](/en-IN/2020/08/202008161830SmilingSun.jpg)|
 ||||![](/en-IN/2020/08/.jpg)|
 202008171830|LaGeria|Aerial view of La Geria vineyards, Lanzarote, Canary Islands, Spain (© Orbon Alija/Getty Images)|Volcanic vineyards|![](/en-IN/2020/08/202008171830LaGeria.jpg)|
+202008181830|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-IN/2020/08/202008181830PhotographyEmperor.jpg)|
