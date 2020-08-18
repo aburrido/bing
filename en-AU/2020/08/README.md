@@ -18,3 +18,4 @@
 202008151400|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California, USA (© Neil Losin/Tandem Stills + Motion)|Here’s looking at you|![](/en-AU/2020/08/202008151400BurrowingOwl.jpg)|
 202008161400|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-AU/2020/08/202008161400BorobudurTemple.jpg)|
 202008171400|EnlightenQuestacon|Enlighten Canberra Festival 2012 at Questacon - National Science and Technology Centre, ACT (© Photoholgic/shutterstock)|It’s National Science Week!|![](/en-AU/2020/08/202008171400EnlightenQuestacon.jpg)|
+202008181400|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-AU/2020/08/202008181400PhotographyEmperor.jpg)|
