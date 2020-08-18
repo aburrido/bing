@@ -17,3 +17,4 @@
 202008150400|AcadianDay|Grottes et caractéristiques côtières à marée basse dans la baie de Fundy, près de Saint Martins, Nouveau-Brunswick (© Jamie Roach/Shutterstock)||![](/fr-CA/2020/08/202008150400AcadianDay.jpg)|
 202008160400|BurrowingOwl|Un adulte chevêche des terriers émerge de son terrier au coucher du soleil à Davis, Californie (© Neil Losin/Tandem Stills + Motion)||![](/fr-CA/2020/08/202008160400BurrowingOwl.jpg)|
 202008170400|BorobudurTemple|Borobudur dans le centre de Java, Indonésie (© Oleh Slobodeniuk/Getty Images)||![](/fr-CA/2020/08/202008170400BorobudurTemple.jpg)|
+202008180400|SummersidePEI|Le secteur riverain de Summerside à l'Île-du-Prince-Édouard (© Vadim.Petrov/Shutterstock)||![](/fr-CA/2020/08/202008180400SummersidePEI.jpg)|
