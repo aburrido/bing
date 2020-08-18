@@ -18,3 +18,4 @@
 202008151600|BurrowingOwl|一只成年的穴居猫头鹰在日落时从洞穴中钻出来，加利福尼亚戴维斯 (© Neil Losin/Tandem Stills + Motion)||![](/zh-CN/2020/08/202008151600BurrowingOwl.jpg)|
 202008161600|BorobudurTemple|中爪哇省的婆罗浮屠，印度尼西亚 (© Oleh Slobodeniuk/Getty Images)||![](/zh-CN/2020/08/202008161600BorobudurTemple.jpg)|
 202008171600|LaGeria|鸟瞰兰萨罗特岛的La Geria葡萄园，西班牙加那利群岛 (© Orbon Alija/Getty Images)||![](/zh-CN/2020/08/202008171600LaGeria.jpg)|
+202008181600|PhotographyEmperor|一群好奇的帝企鹅 (© Mint Images Limited/Alamy)||![](/zh-CN/2020/08/202008181600PhotographyEmperor.jpg)|
