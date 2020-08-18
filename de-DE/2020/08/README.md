@@ -18,3 +18,4 @@
 202008152200|BurrowingOwl|Ein Kaninchenkauz schaut bei Sonnenuntergang aus seiner Bodenhöhle heraus, Davis, Kalifornien, USA (© Neil Losin/Tandem Stills + Motion)|Augen auf bei der Höhlenwahl!|![](/de-DE/2020/08/202008152200BurrowingOwl.jpg)|
 202008162200|BorobudurTemple|Borobudur in der Provinz Jawa Tengah, Indonesien (© Oleh Slobodeniuk/Getty Images)|Ein gigantisches Relikt auf Java|![](/de-DE/2020/08/202008162200BorobudurTemple.jpg)|
 202008172200|Schrecksee|Der Schrecksee in den Allgäuer Alpen in Bayern (© wingmar/E+/Getty Images)|Allgäuer Alpenpanorama|![](/de-DE/2020/08/202008172200Schrecksee.jpg)|
+202008182200|PhotographyEmperor|Eine Gruppe von neugierigen Kaiserpinguinen (© Mint Images Limited/Alamy)|Wer drückt hier den Auslöser?|![](/de-DE/2020/08/202008182200PhotographyEmperor.jpg)|

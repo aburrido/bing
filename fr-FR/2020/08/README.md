@@ -19,3 +19,4 @@
 202008162200|BorobudurTemple|Temple buddhiste Borobudur au centre de Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|Spiritualité cachée|![](/fr-FR/2020/08/202008162200BorobudurTemple.jpg)|
 ||||![](/fr-FR/2020/08/.jpg)|
 202008172200|CorsicaFort|Vue aérienne de l’archipel des Sanguinaires, Corse, France. (© sam74100/Getty Images Plus)|Pour rêver et être seul|![](/fr-FR/2020/08/202008172200CorsicaFort.jpg)|
+202008182200|PhotographyEmperor|Un groupe de manchots Empereur curieux (© Mint Images Limited/Alamy)|Le parfait cliché|![](/fr-FR/2020/08/202008182200PhotographyEmperor.jpg)|
