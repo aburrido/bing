@@ -18,3 +18,4 @@
 202008150700|AcadianDay|Caves and coastal features at low tide on the Bay of Fundy, near St. Martins, New Brunswick, Canada (© Jamie Roach/Shutterstock)|Celebrating the Acadians|![](/en-US/2020/08/202008150700AcadianDay.jpg)|
 202008160700|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California (© Neil Losin/Tandem Stills + Motion)|Here's looking at you|![](/en-US/2020/08/202008160700BurrowingOwl.jpg)|
 202008170700|BorobudurTemple|Borobudur in central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-US/2020/08/202008170700BorobudurTemple.jpg)|
+202008180700|TennesseeWoman|Tennessee Woman Suffrage Monument in Centennial Park, Nashville, Tennessee (© jejim120/Alamy)|Women's suffrage at 100|![](/en-US/2020/08/202008180700TennesseeWoman.jpg)|
