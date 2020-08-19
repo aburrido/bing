@@ -19,3 +19,4 @@
 202008162200|BorobudurTemple|Borobudur in der Provinz Jawa Tengah, Indonesien (© Oleh Slobodeniuk/Getty Images)|Ein gigantisches Relikt auf Java|![](/de-DE/2020/08/202008162200BorobudurTemple.jpg)|
 202008172200|Schrecksee|Der Schrecksee in den Allgäuer Alpen in Bayern (© wingmar/E+/Getty Images)|Allgäuer Alpenpanorama|![](/de-DE/2020/08/202008172200Schrecksee.jpg)|
 202008182200|PhotographyEmperor|Eine Gruppe von neugierigen Kaiserpinguinen (© Mint Images Limited/Alamy)|Wer drückt hier den Auslöser?|![](/de-DE/2020/08/202008182200PhotographyEmperor.jpg)|
+202008192200|IcelandHighlands|Isländisches Hochland (© Kevin Krautgartner/Offset by Shutterstock)|Unterwegs im Hochland|![](/de-DE/2020/08/202008192200IcelandHighlands.jpg)|
