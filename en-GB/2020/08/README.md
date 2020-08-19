@@ -19,3 +19,4 @@
 202008162300|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|Borobudur revealed|![](/en-GB/2020/08/202008162300BorobudurTemple.jpg)|
 202008172300|LulworthDusk|Panoramic view of Lulworth Cove at sunset, Dorset (© Adrian Baker/Shutterstock)|Carving the cove|![](/en-GB/2020/08/202008172300LulworthDusk.jpg)|
 202008182300|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-GB/2020/08/202008182300PhotographyEmperor.jpg)|
+202008192300|IcelandHighlands|A winding road by a glacial river in the Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands (of Iceland)|![](/en-GB/2020/08/202008192300IcelandHighlands.jpg)|
