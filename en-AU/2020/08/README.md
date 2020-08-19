@@ -19,3 +19,4 @@
 202008161400|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-AU/2020/08/202008161400BorobudurTemple.jpg)|
 202008171400|EnlightenQuestacon|Enlighten Canberra Festival 2012 at Questacon - National Science and Technology Centre, ACT (© Photoholgic/shutterstock)|It’s National Science Week!|![](/en-AU/2020/08/202008171400EnlightenQuestacon.jpg)|
 202008181400|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-AU/2020/08/202008181400PhotographyEmperor.jpg)|
+202008191400|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-AU/2020/08/202008191400IcelandHighlands.jpg)|
