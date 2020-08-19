@@ -20,3 +20,4 @@
 202008171500|PurpleWeekend|｢モッズバイク｣ (© stocknshares/Getty Images)|明日は｢バイクの日｣|![](/ja-JP/2020/08/202008171500PurpleWeekend.jpg)|
 ||||![](/ja-JP/2020/08/.jpg)|
 202008181500|PhotographyEmperor|｢カメラを覗き込むコウテイペンギン｣ (© Mint Images Limited/Alamy)|今日は｢世界写真の日｣|![](/ja-JP/2020/08/202008181500PhotographyEmperor.jpg)|
+202008191500|PRNLCavern|｢ピクチャードロックス国立湖岸｣米国ミシガン州, スペリオル湖 (© Kenneth Keifer/Getty Images)|米国の国立湖岸|![](/ja-JP/2020/08/202008191500PRNLCavern.jpg)|
