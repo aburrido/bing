@@ -18,3 +18,4 @@
 202008160400|BurrowingOwl|An adult burrowing owl emerges from its burrow at sunset in Davis, California (© Neil Losin/Tandem Stills + Motion)|Here’s looking at you|![](/en-CA/2020/08/202008160400BurrowingOwl.jpg)|
 202008170400|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-CA/2020/08/202008170400BorobudurTemple.jpg)|
 202008180400|SummersidePEI|Summerside waterfront in P.E.I. (© Vadim.Petrov/Shutterstock)|City by the sea|![](/en-CA/2020/08/202008180400SummersidePEI.jpg)|
+202008190400|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-CA/2020/08/202008190400PhotographyEmperor.jpg)|
