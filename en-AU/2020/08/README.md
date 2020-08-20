@@ -20,3 +20,4 @@
 202008171400|EnlightenQuestacon|Enlighten Canberra Festival 2012 at Questacon - National Science and Technology Centre, ACT (© Photoholgic/shutterstock)|It’s National Science Week!|![](/en-AU/2020/08/202008171400EnlightenQuestacon.jpg)|
 202008181400|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-AU/2020/08/202008181400PhotographyEmperor.jpg)|
 202008191400|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-AU/2020/08/202008191400IcelandHighlands.jpg)|
+202008201400|MulticolorBuoys|Multicoloured lobster buoys, Acadia National Park, Maine, USA (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-AU/2020/08/202008201400MulticolorBuoys.jpg)|
