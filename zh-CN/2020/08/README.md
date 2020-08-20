@@ -20,3 +20,4 @@
 202008171600|LaGeria|鸟瞰兰萨罗特岛的La Geria葡萄园，西班牙加那利群岛 (© Orbon Alija/Getty Images)||![](/zh-CN/2020/08/202008171600LaGeria.jpg)|
 202008181600|PhotographyEmperor|一群好奇的帝企鹅 (© Mint Images Limited/Alamy)||![](/zh-CN/2020/08/202008181600PhotographyEmperor.jpg)|
 202008191600|IcelandHighlands|冰岛高地 (© Kevin Krautgartner/Offset by Shutterstock)||![](/zh-CN/2020/08/202008191600IcelandHighlands.jpg)|
+202008201600|Schrecksee|巴伐利亚州Schrecksee湖的全景图，德国 (© wingmar/E+/Getty Images)||![](/zh-CN/2020/08/202008201600Schrecksee.jpg)|
