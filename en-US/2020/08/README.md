@@ -20,3 +20,4 @@
 202008170700|BorobudurTemple|Borobudur in central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-US/2020/08/202008170700BorobudurTemple.jpg)|
 202008180700|TennesseeWoman|Tennessee Woman Suffrage Monument in Centennial Park, Nashville, Tennessee (© jejim120/Alamy)|Women's suffrage at 100|![](/en-US/2020/08/202008180700TennesseeWoman.jpg)|
 202008190700|PhotographyEmperor|A group of curious emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-US/2020/08/202008190700PhotographyEmperor.jpg)|
+202008200700|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-US/2020/08/202008200700IcelandHighlands.jpg)|
