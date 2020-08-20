@@ -19,3 +19,4 @@
 202008170400|BorobudurTemple|Borobudur in Central Java, Indonesia (© Oleh Slobodeniuk/Getty Images)|A giant relic in Java|![](/en-CA/2020/08/202008170400BorobudurTemple.jpg)|
 202008180400|SummersidePEI|Summerside waterfront in P.E.I. (© Vadim.Petrov/Shutterstock)|City by the sea|![](/en-CA/2020/08/202008180400SummersidePEI.jpg)|
 202008190400|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-CA/2020/08/202008190400PhotographyEmperor.jpg)|
+202008200400|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-CA/2020/08/202008200400IcelandHighlands.jpg)|
