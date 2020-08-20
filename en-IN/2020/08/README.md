@@ -21,3 +21,4 @@
 202008171830|LaGeria|Aerial view of La Geria vineyards, Lanzarote, Canary Islands, Spain (© Orbon Alija/Getty Images)|Volcanic vineyards|![](/en-IN/2020/08/202008171830LaGeria.jpg)|
 202008181830|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-IN/2020/08/202008181830PhotographyEmperor.jpg)|
 202008191830|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-IN/2020/08/202008191830IcelandHighlands.jpg)|
+202008201830|MulticolorBuoys|Multicoloured lobster buoys, Acadia National Park, Maine, USA (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-IN/2020/08/202008201830MulticolorBuoys.jpg)|
