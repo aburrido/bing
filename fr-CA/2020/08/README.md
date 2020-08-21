@@ -20,3 +20,4 @@
 202008180400|SummersidePEI|Le secteur riverain de Summerside à l'Île-du-Prince-Édouard (© Vadim.Petrov/Shutterstock)||![](/fr-CA/2020/08/202008180400SummersidePEI.jpg)|
 202008190400|PhotographyEmperor|Un groupe de manchots empereurs curieux (© Mint Images Limited/Alamy)||![](/fr-CA/2020/08/202008190400PhotographyEmperor.jpg)|
 202008200400|IcelandHighlands|Les hautes terres d'Islande (© Kevin Krautgartner/Offset by Shutterstock)||![](/fr-CA/2020/08/202008200400IcelandHighlands.jpg)|
+202008210400|BowenSunset|Coucher du soleil sur l'île Bowen, en Colombie-Britannique (© Jason Wilde/Tandem Stills + Motion)||![](/fr-CA/2020/08/202008210400BowenSunset.jpg)|

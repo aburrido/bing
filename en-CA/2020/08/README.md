@@ -20,3 +20,4 @@
 202008180400|SummersidePEI|Summerside waterfront in P.E.I. (© Vadim.Petrov/Shutterstock)|City by the sea|![](/en-CA/2020/08/202008180400SummersidePEI.jpg)|
 202008190400|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-CA/2020/08/202008190400PhotographyEmperor.jpg)|
 202008200400|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-CA/2020/08/202008200400IcelandHighlands.jpg)|
+202008210400|MulticolorBuoys|Multicoloured lobster buoys, Acadia National Park, Maine (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-CA/2020/08/202008210400MulticolorBuoys.jpg)|
