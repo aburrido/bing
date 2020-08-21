@@ -21,3 +21,4 @@
 202008182300|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-GB/2020/08/202008182300PhotographyEmperor.jpg)|
 202008192300|IcelandHighlands|A winding road by a glacial river in the Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands (of Iceland)|![](/en-GB/2020/08/202008192300IcelandHighlands.jpg)|
 202008202300|SouthStack|South Stack Lighthouse and coastal wildflowers at sunset, Anglesey (© Alan Novelli/Alamy Stock Photo)|Sunset at South Stack|![](/en-GB/2020/08/202008202300SouthStack.jpg)|
+202008212300|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monstrous tale|![](/en-GB/2020/08/202008212300UrquhartCastle.jpg)|
