@@ -22,3 +22,4 @@
 202008181830|PhotographyEmperor|A group of curious Emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-IN/2020/08/202008181830PhotographyEmperor.jpg)|
 202008191830|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-IN/2020/08/202008191830IcelandHighlands.jpg)|
 202008201830|MulticolorBuoys|Multicoloured lobster buoys, Acadia National Park, Maine, USA (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-IN/2020/08/202008201830MulticolorBuoys.jpg)|
+202008211830|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monster view in Scotland|![](/en-IN/2020/08/202008211830UrquhartCastle.jpg)|
