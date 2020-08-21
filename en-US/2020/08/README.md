@@ -21,3 +21,4 @@
 202008180700|TennesseeWoman|Tennessee Woman Suffrage Monument in Centennial Park, Nashville, Tennessee (© jejim120/Alamy)|Women's suffrage at 100|![](/en-US/2020/08/202008180700TennesseeWoman.jpg)|
 202008190700|PhotographyEmperor|A group of curious emperor penguins in Antarctica (© Mint Images Limited/Alamy)|Freeze frame|![](/en-US/2020/08/202008190700PhotographyEmperor.jpg)|
 202008200700|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-US/2020/08/202008200700IcelandHighlands.jpg)|
+202008210700|MulticolorBuoys|Multicolored lobster buoys, Acadia National Park, Maine (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-US/2020/08/202008210700MulticolorBuoys.jpg)|
