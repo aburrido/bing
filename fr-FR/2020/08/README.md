@@ -22,3 +22,4 @@
 202008182200|PhotographyEmperor|Un groupe de manchots Empereur curieux (© Mint Images Limited/Alamy)|Le parfait cliché|![](/fr-FR/2020/08/202008182200PhotographyEmperor.jpg)|
 202008192200|IcelandHighlands|Les Hautes Terres d’Islande (© Kevin Krautgartner/Offset by Shutterstock)|Seulement en été|![](/fr-FR/2020/08/202008192200IcelandHighlands.jpg)|
 202008202200|AboveAll|Les toits de Moustiers-Sainte-Marie, Alpes-de-Haute-Provence, France (© Neirfy/Shutterstock)|Douceur provençale|![](/fr-FR/2020/08/202008202200AboveAll.jpg)|
+202008212200|UrquhartCastle|Château d’Urquhart et le Loch Ness dans les Hautes Terres d’Écosse (© AWL Images/Danita Delimont)|Se méfier de l’eau qui dort|![](/fr-FR/2020/08/202008212200UrquhartCastle.jpg)|
