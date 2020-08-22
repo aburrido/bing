@@ -22,3 +22,4 @@
 202008192300|IcelandHighlands|A winding road by a glacial river in the Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands (of Iceland)|![](/en-GB/2020/08/202008192300IcelandHighlands.jpg)|
 202008202300|SouthStack|South Stack Lighthouse and coastal wildflowers at sunset, Anglesey (© Alan Novelli/Alamy Stock Photo)|Sunset at South Stack|![](/en-GB/2020/08/202008202300SouthStack.jpg)|
 202008212300|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monstrous tale|![](/en-GB/2020/08/202008212300UrquhartCastle.jpg)|
+202008222300|AugustStargazing|Stars reflecting in Totensee, a mountain lake at Grimsel Pass, Kanton Bern, Switzerland (© magodevita/Getty Images)|Reflections of the night sky|![](/en-GB/2020/08/202008222300AugustStargazing.jpg)|
