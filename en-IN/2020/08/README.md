@@ -23,3 +23,4 @@
 202008191830|IcelandHighlands|The Highlands of Iceland (© Kevin Krautgartner/Offset by Shutterstock)|Up in the Highlands|![](/en-IN/2020/08/202008191830IcelandHighlands.jpg)|
 202008201830|MulticolorBuoys|Multicoloured lobster buoys, Acadia National Park, Maine, USA (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-IN/2020/08/202008201830MulticolorBuoys.jpg)|
 202008211830|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monster view in Scotland|![](/en-IN/2020/08/202008211830UrquhartCastle.jpg)|
+202008221830|AugustStargazing|Stars reflecting in Totensee, a mountain lake at Grimsel Pass, Kanton Bern, Switzerland (© magodevita/Getty Images)|Reflections of the night sky|![](/en-IN/2020/08/202008221830AugustStargazing.jpg)|
