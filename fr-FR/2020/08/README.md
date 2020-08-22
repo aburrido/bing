@@ -23,3 +23,4 @@
 202008192200|IcelandHighlands|Les Hautes Terres d’Islande (© Kevin Krautgartner/Offset by Shutterstock)|Seulement en été|![](/fr-FR/2020/08/202008192200IcelandHighlands.jpg)|
 202008202200|AboveAll|Les toits de Moustiers-Sainte-Marie, Alpes-de-Haute-Provence, France (© Neirfy/Shutterstock)|Douceur provençale|![](/fr-FR/2020/08/202008202200AboveAll.jpg)|
 202008212200|UrquhartCastle|Château d’Urquhart et le Loch Ness dans les Hautes Terres d’Écosse (© AWL Images/Danita Delimont)|Se méfier de l’eau qui dort|![](/fr-FR/2020/08/202008212200UrquhartCastle.jpg)|
+202008222200|AugustStargazing|Reflet d’étoiles sur le lac Totensee dans le col du Grimsel, canton de Berne, Suisse (© magodevita/Getty Images)|Quand il pleut des étoiles|![](/fr-FR/2020/08/202008222200AugustStargazing.jpg)|

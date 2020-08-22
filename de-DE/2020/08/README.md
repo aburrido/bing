@@ -22,3 +22,4 @@
 202008192200|IcelandHighlands|Isländisches Hochland (© Kevin Krautgartner/Offset by Shutterstock)|Unterwegs im Hochland|![](/de-DE/2020/08/202008192200IcelandHighlands.jpg)|
 202008202200|LaGeria|Luftbild des Weinbaugebiets von La Geria, Lanzarote, Kanarische Inseln, Spanien (© Orbon Alija/Getty Images)|Hier wächst ein besonderer Tropfen|![](/de-DE/2020/08/202008202200LaGeria.jpg)|
 202008212200|UrquhartCastle|Urquhart Castle und Loch Ness im schottischen Hochland (© AWL Images/Danita Delimont)|Schottlands berühmtester See|![](/de-DE/2020/08/202008212200UrquhartCastle.jpg)|
+202008222200|AugustStargazing|Die Sterne spiegeln sich im Totensee am Grimselpass, Schweiz (© magodevita/Getty Images)|Spiegelung des Nachthimmels|![](/de-DE/2020/08/202008222200AugustStargazing.jpg)|
