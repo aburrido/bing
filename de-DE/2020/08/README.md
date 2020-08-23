@@ -23,3 +23,4 @@
 202008202200|LaGeria|Luftbild des Weinbaugebiets von La Geria, Lanzarote, Kanarische Inseln, Spanien (© Orbon Alija/Getty Images)|Hier wächst ein besonderer Tropfen|![](/de-DE/2020/08/202008202200LaGeria.jpg)|
 202008212200|UrquhartCastle|Urquhart Castle und Loch Ness im schottischen Hochland (© AWL Images/Danita Delimont)|Schottlands berühmtester See|![](/de-DE/2020/08/202008212200UrquhartCastle.jpg)|
 202008222200|AugustStargazing|Die Sterne spiegeln sich im Totensee am Grimselpass, Schweiz (© magodevita/Getty Images)|Spiegelung des Nachthimmels|![](/de-DE/2020/08/202008222200AugustStargazing.jpg)|
+202008232200|SequoiaSunlight|Riesenmammutbäume im Sequoia-Nationalpark und Kings-Canyon-Nationalpark, Kalifornien, USA (© lucky-photographer/Getty Images)|Der Blick geht nach oben|![](/de-DE/2020/08/202008232200SequoiaSunlight.jpg)|
