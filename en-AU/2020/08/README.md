@@ -23,3 +23,4 @@
 202008201400|MulticolorBuoys|Multicoloured lobster buoys, Acadia National Park, Maine, USA (© Cheri Alguire/Shutterstock)|Lobster tales|![](/en-AU/2020/08/202008201400MulticolorBuoys.jpg)|
 202008211400|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monster view in Scotland|![](/en-AU/2020/08/202008211400UrquhartCastle.jpg)|
 202008221400|AugustStargazing|Stars reflecting in Totensee, a mountain lake at Grimsel Pass, Kanton Bern, Switzerland (© magodevita/Getty Images)|Reflections of the night sky|![](/en-AU/2020/08/202008221400AugustStargazing.jpg)|
+202008231400|CrystalRiver|The Caño Cristales river in the Serranía de la Macarena mountains of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|Go with the rainbow flow|![](/en-AU/2020/08/202008231400CrystalRiver.jpg)|
