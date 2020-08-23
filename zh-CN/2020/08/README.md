@@ -23,3 +23,4 @@
 202008201600|Schrecksee|巴伐利亚州Schrecksee湖的全景图，德国 (© wingmar/E+/Getty Images)||![](/zh-CN/2020/08/202008201600Schrecksee.jpg)|
 202008211600|UrquhartCastle|苏格兰高地上的厄克特城堡和内斯湖 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/08/202008211600UrquhartCastle.jpg)|
 202008221600|AugustStargazing|格里姆瑟尔山口Totesee山地湖中倒映出的星星，瑞士伯尔尼 (© magodevita/Getty Images)||![](/zh-CN/2020/08/202008221600AugustStargazing.jpg)|
+202008231600|CrystalRiver|马卡雷纳山脉中的卡诺克里斯塔尔斯河，哥伦比亚 (© Jorge Iván Vásquez Cuartas/Getty Images)||![](/zh-CN/2020/08/202008231600CrystalRiver.jpg)|
