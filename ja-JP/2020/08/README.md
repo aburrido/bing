@@ -24,3 +24,4 @@
 202008201500|ShiratoShizuoka|｢白糸の滝｣静岡, 富士宮市 (© SHOSEI/Aflo)|今日は｢静岡県民の日｣|![](/ja-JP/2020/08/202008201500ShiratoShizuoka.jpg)|
 202008211500|UrquhartCastle|｢アーカート城とネス湖｣イギリス, スコットランド (© AWL Images/Danita Delimont)|ネッシーが初めて目撃された日!?|![](/ja-JP/2020/08/202008211500UrquhartCastle.jpg)|
 202008221500|MaldivesDragonfly|｢トンボの翅｣ (© Azwar Thaufeeq/500px/Getty Images)|今日は｢処暑｣|![](/ja-JP/2020/08/202008221500MaldivesDragonfly.jpg)|
+202008231500|AugustStargazing|｢銀河を映すトーテ湖｣ スイス, グリムゼル峠 (© magodevita/Getty Images)|アルプスの夏の銀河|![](/ja-JP/2020/08/202008231500AugustStargazing.jpg)|
