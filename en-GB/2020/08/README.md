@@ -24,3 +24,4 @@
 202008212300|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monstrous tale|![](/en-GB/2020/08/202008212300UrquhartCastle.jpg)|
 202008222300|AugustStargazing|Stars reflecting in Totensee, a mountain lake at Grimsel Pass, Kanton Bern, Switzerland (© magodevita/Getty Images)|Reflections of the night sky|![](/en-GB/2020/08/202008222300AugustStargazing.jpg)|
 202008232300|CrystalRiver|The Caño Cristales river in the Serranía de la Macarena mountains of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|A river of many hues|![](/en-GB/2020/08/202008232300CrystalRiver.jpg)|
+202008242300|ZionBirthday|Zion National Park, Utah, USA (© pabradyphoto/Getty Images)|Rocky heights|![](/en-GB/2020/08/202008242300ZionBirthday.jpg)|
