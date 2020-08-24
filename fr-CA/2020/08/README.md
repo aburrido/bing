@@ -23,3 +23,4 @@
 202008210400|BowenSunset|Coucher du soleil sur l'île Bowen, en Colombie-Britannique (© Jason Wilde/Tandem Stills + Motion)||![](/fr-CA/2020/08/202008210400BowenSunset.jpg)|
 202008220400|UrquhartCastle|Château d'Urquhart et Loch Ness dans les Highlands écossais (© AWL Images/Danita Delimont)||![](/fr-CA/2020/08/202008220400UrquhartCastle.jpg)|
 202008230400|AugustStargazing|Étoiles se reflétant dans Totensee, un lac de montagne au col du Grimsel, canton de Berne, Suisse (© magodevita/Getty Images)||![](/fr-CA/2020/08/202008230400AugustStargazing.jpg)|
+202008240400|CrystalRiver|La rivière Caño Cristales dans les montagnes Serranía de la Macarena de Colombie (© Jorge Iván Vásquez Cuartas/Getty Images)||![](/fr-CA/2020/08/202008240400CrystalRiver.jpg)|
