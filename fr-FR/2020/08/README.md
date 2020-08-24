@@ -25,3 +25,4 @@
 202008212200|UrquhartCastle|Château d’Urquhart et le Loch Ness dans les Hautes Terres d’Écosse (© AWL Images/Danita Delimont)|Se méfier de l’eau qui dort|![](/fr-FR/2020/08/202008212200UrquhartCastle.jpg)|
 202008222200|AugustStargazing|Reflet d’étoiles sur le lac Totensee dans le col du Grimsel, canton de Berne, Suisse (© magodevita/Getty Images)|Quand il pleut des étoiles|![](/fr-FR/2020/08/202008222200AugustStargazing.jpg)|
 202008232200|CrystalRiver|La rivière Caño Cristales dans la chaîne de montagne Serranía de la Macarena, Colombie (© Jorge Ivan Vasquez Cuartas/Getty Images)|Arc-en-ciel liquide|![](/fr-FR/2020/08/202008232200CrystalRiver.jpg)|
+202008242200|WildflowerWeek|Bluebonnets poussant le long d'un sentier au Texas, États-Unis (© Inge Johnsson/Alamy)|Couper à travers champ|![](/fr-FR/2020/08/202008242200WildflowerWeek.jpg)|
