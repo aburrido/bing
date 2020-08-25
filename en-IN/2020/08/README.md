@@ -26,3 +26,4 @@
 202008221830|AugustStargazing|Stars reflecting in Totensee, a mountain lake at Grimsel Pass, Kanton Bern, Switzerland (© magodevita/Getty Images)|Reflections of the night sky|![](/en-IN/2020/08/202008221830AugustStargazing.jpg)|
 202008231830|CrystalRiver|The Caño Cristales river in the Serranía de la Macarena mountains of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|Go with the rainbow flow|![](/en-IN/2020/08/202008231830CrystalRiver.jpg)|
 202008241830|SequoiaSunlight|Giant sequoia trees in Sequoia and Kings Canyon National Parks, California, USA (© lucky-photographer/Getty Images)|Things are looking up|![](/en-IN/2020/08/202008241830SequoiaSunlight.jpg)|
+202008251830|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-IN/2020/08/202008251830OkanaganSpots.jpg)|
