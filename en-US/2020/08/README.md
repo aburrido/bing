@@ -25,3 +25,4 @@
 202008220700|UrquhartCastle|Urquhart Castle and Loch Ness in the Scottish Highlands (© AWL Images/Danita Delimont)|A monster view in Scotland|![](/en-US/2020/08/202008220700UrquhartCastle.jpg)|
 202008230700|AugustStargazing|Stars reflected in the Totensee, a mountain lake at Grimsel Pass, Switzerland (© magodevita/Getty Images)|Reflections of the night sky|![](/en-US/2020/08/202008230700AugustStargazing.jpg)|
 202008240700|CrystalRiver|Caño Cristales river in the Serranía de la Macarena region of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|Go with the rainbow flow|![](/en-US/2020/08/202008240700CrystalRiver.jpg)|
+202008250700|PancakeRocks|The Tasman Sea from Punakaiki on South Island, New Zealand (© Maurizio Rellini/Sime/eStock Photo)|Pancake Rocks|![](/en-US/2020/08/202008250700PancakeRocks.jpg)|
