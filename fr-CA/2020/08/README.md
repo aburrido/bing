@@ -24,3 +24,4 @@
 202008220400|UrquhartCastle|Château d'Urquhart et Loch Ness dans les Highlands écossais (© AWL Images/Danita Delimont)||![](/fr-CA/2020/08/202008220400UrquhartCastle.jpg)|
 202008230400|AugustStargazing|Étoiles se reflétant dans Totensee, un lac de montagne au col du Grimsel, canton de Berne, Suisse (© magodevita/Getty Images)||![](/fr-CA/2020/08/202008230400AugustStargazing.jpg)|
 202008240400|CrystalRiver|La rivière Caño Cristales dans les montagnes Serranía de la Macarena de Colombie (© Jorge Iván Vásquez Cuartas/Getty Images)||![](/fr-CA/2020/08/202008240400CrystalRiver.jpg)|
+202008250400|WheatCastilla|Champ de blé contre le ciel nuageux, Valladolid, Castilla y León, Espagne (© Carlos Javier García Prieto/EyeEm/Getty Images)||![](/fr-CA/2020/08/202008250400WheatCastilla.jpg)|
