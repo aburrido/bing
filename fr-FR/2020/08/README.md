@@ -26,3 +26,4 @@
 202008222200|AugustStargazing|Reflet d’étoiles sur le lac Totensee dans le col du Grimsel, canton de Berne, Suisse (© magodevita/Getty Images)|Quand il pleut des étoiles|![](/fr-FR/2020/08/202008222200AugustStargazing.jpg)|
 202008232200|CrystalRiver|La rivière Caño Cristales dans la chaîne de montagne Serranía de la Macarena, Colombie (© Jorge Ivan Vasquez Cuartas/Getty Images)|Arc-en-ciel liquide|![](/fr-FR/2020/08/202008232200CrystalRiver.jpg)|
 202008242200|WildflowerWeek|Bluebonnets poussant le long d'un sentier au Texas, États-Unis (© Inge Johnsson/Alamy)|Couper à travers champ|![](/fr-FR/2020/08/202008242200WildflowerWeek.jpg)|
+202008252200|OkanaganSpots|Spotted Lake dans l’Okanagan, Colombie-Britannique, Canada (© Galyna Andrushko/Shutterstock)|Tacheté|![](/fr-FR/2020/08/202008252200OkanaganSpots.jpg)|

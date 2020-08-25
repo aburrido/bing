@@ -25,3 +25,4 @@
 202008222200|AugustStargazing|Die Sterne spiegeln sich im Totensee am Grimselpass, Schweiz (© magodevita/Getty Images)|Spiegelung des Nachthimmels|![](/de-DE/2020/08/202008222200AugustStargazing.jpg)|
 202008232200|SequoiaSunlight|Riesenmammutbäume im Sequoia-Nationalpark und Kings-Canyon-Nationalpark, Kalifornien, USA (© lucky-photographer/Getty Images)|Der Blick geht nach oben|![](/de-DE/2020/08/202008232200SequoiaSunlight.jpg)|
 202008242200|CrystalRiver|Der Fluss Caño Cristales in der Serranía de la Macarena-Bergkette, Kolumbien (© Jorge Ivan Vasquez Cuartas/Getty Images)|„Fünf-Farben-Fluss“|![](/de-DE/2020/08/202008242200CrystalRiver.jpg)|
+202008252200|SailingStone|Wandernder Fels auf der Racetrack Playa im Death-Valley-Nationalpark, Kalifornien, USA (© Patrick Walsh/Getty Images)|Rennbahn für wandernde Felsen|![](/de-DE/2020/08/202008252200SailingStone.jpg)|
