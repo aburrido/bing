@@ -26,3 +26,4 @@
 202008232300|CrystalRiver|The Caño Cristales river in the Serranía de la Macarena mountains of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|A river of many hues|![](/en-GB/2020/08/202008232300CrystalRiver.jpg)|
 202008242300|ZionBirthday|Zion National Park, Utah, USA (© pabradyphoto/Getty Images)|Rocky heights|![](/en-GB/2020/08/202008242300ZionBirthday.jpg)|
 202008252300|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-GB/2020/08/202008252300OkanaganSpots.jpg)|
+202008262300|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California, USA (© Patrick Walsh/Getty Images)|Mystery of the moving rocks|![](/en-GB/2020/08/202008262300SailingStone.jpg)|
