@@ -27,3 +27,4 @@
 202008231830|CrystalRiver|The Caño Cristales river in the Serranía de la Macarena mountains of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|Go with the rainbow flow|![](/en-IN/2020/08/202008231830CrystalRiver.jpg)|
 202008241830|SequoiaSunlight|Giant sequoia trees in Sequoia and Kings Canyon National Parks, California, USA (© lucky-photographer/Getty Images)|Things are looking up|![](/en-IN/2020/08/202008241830SequoiaSunlight.jpg)|
 202008251830|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-IN/2020/08/202008251830OkanaganSpots.jpg)|
+202008261830|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California, USA (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-IN/2020/08/202008261830SailingStone.jpg)|
