@@ -26,3 +26,4 @@
 202008231600|CrystalRiver|马卡雷纳山脉中的卡诺克里斯塔尔斯河，哥伦比亚 (© Jorge Iván Vásquez Cuartas/Getty Images)||![](/zh-CN/2020/08/202008231600CrystalRiver.jpg)|
 202008241600|Qixi2020|【今日七夕】Love locker on a red stripe hanging in a temple in Chengdu, China © Philippe LEJEANVRE/Getty Images||![](/zh-CN/2020/08/202008241600Qixi2020.jpg)|
 202008251600|OkanaganSpots|奥卡诺根的斑点湖，加拿大不列颠哥伦比亚省 (© Galyna Andrushko/Shutterstock)||![](/zh-CN/2020/08/202008251600OkanaganSpots.jpg)|
+202008261600|SailingStone|死亡谷国家公园跑道湖的迷踪石，加利福尼亚 (© Patrick Walsh/Getty Images)||![](/zh-CN/2020/08/202008261600SailingStone.jpg)|
