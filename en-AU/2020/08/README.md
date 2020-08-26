@@ -27,3 +27,4 @@
 202008241400|MtWellington|Mt Wellington observation deck with views of Hobart city, Tasmania (© Tommy Atthi/Getty Images)|Sky-high views|![](/en-AU/2020/08/202008241400MtWellington.jpg)|
 202008241400|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-AU/2020/08/202008241400OkanaganSpots.jpg)|
 202008251400|MtWellington|Mt Wellington observation deck with views of Hobart city, Tasmania (© Tommy Atthi/Getty Images)|Sky-high views|![](/en-AU/2020/08/202008251400MtWellington.jpg)|
+202008261400|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-AU/2020/08/202008261400SailingStone.jpg)|
