@@ -28,3 +28,4 @@
 202008242200|WildflowerWeek|Bluebonnets poussant le long d'un sentier au Texas, États-Unis (© Inge Johnsson/Alamy)|Couper à travers champ|![](/fr-FR/2020/08/202008242200WildflowerWeek.jpg)|
 202008252200|OkanaganSpots|Spotted Lake dans l’Okanagan, Colombie-Britannique, Canada (© Galyna Andrushko/Shutterstock)|Tacheté|![](/fr-FR/2020/08/202008252200OkanaganSpots.jpg)|
 202008262200|SailingStone|Pierre à voile sur le Racetrack Playa dans le parc national de la vallée de la Mort, Californie (© Patrick Walsh/Getty Images)|Like a rolling stone|![](/fr-FR/2020/08/202008262200SailingStone.jpg)|
+202008272200|MonteCristo|Château d'If, Marseille, France (© Boris Stroujko/Shutterstock)|Alcatraz à la française|![](/fr-FR/2020/08/202008272200MonteCristo.jpg)|

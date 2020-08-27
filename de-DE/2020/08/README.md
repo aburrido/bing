@@ -27,3 +27,4 @@
 202008242200|CrystalRiver|Der Fluss Caño Cristales in der Serranía de la Macarena-Bergkette, Kolumbien (© Jorge Ivan Vasquez Cuartas/Getty Images)|„Fünf-Farben-Fluss“|![](/de-DE/2020/08/202008242200CrystalRiver.jpg)|
 202008252200|SailingStone|Wandernder Fels auf der Racetrack Playa im Death-Valley-Nationalpark, Kalifornien, USA (© Patrick Walsh/Getty Images)|Rennbahn für wandernde Felsen|![](/de-DE/2020/08/202008252200SailingStone.jpg)|
 202008262200|GamescomCologne|Nächtliche Ansicht der Stadt Köln, Nordrhein-Westfalen (© Tandem Stills + Motion)|Deutschlands viertgrößte Stadt|![](/de-DE/2020/08/202008262200GamescomCologne.jpg)|
+202008272200|MonteCristo|Château d'If in Marseille, Frankreich (© Boris Stroujko/Shutterstock)|Ein Gefängnis für einen Grafen|![](/de-DE/2020/08/202008272200MonteCristo.jpg)|
