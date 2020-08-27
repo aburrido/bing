@@ -28,3 +28,4 @@
 202008241830|SequoiaSunlight|Giant sequoia trees in Sequoia and Kings Canyon National Parks, California, USA (© lucky-photographer/Getty Images)|Things are looking up|![](/en-IN/2020/08/202008241830SequoiaSunlight.jpg)|
 202008251830|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-IN/2020/08/202008251830OkanaganSpots.jpg)|
 202008261830|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California, USA (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-IN/2020/08/202008261830SailingStone.jpg)|
+202008271830|MonteCristo|Château d'If in Marseille, France (© Boris Stroujko/Shutterstock)|A prison fit for a count|![](/en-IN/2020/08/202008271830MonteCristo.jpg)|
