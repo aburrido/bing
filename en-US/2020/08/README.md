@@ -27,3 +27,4 @@
 202008240700|CrystalRiver|Caño Cristales river in the Serranía de la Macarena region of Colombia (© Jorge Iván Vásquez Cuartas/Getty Images)|Go with the rainbow flow|![](/en-US/2020/08/202008240700CrystalRiver.jpg)|
 202008250700|PancakeRocks|The Tasman Sea from Punakaiki on South Island, New Zealand (© Maurizio Rellini/Sime/eStock Photo)|Pancake Rocks|![](/en-US/2020/08/202008250700PancakeRocks.jpg)|
 202008260700|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-US/2020/08/202008260700OkanaganSpots.jpg)|
+202008270700|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-US/2020/08/202008270700SailingStone.jpg)|
