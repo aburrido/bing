@@ -28,3 +28,4 @@
 202008241500|SequoiaSunlight|｢ジャイアントセコイア｣米国カリフォルニア州, キングズ・キャニオン国立公園 (© lucky-photographer/Getty Images)|米国の自然公園|![](/ja-JP/2020/08/202008241500SequoiaSunlight.jpg)|
 202008251500|RedBlueWildebeest|｢グレートマイグレーション｣ケニア,マサイマラ国立保護区 (© Denis-Huot/Minden Pictures)|サバンナの風景|![](/ja-JP/2020/08/202008251500RedBlueWildebeest.jpg)|
 202008261500|LassenPeak|｢ラッセン山｣米国カリフォルニア, ラッセン火山国立公園 (© Engel Ching/Shutterstock)|世界最大の溶岩円頂丘|![](/ja-JP/2020/08/202008261500LassenPeak.jpg)|
+202008271500|MonteCristo|｢シャトー・ディフ｣フランス, マルセイユ (© Boris Stroujko/Shutterstock)|｢モンテクリスト伯｣の連載が始まった日|![](/ja-JP/2020/08/202008271500MonteCristo.jpg)|
