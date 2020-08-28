@@ -29,3 +29,4 @@
 202008251500|RedBlueWildebeest|｢グレートマイグレーション｣ケニア,マサイマラ国立保護区 (© Denis-Huot/Minden Pictures)|サバンナの風景|![](/ja-JP/2020/08/202008251500RedBlueWildebeest.jpg)|
 202008261500|LassenPeak|｢ラッセン山｣米国カリフォルニア, ラッセン火山国立公園 (© Engel Ching/Shutterstock)|世界最大の溶岩円頂丘|![](/ja-JP/2020/08/202008261500LassenPeak.jpg)|
 202008271500|MonteCristo|｢シャトー・ディフ｣フランス, マルセイユ (© Boris Stroujko/Shutterstock)|｢モンテクリスト伯｣の連載が始まった日|![](/ja-JP/2020/08/202008271500MonteCristo.jpg)|
+202008281500|BicycleSculptures|｢オービスク峠の自転車彫刻｣フランス, ピレネー山脈 (© Fco. Javier Sobrino/age fotostock)|今日から｢ツール・ド・フランス｣|![](/ja-JP/2020/08/202008281500BicycleSculptures.jpg)|
