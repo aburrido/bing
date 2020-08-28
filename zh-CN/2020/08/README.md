@@ -28,3 +28,4 @@
 202008251600|OkanaganSpots|奥卡诺根的斑点湖，加拿大不列颠哥伦比亚省 (© Galyna Andrushko/Shutterstock)||![](/zh-CN/2020/08/202008251600OkanaganSpots.jpg)|
 202008261600|SailingStone|死亡谷国家公园跑道湖的迷踪石，加利福尼亚 (© Patrick Walsh/Getty Images)||![](/zh-CN/2020/08/202008261600SailingStone.jpg)|
 202008271600|MonteCristo|伊夫城堡，法国马赛 (© Boris Stroujko/Shutterstock)||![](/zh-CN/2020/08/202008271600MonteCristo.jpg)|
+202008281600|CorsicaFort|鸟瞰桑吉奈尔群岛，法国科西嘉 (© sam74100/Getty Images Plus)||![](/zh-CN/2020/08/202008281600CorsicaFort.jpg)|
