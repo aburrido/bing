@@ -29,3 +29,4 @@
 202008252200|OkanaganSpots|Spotted Lake dans l’Okanagan, Colombie-Britannique, Canada (© Galyna Andrushko/Shutterstock)|Tacheté|![](/fr-FR/2020/08/202008252200OkanaganSpots.jpg)|
 202008262200|SailingStone|Pierre à voile sur le Racetrack Playa dans le parc national de la vallée de la Mort, Californie (© Patrick Walsh/Getty Images)|Like a rolling stone|![](/fr-FR/2020/08/202008262200SailingStone.jpg)|
 202008272200|MonteCristo|Château d'If, Marseille, France (© Boris Stroujko/Shutterstock)|Alcatraz à la française|![](/fr-FR/2020/08/202008272200MonteCristo.jpg)|
+202008282200|BicycleSculptures|Sculptures de vélos sur le col d'Aubisque, Pyrénées centrales, France (© Fco. Javier Sobrino/age fotostock)|À vos marques|![](/fr-FR/2020/08/202008282200BicycleSculptures.jpg)|
