@@ -27,3 +27,4 @@
 202008250400|WheatCastilla|Champ de blé contre le ciel nuageux, Valladolid, Castilla y León, Espagne (© Carlos Javier García Prieto/EyeEm/Getty Images)||![](/fr-CA/2020/08/202008250400WheatCastilla.jpg)|
 202008260400|OkanaganSpots|Spotted Lake dans la région de l'Okanagan, en Colombie-Britannique (© Galyna Andrushko/Shutterstock)||![](/fr-CA/2020/08/202008260400OkanaganSpots.jpg)|
 202008270400|SailingStone|Pierre à voile à l'hippodrome Racetrack Playa dans le parc national de la vallée de la mort, Californie (© Patrick Walsh/Getty Images)||![](/fr-CA/2020/08/202008270400SailingStone.jpg)|
+202008280400|MonteCristo|Château d’If à Marseille, France (© Boris Stroujko/Shutterstock)||![](/fr-CA/2020/08/202008280400MonteCristo.jpg)|

@@ -27,3 +27,4 @@
 202008250400|BowenSunset|Sunset at Bowen Island, B.C. (© Jason Wilde/Tandem Stills + Motion)|A tranquil escape|![](/en-CA/2020/08/202008250400BowenSunset.jpg)|
 202008260400|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-CA/2020/08/202008260400OkanaganSpots.jpg)|
 202008270400|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-CA/2020/08/202008270400SailingStone.jpg)|
+202008280400|MonteCristo|Château d'If in Marseille, France (© Boris Stroujko/Shutterstock)|A prison fit for a count|![](/en-CA/2020/08/202008280400MonteCristo.jpg)|
