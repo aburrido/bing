@@ -29,3 +29,4 @@
 202008262200|GamescomCologne|Nächtliche Ansicht der Stadt Köln, Nordrhein-Westfalen (© Tandem Stills + Motion)|Deutschlands viertgrößte Stadt|![](/de-DE/2020/08/202008262200GamescomCologne.jpg)|
 202008272200|MonteCristo|Château d'If in Marseille, Frankreich (© Boris Stroujko/Shutterstock)|Ein Gefängnis für einen Grafen|![](/de-DE/2020/08/202008272200MonteCristo.jpg)|
 202008282200|BicycleSculptures|Fahrradskulpturen auf dem Col d'Aubisque, Hautes Pyrénées, Frankreich (© Fco. Javier Sobrino/age fotostock)|Große Räder auf einem großen Berg|![](/de-DE/2020/08/202008282200BicycleSculptures.jpg)|
+202008292200|MakeHay|Heuballen auf einem Feld in Jütland, Dänemark (© Nick Brundle Photography/Getty Images)|Gut gerollt|![](/de-DE/2020/08/202008292200MakeHay.jpg)|
