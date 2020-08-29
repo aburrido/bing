@@ -29,3 +29,4 @@
 202008260700|OkanaganSpots|Spotted Lake in the Okanagan region of British Columbia, Canada (© Galyna Andrushko/Shutterstock)|Spotted Lake emerges|![](/en-US/2020/08/202008260700OkanaganSpots.jpg)|
 202008270700|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-US/2020/08/202008270700SailingStone.jpg)|
 202008280700|MonteCristo|Château d'If in Marseille, France (© Boris Stroujko/Shutterstock)|A prison fit for a count|![](/en-US/2020/08/202008280700MonteCristo.jpg)|
+202008290700|BicycleSculptures|Bicycle sculptures at the Col d'Aubisque, Hautes Pyrenees, France (© Fco. Javier Sobrino/age fotostock)|Big wheels on a big mountain|![](/en-US/2020/08/202008290700BicycleSculptures.jpg)|
