@@ -30,3 +30,4 @@
 202008261830|SailingStone|Sailing stone at Racetrack Playa in Death Valley National Park, California, USA (© Patrick Walsh/Getty Images)|Rocks on the move|![](/en-IN/2020/08/202008261830SailingStone.jpg)|
 202008271830|MonteCristo|Château d'If in Marseille, France (© Boris Stroujko/Shutterstock)|A prison fit for a count|![](/en-IN/2020/08/202008271830MonteCristo.jpg)|
 202008281830|BicycleSculptures|Bicycle sculptures at the Col d'Aubisque, Hautes Pyrenees, France (© Fco. Javier Sobrino/age fotostock)|Big wheels on a big mountain|![](/en-IN/2020/08/202008281830BicycleSculptures.jpg)|
+202008291830|MakeHay|Hay bales in a field in Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Hay, what's up?|![](/en-IN/2020/08/202008291830MakeHay.jpg)|
