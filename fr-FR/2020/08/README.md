@@ -31,3 +31,4 @@
 202008272200|MonteCristo|Château d'If, Marseille, France (© Boris Stroujko/Shutterstock)|Alcatraz à la française|![](/fr-FR/2020/08/202008272200MonteCristo.jpg)|
 202008282200|BicycleSculptures|Sculptures de vélos sur le col d'Aubisque, Pyrénées centrales, France (© Fco. Javier Sobrino/age fotostock)|À vos marques|![](/fr-FR/2020/08/202008282200BicycleSculptures.jpg)|
 202008292200|Reflections|Bâtiments se reflétant sur les canaux de Bruges, Belgique (© francesco vaninetti/robertharding)|Échappée folle|![](/fr-FR/2020/08/202008292200Reflections.jpg)|
+202008302200|Garajonay|Rayons de soleil à travers les arbres de la forêt du parc national de Garajonay, La Gomera, Canaries, Espagne (© Martin Siepmann/Westend61/offset by shutterstock)|Une très vieille forêt|![](/fr-FR/2020/08/202008302200Garajonay.jpg)|
