@@ -30,3 +30,4 @@
 202008272300|MonteCristo|Château d'If in Marseille, France (© Boris Stroujko/Shutterstock)|A prison fit for a count|![](/en-GB/2020/08/202008272300MonteCristo.jpg)|
 202008282300|BicycleSculptures|Bicycle sculptures at the Col d'Aubisque, Hautes Pyrenees, France (© Fco. Javier Sobrino/age fotostock)|Gearing up for le Tour|![](/en-GB/2020/08/202008282300BicycleSculptures.jpg)|
 202008292300|MakeHay|Hay bales in a field in Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Hay days|![](/en-GB/2020/08/202008292300MakeHay.jpg)|
+202008302300|Garajonay|Sunlight piercing a forest in Garajonay National Park, La Gomera, Spain (© Martin Siepmann/Westend61/Offset by Shutterstock)|The prehistoric forests of La Gomera|![](/en-GB/2020/08/202008302300Garajonay.jpg)|
