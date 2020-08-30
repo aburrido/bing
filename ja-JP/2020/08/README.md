@@ -31,3 +31,4 @@
 202008271500|MonteCristo|｢シャトー・ディフ｣フランス, マルセイユ (© Boris Stroujko/Shutterstock)|｢モンテクリスト伯｣の連載が始まった日|![](/ja-JP/2020/08/202008271500MonteCristo.jpg)|
 202008281500|BicycleSculptures|｢オービスク峠の自転車彫刻｣フランス, ピレネー山脈 (© Fco. Javier Sobrino/age fotostock)|今日から｢ツール・ド・フランス｣|![](/ja-JP/2020/08/202008281500BicycleSculptures.jpg)|
 202008291500|HierapolisTurkey|｢ヒエラポリスの円形劇場｣トルコ, ヒエラポリス-パムッカレ (© Amazing Aerial Agency/Offset by Shutterstock)|トルコの世界遺産|![](/ja-JP/2020/08/202008291500HierapolisTurkey.jpg)|
+202008301500|Garajonay|｢ガラホナイ国立公園｣スペイン, カナリア諸島 (© Martin Siepmann/Westend61/offset by shutterstock)|スペインの世界遺産|![](/ja-JP/2020/08/202008301500Garajonay.jpg)|
