@@ -30,3 +30,4 @@
 202008271600|MonteCristo|伊夫城堡，法国马赛 (© Boris Stroujko/Shutterstock)||![](/zh-CN/2020/08/202008271600MonteCristo.jpg)|
 202008281600|CorsicaFort|鸟瞰桑吉奈尔群岛，法国科西嘉 (© sam74100/Getty Images Plus)||![](/zh-CN/2020/08/202008281600CorsicaFort.jpg)|
 202008291600|MakeHay|田里的干草捆，丹麦日德兰 (© Nick Brundle Photography/Getty Images)||![](/zh-CN/2020/08/202008291600MakeHay.jpg)|
+202008301600|Garajonay|阳光穿透加拉霍奈国家公园中的森林，西班牙戈梅拉岛 (© Martin Siepmann/Westend61/Offset by Shutterstock)||![](/zh-CN/2020/08/202008301600Garajonay.jpg)|
