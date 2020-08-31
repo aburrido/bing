@@ -32,3 +32,4 @@
 202008281830|BicycleSculptures|Bicycle sculptures at the Col d'Aubisque, Hautes Pyrenees, France (© Fco. Javier Sobrino/age fotostock)|Big wheels on a big mountain|![](/en-IN/2020/08/202008281830BicycleSculptures.jpg)|
 202008291830|MakeHay|Hay bales in a field in Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Hay, what's up?|![](/en-IN/2020/08/202008291830MakeHay.jpg)|
 202008301830|Garajonay|Sunlight piercing a forest in Garajonay National Park, La Gomera, Spain (© Martin Siepmann/Westend61/Offset by Shutterstock)|The prehistoric forests of La Gomera|![](/en-IN/2020/08/202008301830Garajonay.jpg)|
+202008311830|GaneshPol|Ganesh Pol, Ganesh Gate, in Amber Palace, near Jaipur (© Huw Jones/Lonely Planet Images/Getty Images)|A fusion of Moghul and Rajput styles|![](/en-IN/2020/08/202008311830GaneshPol.jpg)|
