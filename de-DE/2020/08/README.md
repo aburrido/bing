@@ -31,3 +31,4 @@
 202008282200|BicycleSculptures|Fahrradskulpturen auf dem Col d'Aubisque, Hautes Pyrénées, Frankreich (© Fco. Javier Sobrino/age fotostock)|Große Räder auf einem großen Berg|![](/de-DE/2020/08/202008282200BicycleSculptures.jpg)|
 202008292200|MakeHay|Heuballen auf einem Feld in Jütland, Dänemark (© Nick Brundle Photography/Getty Images)|Gut gerollt|![](/de-DE/2020/08/202008292200MakeHay.jpg)|
 202008302200|BurgEltzRP|Burg Eltz, Rheinland-Pfalz (© Allard Schager/Alamy Stock Photo)|Keine Eroberung|![](/de-DE/2020/08/202008302200BurgEltzRP.jpg)|
+202008312200|OysterMushroom|Austernpilze in Belgien (© Philippe Clement/Minden Pictures)|Kleine Kunstwerke|![](/de-DE/2020/08/202008312200OysterMushroom.jpg)|
