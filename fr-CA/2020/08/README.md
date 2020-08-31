@@ -30,3 +30,4 @@
 202008280400|MonteCristo|Château d’If à Marseille, France (© Boris Stroujko/Shutterstock)||![](/fr-CA/2020/08/202008280400MonteCristo.jpg)|
 202008290400|YukonSummer|Orge queue d'écureuil (Hordeum jubatum) au parc national Kluane, Yukon (© Helge Schulz/Minden Pictures)||![](/fr-CA/2020/08/202008290400YukonSummer.jpg)|
 202008300400|MakeHay|Balles de foin dans un champ de Jutland, Denmark (© Nick Brundle Photography/Getty Images)||![](/fr-CA/2020/08/202008300400MakeHay.jpg)|
+202008310400|Garajonay|Rayons de soleil perçant la forêt du Parc national de Garajonay, La Gomera, Espagne (© Martin Siepmann/Westend61/Offset by Shutterstock)||![](/fr-CA/2020/08/202008310400Garajonay.jpg)|
