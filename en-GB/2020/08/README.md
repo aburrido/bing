@@ -31,3 +31,4 @@
 202008282300|BicycleSculptures|Bicycle sculptures at the Col d'Aubisque, Hautes Pyrenees, France (© Fco. Javier Sobrino/age fotostock)|Gearing up for le Tour|![](/en-GB/2020/08/202008282300BicycleSculptures.jpg)|
 202008292300|MakeHay|Hay bales in a field in Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Hay days|![](/en-GB/2020/08/202008292300MakeHay.jpg)|
 202008302300|Garajonay|Sunlight piercing a forest in Garajonay National Park, La Gomera, Spain (© Martin Siepmann/Westend61/Offset by Shutterstock)|The prehistoric forests of La Gomera|![](/en-GB/2020/08/202008302300Garajonay.jpg)|
+202008312300|BleistifteFaber|Pencils on display at Faber-Castell in Stein, Bavaria, Germany (© Rüdiger Hess/geo-select FotoArt)|Pencils at the ready!|![](/en-GB/2020/08/202008312300BleistifteFaber.jpg)|
