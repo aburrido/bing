@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202008312200|OysterMushroom|Champignons pleurotus en Belgique (© Philippe Clement/Minden Pictures)|La saison des champignons|![](/fr-FR/2020/09/202008312200OysterMushroom.jpg)|
+202009012200|SmithRock|Parc d’État de Smith Rock, Oregon, États-Unis (© Manuela Durson/Getty Images)|Rendez-vous en haut !|![](/fr-FR/2020/09/202009012200SmithRock.jpg)|
