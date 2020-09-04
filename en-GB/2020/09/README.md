@@ -4,3 +4,4 @@
 202009012300|CuillinMist|Misty peak of Glamaig, Red Hills, Isle of Skye (© fotoVoyager/Getty Images)|Rainbow over the Red Hills|![](/en-GB/2020/09/202009012300CuillinMist.jpg)|
 202009022300|FinancialTowers|Lujiazui Financial District, Shanghai, China (© Jackal Pan/Getty Images)|Tall, taller, tallest|![](/en-GB/2020/09/202009022300FinancialTowers.jpg)|
 202009032300|PicoIsland|Mount Pico on Pico Island, the Azores (© Atmo-Sphere/Getty Images)|Volcanic viticulture|![](/en-GB/2020/09/202009032300PicoIsland.jpg)|
+202009042300|SmithRock|Smith Rock State Park, Oregon, USA (© Manuela Durson/Getty Images)|A rock in a wild place|![](/en-GB/2020/09/202009042300SmithRock.jpg)|
