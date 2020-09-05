@@ -5,3 +5,4 @@
 202009021400|FinancialTowers|Lujiazui Financial District, Shanghai, China (© Jackal Pan/Getty Images)|Tall, taller, tallest|![](/en-AU/2020/09/202009021400FinancialTowers.jpg)|
 202009031400|PicoIsland|A bull stands in a field under the gaze of Mount Pico, Pico Island, Azores (© Atmo-Sphere/Getty Images)|A bull, some flowers, and a stratovolcano|![](/en-AU/2020/09/202009031400PicoIsland.jpg)|
 202009041400|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho, USA (© Charles Knowles/Alamy)|Beaver achievers|![](/en-AU/2020/09/202009041400BeaverDam.jpg)|
+202009051400|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|A quick trip to the Hamptons|![](/en-AU/2020/09/202009051400LongIsland.jpg)|
