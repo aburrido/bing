@@ -5,3 +5,4 @@
 202009020700|SmithRock|Smith Rock State Park, Oregon (© Manuela Durson/Getty Images)|A rock in a wild place|![](/en-US/2020/09/202009020700SmithRock.jpg)|
 202009030700|FinancialTowers|Lujiazui Financial District, Shanghai, China (© Jackal Pan/Getty Images)|Tall, taller, tallest|![](/en-US/2020/09/202009030700FinancialTowers.jpg)|
 202009040700|PicoIsland|A bull in the foothills of Mount Pico on Pico Island in the Portuguese archipelago of the Azores  (© Atmo-Sphere/Getty Images)|A bull, some flowers, and a stratovolcano|![](/en-US/2020/09/202009040700PicoIsland.jpg)|
+202009050700|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho (© Charles Knowles/Alamy)|Beaver achievers|![](/en-US/2020/09/202009050700BeaverDam.jpg)|
