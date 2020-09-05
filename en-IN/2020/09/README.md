@@ -5,3 +5,4 @@
 202009021830|FinancialTowers|Lujiazui Financial District, Shanghai, China (© Jackal Pan/Getty Images)|Tall, taller, tallest|![](/en-IN/2020/09/202009021830FinancialTowers.jpg)|
 202009031830|FirefliesIndia|Fireflies synchronize just after first shower of monsoon (© Yashpal Rathore/Minden Pictures)|A magical display of nature|![](/en-IN/2020/09/202009031830FirefliesIndia.jpg)|
 202009041830|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho, USA (© Charles Knowles/Alamy)|Beaver achievers|![](/en-IN/2020/09/202009041830BeaverDam.jpg)|
+202009051830|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-IN/2020/09/202009051830LongIsland.jpg)|
