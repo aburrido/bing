@@ -6,3 +6,4 @@
 202009032300|PicoIsland|Mount Pico on Pico Island, the Azores (© Atmo-Sphere/Getty Images)|Volcanic viticulture|![](/en-GB/2020/09/202009032300PicoIsland.jpg)|
 202009042300|SmithRock|Smith Rock State Park, Oregon, USA (© Manuela Durson/Getty Images)|A rock in a wild place|![](/en-GB/2020/09/202009042300SmithRock.jpg)|
 202009052300|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-GB/2020/09/202009052300LongIsland.jpg)|
+202009062300|CanningDock|Mann Island buildings, Canning Dock, Liverpool (© Borislav Zlatkov/EyeEm/Getty Images)|Reflecting on the docks|![](/en-GB/2020/09/202009062300CanningDock.jpg)|
