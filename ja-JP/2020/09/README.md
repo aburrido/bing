@@ -6,3 +6,4 @@
 202009031500|NorfolkPups|｢眠そうなハイイロアザラシ｣イギリス, ノーフォーク州 (© Kevin Sawford/Getty Images)|今週は｢秋の睡眠週間｣|![](/ja-JP/2020/09/202009031500NorfolkPups.jpg)|
 202009041500|PicoIsland|｢ピコ山｣アゾレス諸島 (© Atmo-Sphere/GettyImages)|ポルトガルの最高峰と世界遺産|![](/ja-JP/2020/09/202009041500PicoIsland.jpg)|
 202009051500|BeaverDam|｢ソートゥース国有森林のビーバーダム｣米国アイダホ州 (© Charles Knowles/Alamy)|米国の国有森林|![](/ja-JP/2020/09/202009051500BeaverDam.jpg)|
+202009061500|ChipmunkJP|｢冬眠に備えるエゾシマリス｣北海道 (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|今日は｢白露｣|![](/ja-JP/2020/09/202009061500ChipmunkJP.jpg)|
