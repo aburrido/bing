@@ -6,3 +6,4 @@
 202009031830|FirefliesIndia|Fireflies synchronize just after first shower of monsoon (© Yashpal Rathore/Minden Pictures)|A magical display of nature|![](/en-IN/2020/09/202009031830FirefliesIndia.jpg)|
 202009041830|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho, USA (© Charles Knowles/Alamy)|Beaver achievers|![](/en-IN/2020/09/202009041830BeaverDam.jpg)|
 202009051830|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-IN/2020/09/202009051830LongIsland.jpg)|
+202009061830|PicoIsland|A bull stands in a field under the gaze of Mount Pico, Pico Island, Azores (© Atmo-Sphere/Getty Images)|A bull, some flowers, and a stratovolcano|![](/en-IN/2020/09/202009061830PicoIsland.jpg)|
