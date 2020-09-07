@@ -7,3 +7,4 @@
 202009041400|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho, USA (© Charles Knowles/Alamy)|Beaver achievers|![](/en-AU/2020/09/202009041400BeaverDam.jpg)|
 202009051400|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|A quick trip to the Hamptons|![](/en-AU/2020/09/202009051400LongIsland.jpg)|
 202009061400|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-AU/2020/09/202009061400KanchanaburiWaterfall.jpg)|
+202009071400|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Victory Day in Valletta|![](/en-AU/2020/09/202009071400OttoSettembre.jpg)|
