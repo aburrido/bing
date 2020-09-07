@@ -7,3 +7,4 @@
 202009040700|PicoIsland|A bull in the foothills of Mount Pico on Pico Island in the Portuguese archipelago of the Azores  (© Atmo-Sphere/Getty Images)|A bull, some flowers, and a stratovolcano|![](/en-US/2020/09/202009040700PicoIsland.jpg)|
 202009050700|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho (© Charles Knowles/Alamy)|Beaver achievers|![](/en-US/2020/09/202009050700BeaverDam.jpg)|
 202009060700|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-US/2020/09/202009060700LongIsland.jpg)|
+202009070700|HammeringMan|A worker painting the Hammering Man, a sculpture by Jonathan Borofsky, in Frankfurt, Germany (© Arne Dedert/Alamy)|Take a break! It's Labor Day!|![](/en-US/2020/09/202009070700HammeringMan.jpg)|
