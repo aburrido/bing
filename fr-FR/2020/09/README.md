@@ -8,3 +8,4 @@
 202009052200|LongIsland|Reedy Island dans la baie de Moneyboque, Long Island, New York (© Claudia Uripos/eStock Photo)|Échappée new-yorkaise|![](/fr-FR/2020/09/202009052200LongIsland.jpg)|
 202009062200|BleistifteFaber|Crayons dans la vitrine de Faber-Castell, un magasin de fournitures scolaires à Stein, Bavière, Allemagne (© Rüdiger Hess/geo-select FotoArt)|Journée internationale de l’alphabétisation|![](/fr-FR/2020/09/202009062200BleistifteFaber.jpg)|
 202009072200|OttoSettembre|La Valette, Malte (© Deejpilot/GettyImages)|Tenir bon|![](/fr-FR/2020/09/202009072200OttoSettembre.jpg)|
+202009082200|BeardedReedling|Une panure à moustaches dans la réserve naturelle nationale d’Elmley, comté de Kent, Angleterre (© Mark Bridger/Offset by Shutterstock)|Oiseau sédentaire|![](/fr-FR/2020/09/202009082200BeardedReedling.jpg)|
