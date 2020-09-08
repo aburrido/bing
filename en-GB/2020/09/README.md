@@ -8,3 +8,4 @@
 202009052300|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-GB/2020/09/202009052300LongIsland.jpg)|
 202009062300|CanningDock|Mann Island buildings, Canning Dock, Liverpool (© Borislav Zlatkov/EyeEm/Getty Images)|Reflecting on the docks|![](/en-GB/2020/09/202009062300CanningDock.jpg)|
 202009072300|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Victory Day in Valletta|![](/en-GB/2020/09/202009072300OttoSettembre.jpg)|
+202009082300|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent (© Mark Bridger/Offset by Shutterstock)|Life in the reeds|![](/en-GB/2020/09/202009082300BeardedReedling.jpg)|
