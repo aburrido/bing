@@ -8,3 +8,4 @@
 202009050700|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho (© Charles Knowles/Alamy)|Beaver achievers|![](/en-US/2020/09/202009050700BeaverDam.jpg)|
 202009060700|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-US/2020/09/202009060700LongIsland.jpg)|
 202009070700|HammeringMan|A worker painting the Hammering Man, a sculpture by Jonathan Borofsky, in Frankfurt, Germany (© Arne Dedert/Alamy)|Take a break! It's Labor Day!|![](/en-US/2020/09/202009070700HammeringMan.jpg)|
+202009080700|OttoSettembre|Valletta, Malta (© Deejpilot/Getty Images)|Victory Day in Valletta|![](/en-US/2020/09/202009080700OttoSettembre.jpg)|
