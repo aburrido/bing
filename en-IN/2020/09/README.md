@@ -8,3 +8,4 @@
 202009051830|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York, USA (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-IN/2020/09/202009051830LongIsland.jpg)|
 202009061830|PicoIsland|A bull stands in a field under the gaze of Mount Pico, Pico Island, Azores (© Atmo-Sphere/Getty Images)|A bull, some flowers, and a stratovolcano|![](/en-IN/2020/09/202009061830PicoIsland.jpg)|
 202009071830|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Victory Day in Valletta|![](/en-IN/2020/09/202009071830OttoSettembre.jpg)|
+202009081830|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Where the bearded reedling sings|![](/en-IN/2020/09/202009081830BeardedReedling.jpg)|
