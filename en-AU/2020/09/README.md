@@ -9,3 +9,4 @@
 202009061400|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-AU/2020/09/202009061400KanchanaburiWaterfall.jpg)|
 202009071400|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Victory Day in Valletta|![](/en-AU/2020/09/202009071400OttoSettembre.jpg)|
 202009081400|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Where the bearded reedling sings|![](/en-AU/2020/09/202009081400BeardedReedling.jpg)|
+202009091400|FranklinGordonRivers|Franklin-Gordon Wild Rivers National Park, Tasmania (© Heeb Photos/eStock Photo)|Wet and wild|![](/en-AU/2020/09/202009091400FranklinGordonRivers.jpg)|
