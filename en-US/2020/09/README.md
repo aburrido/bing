@@ -9,3 +9,4 @@
 202009060700|LongIsland|Reedy Island in Moneyboque Bay, Long Island, New York (© Claudia Uripos/eStock Photo)|Summer winds down in the Hamptons|![](/en-US/2020/09/202009060700LongIsland.jpg)|
 202009070700|HammeringMan|A worker painting the Hammering Man, a sculpture by Jonathan Borofsky, in Frankfurt, Germany (© Arne Dedert/Alamy)|Take a break! It's Labor Day!|![](/en-US/2020/09/202009070700HammeringMan.jpg)|
 202009080700|OttoSettembre|Valletta, Malta (© Deejpilot/Getty Images)|Victory Day in Valletta|![](/en-US/2020/09/202009080700OttoSettembre.jpg)|
+202009090700|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Where the bearded reedling sings|![](/en-US/2020/09/202009090700BeardedReedling.jpg)|
