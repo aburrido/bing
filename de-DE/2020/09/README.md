@@ -9,3 +9,4 @@
 202009062200|BleistifteFaber|Buntstifte in der Ausstellung bei Faber-Castell in Stein, Bayern (© Rüdiger Hess/geo-select FotoArt)|Wie gemalt|![](/de-DE/2020/09/202009062200BleistifteFaber.jpg)|
 202009072200|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Nationalfeiertag in Valletta|![](/de-DE/2020/09/202009072200OttoSettembre.jpg)|
 202009082200|BeardedReedling|Eine Bartmeise im Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Wo die Bartmeise singt|![](/de-DE/2020/09/202009082200BeardedReedling.jpg)|
+202009092200|KanchanaburiWaterfall|Huay-Mae-Khamin-Wasserfall im Khuean-Srinagarindra-Nationalpark, Thailand (© ImpaKPro/Getty Images)|Versteckte Schönheit in Thailand|![](/de-DE/2020/09/202009092200KanchanaburiWaterfall.jpg)|

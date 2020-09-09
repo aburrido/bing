@@ -9,3 +9,4 @@
 202009062200|BleistifteFaber|Crayons dans la vitrine de Faber-Castell, un magasin de fournitures scolaires à Stein, Bavière, Allemagne (© Rüdiger Hess/geo-select FotoArt)|Journée internationale de l’alphabétisation|![](/fr-FR/2020/09/202009062200BleistifteFaber.jpg)|
 202009072200|OttoSettembre|La Valette, Malte (© Deejpilot/GettyImages)|Tenir bon|![](/fr-FR/2020/09/202009072200OttoSettembre.jpg)|
 202009082200|BeardedReedling|Une panure à moustaches dans la réserve naturelle nationale d’Elmley, comté de Kent, Angleterre (© Mark Bridger/Offset by Shutterstock)|Oiseau sédentaire|![](/fr-FR/2020/09/202009082200BeardedReedling.jpg)|
+202009092200|KanchanaburiWaterfall|Cascade Huay Mae Khamin dans le parc national de Khuean Srinagarindra, Thaïlande (© ImpaKPro/Getty Images)|Trésor caché|![](/fr-FR/2020/09/202009092200KanchanaburiWaterfall.jpg)|
