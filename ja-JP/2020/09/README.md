@@ -9,3 +9,4 @@
 202009061500|ChipmunkJP|｢冬眠に備えるエゾシマリス｣北海道 (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|今日は｢白露｣|![](/ja-JP/2020/09/202009061500ChipmunkJP.jpg)|
 202009071500|BleistifteFaber|｢鉛筆棚｣ドイツ, バイエルン州, シュタイン (© Rüdiger Hess/geo-select FotoArt)|今日は｢国際識字デー｣|![](/ja-JP/2020/09/202009071500BleistifteFaber.jpg)|
 202009081500|BeardedReedling|｢ヒゲガラ｣イギリス, エルムリー・ナショナル自然保護区 (© Mark Bridger/Offset by Shutterstock)|イギリスの野鳥|![](/ja-JP/2020/09/202009081500BeardedReedling.jpg)|
+202009091500|KanchanaburiWaterfall|｢フアイ・メー・カミン滝｣タイ, カンチャナブリー (© ImpaKPro/Getty Images)|タイのカスケード滝|![](/ja-JP/2020/09/202009091500KanchanaburiWaterfall.jpg)|
