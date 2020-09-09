@@ -9,3 +9,4 @@
 202009062300|CanningDock|Mann Island buildings, Canning Dock, Liverpool (© Borislav Zlatkov/EyeEm/Getty Images)|Reflecting on the docks|![](/en-GB/2020/09/202009062300CanningDock.jpg)|
 202009072300|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Victory Day in Valletta|![](/en-GB/2020/09/202009072300OttoSettembre.jpg)|
 202009082300|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent (© Mark Bridger/Offset by Shutterstock)|Life in the reeds|![](/en-GB/2020/09/202009082300BeardedReedling.jpg)|
+202009092300|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-GB/2020/09/202009092300KanchanaburiWaterfall.jpg)|
