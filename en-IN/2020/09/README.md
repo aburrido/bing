@@ -10,3 +10,4 @@
 202009071830|OttoSettembre|Valletta, Malta (© Deejpilot/GettyImages)|Victory Day in Valletta|![](/en-IN/2020/09/202009071830OttoSettembre.jpg)|
 202009081830|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Where the bearded reedling sings|![](/en-IN/2020/09/202009081830BeardedReedling.jpg)|
 202009091830|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-IN/2020/09/202009091830KanchanaburiWaterfall.jpg)|
+202009101830|KapuLighthouse|Aerial view of the lighthouse at Kaup, Karnataka (© Amith Nag Photography/Getty Images)|Lighthouse at Kapu beach near Udupi, Karnataka|![](/en-IN/2020/09/202009101830KapuLighthouse.jpg)|
