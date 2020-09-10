@@ -10,3 +10,4 @@
 202009070700|HammeringMan|A worker painting the Hammering Man, a sculpture by Jonathan Borofsky, in Frankfurt, Germany (© Arne Dedert/Alamy)|Take a break! It's Labor Day!|![](/en-US/2020/09/202009070700HammeringMan.jpg)|
 202009080700|OttoSettembre|Valletta, Malta (© Deejpilot/Getty Images)|Victory Day in Valletta|![](/en-US/2020/09/202009080700OttoSettembre.jpg)|
 202009090700|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Where the bearded reedling sings|![](/en-US/2020/09/202009090700BeardedReedling.jpg)|
+202009100700|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-US/2020/09/202009100700KanchanaburiWaterfall.jpg)|
