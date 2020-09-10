@@ -10,3 +10,4 @@
 202009071600|OttoSettembre|瓦莱塔，马耳他 (© Deejpilot/GettyImages)||![](/zh-CN/2020/09/202009071600OttoSettembre.jpg)|
 202009081600|BeardedReedling|埃尔姆利国家自然保护区里的一只文须雀，英格兰肯特郡 (© Mark Bridger/Offset by Shutterstock)||![](/zh-CN/2020/09/202009081600BeardedReedling.jpg)|
 202009091600|KanchanaburiWaterfall|Khuean Srinagarindra国家公园的Huay Mae Khamin瀑布，泰国 (© ImpaKPro/Getty Images)||![](/zh-CN/2020/09/202009091600KanchanaburiWaterfall.jpg)|
+202009101600|TorontoSky|日落时的多伦多天际线 (© diegograndi/Getty Images)||![](/zh-CN/2020/09/202009101600TorontoSky.jpg)|
