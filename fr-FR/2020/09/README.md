@@ -10,3 +10,4 @@
 202009072200|OttoSettembre|La Valette, Malte (© Deejpilot/GettyImages)|Tenir bon|![](/fr-FR/2020/09/202009072200OttoSettembre.jpg)|
 202009082200|BeardedReedling|Une panure à moustaches dans la réserve naturelle nationale d’Elmley, comté de Kent, Angleterre (© Mark Bridger/Offset by Shutterstock)|Oiseau sédentaire|![](/fr-FR/2020/09/202009082200BeardedReedling.jpg)|
 202009092200|KanchanaburiWaterfall|Cascade Huay Mae Khamin dans le parc national de Khuean Srinagarindra, Thaïlande (© ImpaKPro/Getty Images)|Trésor caché|![](/fr-FR/2020/09/202009092200KanchanaburiWaterfall.jpg)|
+202009102200|TorontoSky|Toronto au coucher du soleil, Canada (© diegograndi/Getty Images)|Décor de 7ème art|![](/fr-FR/2020/09/202009102200TorontoSky.jpg)|
