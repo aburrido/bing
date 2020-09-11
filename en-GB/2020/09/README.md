@@ -11,3 +11,4 @@
 202009082300|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent (© Mark Bridger/Offset by Shutterstock)|Life in the reeds|![](/en-GB/2020/09/202009082300BeardedReedling.jpg)|
 202009092300|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-GB/2020/09/202009092300KanchanaburiWaterfall.jpg)|
 202009102300|DorsetHeather|Purple and pink heather on heathland near Studland, Dorset (© allou/iStock/Getty Images Plus)|Heather on the hills|![](/en-GB/2020/09/202009102300DorsetHeather.jpg)|
+202009112300|MedievalRocamadour|Rocamadour, Lot, France (© Rrrainbow/Getty Images)|A vertical village|![](/en-GB/2020/09/202009112300MedievalRocamadour.jpg)|
