@@ -11,3 +11,4 @@
 202009081500|BeardedReedling|｢ヒゲガラ｣イギリス, エルムリー・ナショナル自然保護区 (© Mark Bridger/Offset by Shutterstock)|イギリスの野鳥|![](/ja-JP/2020/09/202009081500BeardedReedling.jpg)|
 202009091500|KanchanaburiWaterfall|｢フアイ・メー・カミン滝｣タイ, カンチャナブリー (© ImpaKPro/Getty Images)|タイのカスケード滝|![](/ja-JP/2020/09/202009091500KanchanaburiWaterfall.jpg)|
 202009101500|TorontoSky|｢トロントの夕暮れ」 (© diegograndi/Getty Images)|ただいま｢トロント国際映画祭｣開催中|![](/ja-JP/2020/09/202009101500TorontoSky.jpg)|
+202009111500|BubbleNebula|｢散光星雲(NGC 7635)｣ (© NASA, ESA, and the Hubble Heritage Team STScI/AURA)|今日は｢宇宙の日｣|![](/ja-JP/2020/09/202009111500BubbleNebula.jpg)|
