@@ -10,3 +10,4 @@
 202009080400|OttoSettembre|La Valette, Malte (© Deejpilot/GettyImages)||![](/fr-CA/2020/09/202009080400OttoSettembre.jpg)|
 202009090400|BeardedReedling|Une panure à moustaches dans la réserve naturelle d’Emley à Kent, Angleterre (© Mark Bridger/Offset by Shutterstock)||![](/fr-CA/2020/09/202009090400BeardedReedling.jpg)|
 202009100400|KanchanaburiWaterfall|Les chutes de Huay Mae Khamin dans le parc national Khuean Srinagarindra, Thaïlande (© ImpaKPro/Getty Images)||![](/fr-CA/2020/09/202009100400KanchanaburiWaterfall.jpg)|
+202009110400|TorontoSky|Horizon de Toronto au coucher du soleil (© diegograndi/Getty Images)||![](/fr-CA/2020/09/202009110400TorontoSky.jpg)|
