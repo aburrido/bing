@@ -11,3 +11,4 @@
 202009090400|BeardedReedling|A bearded reedling in Elmley National Nature Reserve in Kent, England (© Mark Bridger/Offset by Shutterstock)|Where the bearded reedling sings|![](/en-CA/2020/09/202009090400BeardedReedling.jpg)|
 202009100400|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-CA/2020/09/202009100400KanchanaburiWaterfall.jpg)|
 202009110400|TorontoSky|Toronto skyline at sunset (© diegograndi/Getty Images)|It's time for TIFF!|![](/en-CA/2020/09/202009110400TorontoSky.jpg)|
+202009120400|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon…and cheese|![](/en-CA/2020/09/202009120400MedievalRocamadour.jpg)|
