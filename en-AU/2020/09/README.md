@@ -12,3 +12,4 @@
 202009091400|FranklinGordonRivers|Franklin-Gordon Wild Rivers National Park, Tasmania (© Heeb Photos/eStock Photo)|Wet and wild|![](/en-AU/2020/09/202009091400FranklinGordonRivers.jpg)|
 202009101400|TorontoSky|Toronto skyline at sunset, Canada (© diegograndi/Getty Images)|Time for TIFF|![](/en-AU/2020/09/202009101400TorontoSky.jpg)|
 202009111400|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon… and cheese|![](/en-AU/2020/09/202009111400MedievalRocamadour.jpg)|
+202009121400|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado, USA (© Tim Fitzharris/Minden Pictures)|Super Sandy enjoys sweet sixteen|![](/en-AU/2020/09/202009121400SangreCristoDunes.jpg)|
