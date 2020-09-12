@@ -12,3 +12,4 @@
 202009092200|KanchanaburiWaterfall|Huay-Mae-Khamin-Wasserfall im Khuean-Srinagarindra-Nationalpark, Thailand (© ImpaKPro/Getty Images)|Versteckte Schönheit in Thailand|![](/de-DE/2020/09/202009092200KanchanaburiWaterfall.jpg)|
 202009102200|TorontoSky|Die Skyline von Toronto im Sonnenuntergang (© diegograndi/Getty Images)|Skyline als Filmkulisse|![](/de-DE/2020/09/202009102200TorontoSky.jpg)|
 202009112200|MedievalRocamadour|Rocamadour, Frankreich (© Rrrainbow/Getty Images)|Eine Stadt, eine Klippe, ein Tal – und Käse|![](/de-DE/2020/09/202009112200MedievalRocamadour.jpg)|
+202009122200|PortaNigraMonument|Im Innern der Porta Nigra, Trier, Rheinland-Pfalz (© Stockinasia/Alamy Stock Photo)|Blick aus dem „Schwarzen Tor“|![](/de-DE/2020/09/202009122200PortaNigraMonument.jpg)|
