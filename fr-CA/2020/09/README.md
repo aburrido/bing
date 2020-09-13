@@ -12,3 +12,4 @@
 202009100400|KanchanaburiWaterfall|Les chutes de Huay Mae Khamin dans le parc national Khuean Srinagarindra, Thaïlande (© ImpaKPro/Getty Images)||![](/fr-CA/2020/09/202009100400KanchanaburiWaterfall.jpg)|
 202009110400|TorontoSky|Horizon de Toronto au coucher du soleil (© diegograndi/Getty Images)||![](/fr-CA/2020/09/202009110400TorontoSky.jpg)|
 202009120400|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)||![](/fr-CA/2020/09/202009120400MedievalRocamadour.jpg)|
+202009130400|SangreCristoDunes|Dunes de sable avec les monts Sangre de Cristo en toile de fond, Parc national et réserve des Great Sand Dunes, Colorado (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2020/09/202009130400SangreCristoDunes.jpg)|

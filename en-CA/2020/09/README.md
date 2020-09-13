@@ -12,3 +12,4 @@
 202009100400|KanchanaburiWaterfall|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© ImpaKPro/Getty Images)|Hidden beauty in Thailand|![](/en-CA/2020/09/202009100400KanchanaburiWaterfall.jpg)|
 202009110400|TorontoSky|Toronto skyline at sunset (© diegograndi/Getty Images)|It's time for TIFF!|![](/en-CA/2020/09/202009110400TorontoSky.jpg)|
 202009120400|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon…and cheese|![](/en-CA/2020/09/202009120400MedievalRocamadour.jpg)|
+202009130400|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado (© Tim Fitzharris/Minden Pictures)|Super Sandy Sweet 16|![](/en-CA/2020/09/202009130400SangreCristoDunes.jpg)|
