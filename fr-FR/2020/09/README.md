@@ -13,3 +13,4 @@
 202009102200|TorontoSky|Toronto au coucher du soleil, Canada (© diegograndi/Getty Images)|Décor de 7ème art|![](/fr-FR/2020/09/202009102200TorontoSky.jpg)|
 202009112200|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|À flanc de montagne|![](/fr-FR/2020/09/202009112200MedievalRocamadour.jpg)|
 202009122200|SangreCristoDunes|Dunes de sable et les monts Sangre de Cristo, Parc national et réserve des Great Sand Dunes, Colorado, États-Unis (© Tim Fitzharris/Minden Pictures)|Mer de sable|![](/fr-FR/2020/09/202009122200SangreCristoDunes.jpg)|
+202009132200|BlurryFlock|Nuée de bécasseaux variables, Vendées, France (© Serge Deboffle/Minden Photo Stock)|Été migrateur|![](/fr-FR/2020/09/202009132200BlurryFlock.jpg)|
