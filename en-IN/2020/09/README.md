@@ -13,3 +13,4 @@
 202009101830|KapuLighthouse|Aerial view of the lighthouse at Kaup, Karnataka (© Amith Nag Photography/Getty Images)|Lighthouse at Kapu beach near Udupi, Karnataka|![](/en-IN/2020/09/202009101830KapuLighthouse.jpg)|
 202009111830|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon…and cheese|![](/en-IN/2020/09/202009111830MedievalRocamadour.jpg)|
 202009121830|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado, USA (© Tim Fitzharris/Minden Pictures)|Super Sandy Sweet 16|![](/en-IN/2020/09/202009121830SangreCristoDunes.jpg)|
+202009131830|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country, USA (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-IN/2020/09/202009131830YellowBells.jpg)|
