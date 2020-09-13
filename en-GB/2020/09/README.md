@@ -13,3 +13,4 @@
 202009102300|DorsetHeather|Purple and pink heather on heathland near Studland, Dorset (© allou/iStock/Getty Images Plus)|Heather on the hills|![](/en-GB/2020/09/202009102300DorsetHeather.jpg)|
 202009112300|MedievalRocamadour|Rocamadour, Lot, France (© Rrrainbow/Getty Images)|A vertical village|![](/en-GB/2020/09/202009112300MedievalRocamadour.jpg)|
 202009122300|SangreCristoDunes|Sand dunes and Sangre de Cristo Mountains, Great Sand Dunes National Park and Preserve, Colorado, USA (© Tim Fitzharris/Minden Pictures)|Sands of time|![](/en-GB/2020/09/202009122300SangreCristoDunes.jpg)|
+202009132300|LifeguardEntrance|Lifeguard shack at sunset on The Entrance beach, Central Coast, New South Wales, Australia (© Yury Prokopenko/Getty Images)|Serenity by the sea|![](/en-GB/2020/09/202009132300LifeguardEntrance.jpg)|
