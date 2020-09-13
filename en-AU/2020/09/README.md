@@ -13,3 +13,4 @@
 202009101400|TorontoSky|Toronto skyline at sunset, Canada (© diegograndi/Getty Images)|Time for TIFF|![](/en-AU/2020/09/202009101400TorontoSky.jpg)|
 202009111400|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon… and cheese|![](/en-AU/2020/09/202009111400MedievalRocamadour.jpg)|
 202009121400|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado, USA (© Tim Fitzharris/Minden Pictures)|Super Sandy enjoys sweet sixteen|![](/en-AU/2020/09/202009121400SangreCristoDunes.jpg)|
+202009131400|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country, USA (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-AU/2020/09/202009131400YellowBells.jpg)|
