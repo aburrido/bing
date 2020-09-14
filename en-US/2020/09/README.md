@@ -14,3 +14,4 @@
 202009110700|FreedomTower|One World Trade Center and lower Manhattan, seen from the Empty Sky memorial in Jersey City, New Jersey (© Maurizio Rellini/Offset by Shutterstock)|In honor of those we've lost|![](/en-US/2020/09/202009110700FreedomTower.jpg)|
 202009120700|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon…and cheese|![](/en-US/2020/09/202009120700MedievalRocamadour.jpg)|
 202009130700|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado (© Tim Fitzharris/Minden Pictures)|Super sandy Sweet 16|![](/en-US/2020/09/202009130700SangreCristoDunes.jpg)|
+202009140700|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-US/2020/09/202009140700YellowBells.jpg)|
