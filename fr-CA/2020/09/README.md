@@ -13,3 +13,4 @@
 202009110400|TorontoSky|Horizon de Toronto au coucher du soleil (© diegograndi/Getty Images)||![](/fr-CA/2020/09/202009110400TorontoSky.jpg)|
 202009120400|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)||![](/fr-CA/2020/09/202009120400MedievalRocamadour.jpg)|
 202009130400|SangreCristoDunes|Dunes de sable avec les monts Sangre de Cristo en toile de fond, Parc national et réserve des Great Sand Dunes, Colorado (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2020/09/202009130400SangreCristoDunes.jpg)|
+202009140400|YellowBells|Colibri à gorge rubis s’abreuvant à des Trompettes d’or dans Texas Hill Country (© Rolf Nussbaumer/Danita Delimont)||![](/fr-CA/2020/09/202009140400YellowBells.jpg)|
