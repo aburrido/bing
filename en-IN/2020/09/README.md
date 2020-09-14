@@ -14,3 +14,4 @@
 202009111830|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon…and cheese|![](/en-IN/2020/09/202009111830MedievalRocamadour.jpg)|
 202009121830|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado, USA (© Tim Fitzharris/Minden Pictures)|Super Sandy Sweet 16|![](/en-IN/2020/09/202009121830SangreCristoDunes.jpg)|
 202009131830|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country, USA (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-IN/2020/09/202009131830YellowBells.jpg)|
+202009141830|LifeguardEntrance|Lifeguard shack at sunset on The Entrance beach, Central Coast, NSW, Australia (© Yury Prokopenko/Getty Images)|Sand, surf, and sun|![](/en-IN/2020/09/202009141830LifeguardEntrance.jpg)|
