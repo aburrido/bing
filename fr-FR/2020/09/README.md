@@ -14,3 +14,4 @@
 202009112200|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|À flanc de montagne|![](/fr-FR/2020/09/202009112200MedievalRocamadour.jpg)|
 202009122200|SangreCristoDunes|Dunes de sable et les monts Sangre de Cristo, Parc national et réserve des Great Sand Dunes, Colorado, États-Unis (© Tim Fitzharris/Minden Pictures)|Mer de sable|![](/fr-FR/2020/09/202009122200SangreCristoDunes.jpg)|
 202009132200|BlurryFlock|Nuée de bécasseaux variables, Vendées, France (© Serge Deboffle/Minden Photo Stock)|Été migrateur|![](/fr-FR/2020/09/202009132200BlurryFlock.jpg)|
+202009142200|LifeguardEntrance|Cabane de sauveteur au coucher du soleil sur une plage de The Entrance, Côte Centrale, Nouvelle-Galles du Sud, Australie (© Yury Prokopenko/Getty Images)|Allégorie du rêve|![](/fr-FR/2020/09/202009142200LifeguardEntrance.jpg)|

@@ -14,3 +14,4 @@
 202009112200|MedievalRocamadour|Rocamadour, Frankreich (© Rrrainbow/Getty Images)|Eine Stadt, eine Klippe, ein Tal – und Käse|![](/de-DE/2020/09/202009112200MedievalRocamadour.jpg)|
 202009122200|PortaNigraMonument|Im Innern der Porta Nigra, Trier, Rheinland-Pfalz (© Stockinasia/Alamy Stock Photo)|Blick aus dem „Schwarzen Tor“|![](/de-DE/2020/09/202009122200PortaNigraMonument.jpg)|
 202009132200|YellowBells|Ein Rubinkehlkolibri saugt Nektar aus der Blüte einer Trompetenblume, Texas Hill Country, Texas, USA (© Rolf Nussbaumer/Danita Delimont)|Die Mini-Flieger ziehen südwärts|![](/de-DE/2020/09/202009132200YellowBells.jpg)|
+202009142200|LifeguardEntrance|Wasserrettungsstation im Sonnenuntergang am Strand von The Entrance, Central Coast, Bundesstaat New South Wales, Australien (© Yury Prokopenko/Getty Images)|Warten auf die Badegäste|![](/de-DE/2020/09/202009142200LifeguardEntrance.jpg)|
