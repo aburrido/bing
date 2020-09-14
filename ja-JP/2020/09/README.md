@@ -14,3 +14,4 @@
 202009111500|BubbleNebula|｢散光星雲(NGC 7635)｣ (© NASA, ESA, and the Hubble Heritage Team STScI/AURA)|今日は｢宇宙の日｣|![](/ja-JP/2020/09/202009111500BubbleNebula.jpg)|
 202009121500|YellowBells|｢ノドアカハチドリ」米国テキサス州, テキサス・ヒル・カントリー (© Rolf Nussbaumer/Danita Delimont)|米国の野鳥|![](/ja-JP/2020/09/202009121500YellowBells.jpg)|
 202009131500|Cosmosday|｢秋のコスモス｣長崎 (© Kumiko Goto/Getty Images)|今日は｢コスモスの日｣|![](/ja-JP/2020/09/202009131500Cosmosday.jpg)|
+202009141500|OkanaganSpots|｢スポッティド湖｣カナダ, ブリティッシュコロンビア (© Galyna Andrushko/Shutterstock)|カナダの水玉湖|![](/ja-JP/2020/09/202009141500OkanaganSpots.jpg)|
