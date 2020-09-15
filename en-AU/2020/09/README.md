@@ -15,3 +15,4 @@
 202009121400|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado, USA (© Tim Fitzharris/Minden Pictures)|Super Sandy enjoys sweet sixteen|![](/en-AU/2020/09/202009121400SangreCristoDunes.jpg)|
 202009131400|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country, USA (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-AU/2020/09/202009131400YellowBells.jpg)|
 202009141400|LifeguardEntrance|Lifeguard shack at sunset on The Entrance beach, Central Coast, NSW (© Yury Prokopenko/Getty Images)|Sand, surf, and sun|![](/en-AU/2020/09/202009141400LifeguardEntrance.jpg)|
+202009151400|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)|It’s Independence Day in Mexico|![](/en-AU/2020/09/202009151400CityofGuanajuato.jpg)|
