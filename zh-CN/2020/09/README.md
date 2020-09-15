@@ -15,3 +15,4 @@
 202009121600|SangreCristoDunes|以桑格雷－德克里斯托山为背景的沙丘，科罗拉多州大沙丘国家公园 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2020/09/202009121600SangreCristoDunes.jpg)|
 202009131600|YellowBells|在食用黄钟花的红喉北蜂鸟，德克萨斯州丘陵地 (© Rolf Nussbaumer/Danita Delimont)||![](/zh-CN/2020/09/202009131600YellowBells.jpg)|
 202009141600|LifeguardEntrance|日落时分中央海岸入口海滩上的救生员小屋，澳大利亚新南威尔士州 (© Yury Prokopenko/Getty Images)||![](/zh-CN/2020/09/202009141600LifeguardEntrance.jpg)|
+202009151600|CityofGuanajuato|瓜纳华托，墨西哥 (© AI NISHINO/Alamy)||![](/zh-CN/2020/09/202009151600CityofGuanajuato.jpg)|
