@@ -15,3 +15,4 @@
 202009120700|MedievalRocamadour|Rocamadour, France (© Rrrainbow/Getty Images)|A city, a cliff, a canyon…and cheese|![](/en-US/2020/09/202009120700MedievalRocamadour.jpg)|
 202009130700|SangreCristoDunes|Sand dunes with Sangre de Cristo Mountains in the background, Great Sand Dunes National Park and Preserve, Colorado (© Tim Fitzharris/Minden Pictures)|Super sandy Sweet 16|![](/en-US/2020/09/202009130700SangreCristoDunes.jpg)|
 202009140700|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-US/2020/09/202009140700YellowBells.jpg)|
+202009150700|OutofManyOne|'Out of Many, One,' an artwork by Jorge Rodríguez-Gerada on the National Mall in Washington, DC (© Keith Lane/Tribune News Service via Getty Images)|For Hispanic Heritage Month: 'Out of Many, One'|![](/en-US/2020/09/202009150700OutofManyOne.jpg)|
