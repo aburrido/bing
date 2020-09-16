@@ -16,3 +16,4 @@
 202009131400|YellowBells|Ruby-throated hummingbird feeding on yellow bells in the Texas Hill Country, USA (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-AU/2020/09/202009131400YellowBells.jpg)|
 202009141400|LifeguardEntrance|Lifeguard shack at sunset on The Entrance beach, Central Coast, NSW (© Yury Prokopenko/Getty Images)|Sand, surf, and sun|![](/en-AU/2020/09/202009141400LifeguardEntrance.jpg)|
 202009151400|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)|It’s Independence Day in Mexico|![](/en-AU/2020/09/202009151400CityofGuanajuato.jpg)|
+202009161400|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-AU/2020/09/202009161400GoldenGinkgo.jpg)|
