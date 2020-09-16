@@ -15,3 +15,4 @@
 202009130400|SangreCristoDunes|Dunes de sable avec les monts Sangre de Cristo en toile de fond, Parc national et réserve des Great Sand Dunes, Colorado (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2020/09/202009130400SangreCristoDunes.jpg)|
 202009140400|YellowBells|Colibri à gorge rubis s’abreuvant à des Trompettes d’or dans Texas Hill Country (© Rolf Nussbaumer/Danita Delimont)||![](/fr-CA/2020/09/202009140400YellowBells.jpg)|
 202009150400|LifeguardEntrance|Cabane de sauveteur au coucher du soleil à la plage de The Entrance, Côtes du Centre, Nouvelle-Galles du Sud, Australie (© Yury Prokopenko/Getty Images)||![](/fr-CA/2020/09/202009150400LifeguardEntrance.jpg)|
+202009160400|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)||![](/fr-CA/2020/09/202009160400CityofGuanajuato.jpg)|
