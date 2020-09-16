@@ -16,3 +16,4 @@
 202009131500|Cosmosday|｢秋のコスモス｣長崎 (© Kumiko Goto/Getty Images)|今日は｢コスモスの日｣|![](/ja-JP/2020/09/202009131500Cosmosday.jpg)|
 202009141500|OkanaganSpots|｢スポッティド湖｣カナダ, ブリティッシュコロンビア (© Galyna Andrushko/Shutterstock)|カナダの水玉湖|![](/ja-JP/2020/09/202009141500OkanaganSpots.jpg)|
 202009151500|CityofGuanajuato|｢グアナフアトの夜景｣メキシコ (© AI NISHINO/Alamy)|今日はメキシコ独立記念日|![](/ja-JP/2020/09/202009151500CityofGuanajuato.jpg)|
+202009161500|MakeHay|｢麦わらロール｣デンマーク, ユトランド半島 (© Nick Brundle Photography/Getty Images)|デンマークの晩夏の風景|![](/ja-JP/2020/09/202009161500MakeHay.jpg)|
