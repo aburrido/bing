@@ -17,3 +17,4 @@
 202009141830|LifeguardEntrance|Lifeguard shack at sunset on The Entrance beach, Central Coast, NSW, Australia (© Yury Prokopenko/Getty Images)|Sand, surf, and sun|![](/en-IN/2020/09/202009141830LifeguardEntrance.jpg)|
 202009151830|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)|It’s Independence Day in Mexico|![](/en-IN/2020/09/202009151830CityofGuanajuato.jpg)|
 202009161830|MistyVineyard|Sunset landscape and smog in Bordeaux vineyard, France (© agefotostock/Alamy)|A hedonist’s paradise|![](/en-IN/2020/09/202009161830MistyVineyard.jpg)|
+202009171830|IcelandicRettir|Icelandic sheep ready for réttir (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-IN/2020/09/202009171830IcelandicRettir.jpg)|
