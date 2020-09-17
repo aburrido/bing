@@ -17,3 +17,4 @@
 202009142200|LifeguardEntrance|Wasserrettungsstation im Sonnenuntergang am Strand von The Entrance, Central Coast, Bundesstaat New South Wales, Australien (© Yury Prokopenko/Getty Images)|Warten auf die Badegäste|![](/de-DE/2020/09/202009142200LifeguardEntrance.jpg)|
 202009152200|CityofGuanajuato|Guanajuato, Mexiko (© AI NISHINO/Alamy)|Mexiko feiert seine Unabhängigkeit|![](/de-DE/2020/09/202009152200CityofGuanajuato.jpg)|
 202009162200|MistyVineyard|Nebelverhangene Landschaft im Weinanbaugebiet Bordeaux, Frankreich (© agefotostock/Alamy Stock Photo)|Paradies für Hedonisten|![](/de-DE/2020/09/202009162200MistyVineyard.jpg)|
+202009172200|IcelandicRettir|Islandschafe warten auf die Réttir (© Pieter Tytgat/Getty Images)|Bald geht es heimwärts|![](/de-DE/2020/09/202009172200IcelandicRettir.jpg)|

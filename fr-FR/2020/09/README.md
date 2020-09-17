@@ -17,3 +17,4 @@
 202009142200|LifeguardEntrance|Cabane de sauveteur au coucher du soleil sur une plage de The Entrance, Côte Centrale, Nouvelle-Galles du Sud, Australie (© Yury Prokopenko/Getty Images)|Allégorie du rêve|![](/fr-FR/2020/09/202009142200LifeguardEntrance.jpg)|
 202009152200|CityofGuanajuato|Guanajuato, Mexique (© AI NISHINO/Alamy)|Indépendance mexicaine|![](/fr-FR/2020/09/202009152200CityofGuanajuato.jpg)|
 202009162200|MistyVineyard|Coucher de soleil sur un vignoble bordelais (© agefotostock/Alamy Stock Photo)|Paradis pour épicuriens|![](/fr-FR/2020/09/202009162200MistyVineyard.jpg)|
+202009172200|IcelandicRettir|Moutons islandais en attente de la transhumance, Islande (© Pieter Tytgat/Getty Images)|Ils sont prêts|![](/fr-FR/2020/09/202009172200IcelandicRettir.jpg)|
