@@ -18,3 +18,4 @@
 202009151500|CityofGuanajuato|｢グアナフアトの夜景｣メキシコ (© AI NISHINO/Alamy)|今日はメキシコ独立記念日|![](/ja-JP/2020/09/202009151500CityofGuanajuato.jpg)|
 202009161500|MakeHay|｢麦わらロール｣デンマーク, ユトランド半島 (© Nick Brundle Photography/Getty Images)|デンマークの晩夏の風景|![](/ja-JP/2020/09/202009161500MakeHay.jpg)|
 ||||![](/ja-JP/2020/09/.jpg)|
+202009171500|BellTowerItaly|｢レッシェン湖の鐘塔｣イタリア, 南チロル (© Scacciamosche/Getty Images)|イタリア、チロルの不思議な風景|![](/ja-JP/2020/09/202009171500BellTowerItaly.jpg)|
