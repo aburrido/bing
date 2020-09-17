@@ -17,3 +17,4 @@
 202009142300|YellowBells|Ruby-throated hummingbird feeding on yellow bells, Texas, USA (© Rolf Nussbaumer/Danita Delimont)|Tiny fliers head south|![](/en-GB/2020/09/202009142300YellowBells.jpg)|
 202009152300|MayflowerSails|The Mayflower II replica of the original Mayflower (© Jim Curran/Adobe Stock)|An historic voyage|![](/en-GB/2020/09/202009152300MayflowerSails.jpg)|
 202009162300|LaGeria|Aerial view of vineyards in La Geria, Lanzarote, Canary Islands, Spain (© Orbon Alija/Getty Images)|Volcanic vineyards|![](/en-GB/2020/09/202009162300LaGeria.jpg)|
+202009172300|IcelandicRettir|Icelandic sheep ready for réttir (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-GB/2020/09/202009172300IcelandicRettir.jpg)|
