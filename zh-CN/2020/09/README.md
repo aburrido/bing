@@ -17,3 +17,4 @@
 202009141600|LifeguardEntrance|日落时分中央海岸入口海滩上的救生员小屋，澳大利亚新南威尔士州 (© Yury Prokopenko/Getty Images)||![](/zh-CN/2020/09/202009141600LifeguardEntrance.jpg)|
 202009151600|CityofGuanajuato|瓜纳华托，墨西哥 (© AI NISHINO/Alamy)||![](/zh-CN/2020/09/202009151600CityofGuanajuato.jpg)|
 202009161600|MistyVineyard|波尔多葡萄园，法国 (© agefotostock/Alamy)||![](/zh-CN/2020/09/202009161600MistyVineyard.jpg)|
+202009171600|IcelandicRettir|为圈羊节准备的冰岛羊 (© Pieter Tytgat/Getty Images)||![](/zh-CN/2020/09/202009171600IcelandicRettir.jpg)|
