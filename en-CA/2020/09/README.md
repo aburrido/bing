@@ -17,3 +17,4 @@
 202009150400|LifeguardEntrance|Lifeguard shack at sunset on The Entrance beach, Central Coast, NSW, Australia (© Yury Prokopenko/Getty Images)|Sand, surf, and sun|![](/en-CA/2020/09/202009150400LifeguardEntrance.jpg)|
 202009160400|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)|It’s Independence Day in Mexico|![](/en-CA/2020/09/202009160400CityofGuanajuato.jpg)|
 202009170400|DroneCranberry|Cranberry harvest seen from a drone, Vancouver (© Grant Faint/Getty Images)|Harvest season is here!|![](/en-CA/2020/09/202009170400DroneCranberry.jpg)|
+202009180400|IcelandicRettir|Icelandic sheep ready for réttir (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-CA/2020/09/202009180400IcelandicRettir.jpg)|
