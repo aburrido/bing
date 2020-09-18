@@ -18,3 +18,4 @@
 202009152200|CityofGuanajuato|Guanajuato, Mexique (© AI NISHINO/Alamy)|Indépendance mexicaine|![](/fr-FR/2020/09/202009152200CityofGuanajuato.jpg)|
 202009162200|MistyVineyard|Coucher de soleil sur un vignoble bordelais (© agefotostock/Alamy Stock Photo)|Paradis pour épicuriens|![](/fr-FR/2020/09/202009162200MistyVineyard.jpg)|
 202009172200|IcelandicRettir|Moutons islandais en attente de la transhumance, Islande (© Pieter Tytgat/Getty Images)|Ils sont prêts|![](/fr-FR/2020/09/202009172200IcelandicRettir.jpg)|
+202009182200|PirateSails|Voiliers à Warnemünde, Allemagne (© Rico Ködder/Getty Images)|À l’abordage !|![](/fr-FR/2020/09/202009182200PirateSails.jpg)|
