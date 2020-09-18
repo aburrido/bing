@@ -18,3 +18,4 @@
 202009151400|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)|It’s Independence Day in Mexico|![](/en-AU/2020/09/202009151400CityofGuanajuato.jpg)|
 202009161400|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-AU/2020/09/202009161400GoldenGinkgo.jpg)|
 202009171400|IcelandicRettir|Icelandic sheep ready for réttir, Iceland (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-AU/2020/09/202009171400IcelandicRettir.jpg)|
+202009181400|PirateSails|Sailboats in Warnemünde, Germany (© Rico Ködder/Getty Images)|Arrr, it be Talk Like a Pirate Day|![](/en-AU/2020/09/202009181400PirateSails.jpg)|
