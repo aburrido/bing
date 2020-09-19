@@ -18,3 +18,4 @@
 202009160400|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)||![](/fr-CA/2020/09/202009160400CityofGuanajuato.jpg)|
 202009170400|MistyVineyard|Vignobles de Bordeaux, France (© agefotostock/Alamy)||![](/fr-CA/2020/09/202009170400MistyVineyard.jpg)|
 202009180400|IcelandicRettir|Moutons islandais, prêts pour le réttir (© Pieter Tytgat/Getty Images)||![](/fr-CA/2020/09/202009180400IcelandicRettir.jpg)|
+202009190400|PirateSails|Voiliers à Warnemünde, Allemagne (© Rico Ködder/Getty Images)||![](/fr-CA/2020/09/202009190400PirateSails.jpg)|
