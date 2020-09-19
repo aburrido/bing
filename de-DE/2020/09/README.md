@@ -19,3 +19,4 @@
 202009162200|MistyVineyard|Nebelverhangene Landschaft im Weinanbaugebiet Bordeaux, Frankreich (© agefotostock/Alamy Stock Photo)|Paradies für Hedonisten|![](/de-DE/2020/09/202009162200MistyVineyard.jpg)|
 202009172200|IcelandicRettir|Islandschafe warten auf die Réttir (© Pieter Tytgat/Getty Images)|Bald geht es heimwärts|![](/de-DE/2020/09/202009172200IcelandicRettir.jpg)|
 202009182200|PirateSails|Segelschiffe vor Warnemünde, Mecklenburg-Vorpommern (© Rico Ködder/Getty Images)|Heute ist Sprich-wie-ein-Pirat-Tag! Jo-ho-ho!|![](/de-DE/2020/09/202009182200PirateSails.jpg)|
+202009192200|MontereyPup|Seeotterweibchen mit Jungtier, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)|Zeit zum Kuscheln|![](/de-DE/2020/09/202009192200MontereyPup.jpg)|
