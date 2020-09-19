@@ -19,3 +19,4 @@
 202009161400|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-AU/2020/09/202009161400GoldenGinkgo.jpg)|
 202009171400|IcelandicRettir|Icelandic sheep ready for réttir, Iceland (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-AU/2020/09/202009171400IcelandicRettir.jpg)|
 202009181400|PirateSails|Sailboats in Warnemünde, Germany (© Rico Ködder/Getty Images)|Arrr, it be Talk Like a Pirate Day|![](/en-AU/2020/09/202009181400PirateSails.jpg)|
+202009191400|MontereyPup|Sea otter mother and newborn pup in Monterey Bay, California, USA (© Suzi Eszterhas/Minden Pictures)|Celebrating sea otters|![](/en-AU/2020/09/202009191400MontereyPup.jpg)|
