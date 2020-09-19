@@ -19,3 +19,4 @@
 202009160700|CityofGuanajuato|Guanajuato, Mexico (© AI NISHINO/Alamy)|It's Independence Day in Mexico|![](/en-US/2020/09/202009160700CityofGuanajuato.jpg)|
 202009170700|NationalArchives|The US Constitution and the Declaration of Independence on display in the National Archives, Washington, DC (© Carol M. Highsmith/Buyenlarge/Getty Images)|Citizenship Day and Constitution Day|![](/en-US/2020/09/202009170700NationalArchives.jpg)|
 202009180700|IcelandicRettir|Icelandic sheep ready for réttir (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-US/2020/09/202009180700IcelandicRettir.jpg)|
+202009190700|PirateSails|Sailboats in Warnemünde, Germany (© Rico Ködder/Getty Images)|Arrr, it be Talk Like a Pirate Day|![](/en-US/2020/09/202009190700PirateSails.jpg)|
