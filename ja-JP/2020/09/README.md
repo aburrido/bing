@@ -20,3 +20,4 @@
 ||||![](/ja-JP/2020/09/.jpg)|
 202009171500|BellTowerItaly|｢レッシェン湖の鐘塔｣イタリア, 南チロル (© Scacciamosche/Getty Images)|イタリア、チロルの不思議な風景|![](/ja-JP/2020/09/202009171500BellTowerItaly.jpg)|
 202009181500|DubrovnikDoors|｢ロブリイェナッツ要塞｣クロアチア, ドゥブロヴニク (© Barbara Vallance/Getty Images)|クロアチアの世界遺産|![](/ja-JP/2020/09/202009181500DubrovnikDoors.jpg)|
+202009191500|OttoSettembre|｢バレッタ｣マルタ (© Deejpilot/GettyImages)|マルタの世界遺産|![](/ja-JP/2020/09/202009191500OttoSettembre.jpg)|
