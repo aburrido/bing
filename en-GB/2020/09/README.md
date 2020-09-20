@@ -20,3 +20,4 @@
 202009172300|IcelandicRettir|Icelandic sheep ready for réttir (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-GB/2020/09/202009172300IcelandicRettir.jpg)|
 202009182300|BeaverDam|Beaver dam in the Sawtooth National Forest, Idaho, USA (© Charles Knowles/Alamy)|Slowing the flow|![](/en-GB/2020/09/202009182300BeaverDam.jpg)|
 202009192300|MontereyPup|Sea otter mother and newborn pup in Monterey Bay, California, USA (© Suzi Eszterhas/Minden Pictures)|A warm hug|![](/en-GB/2020/09/202009192300MontereyPup.jpg)|
+202009202300|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|Afloat with hope|![](/en-GB/2020/09/202009202300ToleranceShip.jpg)|
