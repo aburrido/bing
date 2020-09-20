@@ -19,3 +19,4 @@
 202009170400|MistyVineyard|Vignobles de Bordeaux, France (© agefotostock/Alamy)||![](/fr-CA/2020/09/202009170400MistyVineyard.jpg)|
 202009180400|IcelandicRettir|Moutons islandais, prêts pour le réttir (© Pieter Tytgat/Getty Images)||![](/fr-CA/2020/09/202009180400IcelandicRettir.jpg)|
 202009190400|PirateSails|Voiliers à Warnemünde, Allemagne (© Rico Ködder/Getty Images)||![](/fr-CA/2020/09/202009190400PirateSails.jpg)|
+202009200400|MontereyPup|Une mère loutre de mer et son nouveau-né à Monterey Bay, Californie (© Suzi Eszterhas/Minden Pictures)||![](/fr-CA/2020/09/202009200400MontereyPup.jpg)|
