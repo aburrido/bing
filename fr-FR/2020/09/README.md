@@ -20,3 +20,4 @@
 202009172200|IcelandicRettir|Moutons islandais en attente de la transhumance, Islande (© Pieter Tytgat/Getty Images)|Ils sont prêts|![](/fr-FR/2020/09/202009172200IcelandicRettir.jpg)|
 202009182200|PirateSails|Voiliers à Warnemünde, Allemagne (© Rico Ködder/Getty Images)|À l’abordage !|![](/fr-FR/2020/09/202009182200PirateSails.jpg)|
 202009192200|MontereyPup|Loutre de mer et son nouveau-né dans la baie de Monteray, Californie (© Suzi Eszterhas/Minden Pictures)|Fondez maintenant|![](/fr-FR/2020/09/202009192200MontereyPup.jpg)|
+202009202200|ToleranceShip|Le Ship of Tolerance, une installation artistique internationale à Zoug, Suisse (© Linda Kennard/Alamy)|Pour un monde meilleur|![](/fr-FR/2020/09/202009202200ToleranceShip.jpg)|
