@@ -20,3 +20,4 @@
 202009171830|IcelandicRettir|Icelandic sheep ready for réttir (© Pieter Tytgat/Getty Images)|Homeward bound|![](/en-IN/2020/09/202009171830IcelandicRettir.jpg)|
 202009181830|PirateSails|Sailboats in Warnemünde, Germany (© Rico Ködder/Getty Images)|Arrr, it be Talk Like a Pirate Day|![](/en-IN/2020/09/202009181830PirateSails.jpg)|
 202009191830|MontereyPup|Sea otter mother and newborn pup in Monterey Bay, USA (© Suzi Eszterhas/Minden Pictures)|Celebrating sea otters|![](/en-IN/2020/09/202009191830MontereyPup.jpg)|
+202009201830|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|A gentle wind fills this sail|![](/en-IN/2020/09/202009201830ToleranceShip.jpg)|
