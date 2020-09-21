@@ -21,3 +21,4 @@
 202009181600|PirateSails|瓦尔内明德的帆船，德国 (© Rico Ködder/Getty Images)||![](/zh-CN/2020/09/202009181600PirateSails.jpg)|
 202009191600|MontereyPup|海獭妈妈和新生的小狗，加利福尼亚蒙特雷湾 (© Suzi Eszterhas/Minden Pictures)||![](/zh-CN/2020/09/202009191600MontereyPup.jpg)|
 202009201600|DorsetHeather|斯塔德兰附近荒野上丛生的紫色和粉红色帚石楠，英国多塞特郡 (© allou/iStock/Getty Images Plus)||![](/zh-CN/2020/09/202009201600DorsetHeather.jpg)|
+202009211600|Matamata|马塔马塔附近的霍比特人村，新西兰北岛 (© 500px Asia/Getty Images)||![](/zh-CN/2020/09/202009211600Matamata.jpg)|
