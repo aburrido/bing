@@ -21,3 +21,4 @@
 202009181830|PirateSails|Sailboats in Warnemünde, Germany (© Rico Ködder/Getty Images)|Arrr, it be Talk Like a Pirate Day|![](/en-IN/2020/09/202009181830PirateSails.jpg)|
 202009191830|MontereyPup|Sea otter mother and newborn pup in Monterey Bay, USA (© Suzi Eszterhas/Minden Pictures)|Celebrating sea otters|![](/en-IN/2020/09/202009191830MontereyPup.jpg)|
 202009201830|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|A gentle wind fills this sail|![](/en-IN/2020/09/202009201830ToleranceShip.jpg)|
+202009211830|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day|![](/en-IN/2020/09/202009211830Matamata.jpg)|
