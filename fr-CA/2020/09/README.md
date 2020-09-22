@@ -21,3 +21,4 @@
 202009190400|PirateSails|Voiliers à Warnemünde, Allemagne (© Rico Ködder/Getty Images)||![](/fr-CA/2020/09/202009190400PirateSails.jpg)|
 202009200400|MontereyPup|Une mère loutre de mer et son nouveau-né à Monterey Bay, Californie (© Suzi Eszterhas/Minden Pictures)||![](/fr-CA/2020/09/202009200400MontereyPup.jpg)|
 202009210400|DroneCranberry|La récolte des canneberges vue d’un drone, Vancouver (© Grant Faint/Getty Images)||![](/fr-CA/2020/09/202009210400DroneCranberry.jpg)|
+202009220400|Matamata|Hobbiton, près de Matamata, île du Nord, Nouvelle-Zélande (© 500px Asia/Getty Images)||![](/fr-CA/2020/09/202009220400Matamata.jpg)|
