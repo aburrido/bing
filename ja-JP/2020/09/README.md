@@ -23,3 +23,4 @@
 202009191500|OttoSettembre|｢バレッタ｣マルタ (© Deejpilot/GettyImages)|マルタの世界遺産|![](/ja-JP/2020/09/202009191500OttoSettembre.jpg)|
 202009201500|oldowl|｢エゾフクロウ｣北海道 (© Philip Friskorn/Minden Pictures)|今日は｢敬老の日｣|![](/ja-JP/2020/09/202009201500oldowl.jpg)|
 202009211500|GoldenGinkgo|｢秋の玄武湖公園｣中国, 江蘇省 (© SIPA Asia/ZUMA Wire/Alamy)|今日は｢秋分の日｣|![](/ja-JP/2020/09/202009211500GoldenGinkgo.jpg)|
+202009221500|GrapeHarvest|｢ワイン用のぶどう｣アルゼンチン, メンドーサ (© javarman3/iStock/Getty Images Plus)|今日は｢ぶどうの日｣|![](/ja-JP/2020/09/202009221500GrapeHarvest.jpg)|
