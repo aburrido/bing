@@ -23,3 +23,4 @@
 202009201830|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|A gentle wind fills this sail|![](/en-IN/2020/09/202009201830ToleranceShip.jpg)|
 202009211830|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day|![](/en-IN/2020/09/202009211830Matamata.jpg)|
 202009221830|KingfishersIndia|Two kingfishers at the Nagarahole National Park, Karnataka (© Pradeep BR/shutterstock)|Kingfishers at the Nagarahole National Park|![](/en-IN/2020/09/202009221830KingfishersIndia.jpg)|
+202009231830|Almabtrieb|Decorated cows for the Almabtrieb, where the cattle are led back from their alpine pasture, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-IN/2020/09/202009231830Almabtrieb.jpg)|
