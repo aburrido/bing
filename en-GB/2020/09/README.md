@@ -23,3 +23,4 @@
 202009202300|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|Afloat with hope|![](/en-GB/2020/09/202009202300ToleranceShip.jpg)|
 202009212300|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day!|![](/en-GB/2020/09/202009212300Matamata.jpg)|
 202009222300|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-GB/2020/09/202009222300GoldenGinkgo.jpg)|
+202009232300|Almabtrieb|Decorated cows for the Almabtrieb, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|When the cows come home|![](/en-GB/2020/09/202009232300Almabtrieb.jpg)|
