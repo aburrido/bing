@@ -23,3 +23,4 @@
 202009201400|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|A gentle wind fills this sail|![](/en-AU/2020/09/202009201400ToleranceShip.jpg)|
 202009211400|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day|![](/en-AU/2020/09/202009211400Matamata.jpg)|
 202009221400|RedTulipsFloriade|Red tulips at Floriade flower and entertainment festival, Canberra (© Jenny Dettrick/Getty Images)|Floriade blooms for 2020|![](/en-AU/2020/09/202009221400RedTulipsFloriade.jpg)|
+202009231400|Almabtrieb|Decorated cows for the Almabtrieb, where the cattle are led back from their alpine pasture, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-AU/2020/09/202009231400Almabtrieb.jpg)|
