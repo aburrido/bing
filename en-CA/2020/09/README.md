@@ -22,3 +22,4 @@
 202009200400|MontereyPup|Sea otter mother and newborn pup in Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)|Celebrating sea otters|![](/en-CA/2020/09/202009200400MontereyPup.jpg)|
 202009210400|ToleranceShip|The Ship of Tolerance, an international art installation in Zug, Switzerland (© Linda Kennard/Alamy)|A gentle wind fills this sail|![](/en-CA/2020/09/202009210400ToleranceShip.jpg)|
 202009220400|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day|![](/en-CA/2020/09/202009220400Matamata.jpg)|
+202009230400|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-CA/2020/09/202009230400GoldenGinkgo.jpg)|
