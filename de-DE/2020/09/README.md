@@ -24,3 +24,4 @@
 202009212200|HohenzollernHerbst|Blick vom Zeller Horn auf die Burg Hohenzollern, Baden-Württemberg (© imageBROKER/Alamy Stock Photo)|Herbstanfang im „Ländle“|![](/de-DE/2020/09/202009212200HohenzollernHerbst.jpg)|
 202009222200|GoldenGinkgo|Goldene Ginkgoblätter im Park am Xuanwu-See in Nanjing, Provinz Jiangsu, China (© SIPA Asia/ZUMA Wire/Alamy)|Ein Baum mit vielen Erinnerungen|![](/de-DE/2020/09/202009222200GoldenGinkgo.jpg)|
 202009232200|Almabtrieb|Geschmückte Kühe vor dem Almabtrieb, Tannheimer Tal, Tirol, Österreich (© Hans Lippert/Alamy)|Von der Alm ins Tal|![](/de-DE/2020/09/202009232200Almabtrieb.jpg)|
+202009242200|LoarreCastle|Castillo de Loarre, Provinz Huesca, Region Aragonien, Spanien (© Sebastian Wasek/Alamy)|Am Fuße der westlichen Pyrenäen|![](/de-DE/2020/09/202009242200LoarreCastle.jpg)|
