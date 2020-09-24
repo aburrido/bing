@@ -23,3 +23,4 @@
 202009210400|DroneCranberry|La récolte des canneberges vue d’un drone, Vancouver (© Grant Faint/Getty Images)||![](/fr-CA/2020/09/202009210400DroneCranberry.jpg)|
 202009220400|Matamata|Hobbiton, près de Matamata, île du Nord, Nouvelle-Zélande (© 500px Asia/Getty Images)||![](/fr-CA/2020/09/202009220400Matamata.jpg)|
 202009230400|GoldenGinkgo|Feuilles de ginkgo dorées au parc du la Xuanwu à Nanjing, province de Jiangsu, Chine (© SIPA Asia/ZUMA Wire/Alamy)||![](/fr-CA/2020/09/202009230400GoldenGinkgo.jpg)|
+202009240400|Almabtrieb|Vaches décorées pour l’Almabtrieb, fête au cours de laquelle le bétail est ramené des alpages, Tannheimer Tal, une vallée du Tyrol, Autriche (© Hans Lippert/Alamy)||![](/fr-CA/2020/09/202009240400Almabtrieb.jpg)|
