@@ -25,3 +25,4 @@
 202009222200|GoldenGinkgo|Feuilles dorées de ginkgo dans le parc du lac Xuanwu à Nanjing, Province du Jiangsu, Chine (© SIPA Asia/ZUMA Wire/Alamy)|Arbre de la mémoire|![](/fr-FR/2020/09/202009222200GoldenGinkgo.jpg)|
 202009232200|Almabtrieb|Vaches décorées pour l’Almabtrieb, vallée de Tannheimer Tal, Tyrol, Autriche (© Hans Lippert/Alamy)|Meuh|![](/fr-FR/2020/09/202009232200Almabtrieb.jpg)|
 202009242200|LoarreCastle|Château de Loarre, Hoya de Huesca, Aragon, Espagne (© Sebastian Wasek/Alamy)|À l'épreuve du temps|![](/fr-FR/2020/09/202009242200LoarreCastle.jpg)|
+202009252200|WatkinsGlen|Cascade dans le parc d’état de Watkins Glen, région des Finger Lakes, New York, États-Unis (© Kenneth Keifer/Alamy)|Voyage à New York|![](/fr-FR/2020/09/202009252200WatkinsGlen.jpg)|
