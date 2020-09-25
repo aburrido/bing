@@ -25,3 +25,4 @@
 202009221830|KingfishersIndia|Two kingfishers at the Nagarahole National Park, Karnataka (© Pradeep BR/shutterstock)|Kingfishers at the Nagarahole National Park|![](/en-IN/2020/09/202009221830KingfishersIndia.jpg)|
 202009231830|Almabtrieb|Decorated cows for the Almabtrieb, where the cattle are led back from their alpine pasture, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-IN/2020/09/202009231830Almabtrieb.jpg)|
 202009241830|LoarreCastle|Loarre castle, Huesca, Aragón, Spain (© Sebastian Wasek/Alamy)|Suspended in time|![](/en-IN/2020/09/202009241830LoarreCastle.jpg)|
+202009251830|WatkinsGlen|Watkins Glen State Park's Rainbow Falls in the Finger Lakes region of upstate New York, USA (© Kenneth Keifer/Alamy)|Wandering Watkins Glen|![](/en-IN/2020/09/202009251830WatkinsGlen.jpg)|
