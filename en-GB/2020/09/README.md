@@ -25,3 +25,4 @@
 202009222300|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-GB/2020/09/202009222300GoldenGinkgo.jpg)|
 202009232300|Almabtrieb|Decorated cows for the Almabtrieb, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|When the cows come home|![](/en-GB/2020/09/202009232300Almabtrieb.jpg)|
 202009242300|TrossachsCastle|Tigh Mor and Loch Achray surrounded by fog, Perthshire (© Fortunato Gatto/Sime/eStock Photo)|Season of mists|![](/en-GB/2020/09/202009242300TrossachsCastle.jpg)|
+202009252300|WatkinsGlen|Watkins Glen State Park's Rainbow Falls, upstate New York, USA (© Kenneth Keifer/Alamy)|Autumnal falls|![](/en-GB/2020/09/202009252300WatkinsGlen.jpg)|
