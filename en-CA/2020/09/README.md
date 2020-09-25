@@ -24,3 +24,4 @@
 202009220400|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day|![](/en-CA/2020/09/202009220400Matamata.jpg)|
 202009230400|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-CA/2020/09/202009230400GoldenGinkgo.jpg)|
 202009240400|Almabtrieb|Decorated cows for the Almabtrieb, where the cattle are led back from their alpine pasture, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-CA/2020/09/202009240400Almabtrieb.jpg)|
+202009250400|HamiltonAutumn|Webster's Falls in autumn, Hamilton, Ont. (© Saffron Blaze/Getty Images)|Majestic waterfall|![](/en-CA/2020/09/202009250400HamiltonAutumn.jpg)|
