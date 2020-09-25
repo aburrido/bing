@@ -25,3 +25,4 @@
 202009220700|Matamata|Hobbiton, near Matamata, North Island, New Zealand (© 500px Asia/Getty Images)|Happy Hobbit Day|![](/en-US/2020/09/202009220700Matamata.jpg)|
 202009230700|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-US/2020/09/202009230700GoldenGinkgo.jpg)|
 202009240700|Almabtrieb|Cows decorated for the Almabtrieb in Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-US/2020/09/202009240700Almabtrieb.jpg)|
+202009250700|NatBookFest|Ceiling and cove of the Great Hall at the Library of Congress in Washington, DC (© Susan Candelario/Alamy)|One for the books|![](/en-US/2020/09/202009250700NatBookFest.jpg)|
