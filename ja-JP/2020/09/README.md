@@ -26,3 +26,4 @@
 202009221500|GrapeHarvest|｢ワイン用のぶどう｣アルゼンチン, メンドーサ (© javarman3/iStock/Getty Images Plus)|今日は｢ぶどうの日｣|![](/ja-JP/2020/09/202009221500GrapeHarvest.jpg)|
 202009231500|MontereyPup|｢親子ラッコ｣米国カリフォルニア州, モントレー湾 (© Suzi Eszterhas/Minden Pictures)|今週は｢ラッコ啓蒙週間｣|![](/ja-JP/2020/09/202009231500MontereyPup.jpg)|
 202009241500|LoarreCastle|｢ロアーレ城｣ スペイン, アラゴン (© Sebastian Wasek/Alamy)|スペインのロマネスク建築|![](/ja-JP/2020/09/202009241500LoarreCastle.jpg)|
+202009251500|Almabtrieb|｢牛追い祭りの飾りをした牛たち｣オーストリア, タンハイマー・タール (© Hans Lippert/Alamy)|チロルの秋の風物詩|![](/ja-JP/2020/09/202009251500Almabtrieb.jpg)|
