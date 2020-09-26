@@ -26,3 +26,4 @@
 202009231600|Almabtrieb|为牛下山节（即把牛从高山牧场赶回）装饰的牛，奥地利坦海姆塔尔 (© Hans Lippert/Alamy)||![](/zh-CN/2020/09/202009231600Almabtrieb.jpg)|
 202009241600|LoarreCastle|洛阿雷城堡，西班牙韦斯卡 (© Sebastian Wasek/Alamy)||![](/zh-CN/2020/09/202009241600LoarreCastle.jpg)|
 202009251600|WatkinsGlen|沃特金斯格伦州立公园的彩虹瀑布，纽约州北部芬格湖群 (© Kenneth Keifer/Alamy)||![](/zh-CN/2020/09/202009251600WatkinsGlen.jpg)|
+202009261600|FraserRiver|温哥华东部的弗雷泽河和金耳朵山脉，加拿大不列颠哥伦比亚省 (© LeonU/Getty Images)||![](/zh-CN/2020/09/202009261600FraserRiver.jpg)|
