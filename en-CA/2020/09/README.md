@@ -25,3 +25,4 @@
 202009230400|GoldenGinkgo|Golden ginkgo leaves at Xuanwu Lake Park in Nanjing, Jiangsu Province, China (© SIPA Asia/ZUMA Wire/Alamy)|A tree of many memories|![](/en-CA/2020/09/202009230400GoldenGinkgo.jpg)|
 202009240400|Almabtrieb|Decorated cows for the Almabtrieb, where the cattle are led back from their alpine pasture, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-CA/2020/09/202009240400Almabtrieb.jpg)|
 202009250400|HamiltonAutumn|Webster's Falls in autumn, Hamilton, Ont. (© Saffron Blaze/Getty Images)|Majestic waterfall|![](/en-CA/2020/09/202009250400HamiltonAutumn.jpg)|
+202009260400|WatkinsGlen|Watkins Glen State Park's Rainbow Falls in the Finger Lakes region of upstate New York (© Kenneth Keifer/Alamy)|Wandering Watkins Glen|![](/en-CA/2020/09/202009260400WatkinsGlen.jpg)|

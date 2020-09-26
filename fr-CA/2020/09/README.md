@@ -25,3 +25,4 @@
 202009230400|GoldenGinkgo|Feuilles de ginkgo dorées au parc du la Xuanwu à Nanjing, province de Jiangsu, Chine (© SIPA Asia/ZUMA Wire/Alamy)||![](/fr-CA/2020/09/202009230400GoldenGinkgo.jpg)|
 202009240400|Almabtrieb|Vaches décorées pour l’Almabtrieb, fête au cours de laquelle le bétail est ramené des alpages, Tannheimer Tal, une vallée du Tyrol, Autriche (© Hans Lippert/Alamy)||![](/fr-CA/2020/09/202009240400Almabtrieb.jpg)|
 202009250400|WatkinsGlen|Chutes Rainbow Falls du parc d’État de Watkins Glen dans la région des Finger Lakes au nord de l’État de New York (© Kenneth Keifer/Alamy)||![](/fr-CA/2020/09/202009250400WatkinsGlen.jpg)|
+202009260400|HamiltonAutumn|Chutes Webster en automne, Hamilton, Ontario (© Saffron Blaze/Getty Images)||![](/fr-CA/2020/09/202009260400HamiltonAutumn.jpg)|
