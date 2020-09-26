@@ -26,3 +26,4 @@
 202009231400|Almabtrieb|Decorated cows for the Almabtrieb, where the cattle are led back from their alpine pasture, Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-AU/2020/09/202009231400Almabtrieb.jpg)|
 202009241400|CatspawFlowers|Catspaw (Anigozanthos humilis) flowers, Yilliminning Rock Reserve, Western Australia (© Krystyna Szulecka/Minden Pictures)|Hitting paws on spring|![](/en-AU/2020/09/202009241400CatspawFlowers.jpg)|
 202009251400|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-AU/2020/09/202009251400RestormelCastle.jpg)|
+202009261400|FraserRiver|Fraser River east of Vancouver, British Columbia, Canada, with the Golden Ears mountains (© LeonU/Getty Images)|Take me to the river|![](/en-AU/2020/09/202009261400FraserRiver.jpg)|
