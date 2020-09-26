@@ -26,3 +26,4 @@
 202009232200|Almabtrieb|Geschmückte Kühe vor dem Almabtrieb, Tannheimer Tal, Tirol, Österreich (© Hans Lippert/Alamy)|Von der Alm ins Tal|![](/de-DE/2020/09/202009232200Almabtrieb.jpg)|
 202009242200|LoarreCastle|Castillo de Loarre, Provinz Huesca, Region Aragonien, Spanien (© Sebastian Wasek/Alamy)|Am Fuße der westlichen Pyrenäen|![](/de-DE/2020/09/202009242200LoarreCastle.jpg)|
 202009252200|LaragangaMoth|Pfauenspinner im Mole-Nationalpark in Larabanga, Ghana (© Robert Thompson/Minden Pictures)|Augen auf!|![](/de-DE/2020/09/202009252200LaragangaMoth.jpg)|
+202009262200|FraserRiver|Der Fraser River und die Gipfel des Golden Ears östlich von Vancouver, British Columbia, Kanada (© LeonU/Getty Images)|Unten am Fluss|![](/de-DE/2020/09/202009262200FraserRiver.jpg)|
