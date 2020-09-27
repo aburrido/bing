@@ -27,3 +27,4 @@
 202009242300|TrossachsCastle|Tigh Mor and Loch Achray surrounded by fog, Perthshire (© Fortunato Gatto/Sime/eStock Photo)|Season of mists|![](/en-GB/2020/09/202009242300TrossachsCastle.jpg)|
 202009252300|WatkinsGlen|Watkins Glen State Park's Rainbow Falls, upstate New York, USA (© Kenneth Keifer/Alamy)|Autumnal falls|![](/en-GB/2020/09/202009252300WatkinsGlen.jpg)|
 202009262300|FraserRiver|Fraser River east of Vancouver, British Columbia, Canada (© LeonU/Getty Images)|Take me to the river|![](/en-GB/2020/09/202009262300FraserRiver.jpg)|
+202009272300|GreatBlueShark|Blue shark near the Azores in the North Atlantic Ocean (© Nuno Sa/Minden Pictures)|Chasing currents|![](/en-GB/2020/09/202009272300GreatBlueShark.jpg)|
