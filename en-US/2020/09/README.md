@@ -27,3 +27,4 @@
 202009240700|Almabtrieb|Cows decorated for the Almabtrieb in Tannheimer Tal, a valley in Tyrol, Austria (© Hans Lippert/Alamy)|Till the cows come home|![](/en-US/2020/09/202009240700Almabtrieb.jpg)|
 202009250700|NatBookFest|Ceiling and cove of the Great Hall at the Library of Congress in Washington, DC (© Susan Candelario/Alamy)|One for the books|![](/en-US/2020/09/202009250700NatBookFest.jpg)|
 202009260700|WatkinsGlen|Watkins Glen State Park's Rainbow Falls in the Finger Lakes region of upstate New York (© Kenneth Keifer/Alamy)|Wandering Watkins Glen|![](/en-US/2020/09/202009260700WatkinsGlen.jpg)|
+202009270700|FraserRiver|The Fraser River, east of Vancouver, British Columbia, Canada, with the Golden Ears mountains (© LeonU/Getty Images)|Take me to the river|![](/en-US/2020/09/202009270700FraserRiver.jpg)|
