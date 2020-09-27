@@ -27,3 +27,4 @@
 202009242200|LoarreCastle|Château de Loarre, Hoya de Huesca, Aragon, Espagne (© Sebastian Wasek/Alamy)|À l'épreuve du temps|![](/fr-FR/2020/09/202009242200LoarreCastle.jpg)|
 202009252200|WatkinsGlen|Cascade dans le parc d’état de Watkins Glen, région des Finger Lakes, New York, États-Unis (© Kenneth Keifer/Alamy)|Voyage à New York|![](/fr-FR/2020/09/202009252200WatkinsGlen.jpg)|
 202009262200|FraserRiver|Fleuve Fraser à l’est de Vancouver, Colombie-Britannique, Canada (© LeonU/Getty Images)|Grandeur nature|![](/fr-FR/2020/09/202009262200FraserRiver.jpg)|
+202009272200|GreatBlueShark|Requin bleu près des Açores, Portugal (© Nuno Sa/Minden Pictures)|Attention les yeux|![](/fr-FR/2020/09/202009272200GreatBlueShark.jpg)|
