@@ -26,3 +26,4 @@
 202009240400|Almabtrieb|Vaches décorées pour l’Almabtrieb, fête au cours de laquelle le bétail est ramené des alpages, Tannheimer Tal, une vallée du Tyrol, Autriche (© Hans Lippert/Alamy)||![](/fr-CA/2020/09/202009240400Almabtrieb.jpg)|
 202009250400|WatkinsGlen|Chutes Rainbow Falls du parc d’État de Watkins Glen dans la région des Finger Lakes au nord de l’État de New York (© Kenneth Keifer/Alamy)||![](/fr-CA/2020/09/202009250400WatkinsGlen.jpg)|
 202009260400|HamiltonAutumn|Chutes Webster en automne, Hamilton, Ontario (© Saffron Blaze/Getty Images)||![](/fr-CA/2020/09/202009260400HamiltonAutumn.jpg)|
+202009270400|FraserRiver|Le fleuve Fraser à l’est de Vancouver et les montagnes Golden Ears (© LeonU/Getty Images)||![](/fr-CA/2020/09/202009270400FraserRiver.jpg)|
