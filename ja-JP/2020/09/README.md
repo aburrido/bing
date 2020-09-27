@@ -28,3 +28,4 @@
 202009241500|LoarreCastle|｢ロアーレ城｣ スペイン, アラゴン (© Sebastian Wasek/Alamy)|スペインのロマネスク建築|![](/ja-JP/2020/09/202009241500LoarreCastle.jpg)|
 202009251500|Almabtrieb|｢牛追い祭りの飾りをした牛たち｣オーストリア, タンハイマー・タール (© Hans Lippert/Alamy)|チロルの秋の風物詩|![](/ja-JP/2020/09/202009251500Almabtrieb.jpg)|
 202009261500|ChefchaouenMorocco|｢シャウエンの青い壁｣モロッコ (© Tatsuya Ohinata/Getty Images)|今日は｢世界観光の日｣|![](/ja-JP/2020/09/202009261500ChefchaouenMorocco.jpg)|
+202009271500|BlueChip|｢半導体集積回路のクローズアップ｣ (© Bobkov Evgeniy/Shutterstock)|今日は｢パソコンの日｣|![](/ja-JP/2020/09/202009271500BlueChip.jpg)|
