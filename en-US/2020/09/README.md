@@ -28,3 +28,4 @@
 202009250700|NatBookFest|Ceiling and cove of the Great Hall at the Library of Congress in Washington, DC (© Susan Candelario/Alamy)|One for the books|![](/en-US/2020/09/202009250700NatBookFest.jpg)|
 202009260700|WatkinsGlen|Watkins Glen State Park's Rainbow Falls in the Finger Lakes region of upstate New York (© Kenneth Keifer/Alamy)|Wandering Watkins Glen|![](/en-US/2020/09/202009260700WatkinsGlen.jpg)|
 202009270700|FraserRiver|The Fraser River, east of Vancouver, British Columbia, Canada, with the Golden Ears mountains (© LeonU/Getty Images)|Take me to the river|![](/en-US/2020/09/202009270700FraserRiver.jpg)|
+202009280700|GreatBlueShark|Blue shark near the Azores in the North Atlantic Ocean (© Nuno Sa/Minden Pictures)|Explorer of the sea|![](/en-US/2020/09/202009280700GreatBlueShark.jpg)|
