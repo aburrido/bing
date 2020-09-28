@@ -27,3 +27,4 @@
 202009250400|WatkinsGlen|Chutes Rainbow Falls du parc d’État de Watkins Glen dans la région des Finger Lakes au nord de l’État de New York (© Kenneth Keifer/Alamy)||![](/fr-CA/2020/09/202009250400WatkinsGlen.jpg)|
 202009260400|HamiltonAutumn|Chutes Webster en automne, Hamilton, Ontario (© Saffron Blaze/Getty Images)||![](/fr-CA/2020/09/202009260400HamiltonAutumn.jpg)|
 202009270400|FraserRiver|Le fleuve Fraser à l’est de Vancouver et les montagnes Golden Ears (© LeonU/Getty Images)||![](/fr-CA/2020/09/202009270400FraserRiver.jpg)|
+202009280400|GreatBlueShark|Requin bleu près des Açores dans l’océan Atlantique Nord (© Nuno Sa/Minden Pictures)||![](/fr-CA/2020/09/202009280400GreatBlueShark.jpg)|
