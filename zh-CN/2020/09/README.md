@@ -28,3 +28,4 @@
 202009251600|WatkinsGlen|沃特金斯格伦州立公园的彩虹瀑布，纽约州北部芬格湖群 (© Kenneth Keifer/Alamy)||![](/zh-CN/2020/09/202009251600WatkinsGlen.jpg)|
 202009261600|FraserRiver|温哥华东部的弗雷泽河和金耳朵山脉，加拿大不列颠哥伦比亚省 (© LeonU/Getty Images)||![](/zh-CN/2020/09/202009261600FraserRiver.jpg)|
 202009271600|GreatBlueShark|北大西洋亚速尔群岛附近的大青鲨 (© Nuno Sa/Minden Pictures)||![](/zh-CN/2020/09/202009271600GreatBlueShark.jpg)|
+202009281600|Lavaux|日内瓦湖岸上陡峭的拉沃葡萄园梯田，瑞士 (© Yves Marcoux/plainpicture)||![](/zh-CN/2020/09/202009281600Lavaux.jpg)|
