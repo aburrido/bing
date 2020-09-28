@@ -28,3 +28,4 @@
 202009252300|WatkinsGlen|Watkins Glen State Park's Rainbow Falls, upstate New York, USA (© Kenneth Keifer/Alamy)|Autumnal falls|![](/en-GB/2020/09/202009252300WatkinsGlen.jpg)|
 202009262300|FraserRiver|Fraser River east of Vancouver, British Columbia, Canada (© LeonU/Getty Images)|Take me to the river|![](/en-GB/2020/09/202009262300FraserRiver.jpg)|
 202009272300|GreatBlueShark|Blue shark near the Azores in the North Atlantic Ocean (© Nuno Sa/Minden Pictures)|Chasing currents|![](/en-GB/2020/09/202009272300GreatBlueShark.jpg)|
+202009282300|Lavaux|Steeply terraced vineyards of the Lavaux region on the shores of Lake Geneva, Switzerland (© Yves Marcoux/plainpicture)|A crush in Lavaux|![](/en-GB/2020/09/202009282300Lavaux.jpg)|
