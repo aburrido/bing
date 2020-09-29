@@ -28,3 +28,4 @@
 202009260400|HamiltonAutumn|Chutes Webster en automne, Hamilton, Ontario (© Saffron Blaze/Getty Images)||![](/fr-CA/2020/09/202009260400HamiltonAutumn.jpg)|
 202009270400|FraserRiver|Le fleuve Fraser à l’est de Vancouver et les montagnes Golden Ears (© LeonU/Getty Images)||![](/fr-CA/2020/09/202009270400FraserRiver.jpg)|
 202009280400|GreatBlueShark|Requin bleu près des Açores dans l’océan Atlantique Nord (© Nuno Sa/Minden Pictures)||![](/fr-CA/2020/09/202009280400GreatBlueShark.jpg)|
+202009290400|Lavaux|Vignobles en terrasses inclinées de la région de Lavaux sur les rives du lac Léman en Suisse (© Yves Marcoux/plainpicture)||![](/fr-CA/2020/09/202009290400Lavaux.jpg)|
