@@ -30,3 +30,4 @@
 202009261500|ChefchaouenMorocco|｢シャウエンの青い壁｣モロッコ (© Tatsuya Ohinata/Getty Images)|今日は｢世界観光の日｣|![](/ja-JP/2020/09/202009261500ChefchaouenMorocco.jpg)|
 202009271500|BlueChip|｢半導体集積回路のクローズアップ｣ (© Bobkov Evgeniy/Shutterstock)|今日は｢パソコンの日｣|![](/ja-JP/2020/09/202009271500BlueChip.jpg)|
 202009281500|Lavaux|｢レマン湖とブドウ畑｣スイス, ラヴォー地区 (© Yves Marcoux/plainpicture)|スイスの世界遺産|![](/ja-JP/2020/09/202009281500Lavaux.jpg)|
+202009291500|WatkinsGlen|｢虹の滝｣米国ニューヨーク州, フィンガーレイクス (© Kenneth Keifer/Alamy)|ニューヨーク州の虹の滝|![](/ja-JP/2020/09/202009291500WatkinsGlen.jpg)|
