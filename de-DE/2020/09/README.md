@@ -29,3 +29,4 @@
 202009262200|FraserRiver|Der Fraser River und die Gipfel des Golden Ears östlich von Vancouver, British Columbia, Kanada (© LeonU/Getty Images)|Unten am Fluss|![](/de-DE/2020/09/202009262200FraserRiver.jpg)|
 202009272200|ApfelernteDE|Apfelernte bei Kippenhausen, Immenstaad am Bodensee, Baden-Württemberg (© Felix Kästle/picture alliance via Getty Images)|Frisch vom Feld|![](/de-DE/2020/09/202009272200ApfelernteDE.jpg)|
 202009282200|Lavaux|Weinterrassen Weinbaugebiet Lavaux am Ufer des Genfersees, Kanton Waadt, Schweiz (© Yves Marcoux/plainpicture)|Weinlese im Lavaux|![](/de-DE/2020/09/202009282200Lavaux.jpg)|
+202009292200|GreatBlueShark|Blauhai vor den Azoren im Nordatlantik (© Nuno Sa/Minden Pictures)|Unterwasser-Jäger|![](/de-DE/2020/09/202009292200GreatBlueShark.jpg)|
