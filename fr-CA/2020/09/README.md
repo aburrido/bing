@@ -29,3 +29,4 @@
 202009270400|FraserRiver|Le fleuve Fraser à l’est de Vancouver et les montagnes Golden Ears (© LeonU/Getty Images)||![](/fr-CA/2020/09/202009270400FraserRiver.jpg)|
 202009280400|GreatBlueShark|Requin bleu près des Açores dans l’océan Atlantique Nord (© Nuno Sa/Minden Pictures)||![](/fr-CA/2020/09/202009280400GreatBlueShark.jpg)|
 202009290400|Lavaux|Vignobles en terrasses inclinées de la région de Lavaux sur les rives du lac Léman en Suisse (© Yves Marcoux/plainpicture)||![](/fr-CA/2020/09/202009290400Lavaux.jpg)|
+202009300400|LaragangaMoth|Un papillon de nuit de type saturnidé dans le parc national de Mole à Larabanga au Ghana (© Robert Thompson/Minden Pictures)||![](/fr-CA/2020/09/202009300400LaragangaMoth.jpg)|
