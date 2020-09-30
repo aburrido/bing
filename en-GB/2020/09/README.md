@@ -30,3 +30,4 @@
 202009272300|GreatBlueShark|Blue shark near the Azores in the North Atlantic Ocean (© Nuno Sa/Minden Pictures)|Chasing currents|![](/en-GB/2020/09/202009272300GreatBlueShark.jpg)|
 202009282300|Lavaux|Steeply terraced vineyards of the Lavaux region on the shores of Lake Geneva, Switzerland (© Yves Marcoux/plainpicture)|A crush in Lavaux|![](/en-GB/2020/09/202009282300Lavaux.jpg)|
 202009292300|LaragangaMoth|A saturniid moth in Mole National Park in Larabanga, Ghana (© Robert Thompson/Minden Pictures)|All eyes on moths|![](/en-GB/2020/09/202009292300LaragangaMoth.jpg)|
+202009302300|SingaporeLanterns|Lantern display celebrating the Mid-Autumn Festival in Singapore (© Khin/Getty Images)|A lunar lantern celebration|![](/en-GB/2020/09/202009302300SingaporeLanterns.jpg)|
