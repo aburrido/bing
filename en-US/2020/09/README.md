@@ -30,3 +30,4 @@
 202009270700|FraserRiver|The Fraser River, east of Vancouver, British Columbia, Canada, with the Golden Ears mountains (© LeonU/Getty Images)|Take me to the river|![](/en-US/2020/09/202009270700FraserRiver.jpg)|
 202009280700|GreatBlueShark|Blue shark near the Azores in the North Atlantic Ocean (© Nuno Sa/Minden Pictures)|Explorer of the sea|![](/en-US/2020/09/202009280700GreatBlueShark.jpg)|
 202009290700|Lavaux|Steeply terraced vineyards of the Lavaux region on the shores of Lake Geneva, Switzerland (© Yves Marcoux/plainpicture)|A crush in Lavaux|![](/en-US/2020/09/202009290700Lavaux.jpg)|
+202009300700|LaragangaMoth|A saturniid moth in Mole National Park in Larabanga, Ghana (© Robert Thompson/Minden Pictures)|All eyes on moths|![](/en-US/2020/09/202009300700LaragangaMoth.jpg)|
