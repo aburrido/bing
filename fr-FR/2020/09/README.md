@@ -30,3 +30,4 @@
 202009272200|GreatBlueShark|Requin bleu près des Açores, Portugal (© Nuno Sa/Minden Pictures)|Attention les yeux|![](/fr-FR/2020/09/202009272200GreatBlueShark.jpg)|
 202009282200|Lavaux|Vignes en terrasses dans la région de Lavaux sur les bords du lac Léman, Suisse (© Yves Marcoux/plainpicture)|Apéro suisse|![](/fr-FR/2020/09/202009282200Lavaux.jpg)|
 202009292200|AutomnalForest|L’automne dans une forêt de pins, Les Vosges, France (© alekseystemmer/iStock/Getty Images Plus)|Destination automnale|![](/fr-FR/2020/09/202009292200AutomnalForest.jpg)|
+202009302200|SingaporeLanterns|Lanternes pour la fête de la mi-automne à Singapour (© Khin/Getty Images)|L’heure des gâteaux de lune|![](/fr-FR/2020/09/202009302200SingaporeLanterns.jpg)|

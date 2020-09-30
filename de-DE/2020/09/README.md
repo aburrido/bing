@@ -30,3 +30,4 @@
 202009272200|ApfelernteDE|Apfelernte bei Kippenhausen, Immenstaad am Bodensee, Baden-Württemberg (© Felix Kästle/picture alliance via Getty Images)|Frisch vom Feld|![](/de-DE/2020/09/202009272200ApfelernteDE.jpg)|
 202009282200|Lavaux|Weinterrassen Weinbaugebiet Lavaux am Ufer des Genfersees, Kanton Waadt, Schweiz (© Yves Marcoux/plainpicture)|Weinlese im Lavaux|![](/de-DE/2020/09/202009282200Lavaux.jpg)|
 202009292200|GreatBlueShark|Blauhai vor den Azoren im Nordatlantik (© Nuno Sa/Minden Pictures)|Unterwasser-Jäger|![](/de-DE/2020/09/202009292200GreatBlueShark.jpg)|
+202009302200|SingaporeLanterns|Laternen zum Mondfest in Singapur (© Khin/Getty Images)|Lunare Laternen-Feierlichkeiten|![](/de-DE/2020/09/202009302200SingaporeLanterns.jpg)|
