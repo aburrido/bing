@@ -31,3 +31,4 @@
 202009271500|BlueChip|｢半導体集積回路のクローズアップ｣ (© Bobkov Evgeniy/Shutterstock)|今日は｢パソコンの日｣|![](/ja-JP/2020/09/202009271500BlueChip.jpg)|
 202009281500|Lavaux|｢レマン湖とブドウ畑｣スイス, ラヴォー地区 (© Yves Marcoux/plainpicture)|スイスの世界遺産|![](/ja-JP/2020/09/202009281500Lavaux.jpg)|
 202009291500|WatkinsGlen|｢虹の滝｣米国ニューヨーク州, フィンガーレイクス (© Kenneth Keifer/Alamy)|ニューヨーク州の虹の滝|![](/ja-JP/2020/09/202009291500WatkinsGlen.jpg)|
+202009301500|Mangetsu|｢満月｣ (© Aflo Co., Ltd/Alamy Stock Photo)|今日は｢十五夜｣|![](/ja-JP/2020/09/202009301500Mangetsu.jpg)|
