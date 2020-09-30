@@ -30,3 +30,4 @@
 202009271600|GreatBlueShark|北大西洋亚速尔群岛附近的大青鲨 (© Nuno Sa/Minden Pictures)||![](/zh-CN/2020/09/202009271600GreatBlueShark.jpg)|
 202009281600|Lavaux|日内瓦湖岸上陡峭的拉沃葡萄园梯田，瑞士 (© Yves Marcoux/plainpicture)||![](/zh-CN/2020/09/202009281600Lavaux.jpg)|
 202009291600|LaragangaMoth|莫尔国家公园中的天蚕蛾，加纳拉拉班加 (© Robert Thompson/Minden Pictures)||![](/zh-CN/2020/09/202009291600LaragangaMoth.jpg)|
+202009301600|SingaporeLanterns|为庆祝中秋而摆放的灯笼，新加坡 (© Khin/Getty Images)||![](/zh-CN/2020/09/202009301600SingaporeLanterns.jpg)|
