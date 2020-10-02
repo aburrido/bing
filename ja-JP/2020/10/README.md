@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202009301500|Mangetsu|｢満月｣ (© Aflo Co., Ltd/Alamy Stock Photo)|今日は｢十五夜｣|![](/ja-JP/2020/10/202009301500Mangetsu.jpg)|
 202010011500|SingaporeLanterns|｢中秋節のイルミネーション｣シンガポール (© Khin/Getty Images)|今日は｢十六夜｣|![](/ja-JP/2020/10/202010011500SingaporeLanterns.jpg)|
+202010021500|FatBearWeek|｢ブルックス川のヒグマ｣米国アラスカ州, カトマイ国立公園 (© littleting/Pradthana Jarusriboonchai/Getty Images)|｢ふとっちょクマ週間｣の季節です|![](/ja-JP/2020/10/202010021500FatBearWeek.jpg)|
