@@ -4,3 +4,4 @@
 202010012200|ThePopiePlace|Vue sur l’église de Saint-Cirq-Lapopie, Vallée du Lot, Occitanie, France (© Reinhard Schmid/Huber/eStock Photo)|Une rose dans la nuit|![](/fr-FR/2020/10/202010012200ThePopiePlace.jpg)|
 202010022200|FatBearWeek|Ours brun à Brook Falls, Parc national et réserve de Katmai, Alaska (© littleting/Pradthana Jarusriboonchai/Getty Images)|Un festin tant attendu|![](/fr-FR/2020/10/202010022200FatBearWeek.jpg)|
 202010032200|MontageJupiterIo|Photomontage de Jupiter et Io, sa lune volcanique (© NASA/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|Splendeur spatiale|![](/fr-FR/2020/10/202010032200MontageJupiterIo.jpg)|
+202010042200|PRookery|Bébés manchots et deux adultes dans la colonie de l’île Snow Hill, Antarctique (© Martin Ruegner/Getty Images)|On reste concentrés devant !|![](/fr-FR/2020/10/202010042200PRookery.jpg)|
