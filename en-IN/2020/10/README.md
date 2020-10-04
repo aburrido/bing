@@ -4,3 +4,4 @@
 202010011830|GandhiBuilding|Mural of Gandhi by Eduardo Kobra, Churchgate Railway Station, Mumbai (© Kunal Patil/Hindustan Times via Getty Images)|In honour of the Mahatma|![](/en-IN/2020/10/202010011830GandhiBuilding.jpg)|
 202010021830|FatBearWeek|Brown bear in the Brooks River, Katmai National Park, Alaska, USA (© littleting/Pradthana Jarusriboonchai/Getty Images)|In the belly of Fat Bear Week|![](/en-IN/2020/10/202010021830FatBearWeek.jpg)|
 202010031830|MontageJupiterIo|Montage of images of Jupiter and its volcanic moon Io (© NASA/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|Infrared Jupiter, erupting Io|![](/en-IN/2020/10/202010031830MontageJupiterIo.jpg)|
+202010041830|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you two in the front!|![](/en-IN/2020/10/202010041830PRookery.jpg)|
