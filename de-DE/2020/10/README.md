@@ -5,3 +5,4 @@
 202010022200|PotsdamStadtschloss|Blick von der Nikolaikirche auf das Stadtschloss mit dem Fortunaportal, Potsdam, Brandenburg (© Westend61/Cavan Images)|Ein Tag zum Feiern|![](/de-DE/2020/10/202010022200PotsdamStadtschloss.jpg)|
 202010032200|MontageJupiterIo|Montage von Bildern des Jupiter und seines Vulkanmondes Io (© NASA/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|Infraroter Jupiter, ausbrechender Io|![](/de-DE/2020/10/202010032200MontageJupiterIo.jpg)|
 202010042200|PRookery|Ausgewachsene Kaiserpinguine und Küken auf der Halbinsel Snow Hill Island, Antarktis (© Martin Ruegner/Getty Images)|He, ihr zwei da vorne!|![](/de-DE/2020/10/202010042200PRookery.jpg)|
+202010052200|FatBearWeek|Braunbär im Brooks River, Katmai-Nationalpark, Alaska, USA (© littleting/Pradthana Jarusriboonchai/Getty Images)|Warten auf den Lachs|![](/de-DE/2020/10/202010052200FatBearWeek.jpg)|
