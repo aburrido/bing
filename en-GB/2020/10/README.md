@@ -5,3 +5,4 @@
 202010022300|OysterMushroom|Oyster mushrooms in Belgium (© Philippe Clement/Minden Pictures)|Celebrating fabulous fungus|![](/en-GB/2020/10/202010022300OysterMushroom.jpg)|
 202010032300|StJamesPark|Aerial photograph over Whitehall and St James's Park, London (© Howard Kingsnorth/Getty Images)|A marathon with a difference|![](/en-GB/2020/10/202010032300StJamesPark.jpg)|
 202010042300|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you at the front!|![](/en-GB/2020/10/202010042300PRookery.jpg)|
+202010052300|MontageJupiterIo|Montage of images of Jupiter and its volcanic moon Io (© Nasa/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|Infrared Jupiter, erupting Io|![](/en-GB/2020/10/202010052300MontageJupiterIo.jpg)|
