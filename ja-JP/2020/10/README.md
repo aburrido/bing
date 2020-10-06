@@ -6,3 +6,4 @@
 202010031500|RobertCurbeam|｢2006年のISS船外活動｣国際宇宙ステーション (© NASA)|今日から｢世界宇宙週間｣|![](/ja-JP/2020/10/202010031500RobertCurbeam.jpg)|
 202010041500|PRookery|｢コウテイペンギンのクレイシ｣南極,スノー・ヒル島 (© Martin Ruegner/Getty Images)|今日は｢世界教師デー｣|![](/ja-JP/2020/10/202010041500PRookery.jpg)|
 202010051500|ThePopiePlace|｢サン・シル・ラポピーの教会｣フランス, オクシタニア (© Reinhard Schmid/Huber/eStock Photo)|フランスの最も美しい村|![](/ja-JP/2020/10/202010051500ThePopiePlace.jpg)|
+202010061500|RestormelCastle|｢リストーメル城｣イギリス, コーンウォール (© Robert Harding/Alamy)|イギリス南西端の中世の城|![](/ja-JP/2020/10/202010061500RestormelCastle.jpg)|
