@@ -7,3 +7,4 @@
 202010041600|PRookery|栖息在斯诺希尔岛的成年帝企鹅和幼崽，南极 (© Martin Ruegner/Getty Images)||![](/zh-CN/2020/10/202010041600PRookery.jpg)|
 202010051600|YunchengSaltLake|运城盐湖，中国山西 (© Xinhua/Alamy)||![](/zh-CN/2020/10/202010051600YunchengSaltLake.jpg)|
 202010061600|RestormelCastle|Restormel城堡上空的秋雾，英国康沃尔 (© Robert Harding/Alamy)||![](/zh-CN/2020/10/202010061600RestormelCastle.jpg)|
+202010071600|BlanketOctopus|棕榈滩的毯子章鱼，佛罗里达州  (© Steven Kovacs/Minden Pictures)||![](/zh-CN/2020/10/202010071600BlanketOctopus.jpg)|
