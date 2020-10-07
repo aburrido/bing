@@ -7,3 +7,4 @@
 202010042200|PRookery|Ausgewachsene Kaiserpinguine und Küken auf der Halbinsel Snow Hill Island, Antarktis (© Martin Ruegner/Getty Images)|He, ihr zwei da vorne!|![](/de-DE/2020/10/202010042200PRookery.jpg)|
 202010052200|FatBearWeek|Braunbär im Brooks River, Katmai-Nationalpark, Alaska, USA (© littleting/Pradthana Jarusriboonchai/Getty Images)|Warten auf den Lachs|![](/de-DE/2020/10/202010052200FatBearWeek.jpg)|
 202010062200|RestormelCastle|Herbstlicher Nebel über Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|Die runde Burg von Cornwall|![](/de-DE/2020/10/202010062200RestormelCastle.jpg)|
+202010072200|BlanketOctopus|Löcherkrake in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|Ein Regenbogen unter Wasser|![](/de-DE/2020/10/202010072200BlanketOctopus.jpg)|
