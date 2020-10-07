@@ -7,3 +7,4 @@
 202010042300|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you at the front!|![](/en-GB/2020/10/202010042300PRookery.jpg)|
 202010052300|MontageJupiterIo|Montage of images of Jupiter and its volcanic moon Io (© Nasa/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|Infrared Jupiter, erupting Io|![](/en-GB/2020/10/202010052300MontageJupiterIo.jpg)|
 202010062300|RestormelCastle|Autumn mist above Restormel Castle in Cornwall (© Robert Harding/Alamy)|A circle of stone|![](/en-GB/2020/10/202010062300RestormelCastle.jpg)|
+202010072300|BlanketOctopus|Blanket octopus in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-GB/2020/10/202010072300BlanketOctopus.jpg)|
