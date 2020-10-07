@@ -7,3 +7,4 @@
 202010040700|MontageJupiterIo|Montage of images of Jupiter and its volcanic moon Io (© NASA/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|Infrared Jupiter, erupting Io|![](/en-US/2020/10/202010040700MontageJupiterIo.jpg)|
 202010050700|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you two in the front!|![](/en-US/2020/10/202010050700PRookery.jpg)|
 202010060700|YunchengSaltLake|Xiechi Lake in Yuncheng, Shanxi province, China (© Xinhua/Alamy)|Water colors|![](/en-US/2020/10/202010060700YunchengSaltLake.jpg)|
+202010070700|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-US/2020/10/202010070700RestormelCastle.jpg)|
