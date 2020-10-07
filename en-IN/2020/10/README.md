@@ -7,3 +7,4 @@
 202010041830|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you two in the front!|![](/en-IN/2020/10/202010041830PRookery.jpg)|
 202010051830|BlanketOctopus|Blanket octopus in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-IN/2020/10/202010051830BlanketOctopus.jpg)|
 202010061830|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-IN/2020/10/202010061830RestormelCastle.jpg)|
+202010071830|IAFpara|Akash Ganga, the 14-member skydiving team of the Indian Air Force in action (© Shaukat Ahmed/Pacific Press/Alamy Live News)|Happy birthday, Indian Air Force|![](/en-IN/2020/10/202010071830IAFpara.jpg)|
