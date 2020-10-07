@@ -7,3 +7,4 @@
 202010041300|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you two in the front!|![](/en-AU/2020/10/202010041300PRookery.jpg)|
 202010051300|YunchengSaltLake|Yuncheng Salt Lake in Yuncheng, Shanxi Province, China (© Xinhua/Alamy)|Water colours|![](/en-AU/2020/10/202010051300YunchengSaltLake.jpg)|
 202010061300|CapeBarren|Cape Barren Goose (Cereopsis novaehollandiae) standing in a flowering meadow, Tasmania (© blickwinkel/Alamy Stock Photo)|Taking a gander at an Aussie animal|![](/en-AU/2020/10/202010061300CapeBarren.jpg)|
+202010071300|BlanketOctopus|Blanket octopus in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-AU/2020/10/202010071300BlanketOctopus.jpg)|
