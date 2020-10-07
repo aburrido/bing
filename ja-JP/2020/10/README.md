@@ -7,3 +7,4 @@
 202010041500|PRookery|｢コウテイペンギンのクレイシ｣南極,スノー・ヒル島 (© Martin Ruegner/Getty Images)|今日は｢世界教師デー｣|![](/ja-JP/2020/10/202010041500PRookery.jpg)|
 202010051500|ThePopiePlace|｢サン・シル・ラポピーの教会｣フランス, オクシタニア (© Reinhard Schmid/Huber/eStock Photo)|フランスの最も美しい村|![](/ja-JP/2020/10/202010051500ThePopiePlace.jpg)|
 202010061500|RestormelCastle|｢リストーメル城｣イギリス, コーンウォール (© Robert Harding/Alamy)|イギリス南西端の中世の城|![](/ja-JP/2020/10/202010061500RestormelCastle.jpg)|
+202010071500|InfinityBridge|｢インフィニティー橋｣イギリス, ストックトン＝オン＝ティーズ (© Robert Smith/Alamy)|今日は｢永遠の日｣|![](/ja-JP/2020/10/202010071500InfinityBridge.jpg)|
