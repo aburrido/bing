@@ -7,3 +7,4 @@
 202010050400|PRookery|Emperor penguin adults and chicks at the Snow Hill Island rookery, Antarctica (© Martin Ruegner/Getty Images)|Hey, you two in the front!|![](/en-CA/2020/10/202010050400PRookery.jpg)|
 202010060400|YunchengSaltLake|Yuncheng Salt Lake in Yuncheng, Shanxi Province, China (© Xinhua/Alamy)|Water colours|![](/en-CA/2020/10/202010060400YunchengSaltLake.jpg)|
 202010070400|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-CA/2020/10/202010070400RestormelCastle.jpg)|
+202010080400|BlanketOctopus|Blanket octopus in Palm Beach, Florida (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-CA/2020/10/202010080400BlanketOctopus.jpg)|

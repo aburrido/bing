@@ -7,3 +7,4 @@
 202010050400|PRookery|Colonie de manchots empereurs et leurs petits à Snow Hill Island en Antarctique (© Martin Ruegner/Getty Images)||![](/fr-CA/2020/10/202010050400PRookery.jpg)|
 202010060400|YunchengSaltLake|Lac salé de Yuncheng, province du Shanxi, Chine (© Xinhua/Alamy)||![](/fr-CA/2020/10/202010060400YunchengSaltLake.jpg)|
 202010070400|RestormelCastle|Brume d’automne au-dessus du château de Restormel dans les Cornouailles en Angleterre (© Robert Harding/Alamy)||![](/fr-CA/2020/10/202010070400RestormelCastle.jpg)|
+202010080400|BlanketOctopus|Pieuvre violacée ou pieuvre couverture à Palm Beach en Floride (© Steven Kovacs/Minden Pictures)||![](/fr-CA/2020/10/202010080400BlanketOctopus.jpg)|
