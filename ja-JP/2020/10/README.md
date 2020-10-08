@@ -8,3 +8,4 @@
 202010051500|ThePopiePlace|｢サン・シル・ラポピーの教会｣フランス, オクシタニア (© Reinhard Schmid/Huber/eStock Photo)|フランスの最も美しい村|![](/ja-JP/2020/10/202010051500ThePopiePlace.jpg)|
 202010061500|RestormelCastle|｢リストーメル城｣イギリス, コーンウォール (© Robert Harding/Alamy)|イギリス南西端の中世の城|![](/ja-JP/2020/10/202010061500RestormelCastle.jpg)|
 202010071500|InfinityBridge|｢インフィニティー橋｣イギリス, ストックトン＝オン＝ティーズ (© Robert Smith/Alamy)|今日は｢永遠の日｣|![](/ja-JP/2020/10/202010071500InfinityBridge.jpg)|
+202010081500|AmericanFlyer|｢ベニイロフラミンゴの渡り｣ベネズエラ, ロス・ロケス国立公園 (© Cristian Lourenco/Getty Images)|カリブ海を渡るフラミンゴ|![](/ja-JP/2020/10/202010081500AmericanFlyer.jpg)|
