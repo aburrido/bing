@@ -8,3 +8,4 @@
 202010051600|YunchengSaltLake|运城盐湖，中国山西 (© Xinhua/Alamy)||![](/zh-CN/2020/10/202010051600YunchengSaltLake.jpg)|
 202010061600|RestormelCastle|Restormel城堡上空的秋雾，英国康沃尔 (© Robert Harding/Alamy)||![](/zh-CN/2020/10/202010061600RestormelCastle.jpg)|
 202010071600|BlanketOctopus|棕榈滩的毯子章鱼，佛罗里达州  (© Steven Kovacs/Minden Pictures)||![](/zh-CN/2020/10/202010071600BlanketOctopus.jpg)|
+202010081600|RoaringCascade|大雾山国家公园中的咆哮叉，田纳西州 (© Bernie Kasper/Getty Images)||![](/zh-CN/2020/10/202010081600RoaringCascade.jpg)|
