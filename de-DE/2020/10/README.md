@@ -8,3 +8,4 @@
 202010052200|FatBearWeek|Braunbär im Brooks River, Katmai-Nationalpark, Alaska, USA (© littleting/Pradthana Jarusriboonchai/Getty Images)|Warten auf den Lachs|![](/de-DE/2020/10/202010052200FatBearWeek.jpg)|
 202010062200|RestormelCastle|Herbstlicher Nebel über Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|Die runde Burg von Cornwall|![](/de-DE/2020/10/202010062200RestormelCastle.jpg)|
 202010072200|BlanketOctopus|Löcherkrake in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|Ein Regenbogen unter Wasser|![](/de-DE/2020/10/202010072200BlanketOctopus.jpg)|
+202010082200|MatiSiTemple|Das Matisi („Pferdehuf-Kloster“) und Grotten des Matisi-Höhlenkomplexes, Provinz Gansu, China (© Ana Flašker/Alamy)|Höhlentempel im Qilian-Gebirge|![](/de-DE/2020/10/202010082200MatiSiTemple.jpg)|

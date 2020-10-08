@@ -8,3 +8,4 @@
 202010052200|YunchengSaltLake|Lac Salé du Yuncheng, Province du Shanxi, Chine (© Xinhua/Alamy)|Palette aquatique|![](/fr-FR/2020/10/202010052200YunchengSaltLake.jpg)|
 202010062200|RestormelCastle|Brume automnale au-dessus du château de Restormel, Cornouailles, Angleterre (© Robert Harding/Alamy)|Fog anglais|![](/fr-FR/2020/10/202010062200RestormelCastle.jpg)|
 202010072200|BlanketOctopus|Tremoctopus dans les eaux de Palm Beach, Floride, États-Unis (© Steven Kovacs/Minden Pictures)|Créature marine|![](/fr-FR/2020/10/202010072200BlanketOctopus.jpg)|
+202010082200|RoaringCascade|Roaring Fork dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© Bernie Kasper/Getty Images)|Torrentiel|![](/fr-FR/2020/10/202010082200RoaringCascade.jpg)|
