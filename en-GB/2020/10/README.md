@@ -9,3 +9,4 @@
 202010062300|RestormelCastle|Autumn mist above Restormel Castle in Cornwall (© Robert Harding/Alamy)|A circle of stone|![](/en-GB/2020/10/202010062300RestormelCastle.jpg)|
 202010072300|BlanketOctopus|Blanket octopus in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-GB/2020/10/202010072300BlanketOctopus.jpg)|
 202010082300|ThePopiePlace|View towards the Church of Saint-Cirq-Lapopie, Lot Valley, south-west France (© Reinhard Schmid/Huber/eStock Photo)|A cliff-hanging village|![](/en-GB/2020/10/202010082300ThePopiePlace.jpg)|
+202010092300|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-GB/2020/10/202010092300AmericanFlyer.jpg)|
