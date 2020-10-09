@@ -8,3 +8,4 @@
 202010060400|YunchengSaltLake|Lac salé de Yuncheng, province du Shanxi, Chine (© Xinhua/Alamy)||![](/fr-CA/2020/10/202010060400YunchengSaltLake.jpg)|
 202010070400|RestormelCastle|Brume d’automne au-dessus du château de Restormel dans les Cornouailles en Angleterre (© Robert Harding/Alamy)||![](/fr-CA/2020/10/202010070400RestormelCastle.jpg)|
 202010080400|BlanketOctopus|Pieuvre violacée ou pieuvre couverture à Palm Beach en Floride (© Steven Kovacs/Minden Pictures)||![](/fr-CA/2020/10/202010080400BlanketOctopus.jpg)|
+202010090400|RoaringCascade|Roaring Fork, Parc national des Great Smoky Mountains, Tennessee (© Bernie Kasper/Getty Images)||![](/fr-CA/2020/10/202010090400RoaringCascade.jpg)|
