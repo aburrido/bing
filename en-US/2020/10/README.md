@@ -9,3 +9,4 @@
 202010060700|YunchengSaltLake|Xiechi Lake in Yuncheng, Shanxi province, China (© Xinhua/Alamy)|Water colors|![](/en-US/2020/10/202010060700YunchengSaltLake.jpg)|
 202010070700|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-US/2020/10/202010070700RestormelCastle.jpg)|
 202010080700|BlanketOctopus|Blanket octopus in Palm Beach, Florida (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-US/2020/10/202010080700BlanketOctopus.jpg)|
+202010090700|RoaringCascade|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Bernie Kasper/Getty Images)|Falling for Tennessee|![](/en-US/2020/10/202010090700RoaringCascade.jpg)|
