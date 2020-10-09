@@ -9,3 +9,4 @@
 202010061830|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-IN/2020/10/202010061830RestormelCastle.jpg)|
 202010071830|IAFpara|Akash Ganga, the 14-member skydiving team of the Indian Air Force in action (© Shaukat Ahmed/Pacific Press/Alamy Live News)|Happy birthday, Indian Air Force|![](/en-IN/2020/10/202010071830IAFpara.jpg)|
 202010081830|RoaringCascade|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Bernie Kasper/Getty Images)|Falling for Tennessee|![](/en-IN/2020/10/202010081830RoaringCascade.jpg)|
+202010091830|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-IN/2020/10/202010091830AmericanFlyer.jpg)|
