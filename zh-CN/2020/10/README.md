@@ -10,3 +10,4 @@
 202010071600|BlanketOctopus|棕榈滩的毯子章鱼，佛罗里达州  (© Steven Kovacs/Minden Pictures)||![](/zh-CN/2020/10/202010071600BlanketOctopus.jpg)|
 202010081600|RoaringCascade|大雾山国家公园中的咆哮叉，田纳西州 (© Bernie Kasper/Getty Images)||![](/zh-CN/2020/10/202010081600RoaringCascade.jpg)|
 202010091600|AmericanFlyer|俯瞰正在飞越洛斯罗克斯群岛国家公园的美洲红鹳，委内瑞拉 (© Cristian Lourenco/Getty Images)||![](/zh-CN/2020/10/202010091600AmericanFlyer.jpg)|
+202010101600|GeghardMonastery|格加尔德修道院，亚美尼亚 (© traumlichtfabrik/Getty Images)||![](/zh-CN/2020/10/202010101600GeghardMonastery.jpg)|
