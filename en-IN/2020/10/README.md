@@ -10,3 +10,4 @@
 202010071830|IAFpara|Akash Ganga, the 14-member skydiving team of the Indian Air Force in action (© Shaukat Ahmed/Pacific Press/Alamy Live News)|Happy birthday, Indian Air Force|![](/en-IN/2020/10/202010071830IAFpara.jpg)|
 202010081830|RoaringCascade|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Bernie Kasper/Getty Images)|Falling for Tennessee|![](/en-IN/2020/10/202010081830RoaringCascade.jpg)|
 202010091830|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-IN/2020/10/202010091830AmericanFlyer.jpg)|
+202010101830|GeghardMonastery|Geghard Monastery, Armenia (© traumlichtfabrik/Getty Images)|A monastery in the mountain|![](/en-IN/2020/10/202010101830GeghardMonastery.jpg)|
