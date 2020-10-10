@@ -9,3 +9,4 @@
 202010070400|RestormelCastle|Autumn mist above Restormel Castle in Cornwall, England (© Robert Harding/Alamy)|The circular castle of Cornwall|![](/en-CA/2020/10/202010070400RestormelCastle.jpg)|
 202010080400|BlanketOctopus|Blanket octopus in Palm Beach, Florida (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-CA/2020/10/202010080400BlanketOctopus.jpg)|
 202010090400|RoaringCascade|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Bernie Kasper/Getty Images)|Falling for Tennessee|![](/en-CA/2020/10/202010090400RoaringCascade.jpg)|
+202010100400|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-CA/2020/10/202010100400AmericanFlyer.jpg)|

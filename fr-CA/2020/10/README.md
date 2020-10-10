@@ -9,3 +9,4 @@
 202010070400|RestormelCastle|Brume d’automne au-dessus du château de Restormel dans les Cornouailles en Angleterre (© Robert Harding/Alamy)||![](/fr-CA/2020/10/202010070400RestormelCastle.jpg)|
 202010080400|BlanketOctopus|Pieuvre violacée ou pieuvre couverture à Palm Beach en Floride (© Steven Kovacs/Minden Pictures)||![](/fr-CA/2020/10/202010080400BlanketOctopus.jpg)|
 202010090400|RoaringCascade|Roaring Fork, Parc national des Great Smoky Mountains, Tennessee (© Bernie Kasper/Getty Images)||![](/fr-CA/2020/10/202010090400RoaringCascade.jpg)|
+202010100400|AmericanFlyer|Vue aérienne de flamants des Caraïbes survolant le parc national de l'archipel de Los Roques au Vénézuéla (© Cristian Lourenco/Getty Images)||![](/fr-CA/2020/10/202010100400AmericanFlyer.jpg)|
