@@ -10,3 +10,4 @@
 202010072300|BlanketOctopus|Blanket octopus in Palm Beach, Florida, USA (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-GB/2020/10/202010072300BlanketOctopus.jpg)|
 202010082300|ThePopiePlace|View towards the Church of Saint-Cirq-Lapopie, Lot Valley, south-west France (© Reinhard Schmid/Huber/eStock Photo)|A cliff-hanging village|![](/en-GB/2020/10/202010082300ThePopiePlace.jpg)|
 202010092300|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-GB/2020/10/202010092300AmericanFlyer.jpg)|
+202010102300|GeghardMonastery|Geghard Monastery, Armenia (© traumlichtfabrik/Getty Images)|Monastery on the mountain|![](/en-GB/2020/10/202010102300GeghardMonastery.jpg)|
