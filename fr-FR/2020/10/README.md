@@ -11,3 +11,4 @@
 202010082200|RoaringCascade|Roaring Fork dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© Bernie Kasper/Getty Images)|Torrentiel|![](/fr-FR/2020/10/202010082200RoaringCascade.jpg)|
 202010092200|DayofNight|Trainée d’étoiles depuis les racines d’un bosquet de pins en Dordogne (© Eric Nathan/Alamy Stock Photo)|Poussière d’étoiles|![](/fr-FR/2020/10/202010092200DayofNight.jpg)|
 202010102200|GeghardMonastery|Monastère de Geghard, Arménie (© traumlichtfabrik/Getty Images)|Gravé dans la roche|![](/fr-FR/2020/10/202010102200GeghardMonastery.jpg)|
+202010112200|SmilingSpoons|Cuillères en bois contentes d’elles  (© nataistock/iStock/Getty Images Plus)|La Semaine du Goût|![](/fr-FR/2020/10/202010112200SmilingSpoons.jpg)|

@@ -11,3 +11,4 @@
 202010082200|MatiSiTemple|Das Matisi („Pferdehuf-Kloster“) und Grotten des Matisi-Höhlenkomplexes, Provinz Gansu, China (© Ana Flašker/Alamy)|Höhlentempel im Qilian-Gebirge|![](/de-DE/2020/10/202010082200MatiSiTemple.jpg)|
 202010092200|AmericanFlyer|Luftaufnahme von Kubaflamingos, Los-Roques-Archipelago-Nationalpark, Venezuela (© Cristian Lourenco/Getty Images)|Zeit zum Weiterziehen|![](/de-DE/2020/10/202010092200AmericanFlyer.jpg)|
 202010102200|GeghardMonastery|Kloster Geghard, Armenien (© traumlichtfabrik/Getty Images)|UNESCO-Welterbe in Armenien|![](/de-DE/2020/10/202010102200GeghardMonastery.jpg)|
+202010112200|DrachenHerbst|Bunte Drachen in Schillig, Wangerland, Niedersachsen (© MAURITIUS/Mauritius/SuperStock)|Hoch soll er steigen!|![](/de-DE/2020/10/202010112200DrachenHerbst.jpg)|
