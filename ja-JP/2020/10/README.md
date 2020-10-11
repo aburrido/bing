@@ -11,3 +11,4 @@
 202010081500|AmericanFlyer|｢ベニイロフラミンゴの渡り｣ベネズエラ, ロス・ロケス国立公園 (© Cristian Lourenco/Getty Images)|カリブ海を渡るフラミンゴ|![](/ja-JP/2020/10/202010081500AmericanFlyer.jpg)|
 202010091500|MontageJupiterIo|｢木星と衛星イオ｣ (© NASA/Johns Hopkins University Applied Physics Laboratory/Southwest Research Institute/Goddard Space Flight Center)|今日は｢宇宙週間｣の最終日|![](/ja-JP/2020/10/202010091500MontageJupiterIo.jpg)|
 202010101500|RoaringCascade|｢ロアリング・フォーク｣米国テネシー州, グレート・スモーキー山脈国立公園 (© Bernie Kasper/Getty Images)|米国の世界遺産|![](/ja-JP/2020/10/202010101500RoaringCascade.jpg)|
+202010111500|GeghardMonastery|｢ゲガルド修道院｣アルメニア (© traumlichtfabrik/Getty Images)|アルメニアの世界遺産|![](/ja-JP/2020/10/202010111500GeghardMonastery.jpg)|
