@@ -11,3 +11,4 @@
 202010080700|BlanketOctopus|Blanket octopus in Palm Beach, Florida (© Steven Kovacs/Minden Pictures)|An underwater rainbow|![](/en-US/2020/10/202010080700BlanketOctopus.jpg)|
 202010090700|RoaringCascade|Roaring Fork in Great Smoky Mountains National Park, Tennessee (© Bernie Kasper/Getty Images)|Falling for Tennessee|![](/en-US/2020/10/202010090700RoaringCascade.jpg)|
 202010100700|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-US/2020/10/202010100700AmericanFlyer.jpg)|
+202010110700|GeghardMonastery|Monastery of Geghard, Armenia (© traumlichtfabrik/Getty Images)|A monastery in the mountain|![](/en-US/2020/10/202010110700GeghardMonastery.jpg)|
