@@ -11,3 +11,4 @@
 202010081300|HoneyBeeNSW|Honey Bee on Pea flower, Muogamarra Nature Reserve, NSW (© RugliG/iStock/Getty Images Plus)|The humble honey bee all abuzz|![](/en-AU/2020/10/202010081300HoneyBeeNSW.jpg)|
 202010091300|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-AU/2020/10/202010091300AmericanFlyer.jpg)|
 202010101300|GeghardMonastery|Geghard Monastery, Armenia (© traumlichtfabrik/Getty Images)|A monastery in the mountain|![](/en-AU/2020/10/202010101300GeghardMonastery.jpg)|
+202010111300|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-AU/2020/10/202010111300MatiSiTemple.jpg)|
