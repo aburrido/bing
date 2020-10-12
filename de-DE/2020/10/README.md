@@ -12,3 +12,4 @@
 202010092200|AmericanFlyer|Luftaufnahme von Kubaflamingos, Los-Roques-Archipelago-Nationalpark, Venezuela (© Cristian Lourenco/Getty Images)|Zeit zum Weiterziehen|![](/de-DE/2020/10/202010092200AmericanFlyer.jpg)|
 202010102200|GeghardMonastery|Kloster Geghard, Armenien (© traumlichtfabrik/Getty Images)|UNESCO-Welterbe in Armenien|![](/de-DE/2020/10/202010102200GeghardMonastery.jpg)|
 202010112200|DrachenHerbst|Bunte Drachen in Schillig, Wangerland, Niedersachsen (© MAURITIUS/Mauritius/SuperStock)|Hoch soll er steigen!|![](/de-DE/2020/10/202010112200DrachenHerbst.jpg)|
+202010122200|TrueFox|Rotfuchs in den Niederlanden (© Wim Weenink/Minden Pictures)|Fuchs im Marschland|![](/de-DE/2020/10/202010122200TrueFox.jpg)|
