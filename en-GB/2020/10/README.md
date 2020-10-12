@@ -12,3 +12,4 @@
 202010092300|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-GB/2020/10/202010092300AmericanFlyer.jpg)|
 202010102300|GeghardMonastery|Geghard Monastery, Armenia (© traumlichtfabrik/Getty Images)|Monastery on the mountain|![](/en-GB/2020/10/202010102300GeghardMonastery.jpg)|
 202010112300|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Fox in the marsh|![](/en-GB/2020/10/202010112300TrueFox.jpg)|
+202010122300|MountCetatea|Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)|Dracula’s castle?|![](/en-GB/2020/10/202010122300MountCetatea.jpg)|
