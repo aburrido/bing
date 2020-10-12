@@ -11,3 +11,4 @@
 202010090400|RoaringCascade|Roaring Fork, Parc national des Great Smoky Mountains, Tennessee (© Bernie Kasper/Getty Images)||![](/fr-CA/2020/10/202010090400RoaringCascade.jpg)|
 202010100400|AmericanFlyer|Vue aérienne de flamants des Caraïbes survolant le parc national de l'archipel de Los Roques au Vénézuéla (© Cristian Lourenco/Getty Images)||![](/fr-CA/2020/10/202010100400AmericanFlyer.jpg)|
 202010110400|GeghardMonastery|Monastère de Geghard en Arménie (© traumlichtfabrik/Getty Images)||![](/fr-CA/2020/10/202010110400GeghardMonastery.jpg)|
+202010120400|KillarneyThanksgiving|L’automne au Parc provincial Killarney en Ontario (© Jeffery D. Walters/Getty Images)||![](/fr-CA/2020/10/202010120400KillarneyThanksgiving.jpg)|
