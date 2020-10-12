@@ -12,3 +12,4 @@
 202010091600|AmericanFlyer|俯瞰正在飞越洛斯罗克斯群岛国家公园的美洲红鹳，委内瑞拉 (© Cristian Lourenco/Getty Images)||![](/zh-CN/2020/10/202010091600AmericanFlyer.jpg)|
 202010101600|GeghardMonastery|格加尔德修道院，亚美尼亚 (© traumlichtfabrik/Getty Images)||![](/zh-CN/2020/10/202010101600GeghardMonastery.jpg)|
 202010111600|MountCetatea|堡垒山上的珀纳里城堡，法加拉斯山,罗马尼亚 (© porojnicu/Getty Images)||![](/zh-CN/2020/10/202010111600MountCetatea.jpg)|
+202010121600|TrueFox|赤狐，荷兰 (© Wim Weenink/Minden Pictures)||![](/zh-CN/2020/10/202010121600TrueFox.jpg)|
