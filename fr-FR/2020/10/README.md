@@ -13,3 +13,4 @@
 202010102200|GeghardMonastery|Monastère de Geghard, Arménie (© traumlichtfabrik/Getty Images)|Gravé dans la roche|![](/fr-FR/2020/10/202010102200GeghardMonastery.jpg)|
 202010112200|SmilingSpoons|Cuillères en bois contentes d’elles  (© nataistock/iStock/Getty Images Plus)|La Semaine du Goût|![](/fr-FR/2020/10/202010112200SmilingSpoons.jpg)|
 202010122200|TrueFox|Renard roux aux Pays-Bas (© Wim Weenink/Minden Pictures)|Noblesse animale|![](/fr-FR/2020/10/202010122200TrueFox.jpg)|
+202010132200|BavariaFossil|Fossile de libellule vieux de 150 millions d’années, à Solnhofen, Bavière, Allemagne (© Ingo Arndt/Minden Pictures)|Respect aux anciens|![](/fr-FR/2020/10/202010132200BavariaFossil.jpg)|

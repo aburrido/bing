@@ -13,3 +13,4 @@
 202010102200|GeghardMonastery|Kloster Geghard, Armenien (© traumlichtfabrik/Getty Images)|UNESCO-Welterbe in Armenien|![](/de-DE/2020/10/202010102200GeghardMonastery.jpg)|
 202010112200|DrachenHerbst|Bunte Drachen in Schillig, Wangerland, Niedersachsen (© MAURITIUS/Mauritius/SuperStock)|Hoch soll er steigen!|![](/de-DE/2020/10/202010112200DrachenHerbst.jpg)|
 202010122200|TrueFox|Rotfuchs in den Niederlanden (© Wim Weenink/Minden Pictures)|Fuchs im Marschland|![](/de-DE/2020/10/202010122200TrueFox.jpg)|
+202010132200|BavariaFossil|Fossil einer Libelle (etwa 150 Millionen Jahre alt), Solnhofen, Bayern (© Ingo Arndt/Minden Pictures)|Zeugnis der Erdgeschichte|![](/de-DE/2020/10/202010132200BavariaFossil.jpg)|
