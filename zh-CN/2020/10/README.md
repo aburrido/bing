@@ -13,3 +13,4 @@
 202010101600|GeghardMonastery|格加尔德修道院，亚美尼亚 (© traumlichtfabrik/Getty Images)||![](/zh-CN/2020/10/202010101600GeghardMonastery.jpg)|
 202010111600|MountCetatea|堡垒山上的珀纳里城堡，法加拉斯山,罗马尼亚 (© porojnicu/Getty Images)||![](/zh-CN/2020/10/202010111600MountCetatea.jpg)|
 202010121600|TrueFox|赤狐，荷兰 (© Wim Weenink/Minden Pictures)||![](/zh-CN/2020/10/202010121600TrueFox.jpg)|
+202010131600|BavariaFossil|位于索尔恩霍芬的约1.5亿年前的蜻蜓化石，德国巴伐利亚 (© Ingo Arndt/Minden Pictures)||![](/zh-CN/2020/10/202010131600BavariaFossil.jpg)|
