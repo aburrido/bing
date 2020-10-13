@@ -12,3 +12,4 @@
 202010100400|AmericanFlyer|Aerial view of American flamingos flying over Los Roques Archipelago National Park, Venezuela (© Cristian Lourenco/Getty Images)|Birds of a feather|![](/en-CA/2020/10/202010100400AmericanFlyer.jpg)|
 202010110400|GeghardMonastery|Geghard Monastery, Armenia (© traumlichtfabrik/Getty Images)|A monastery in the mountain|![](/en-CA/2020/10/202010110400GeghardMonastery.jpg)|
 202010120400|KillarneyThanksgiving|Autumn in Killarney Provincial Park, Ont. (© Jeffery D. Walters/Getty Images)|Happy Thanksgiving!|![](/en-CA/2020/10/202010120400KillarneyThanksgiving.jpg)|
+202010130400|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Fox in the marsh|![](/en-CA/2020/10/202010130400TrueFox.jpg)|
