@@ -13,3 +13,4 @@
 202010101500|RoaringCascade|｢ロアリング・フォーク｣米国テネシー州, グレート・スモーキー山脈国立公園 (© Bernie Kasper/Getty Images)|米国の世界遺産|![](/ja-JP/2020/10/202010101500RoaringCascade.jpg)|
 202010111500|GeghardMonastery|｢ゲガルド修道院｣アルメニア (© traumlichtfabrik/Getty Images)|アルメニアの世界遺産|![](/ja-JP/2020/10/202010111500GeghardMonastery.jpg)|
 202010121500|TrueFox|｢アカギツネ｣オランダ (© Wim Weenink/Minden Pictures)|オランダの野生動物|![](/ja-JP/2020/10/202010121500TrueFox.jpg)|
+202010131500|TetsudoDay|｢嵯峨野観光鉄道｣京都, 嵐山 (© jiGGoTravel/Alamy Stock Photo)|今日は｢鉄道の日｣|![](/ja-JP/2020/10/202010131500TetsudoDay.jpg)|
