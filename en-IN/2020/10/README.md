@@ -14,3 +14,4 @@
 202010111830|MountCetatea|Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)|A castle fit for a count|![](/en-IN/2020/10/202010111830MountCetatea.jpg)|
 202010121830|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Fox in the marsh|![](/en-IN/2020/10/202010121830TrueFox.jpg)|
 202010131830|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|In praise of the old … the very old|![](/en-IN/2020/10/202010131830BavariaFossil.jpg)|
+202010141830|OchreSeaStar|Ochre sea star on kelp off the coast of California (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-IN/2020/10/202010141830OchreSeaStar.jpg)|
