@@ -14,3 +14,4 @@
 202010112200|DrachenHerbst|Bunte Drachen in Schillig, Wangerland, Niedersachsen (© MAURITIUS/Mauritius/SuperStock)|Hoch soll er steigen!|![](/de-DE/2020/10/202010112200DrachenHerbst.jpg)|
 202010122200|TrueFox|Rotfuchs in den Niederlanden (© Wim Weenink/Minden Pictures)|Fuchs im Marschland|![](/de-DE/2020/10/202010122200TrueFox.jpg)|
 202010132200|BavariaFossil|Fossil einer Libelle (etwa 150 Millionen Jahre alt), Solnhofen, Bayern (© Ingo Arndt/Minden Pictures)|Zeugnis der Erdgeschichte|![](/de-DE/2020/10/202010132200BavariaFossil.jpg)|
+202010142200|OchreSeaStar|Ein Seestern (Pisaster ochraceus) auf einem Seetangwedel vor der Küste von Kalifornien (© Ralph Pace/Minden Pictures)|Fünf Arme und jede Menge Saugnäpfe|![](/de-DE/2020/10/202010142200OchreSeaStar.jpg)|
