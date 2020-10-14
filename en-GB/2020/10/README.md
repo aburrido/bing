@@ -14,3 +14,4 @@
 202010112300|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Fox in the marsh|![](/en-GB/2020/10/202010112300TrueFox.jpg)|
 202010122300|MountCetatea|Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)|Dracula’s castle?|![](/en-GB/2020/10/202010122300MountCetatea.jpg)|
 202010132300|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|Making an impression|![](/en-GB/2020/10/202010132300BavariaFossil.jpg)|
+202010142300|OchreSeaStar|Ochre sea star on kelp off the coast of California, USA (© Ralph Pace/Minden Pictures)|Hitching a ride|![](/en-GB/2020/10/202010142300OchreSeaStar.jpg)|
