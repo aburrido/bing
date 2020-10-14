@@ -14,3 +14,4 @@
 202010111300|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-AU/2020/10/202010111300MatiSiTemple.jpg)|
 202010121300|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Fox in the marsh|![](/en-AU/2020/10/202010121300TrueFox.jpg)|
 202010131300|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|In praise of the old … the very old|![](/en-AU/2020/10/202010131300BavariaFossil.jpg)|
+202010141300|OchreSeaStar|Ochre sea star on kelp off the coast of California, USA (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-AU/2020/10/202010141300OchreSeaStar.jpg)|
