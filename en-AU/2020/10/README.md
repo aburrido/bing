@@ -15,3 +15,4 @@
 202010121300|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Fox in the marsh|![](/en-AU/2020/10/202010121300TrueFox.jpg)|
 202010131300|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|In praise of the old … the very old|![](/en-AU/2020/10/202010131300BavariaFossil.jpg)|
 202010141300|OchreSeaStar|Ochre sea star on kelp off the coast of California, USA (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-AU/2020/10/202010141300OchreSeaStar.jpg)|
+202010151300|WorldFoodDay|View of a tractor and trailers of cabbage in a field in Sankt Pölten, Austria (© Stephan Zirwes/Getty Images)|It's harvest time on World Food Day|![](/en-AU/2020/10/202010151300WorldFoodDay.jpg)|
