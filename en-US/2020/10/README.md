@@ -15,3 +15,4 @@
 202010120700|HaidaTotems|Haida totem poles on Haida Gwaii in British Columbia, Canada (© Michio Hoshino/Minden Pictures)|Indigenous Peoples Day|![](/en-US/2020/10/202010120700HaidaTotems.jpg)|
 202010130700|TrueFox|Red fox in the Netherlands (© Wim Weenink/Minden Pictures)|Where can you find a red fox?|![](/en-US/2020/10/202010130700TrueFox.jpg)|
 202010140700|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|In praise of the old…the very old|![](/en-US/2020/10/202010140700BavariaFossil.jpg)|
+202010150700|OchreSeaStar|Ochre sea star on kelp off the coast of California (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-US/2020/10/202010150700OchreSeaStar.jpg)|
