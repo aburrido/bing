@@ -15,3 +15,4 @@
 202010121600|TrueFox|赤狐，荷兰 (© Wim Weenink/Minden Pictures)||![](/zh-CN/2020/10/202010121600TrueFox.jpg)|
 202010131600|BavariaFossil|位于索尔恩霍芬的约1.5亿年前的蜻蜓化石，德国巴伐利亚 (© Ingo Arndt/Minden Pictures)||![](/zh-CN/2020/10/202010131600BavariaFossil.jpg)|
 202010141600|OchreSeaStar|在加州海岸海藻上的赭色海星 (© Ralph Pace/Minden Pictures)||![](/zh-CN/2020/10/202010141600OchreSeaStar.jpg)|
+202010151600|WorldFoodDay|田里的拖拉机和装载着卷心菜的拖车，奥地利圣珀尔滕 (© Stephan Zirwes/Getty Images)||![](/zh-CN/2020/10/202010151600WorldFoodDay.jpg)|
