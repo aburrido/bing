@@ -15,3 +15,4 @@
 202010122200|TrueFox|Renard roux aux Pays-Bas (© Wim Weenink/Minden Pictures)|Noblesse animale|![](/fr-FR/2020/10/202010122200TrueFox.jpg)|
 202010132200|BavariaFossil|Fossile de libellule vieux de 150 millions d’années, à Solnhofen, Bavière, Allemagne (© Ingo Arndt/Minden Pictures)|Respect aux anciens|![](/fr-FR/2020/10/202010132200BavariaFossil.jpg)|
 202010142200|OchreSeaStar|Étoile de mer sur du varech au large des côtes californiennes, États-Unis (© Ralph Pace/Minden Pictures)|Star des mers|![](/fr-FR/2020/10/202010142200OchreSeaStar.jpg)|
+202010152200|WorldFoodDay|Un tracteur remorquant des choux dans un champ à Sankt Pölten, Autriche (© Stephan Zirwes/Getty Images)|Savez-vous planter les choux ?|![](/fr-FR/2020/10/202010152200WorldFoodDay.jpg)|
