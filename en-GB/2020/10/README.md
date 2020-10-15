@@ -15,3 +15,4 @@
 202010122300|MountCetatea|Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)|Dracula’s castle?|![](/en-GB/2020/10/202010122300MountCetatea.jpg)|
 202010132300|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|Making an impression|![](/en-GB/2020/10/202010132300BavariaFossil.jpg)|
 202010142300|OchreSeaStar|Ochre sea star on kelp off the coast of California, USA (© Ralph Pace/Minden Pictures)|Hitching a ride|![](/en-GB/2020/10/202010142300OchreSeaStar.jpg)|
+202010152300|NarniaForest|Snowy Norway spruce forest at sunset, Thuringia, Germany (© Frank Sommariva/ImageBROKER/Offset by Shutterstock)|Narnia turns 70|![](/en-GB/2020/10/202010152300NarniaForest.jpg)|
