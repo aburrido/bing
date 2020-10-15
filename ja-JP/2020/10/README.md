@@ -15,3 +15,4 @@
 202010121500|TrueFox|｢アカギツネ｣オランダ (© Wim Weenink/Minden Pictures)|オランダの野生動物|![](/ja-JP/2020/10/202010121500TrueFox.jpg)|
 202010131500|TetsudoDay|｢嵯峨野観光鉄道｣京都, 嵐山 (© jiGGoTravel/Alamy Stock Photo)|今日は｢鉄道の日｣|![](/ja-JP/2020/10/202010131500TetsudoDay.jpg)|
 202010141500|CompressionFossil|｢石炭紀のシダの化石｣スペイン, コルドバ (© Juan Carlos Munoz/Minden Pictures)|今日は｢化石の日｣|![](/ja-JP/2020/10/202010141500CompressionFossil.jpg)|
+202010151500|WorldFoodDay|｢トラクターとキャベツ・トレーラー｣オーストリア, ザンクト・ペルテン (© Stephan Zirwes/Getty Images)|今日は｢世界食料デー｣|![](/ja-JP/2020/10/202010151500WorldFoodDay.jpg)|
