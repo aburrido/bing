@@ -14,3 +14,4 @@
 202010120400|KillarneyThanksgiving|L’automne au Parc provincial Killarney en Ontario (© Jeffery D. Walters/Getty Images)||![](/fr-CA/2020/10/202010120400KillarneyThanksgiving.jpg)|
 202010130400|TrueFox|Renard roux aux Pays-Bas (© Wim Weenink/Minden Pictures)||![](/fr-CA/2020/10/202010130400TrueFox.jpg)|
 202010140400|BavariaFossil|Fossile de libellule datant d'environ 150 millions d'années à Solnhofen en Bavière, Allemagne (© Ingo Arndt/Minden Pictures)||![](/fr-CA/2020/10/202010140400BavariaFossil.jpg)|
+202010150400|OchreSeaStar|Étoile ocrée sur du varech au large des côtes californiennes (© Ralph Pace/Minden Pictures)||![](/fr-CA/2020/10/202010150400OchreSeaStar.jpg)|
