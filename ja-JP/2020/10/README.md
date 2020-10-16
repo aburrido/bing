@@ -16,3 +16,4 @@
 202010131500|TetsudoDay|｢嵯峨野観光鉄道｣京都, 嵐山 (© jiGGoTravel/Alamy Stock Photo)|今日は｢鉄道の日｣|![](/ja-JP/2020/10/202010131500TetsudoDay.jpg)|
 202010141500|CompressionFossil|｢石炭紀のシダの化石｣スペイン, コルドバ (© Juan Carlos Munoz/Minden Pictures)|今日は｢化石の日｣|![](/ja-JP/2020/10/202010141500CompressionFossil.jpg)|
 202010151500|WorldFoodDay|｢トラクターとキャベツ・トレーラー｣オーストリア, ザンクト・ペルテン (© Stephan Zirwes/Getty Images)|今日は｢世界食料デー｣|![](/ja-JP/2020/10/202010151500WorldFoodDay.jpg)|
+202010161500|PisgahNationalForest|｢ピスガ国立森林｣米国ノースカロライナ州, ブレバード (© Adam Jones/Danita Delimont)|米国の国立森林|![](/ja-JP/2020/10/202010161500PisgahNationalForest.jpg)|
