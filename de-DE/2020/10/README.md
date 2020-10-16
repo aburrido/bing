@@ -16,3 +16,4 @@
 202010132200|BavariaFossil|Fossil einer Libelle (etwa 150 Millionen Jahre alt), Solnhofen, Bayern (© Ingo Arndt/Minden Pictures)|Zeugnis der Erdgeschichte|![](/de-DE/2020/10/202010132200BavariaFossil.jpg)|
 202010142200|OchreSeaStar|Ein Seestern (Pisaster ochraceus) auf einem Seetangwedel vor der Küste von Kalifornien (© Ralph Pace/Minden Pictures)|Fünf Arme und jede Menge Saugnäpfe|![](/de-DE/2020/10/202010142200OchreSeaStar.jpg)|
 202010152200|WorldFoodDay|Traktor und Anhänger auf einem Weißkohlfeld in St. Pölten, Österreich (© Stephan Zirwes/Getty Images)|Erntezeit am Welternährungstag|![](/de-DE/2020/10/202010152200WorldFoodDay.jpg)|
+202010162200|PisgahNationalForest|Pisgah National Forest in der Nähe von Brevard, North Carolina, USA (© Adam Jones/Danita Delimont)|Nebel über dem Wald|![](/de-DE/2020/10/202010162200PisgahNationalForest.jpg)|
