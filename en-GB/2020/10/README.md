@@ -16,3 +16,4 @@
 202010132300|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|Making an impression|![](/en-GB/2020/10/202010132300BavariaFossil.jpg)|
 202010142300|OchreSeaStar|Ochre sea star on kelp off the coast of California, USA (© Ralph Pace/Minden Pictures)|Hitching a ride|![](/en-GB/2020/10/202010142300OchreSeaStar.jpg)|
 202010152300|NarniaForest|Snowy Norway spruce forest at sunset, Thuringia, Germany (© Frank Sommariva/ImageBROKER/Offset by Shutterstock)|Narnia turns 70|![](/en-GB/2020/10/202010152300NarniaForest.jpg)|
+202010162300|PisgahNationalForest|View of Pisgah National Forest near Brevard, North Carolina, USA (© Adam Jones/Danita Delimont)|A sea of clouds rolls in|![](/en-GB/2020/10/202010162300PisgahNationalForest.jpg)|
