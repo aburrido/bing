@@ -17,3 +17,4 @@
 202010141600|OchreSeaStar|在加州海岸海藻上的赭色海星 (© Ralph Pace/Minden Pictures)||![](/zh-CN/2020/10/202010141600OchreSeaStar.jpg)|
 202010151600|WorldFoodDay|田里的拖拉机和装载着卷心菜的拖车，奥地利圣珀尔滕 (© Stephan Zirwes/Getty Images)||![](/zh-CN/2020/10/202010151600WorldFoodDay.jpg)|
 202010161600|PisgahNationalForest|布里瓦德附近的皮斯加国家森林，北卡罗来纳州 (© Adam Jones/Danita Delimont)||![](/zh-CN/2020/10/202010161600PisgahNationalForest.jpg)|
+202010171600|SitkaHarbor|锡特卡的港口，阿拉斯加 (© Blaine Harrington III/Alamy)||![](/zh-CN/2020/10/202010171600SitkaHarbor.jpg)|
