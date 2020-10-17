@@ -17,3 +17,4 @@
 202010141830|OchreSeaStar|Ochre sea star on kelp off the coast of California (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-IN/2020/10/202010141830OchreSeaStar.jpg)|
 202010151830|WorldFoodDay|View of a tractor and trailers of cabbage in a field in Sankt Pölten, Austria (© Stephan Zirwes/Getty Images)|It's harvest time on World Food Day|![](/en-IN/2020/10/202010151830WorldFoodDay.jpg)|
 202010161830|HornbillIndia|Malabar grey hornbill feeding on a fig tree at Dandeli, Karnataka (© AmitRane1975/iStock/Getty Images Plus)|A beak like no other|![](/en-IN/2020/10/202010161830HornbillIndia.jpg)|
+202010171830|SitkaHarbor|View of the harbour in Sitka, Alaska, United States (© Blaine Harrington III/Alamy)|Sitka shines on Alaska Day|![](/en-IN/2020/10/202010171830SitkaHarbor.jpg)|
