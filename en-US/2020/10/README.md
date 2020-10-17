@@ -17,3 +17,4 @@
 202010140700|BavariaFossil|Dragonfly fossil, about 150 million years old, in Solnhofen, Bavaria, Germany (© Ingo Arndt/Minden Pictures)|In praise of the old…the very old|![](/en-US/2020/10/202010140700BavariaFossil.jpg)|
 202010150700|OchreSeaStar|Ochre sea star on kelp off the coast of California (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-US/2020/10/202010150700OchreSeaStar.jpg)|
 202010160700|WorldFoodDay|View of a tractor and trailers of cabbage in a field in Sankt Pölten, Austria (© Stephan Zirwes/Getty Images)|It's harvest time on World Food Day|![](/en-US/2020/10/202010160700WorldFoodDay.jpg)|
+||||![](/en-US/2020/10/.jpg)|
