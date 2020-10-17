@@ -18,3 +18,4 @@
 202010150700|OchreSeaStar|Ochre sea star on kelp off the coast of California (© Ralph Pace/Minden Pictures)|A star is borne by seaweed|![](/en-US/2020/10/202010150700OchreSeaStar.jpg)|
 202010160700|WorldFoodDay|View of a tractor and trailers of cabbage in a field in Sankt Pölten, Austria (© Stephan Zirwes/Getty Images)|It's harvest time on World Food Day|![](/en-US/2020/10/202010160700WorldFoodDay.jpg)|
 ||||![](/en-US/2020/10/.jpg)|
+202010170700|PisgahNationalForest|View of Pisgah National Forest near Brevard, North Carolina (© Adam Jones/Danita Delimont)|Fog above the forest|![](/en-US/2020/10/202010170700PisgahNationalForest.jpg)|
