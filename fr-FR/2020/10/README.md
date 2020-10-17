@@ -17,3 +17,4 @@
 202010142200|OchreSeaStar|Étoile de mer sur du varech au large des côtes californiennes, États-Unis (© Ralph Pace/Minden Pictures)|Star des mers|![](/fr-FR/2020/10/202010142200OchreSeaStar.jpg)|
 202010152200|WorldFoodDay|Un tracteur remorquant des choux dans un champ à Sankt Pölten, Autriche (© Stephan Zirwes/Getty Images)|Savez-vous planter les choux ?|![](/fr-FR/2020/10/202010152200WorldFoodDay.jpg)|
 202010162200|PisgahNationalForest|La forêt nationale de Pisgah, Caroline du Nord, États-Unis (© Adam Jones/Danita Delimont)|Forêt testamentaire|![](/fr-FR/2020/10/202010162200PisgahNationalForest.jpg)|
+202010172200|SitkaHarbor|Le port de Sitka, Alaska, États-Unis (© Blaine Harrington III/Alamy)|La dernière frontière|![](/fr-FR/2020/10/202010172200SitkaHarbor.jpg)|
