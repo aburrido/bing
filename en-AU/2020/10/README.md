@@ -18,3 +18,4 @@
 202010151300|WorldFoodDay|View of a tractor and trailers of cabbage in a field in Sankt Pölten, Austria (© Stephan Zirwes/Getty Images)|It's harvest time on World Food Day|![](/en-AU/2020/10/202010151300WorldFoodDay.jpg)|
 202010161300|PisgahNationalForest|View of Pisgah National Forest near Brevard, North Carolina, USA (© Adam Jones/Danita Delimont)|Fog above the forest|![](/en-AU/2020/10/202010161300PisgahNationalForest.jpg)|
 202010171300|SitkaHarbor|View of the harbour in Sitka, Alaska, USA (© Blaine Harrington III/Alamy)|Sitka shines on Alaska Day|![](/en-AU/2020/10/202010171300SitkaHarbor.jpg)|
+202010181300|OceanJetSki|Aerial view of jet skis in the ocean, Australia (© Nearmap/Getty Images)|Celebrating humble H2O|![](/en-AU/2020/10/202010181300OceanJetSki.jpg)|
