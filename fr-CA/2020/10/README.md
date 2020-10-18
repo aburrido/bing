@@ -17,3 +17,4 @@
 202010150400|OchreSeaStar|Étoile ocrée sur du varech au large des côtes californiennes (© Ralph Pace/Minden Pictures)||![](/fr-CA/2020/10/202010150400OchreSeaStar.jpg)|
 202010160400|WorldFoodDay|Vue d'un tracteur remorquant des choux dans un champ à Sankt Pölten en Autriche (© Stephan Zirwes/Getty Images)||![](/fr-CA/2020/10/202010160400WorldFoodDay.jpg)|
 202010170400|PisgahNationalForest|Vue de la forêt nationale de Pisgah près de Brevard en Caroline du Nord (© Adam Jones/Danita Delimont)||![](/fr-CA/2020/10/202010170400PisgahNationalForest.jpg)|
+202010180400|SitkaHarbor|Vue du port de Sitka en Alaska (© Blaine Harrington III/Alamy)||![](/fr-CA/2020/10/202010180400SitkaHarbor.jpg)|
