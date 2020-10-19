@@ -19,3 +19,4 @@
 202010162200|PisgahNationalForest|Pisgah National Forest in der Nähe von Brevard, North Carolina, USA (© Adam Jones/Danita Delimont)|Nebel über dem Wald|![](/de-DE/2020/10/202010162200PisgahNationalForest.jpg)|
 202010172200|SitkaHarbor|Blick auf den Hafen von Sitka, Alaska, USA (© Blaine Harrington III/Alamy)|Sitka leuchtet am Alaska Day|![](/de-DE/2020/10/202010172200SitkaHarbor.jpg)|
 202010182200|HelenenturmWitten|Helenenturm, Witten, Nordrhein-Westfalen (© Hans Blossey/age fotostock)|Aussichtsturm im Nebel|![](/de-DE/2020/10/202010182200HelenenturmWitten.jpg)|
+202010192200|LauwersmeerNP|Starenschwarm über dem Nationalpark Lauwersmeer, Niederlande (© Frans Lemmens/Alamy)|Ein Star kommt selten allein|![](/de-DE/2020/10/202010192200LauwersmeerNP.jpg)|
