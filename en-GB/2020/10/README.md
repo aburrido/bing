@@ -19,3 +19,4 @@
 202010162300|PisgahNationalForest|View of Pisgah National Forest near Brevard, North Carolina, USA (© Adam Jones/Danita Delimont)|A sea of clouds rolls in|![](/en-GB/2020/10/202010162300PisgahNationalForest.jpg)|
 202010172300|SitkaHarbor|View of the harbour in Sitka, Alaska, USA (© Blaine Harrington III/Alamy)|When Russia owned Alaska…|![](/en-GB/2020/10/202010172300SitkaHarbor.jpg)|
 202010182300|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|Don’t look down|![](/en-GB/2020/10/202010182300MatiSiTemple.jpg)|
+202010192300|SleepingDormouse|Hazel dormouse (Muscardinus avellanarius) hibernating (© Avalon/Photoshot License/Alamy Stock Photo)|Bedding down for winter|![](/en-GB/2020/10/202010192300SleepingDormouse.jpg)|
