@@ -19,3 +19,4 @@
 202010161500|PisgahNationalForest|｢ピスガ国立森林｣米国ノースカロライナ州, ブレバード (© Adam Jones/Danita Delimont)|米国の国立森林|![](/ja-JP/2020/10/202010161500PisgahNationalForest.jpg)|
 202010171500|SitkaHarbor|｢シトカの港｣米国アラスカ州 (© Blaine Harrington III/Alamy)|今日は｢アラスカの日｣|![](/ja-JP/2020/10/202010171500SitkaHarbor.jpg)|
 202010181500|MatiSiTemple|｢馬蹄寺石窟｣中国, 甘粛省 (© Ana Flašker/Alamy)|チベットの石窟寺院|![](/ja-JP/2020/10/202010181500MatiSiTemple.jpg)|
+202010191500|BLNC|｢ビーバー・レイク・ネイチャー・センター｣米国ニューヨーク州, オノンダガ郡 (© Chris Murray/Alamy)|米国の秋の自然公園|![](/ja-JP/2020/10/202010191500BLNC.jpg)|
