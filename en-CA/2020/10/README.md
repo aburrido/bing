@@ -18,3 +18,4 @@
 202010160400|WorldFoodDay|View of a tractor and trailers of cabbage in a field in Sankt Pölten, Austria (© Stephan Zirwes/Getty Images)|It's harvest time on World Food Day|![](/en-CA/2020/10/202010160400WorldFoodDay.jpg)|
 202010170400|SitkaHarbor|View of the harbour in Sitka, Alaska (© Blaine Harrington III/Alamy)|Sitka shines in Alaska|![](/en-CA/2020/10/202010170400SitkaHarbor.jpg)|
 202010180400|PersonsMonument|The Famous Five monument sculpted by Barbara Paterson, Calgary (© Michael Wheatley/Age Fotostock)|The Famous Five|![](/en-CA/2020/10/202010180400PersonsMonument.jpg)|
+202010190400|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-CA/2020/10/202010190400MatiSiTemple.jpg)|
