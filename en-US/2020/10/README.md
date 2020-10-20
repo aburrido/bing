@@ -21,3 +21,4 @@
 202010170700|PisgahNationalForest|View of Pisgah National Forest near Brevard, North Carolina (© Adam Jones/Danita Delimont)|Fog above the forest|![](/en-US/2020/10/202010170700PisgahNationalForest.jpg)|
 202010180700|SitkaHarbor|View of the harbor in Sitka, Alaska (© Blaine Harrington III/Alamy)|Sitka shines on Alaska Day|![](/en-US/2020/10/202010180700SitkaHarbor.jpg)|
 202010190700|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-US/2020/10/202010190700MatiSiTemple.jpg)|
+202010200700|BLNC|Bare trees and autumn ferns in Beaver Lake Nature Center, New York (© Chris Murray/Alamy)|Reflecting on fall|![](/en-US/2020/10/202010200700BLNC.jpg)|
