@@ -20,3 +20,4 @@
 202010171600|SitkaHarbor|锡特卡的港口，阿拉斯加 (© Blaine Harrington III/Alamy)||![](/zh-CN/2020/10/202010171600SitkaHarbor.jpg)|
 202010181600|MatiSiTemple|马蹄寺风景区内的马蹄寺和石窟，中国甘肃省 (© Ana Flašker/Alamy)||![](/zh-CN/2020/10/202010181600MatiSiTemple.jpg)|
 202010191600|BLNC|比弗湖自然中心内光秃秃的树和红盖鳞毛蕨，纽约 (© Chris Murray/Alamy)||![](/zh-CN/2020/10/202010191600BLNC.jpg)|
+202010201600|ChameleonIndonesia|在一株植物上行走的变色龙，印度尼西亚 (© SnapRapid/Offset by Shutterstock)||![](/zh-CN/2020/10/202010201600ChameleonIndonesia.jpg)|
