@@ -19,3 +19,4 @@
 202010170400|SitkaHarbor|View of the harbour in Sitka, Alaska (© Blaine Harrington III/Alamy)|Sitka shines in Alaska|![](/en-CA/2020/10/202010170400SitkaHarbor.jpg)|
 202010180400|PersonsMonument|The Famous Five monument sculpted by Barbara Paterson, Calgary (© Michael Wheatley/Age Fotostock)|The Famous Five|![](/en-CA/2020/10/202010180400PersonsMonument.jpg)|
 202010190400|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-CA/2020/10/202010190400MatiSiTemple.jpg)|
+202010200400|BLNC|Bare trees and autumn ferns in Beaver Lake Nature Center, New York (© Chris Murray/Alamy)|Reflecting on fall|![](/en-CA/2020/10/202010200400BLNC.jpg)|

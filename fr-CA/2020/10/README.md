@@ -19,3 +19,4 @@
 202010170400|PisgahNationalForest|Vue de la forêt nationale de Pisgah près de Brevard en Caroline du Nord (© Adam Jones/Danita Delimont)||![](/fr-CA/2020/10/202010170400PisgahNationalForest.jpg)|
 202010180400|SitkaHarbor|Vue du port de Sitka en Alaska (© Blaine Harrington III/Alamy)||![](/fr-CA/2020/10/202010180400SitkaHarbor.jpg)|
 202010190400|MatiSiTemple|Le Mati Si et ses grottes dans la région panoramique du Mati Si, province du Gansu, Chine (© Ana Flašker/Alamy)||![](/fr-CA/2020/10/202010190400MatiSiTemple.jpg)|
+202010200400|BLNC|Arbres sans feuilles et fougères d'automne au Beaver Lake Nature Center dans l’État de New York (© Chris Murray/Alamy)||![](/fr-CA/2020/10/202010200400BLNC.jpg)|
