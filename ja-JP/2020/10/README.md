@@ -20,3 +20,4 @@
 202010171500|SitkaHarbor|｢シトカの港｣米国アラスカ州 (© Blaine Harrington III/Alamy)|今日は｢アラスカの日｣|![](/ja-JP/2020/10/202010171500SitkaHarbor.jpg)|
 202010181500|MatiSiTemple|｢馬蹄寺石窟｣中国, 甘粛省 (© Ana Flašker/Alamy)|チベットの石窟寺院|![](/ja-JP/2020/10/202010181500MatiSiTemple.jpg)|
 202010191500|BLNC|｢ビーバー・レイク・ネイチャー・センター｣米国ニューヨーク州, オノンダガ郡 (© Chris Murray/Alamy)|米国の秋の自然公園|![](/ja-JP/2020/10/202010191500BLNC.jpg)|
+202010201500|LauwersmeerNP|｢ムクドリの群れ｣オランダ, ラウエルス湖自然公園 (© Frans Lemmens/Alamy)|オランダの秋の風景|![](/ja-JP/2020/10/202010201500LauwersmeerNP.jpg)|
