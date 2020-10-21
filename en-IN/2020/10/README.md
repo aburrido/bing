@@ -21,3 +21,4 @@
 202010181830|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-IN/2020/10/202010181830MatiSiTemple.jpg)|
 202010191830|BLNC|Bare trees and autumn ferns in Beaver Lake Nature Center, New York, USA (© Chris Murray/Alamy)|Reflecting on fall|![](/en-IN/2020/10/202010191830BLNC.jpg)|
 202010201830|PoliceMarch|Police contingent march during a Republic Day Parade, New-Delhi (© PRAKASH SINGH/AFP via Getty Images)|Salute to the Indian Police Service|![](/en-IN/2020/10/202010201830PoliceMarch.jpg)|
+202010211830|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-IN/2020/10/202010211830LauwersmeerNP.jpg)|
