@@ -21,3 +21,4 @@
 202010181300|OceanJetSki|Aerial view of jet skis in the ocean, Australia (© Nearmap/Getty Images)|Celebrating humble H2O|![](/en-AU/2020/10/202010181300OceanJetSki.jpg)|
 202010191300|BLNC|Bare trees and autumn ferns in Beaver Lake Nature Center, New York, USA (© Chris Murray/Alamy)|Lakeside serenity|![](/en-AU/2020/10/202010191300BLNC.jpg)|
 202010201300|ChameleonIndonesia|Chameleon walking on a plant, Indonesia (© SnapRapid/Offset by Shutterstock)|Does this chameleon look a little insecure?|![](/en-AU/2020/10/202010201300ChameleonIndonesia.jpg)|
+202010211300|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-AU/2020/10/202010211300LauwersmeerNP.jpg)|
