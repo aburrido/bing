@@ -21,3 +21,4 @@
 202010182300|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|Don’t look down|![](/en-GB/2020/10/202010182300MatiSiTemple.jpg)|
 202010192300|SleepingDormouse|Hazel dormouse (Muscardinus avellanarius) hibernating (© Avalon/Photoshot License/Alamy Stock Photo)|Bedding down for winter|![](/en-GB/2020/10/202010192300SleepingDormouse.jpg)|
 202010202300|ChameleonIndonesia|Chameleon walking on a plant, Indonesia (© SnapRapid/Offset by Shutterstock)|Does this chameleon look worried?|![](/en-GB/2020/10/202010202300ChameleonIndonesia.jpg)|
+202010212300|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-GB/2020/10/202010212300LauwersmeerNP.jpg)|
