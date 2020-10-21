@@ -21,3 +21,4 @@
 202010182200|HelenenturmWitten|Helenenturm, Witten, Nordrhein-Westfalen (© Hans Blossey/age fotostock)|Aussichtsturm im Nebel|![](/de-DE/2020/10/202010182200HelenenturmWitten.jpg)|
 202010192200|LauwersmeerNP|Starenschwarm über dem Nationalpark Lauwersmeer, Niederlande (© Frans Lemmens/Alamy)|Ein Star kommt selten allein|![](/de-DE/2020/10/202010192200LauwersmeerNP.jpg)|
 202010202200|ChameleonIndonesia|Chamäleon auf einem Pflanzentrieb, Indonesien (© SnapRapid/Offset by Shutterstock)|Sieht dieses Chamäleon etwas verunsichert aus?|![](/de-DE/2020/10/202010202200ChameleonIndonesia.jpg)|
+202010212200|MountCetatea|Die Burg Poenari im Făgăraș-Gebirge, Rumänien (© porojnicu/Getty Images)|Eine Burg für einen Grafen|![](/de-DE/2020/10/202010212200MountCetatea.jpg)|
