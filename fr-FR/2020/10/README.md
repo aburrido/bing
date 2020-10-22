@@ -22,3 +22,4 @@
 202010192200|BLNC|Arbres nus et fougères automnales à Beaver Lake Nature Center, États-Unis (© Chris Murray/Alamy)|Charme automnal|![](/fr-FR/2020/10/202010192200BLNC.jpg)|
 202010202200|ChameleonIndonesia|Caméléon sur une plante, Indonésie (© SnapRapid/Offset by Shutterstock)|L’art d’être invisible|![](/fr-FR/2020/10/202010202200ChameleonIndonesia.jpg)|
 202010212200|LauwersmeerNP|Nuée d’étourneaux sansonnet survolant le parc national Lauwersmeer, Pays-Bas (© Frans Lemmens/Alamy)|Dans un murmure|![](/fr-FR/2020/10/202010212200LauwersmeerNP.jpg)|
+202010222200|GroundhogDay|Marmotte des Alpes, Hautes-Alpes, France (© nataistock/iStock/Getty Images Plus)|Copine alpine|![](/fr-FR/2020/10/202010222200GroundhogDay.jpg)|
