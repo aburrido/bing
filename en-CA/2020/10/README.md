@@ -21,3 +21,4 @@
 202010190400|MatiSiTemple|The Mati Si (Horse's Hoof Temple) and grottoes of Mati Si Scenic Area, Gansu province, China (© Ana Flašker/Alamy)|A cliff-hanging complex of temples|![](/en-CA/2020/10/202010190400MatiSiTemple.jpg)|
 202010200400|BLNC|Bare trees and autumn ferns in Beaver Lake Nature Center, New York (© Chris Murray/Alamy)|Reflecting on fall|![](/en-CA/2020/10/202010200400BLNC.jpg)|
 202010210400|ChameleonIndonesia|Chameleon walking on a plant, Indonesia (© SnapRapid/Offset by Shutterstock)|Does this chameleon look a little insecure?|![](/en-CA/2020/10/202010210400ChameleonIndonesia.jpg)|
+202010220400|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-CA/2020/10/202010220400LauwersmeerNP.jpg)|

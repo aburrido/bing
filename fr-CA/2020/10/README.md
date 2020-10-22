@@ -21,3 +21,4 @@
 202010190400|MatiSiTemple|Le Mati Si et ses grottes dans la région panoramique du Mati Si, province du Gansu, Chine (© Ana Flašker/Alamy)||![](/fr-CA/2020/10/202010190400MatiSiTemple.jpg)|
 202010200400|BLNC|Arbres sans feuilles et fougères d'automne au Beaver Lake Nature Center dans l’État de New York (© Chris Murray/Alamy)||![](/fr-CA/2020/10/202010200400BLNC.jpg)|
 202010210400|ChameleonIndonesia|Caméléon marchant sur une plante en Indonésie (© SnapRapid/Offset by Shutterstock)||![](/fr-CA/2020/10/202010210400ChameleonIndonesia.jpg)|
+202010220400|LauwersmeerNP|Étourneaux survolant le parc national de Lauwersmeer aux Pays-Bas (© Frans Lemmens/Alamy)||![](/fr-CA/2020/10/202010220400LauwersmeerNP.jpg)|
