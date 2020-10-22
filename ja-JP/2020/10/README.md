@@ -22,3 +22,4 @@
 202010191500|BLNC|｢ビーバー・レイク・ネイチャー・センター｣米国ニューヨーク州, オノンダガ郡 (© Chris Murray/Alamy)|米国の秋の自然公園|![](/ja-JP/2020/10/202010191500BLNC.jpg)|
 202010201500|LauwersmeerNP|｢ムクドリの群れ｣オランダ, ラウエルス湖自然公園 (© Frans Lemmens/Alamy)|オランダの秋の風景|![](/ja-JP/2020/10/202010201500LauwersmeerNP.jpg)|
 202010211500|AbuSimbelSunFest|｢アブ・シンベル太陽祭｣エジプト, アブ・シンベル神殿 (© Nick Brundle Photography/Getty Images)|今日は｢アブ・シンベル太陽祭｣|![](/ja-JP/2020/10/202010211500AbuSimbelSunFest.jpg)|
+202010221500|LeavesGoldfish|｢紅葉とコイ｣東京 (© qrsk/Moment/Getty Images)|今日は｢霜降｣|![](/ja-JP/2020/10/202010221500LeavesGoldfish.jpg)|
