@@ -22,3 +22,4 @@
 202010200400|BLNC|Bare trees and autumn ferns in Beaver Lake Nature Center, New York (© Chris Murray/Alamy)|Reflecting on fall|![](/en-CA/2020/10/202010200400BLNC.jpg)|
 202010210400|ChameleonIndonesia|Chameleon walking on a plant, Indonesia (© SnapRapid/Offset by Shutterstock)|Does this chameleon look a little insecure?|![](/en-CA/2020/10/202010210400ChameleonIndonesia.jpg)|
 202010220400|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-CA/2020/10/202010220400LauwersmeerNP.jpg)|
+202010230400|BentsGeneral|Old general store of Bents, Saskatchewan (© ImagineGolf/Getty Images)|Saskatchewan's spookier side|![](/en-CA/2020/10/202010230400BentsGeneral.jpg)|
