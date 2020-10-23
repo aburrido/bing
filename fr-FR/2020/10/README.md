@@ -23,3 +23,4 @@
 202010202200|ChameleonIndonesia|Caméléon sur une plante, Indonésie (© SnapRapid/Offset by Shutterstock)|L’art d’être invisible|![](/fr-FR/2020/10/202010202200ChameleonIndonesia.jpg)|
 202010212200|LauwersmeerNP|Nuée d’étourneaux sansonnet survolant le parc national Lauwersmeer, Pays-Bas (© Frans Lemmens/Alamy)|Dans un murmure|![](/fr-FR/2020/10/202010212200LauwersmeerNP.jpg)|
 202010222200|GroundhogDay|Marmotte des Alpes, Hautes-Alpes, France (© nataistock/iStock/Getty Images Plus)|Copine alpine|![](/fr-FR/2020/10/202010222200GroundhogDay.jpg)|
+202010232200|UNBuilding|Vue de New York et le siège des Nations Unies (© Sean Pavone/Alamy)|75 ans d’unité|![](/fr-FR/2020/10/202010232200UNBuilding.jpg)|
