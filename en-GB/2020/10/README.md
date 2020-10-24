@@ -24,3 +24,4 @@
 202010212300|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-GB/2020/10/202010212300LauwersmeerNP.jpg)|
 202010222300|BentsGeneral|Old general store of Bents, Saskatchewan, Canada (© ImagineGolf/Getty Images)|Why was Bents abandoned?|![](/en-GB/2020/10/202010222300BentsGeneral.jpg)|
 202010232300|UNBuilding|United Nations headquarters, New York, USA (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-GB/2020/10/202010232300UNBuilding.jpg)|
+202010242300|SnoozyTheBear|Grizzly bear cub relaxing, Lake Clark National Park, Alaska, USA (© Erlend Krumsvik/Getty Images)|An extra hour of sleep|![](/en-GB/2020/10/202010242300SnoozyTheBear.jpg)|
