@@ -24,3 +24,4 @@
 202010211830|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-IN/2020/10/202010211830LauwersmeerNP.jpg)|
 202010221830|BentsGeneral|Old general store of Bents, Saskatchewan, Canada (© ImagineGolf/Getty Images)|Saskatchewan's spookier side|![](/en-IN/2020/10/202010221830BentsGeneral.jpg)|
 202010231830|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-IN/2020/10/202010231830UNBuilding.jpg)|
+202010241830|DusseraMasks|Masks for the Dussehra festival (© Piergiorgio Sclarandis/Sime/eStock Photo)|Festivities all across the country|![](/en-IN/2020/10/202010241830DusseraMasks.jpg)|
