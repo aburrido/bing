@@ -24,3 +24,4 @@
 202010211600|LauwersmeerNP|Lauwersmeer国家公园上空的椋鸟群，荷兰 (© Frans Lemmens/Alamy)||![](/zh-CN/2020/10/202010211600LauwersmeerNP.jpg)|
 202010221600|BentsGeneral|Bents的旧百货商店，加拿大萨斯喀彻温省 (© ImagineGolf/Getty Images)||![](/zh-CN/2020/10/202010221600BentsGeneral.jpg)|
 202010231600|UNBuilding|纽约市的天际线与联合国总部大楼 (© Sean Pavone/Alamy)||![](/zh-CN/2020/10/202010231600UNBuilding.jpg)|
+202010241600|BCPumpkins|不列颠哥伦比亚省的一块南瓜田，加拿大 (© James Chen/Shutterstock)||![](/zh-CN/2020/10/202010241600BCPumpkins.jpg)|
