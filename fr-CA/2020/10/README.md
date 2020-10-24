@@ -23,3 +23,4 @@
 202010210400|ChameleonIndonesia|Caméléon marchant sur une plante en Indonésie (© SnapRapid/Offset by Shutterstock)||![](/fr-CA/2020/10/202010210400ChameleonIndonesia.jpg)|
 202010220400|LauwersmeerNP|Étourneaux survolant le parc national de Lauwersmeer aux Pays-Bas (© Frans Lemmens/Alamy)||![](/fr-CA/2020/10/202010220400LauwersmeerNP.jpg)|
 202010230400|BentsGeneral|Vieux magasin général de Bents en Saskatchewan (© ImagineGolf/Getty Images)||![](/fr-CA/2020/10/202010230400BentsGeneral.jpg)|
+202010240400|UNBuilding|Panorama de la ville de New York avec le siège des Nations unies (© Sean Pavone/Alamy)||![](/fr-CA/2020/10/202010240400UNBuilding.jpg)|
