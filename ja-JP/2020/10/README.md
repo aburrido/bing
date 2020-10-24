@@ -24,3 +24,4 @@
 202010211500|AbuSimbelSunFest|｢アブ・シンベル太陽祭｣エジプト, アブ・シンベル神殿 (© Nick Brundle Photography/Getty Images)|今日は｢アブ・シンベル太陽祭｣|![](/ja-JP/2020/10/202010211500AbuSimbelSunFest.jpg)|
 202010221500|LeavesGoldfish|｢紅葉とコイ｣東京 (© qrsk/Moment/Getty Images)|今日は｢霜降｣|![](/ja-JP/2020/10/202010221500LeavesGoldfish.jpg)|
 202010231500|UNBuilding|｢タートル・ベイの国際連合本部ビル｣米国ニューヨーク州, ニューヨーク市 (© Sean Pavone/Alamy)|今日は｢国連の日｣|![](/ja-JP/2020/10/202010231500UNBuilding.jpg)|
+202010241500|IcelandicRettir|｢アイスランディック・シープ｣アイスランド (© Pieter Tytgat/Getty Images)|羊追い行事の季節です|![](/ja-JP/2020/10/202010241500IcelandicRettir.jpg)|
