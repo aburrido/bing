@@ -25,3 +25,4 @@
 202010222200|BentsGeneral|Verfallene Häuser in Bents, Provinz Saskatchewan, Kanada (© ImagineGolf/Getty Images)|Die spukhafte Seite von Saskatchewan|![](/de-DE/2020/10/202010222200BentsGeneral.jpg)|
 202010232200|UNBuilding|Skyline von New York City mit dem UNO-Hauptquartier (© Sean Pavone/Alamy)|75 Jahre Vereinte Nationen|![](/de-DE/2020/10/202010232200UNBuilding.jpg)|
 202010242200|BCPumpkins|Ein Kürbisfeld in British Columbia, Kanada (© James Chen/Shutterstock)|Paradies für Kürbisschnitzer|![](/de-DE/2020/10/202010242200BCPumpkins.jpg)|
+202010252300|MischwaldFuessen|Herbstlicher Mischwald im Nebel, Füssen, Allgäu, Bayern (© DEEPOL by plainpicture/Erich Kuchling)|Herbststimmung im Allgäu|![](/de-DE/2020/10/202010252300MischwaldFuessen.jpg)|
