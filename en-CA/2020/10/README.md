@@ -24,3 +24,4 @@
 202010220400|LauwersmeerNP|Starlings flock over Lauwersmeer National Park, Netherlands (© Frans Lemmens/Alamy)|Moving as one|![](/en-CA/2020/10/202010220400LauwersmeerNP.jpg)|
 202010230400|BentsGeneral|Old general store of Bents, Saskatchewan (© ImagineGolf/Getty Images)|Saskatchewan's spookier side|![](/en-CA/2020/10/202010230400BentsGeneral.jpg)|
 202010240400|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-CA/2020/10/202010240400UNBuilding.jpg)|
+202010250400|BCPumpkins|A pumpkin patch in British Columbia (© James Chen/Shutterstock)|A most sincere pumpkin patch|![](/en-CA/2020/10/202010250400BCPumpkins.jpg)|
