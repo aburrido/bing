@@ -25,3 +25,4 @@
 202010221830|BentsGeneral|Old general store of Bents, Saskatchewan, Canada (© ImagineGolf/Getty Images)|Saskatchewan's spookier side|![](/en-IN/2020/10/202010221830BentsGeneral.jpg)|
 202010231830|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-IN/2020/10/202010231830UNBuilding.jpg)|
 202010241830|DusseraMasks|Masks for the Dussehra festival (© Piergiorgio Sclarandis/Sime/eStock Photo)|Festivities all across the country|![](/en-IN/2020/10/202010241830DusseraMasks.jpg)|
+202010251830|CorfeDorset|Corfe Castle, Dorset, England (© Ross Hoddinott/Minden Pictures)|Creepy Corfe Castle|![](/en-IN/2020/10/202010251830CorfeDorset.jpg)|
