@@ -26,3 +26,4 @@
 202010231830|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-IN/2020/10/202010231830UNBuilding.jpg)|
 202010241830|DusseraMasks|Masks for the Dussehra festival (© Piergiorgio Sclarandis/Sime/eStock Photo)|Festivities all across the country|![](/en-IN/2020/10/202010241830DusseraMasks.jpg)|
 202010251830|CorfeDorset|Corfe Castle, Dorset, England (© Ross Hoddinott/Minden Pictures)|Creepy Corfe Castle|![](/en-IN/2020/10/202010251830CorfeDorset.jpg)|
+202010261830|CambronBridge|Cambron Covered Bridge in Green Mountain Park, near Huntsville, Alabama, United States (© Jens Lambert/Shutterstock)|A bridge of Madison County|![](/en-IN/2020/10/202010261830CambronBridge.jpg)|
