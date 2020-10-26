@@ -26,3 +26,4 @@
 202010231300|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-AU/2020/10/202010231300UNBuilding.jpg)|
 202010241300|BCPumpkins|A pumpkin patch in British Columbia, Canada (© James Chen/Shutterstock)|A most sincere pumpkin patch|![](/en-AU/2020/10/202010241300BCPumpkins.jpg)|
 202010251300|CorfeDorset|Corfe Castle, Dorset, England (© Ross Hoddinott/Minden Pictures)|Creepy Corfe Castle|![](/en-AU/2020/10/202010251300CorfeDorset.jpg)|
+202010261300|SaltLakeLochiel|Aerial of pink salt lake in Lochiel, South Australia (© Amazing Aerial Agency/offset by shutterstock)|Pretty in pink|![](/en-AU/2020/10/202010261300SaltLakeLochiel.jpg)|
