@@ -25,3 +25,4 @@
 202010230400|BentsGeneral|Vieux magasin général de Bents en Saskatchewan (© ImagineGolf/Getty Images)||![](/fr-CA/2020/10/202010230400BentsGeneral.jpg)|
 202010240400|UNBuilding|Panorama de la ville de New York avec le siège des Nations unies (© Sean Pavone/Alamy)||![](/fr-CA/2020/10/202010240400UNBuilding.jpg)|
 202010250400|BCPumpkins|Champ de citrouilles en Colombie-Britannique (© James Chen/Shutterstock)||![](/fr-CA/2020/10/202010250400BCPumpkins.jpg)|
+202010260400|CorfeDorset|Château de Corfe, Dorset, Angleterre (© Ross Hoddinott/Minden Pictures)||![](/fr-CA/2020/10/202010260400CorfeDorset.jpg)|
