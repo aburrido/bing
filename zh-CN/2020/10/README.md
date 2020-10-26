@@ -26,3 +26,4 @@
 202010231600|UNBuilding|纽约市的天际线与联合国总部大楼 (© Sean Pavone/Alamy)||![](/zh-CN/2020/10/202010231600UNBuilding.jpg)|
 202010241600|BCPumpkins|不列颠哥伦比亚省的一块南瓜田，加拿大 (© James Chen/Shutterstock)||![](/zh-CN/2020/10/202010241600BCPumpkins.jpg)|
 202010251600|CorfeDorset|科夫堡，英国多塞特 (© Ross Hoddinott/Minden Pictures)||![](/zh-CN/2020/10/202010251600CorfeDorset.jpg)|
+202010261600|CambronBridge|亨茨维尔附近绿色山公园中的Cambron Covered Bridge，阿拉巴马州  (© Jens Lambert/Shutterstock)||![](/zh-CN/2020/10/202010261600CambronBridge.jpg)|
