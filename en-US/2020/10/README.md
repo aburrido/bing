@@ -27,3 +27,4 @@
 202010230700|BentsGeneral|Old general store of Bents, Saskatchewan, Canada (© ImagineGolf/Getty Images)|Saskatchewan's spookier side|![](/en-US/2020/10/202010230700BentsGeneral.jpg)|
 202010240700|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-US/2020/10/202010240700UNBuilding.jpg)|
 202010250700|BCPumpkins|A pumpkin patch in British Columbia, Canada (© James Chen/Shutterstock)|A most sincere pumpkin patch|![](/en-US/2020/10/202010250700BCPumpkins.jpg)|
+202010260700|CorfeDorset|Corfe Castle, Dorset, England (© Ross Hoddinott/Minden Pictures)|Corfe gets creepy|![](/en-US/2020/10/202010260700CorfeDorset.jpg)|
