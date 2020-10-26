@@ -26,3 +26,4 @@
 202010231500|UNBuilding|｢タートル・ベイの国際連合本部ビル｣米国ニューヨーク州, ニューヨーク市 (© Sean Pavone/Alamy)|今日は｢国連の日｣|![](/ja-JP/2020/10/202010231500UNBuilding.jpg)|
 202010241500|IcelandicRettir|｢アイスランディック・シープ｣アイスランド (© Pieter Tytgat/Getty Images)|羊追い行事の季節です|![](/ja-JP/2020/10/202010241500IcelandicRettir.jpg)|
 202010251500|CorfeDorset|｢コーフ城｣イギリス, ドーセット (© Ross Hoddinott/Minden Pictures)|イギリスの古城|![](/ja-JP/2020/10/202010251500CorfeDorset.jpg)|
+202010261500|Trinity|｢トリニティ・カレッジ図書館｣アイルランド, ダブリン (© Carl Bruemmer/age fotostock)|今日から｢読書週間｣|![](/ja-JP/2020/10/202010261500Trinity.jpg)|
