@@ -26,3 +26,4 @@
 202010232200|UNBuilding|Vue de New York et le siège des Nations Unies (© Sean Pavone/Alamy)|75 ans d’unité|![](/fr-FR/2020/10/202010232200UNBuilding.jpg)|
 202010242200|BCPumpkins|Un champ de citrouilles en Colombie-Britannique, Canada (© James Chen/Shutterstock)|Honorable champ de citrouille|![](/fr-FR/2020/10/202010242200BCPumpkins.jpg)|
 202010252200|CorfeDorset|Corfe Castle, Dorset, Angleterre (© Ross Hoddinott/Minden Pictures)|Un vrai château hanté|![](/fr-FR/2020/10/202010252200CorfeDorset.jpg)|
+202010262200|CambronBridge|Le Cambron Covered Bridge dans le Green Mountain Park, Alabama, États-Unis (© Jens Lambert/Shutterstock)|Une maison sur pilotis ?|![](/fr-FR/2020/10/202010262200CambronBridge.jpg)|
