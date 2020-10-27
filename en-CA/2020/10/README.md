@@ -26,3 +26,4 @@
 202010240400|UNBuilding|New York City skyline with United Nations headquarters (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-CA/2020/10/202010240400UNBuilding.jpg)|
 202010250400|BCPumpkins|A pumpkin patch in British Columbia (© James Chen/Shutterstock)|A most sincere pumpkin patch|![](/en-CA/2020/10/202010250400BCPumpkins.jpg)|
 202010260400|CorfeDorset|Corfe Castle, Dorset, England (© Ross Hoddinott/Minden Pictures)|Creepy Corfe Castle|![](/en-CA/2020/10/202010260400CorfeDorset.jpg)|
+202010270400|CambronBridge|Cambron Covered Bridge in Green Mountain Park, near Huntsville, Alabama (© Jens Lambert/Shutterstock)|A bridge from Alabama|![](/en-CA/2020/10/202010270400CambronBridge.jpg)|
