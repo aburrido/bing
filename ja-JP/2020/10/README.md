@@ -27,3 +27,4 @@
 202010241500|IcelandicRettir|｢アイスランディック・シープ｣アイスランド (© Pieter Tytgat/Getty Images)|羊追い行事の季節です|![](/ja-JP/2020/10/202010241500IcelandicRettir.jpg)|
 202010251500|CorfeDorset|｢コーフ城｣イギリス, ドーセット (© Ross Hoddinott/Minden Pictures)|イギリスの古城|![](/ja-JP/2020/10/202010251500CorfeDorset.jpg)|
 202010261500|Trinity|｢トリニティ・カレッジ図書館｣アイルランド, ダブリン (© Carl Bruemmer/age fotostock)|今日から｢読書週間｣|![](/ja-JP/2020/10/202010261500Trinity.jpg)|
+202010271500|CambronBridge|｢カンブロン屋根付橋｣米国アラバマ州, ハンツビル (© Jens Lambert/Shutterstock)|米国の紅葉|![](/ja-JP/2020/10/202010271500CambronBridge.jpg)|
