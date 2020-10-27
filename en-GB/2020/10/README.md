@@ -26,3 +26,4 @@
 202010232300|UNBuilding|United Nations headquarters, New York, USA (© Sean Pavone/Alamy)|75 years of the United Nations|![](/en-GB/2020/10/202010232300UNBuilding.jpg)|
 202010242300|SnoozyTheBear|Grizzly bear cub relaxing, Lake Clark National Park, Alaska, USA (© Erlend Krumsvik/Getty Images)|An extra hour of sleep|![](/en-GB/2020/10/202010242300SnoozyTheBear.jpg)|
 202010260000|CorfeDorset|Corfe Castle, Dorset (© Ross Hoddinott/Minden Pictures)|Dark deeds at Corfe Castle|![](/en-GB/2020/10/202010260000CorfeDorset.jpg)|
+202010270000|BCPumpkins|A pumpkin patch in British Columbia, Canada (© James Chen/Shutterstock)|Not long now...|![](/en-GB/2020/10/202010270000BCPumpkins.jpg)|
