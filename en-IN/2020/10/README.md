@@ -28,3 +28,4 @@
 202010251830|CorfeDorset|Corfe Castle, Dorset, England (© Ross Hoddinott/Minden Pictures)|Creepy Corfe Castle|![](/en-IN/2020/10/202010251830CorfeDorset.jpg)|
 202010261830|CambronBridge|Cambron Covered Bridge in Green Mountain Park, near Huntsville, Alabama, United States (© Jens Lambert/Shutterstock)|A bridge of Madison County|![](/en-IN/2020/10/202010261830CambronBridge.jpg)|
 202010271830|BasilicaVoto|Grotesques of native Ecuadorian seabirds on the Basílica del Voto Nacional in Quito, Ecuador (© Henri Leduc/Getty Images)|A 'grotesque' scene|![](/en-IN/2020/10/202010271830BasilicaVoto.jpg)|
+202010281830|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Let's get lost|![](/en-IN/2020/10/202010281830Mazezilla.jpg)|
