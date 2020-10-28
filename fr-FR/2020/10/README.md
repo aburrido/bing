@@ -28,3 +28,4 @@
 202010252200|CorfeDorset|Corfe Castle, Dorset, Angleterre (© Ross Hoddinott/Minden Pictures)|Un vrai château hanté|![](/fr-FR/2020/10/202010252200CorfeDorset.jpg)|
 202010262200|CambronBridge|Le Cambron Covered Bridge dans le Green Mountain Park, Alabama, États-Unis (© Jens Lambert/Shutterstock)|Une maison sur pilotis ?|![](/fr-FR/2020/10/202010262200CambronBridge.jpg)|
 202010272200|BasilicaVoto|Chimères de mouettes équatoriennes sur la Basilique du Vœu national de Quito, Équateur (© Henri Leduc/Getty Images)|La relève de Quasimodo|![](/fr-FR/2020/10/202010272200BasilicaVoto.jpg)|
+202010282300|Mazezilla|Le labyrinthe de maïs de Mazezilla en Pennsylvanie (© Alex Potemkin/Getty Images)|À s’y perdre|![](/fr-FR/2020/10/202010282300Mazezilla.jpg)|
