@@ -28,3 +28,4 @@
 202010251600|CorfeDorset|科夫堡，英国多塞特 (© Ross Hoddinott/Minden Pictures)||![](/zh-CN/2020/10/202010251600CorfeDorset.jpg)|
 202010261600|CambronBridge|亨茨维尔附近绿色山公园中的Cambron Covered Bridge，阿拉巴马州  (© Jens Lambert/Shutterstock)||![](/zh-CN/2020/10/202010261600CambronBridge.jpg)|
 202010271600|BasilicaVoto|国家誓言圣殿上怪诞的厄瓜多尔本土海鸟，厄瓜多尔基多 (© Henri Leduc/Getty Images)||![](/zh-CN/2020/10/202010271600BasilicaVoto.jpg)|
+202010281600|Mazezilla|克林格尔农场的Mazezilla玉米田迷宫，宾夕法尼亚州  (© Alex Potemkin/Getty Images)||![](/zh-CN/2020/10/202010281600Mazezilla.jpg)|
