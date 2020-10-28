@@ -28,3 +28,4 @@
 202010251500|CorfeDorset|｢コーフ城｣イギリス, ドーセット (© Ross Hoddinott/Minden Pictures)|イギリスの古城|![](/ja-JP/2020/10/202010251500CorfeDorset.jpg)|
 202010261500|Trinity|｢トリニティ・カレッジ図書館｣アイルランド, ダブリン (© Carl Bruemmer/age fotostock)|今日から｢読書週間｣|![](/ja-JP/2020/10/202010261500Trinity.jpg)|
 202010271500|CambronBridge|｢カンブロン屋根付橋｣米国アラバマ州, ハンツビル (© Jens Lambert/Shutterstock)|米国の紅葉|![](/ja-JP/2020/10/202010271500CambronBridge.jpg)|
+202010281500|Mazezilla|｢コーンメイズ｣米国ペンシルバニア州, セイラーズバーグ (© Alex Potemkin/Getty Images)|米国の秋の風景|![](/ja-JP/2020/10/202010281500Mazezilla.jpg)|
