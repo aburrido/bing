@@ -29,3 +29,4 @@
 202010261830|CambronBridge|Cambron Covered Bridge in Green Mountain Park, near Huntsville, Alabama, United States (© Jens Lambert/Shutterstock)|A bridge of Madison County|![](/en-IN/2020/10/202010261830CambronBridge.jpg)|
 202010271830|BasilicaVoto|Grotesques of native Ecuadorian seabirds on the Basílica del Voto Nacional in Quito, Ecuador (© Henri Leduc/Getty Images)|A 'grotesque' scene|![](/en-IN/2020/10/202010271830BasilicaVoto.jpg)|
 202010281830|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Let's get lost|![](/en-IN/2020/10/202010281830Mazezilla.jpg)|
+202010291830|FishOwl|Blakiston's fish owl in Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Who's there? The largest owl in the world|![](/en-IN/2020/10/202010291830FishOwl.jpg)|
