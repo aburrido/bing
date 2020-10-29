@@ -28,3 +28,4 @@
 202010260400|CorfeDorset|Château de Corfe, Dorset, Angleterre (© Ross Hoddinott/Minden Pictures)||![](/fr-CA/2020/10/202010260400CorfeDorset.jpg)|
 202010270400|CambronBridge|Pont couvert Cambron, parc Green Mountain près de Huntsville, Alabama (© Jens Lambert/Shutterstock)||![](/fr-CA/2020/10/202010270400CambronBridge.jpg)|
 202010280400|BasilicaVoto|Oiseaux de mer équatoriens indigènes en grotesque sur la Basílica del Voto Nacional à Quito, Équateur (© Henri Leduc/Getty Images)||![](/fr-CA/2020/10/202010280400BasilicaVoto.jpg)|
+202010290400|Mazezilla|Labyrinthe de maïs Mazezilla à Klingel’s Farm en Pennsylvanie (© Alex Potemkin/Getty Images)||![](/fr-CA/2020/10/202010290400Mazezilla.jpg)|
