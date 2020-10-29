@@ -29,3 +29,4 @@
 202010262200|CambronBridge|Le Cambron Covered Bridge dans le Green Mountain Park, Alabama, États-Unis (© Jens Lambert/Shutterstock)|Une maison sur pilotis ?|![](/fr-FR/2020/10/202010262200CambronBridge.jpg)|
 202010272200|BasilicaVoto|Chimères de mouettes équatoriennes sur la Basilique du Vœu national de Quito, Équateur (© Henri Leduc/Getty Images)|La relève de Quasimodo|![](/fr-FR/2020/10/202010272200BasilicaVoto.jpg)|
 202010282300|Mazezilla|Le labyrinthe de maïs de Mazezilla en Pennsylvanie (© Alex Potemkin/Getty Images)|À s’y perdre|![](/fr-FR/2020/10/202010282300Mazezilla.jpg)|
+202010292300|FishOwl|Hibou Ketupa à Hokkaido, Japon (© Martin Bailey/Offset by Shutterstock)|En exclusivité|![](/fr-FR/2020/10/202010292300FishOwl.jpg)|
