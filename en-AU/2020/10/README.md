@@ -29,3 +29,4 @@
 202010261300|SaltLakeLochiel|Aerial of pink salt lake in Lochiel, South Australia (© Amazing Aerial Agency/offset by shutterstock)|Pretty in pink|![](/en-AU/2020/10/202010261300SaltLakeLochiel.jpg)|
 202010271300|BasilicaVoto|Grotesques of native Ecuadorian seabirds on the Basílica del Voto Nacional in Quito, Ecuador (© Henri Leduc/Getty Images)|A 'grotesque' scene|![](/en-AU/2020/10/202010271300BasilicaVoto.jpg)|
 202010281300|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Let's get lost|![](/en-AU/2020/10/202010281300Mazezilla.jpg)|
+202010291300|FishOwl|Blakiston's fish owl in Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Who's there? The largest owl in the world|![](/en-AU/2020/10/202010291300FishOwl.jpg)|
