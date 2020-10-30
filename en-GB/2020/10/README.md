@@ -29,3 +29,4 @@
 202010270000|BCPumpkins|A pumpkin patch in British Columbia, Canada (© James Chen/Shutterstock)|Not long now...|![](/en-GB/2020/10/202010270000BCPumpkins.jpg)|
 202010280000|BasilicaVoto|Grotesques of native Ecuadorian seabirds on the Basílica del Voto Nacional in Quito, Ecuador (© Henri Leduc/Getty Images)|Are these gargoyles?|![](/en-GB/2020/10/202010280000BasilicaVoto.jpg)|
 202010290000|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Getting lost in Mazezilla|![](/en-GB/2020/10/202010290000Mazezilla.jpg)|
+202010300000|FishOwl|Blakiston's fish owl in Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Whoooo's there?|![](/en-GB/2020/10/202010300000FishOwl.jpg)|
