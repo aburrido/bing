@@ -30,3 +30,4 @@
 202010272300|CorfeDorset|Corfe Castle, Grafschaft Dorset, England, Großbritannien (© Ross Hoddinott/Minden Pictures)|Die „Burg im Tal“|![](/de-DE/2020/10/202010272300CorfeDorset.jpg)|
 202010282300|Mazezilla|Mazezilla-Maislabyrinth auf der Klingel’s Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Finden Sie den Ausgang?|![](/de-DE/2020/10/202010282300Mazezilla.jpg)|
 202010292300|FishOwl|Riesen-Fischuhu, Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Eine der größten Eulenarten der Welt|![](/de-DE/2020/10/202010292300FishOwl.jpg)|
+202010302300|GreyLady|Dark Hedges im County Antrim, Nordirland (© VanderWolf Images/Shutterstock)|In einer dunklen Nacht wie dieser …|![](/de-DE/2020/10/202010302300GreyLady.jpg)|
