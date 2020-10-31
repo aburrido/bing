@@ -32,3 +32,4 @@
 202010280700|BasilicaVoto|Grotesques of  Ecuadorian seabirds on the Basílica del Voto Nacional in Quito, Ecuador (© Henri Leduc/Getty Images)|A 'grotesque' scene|![](/en-US/2020/10/202010280700BasilicaVoto.jpg)|
 202010290700|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania (© Alex Potemkin/Getty Images)|Let's get lost|![](/en-US/2020/10/202010290700Mazezilla.jpg)|
 202010300700|FishOwl|Blakiston's fish owl in Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Who's there? The largest owl in the world|![](/en-US/2020/10/202010300700FishOwl.jpg)|
+202010310700|GreyLady|The Dark Hedges in County Antrim, Northern Ireland (© VanderWolf Images/Shutterstock)|'Twas a night just like tonight…|![](/en-US/2020/10/202010310700GreyLady.jpg)|
