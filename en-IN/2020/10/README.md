@@ -31,3 +31,4 @@
 202010281830|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Let's get lost|![](/en-IN/2020/10/202010281830Mazezilla.jpg)|
 202010291830|FishOwl|Blakiston's fish owl in Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Who's there? The largest owl in the world|![](/en-IN/2020/10/202010291830FishOwl.jpg)|
 202010301830|GreyLady|Dark Hedges in County Antrim, Northern Ireland (© VanderWolf Images/Shutterstock)|‘Twas a night just like tonight…|![](/en-IN/2020/10/202010301830GreyLady.jpg)|
+202010311830|GorgeSavoie|River running through Cheran Gorges, Alps, Savoie, France (© Jean-Philippe Delobelle/Minden)|Where gold is mined in France|![](/en-IN/2020/10/202010311830GorgeSavoie.jpg)|
