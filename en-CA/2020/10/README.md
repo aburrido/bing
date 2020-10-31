@@ -30,3 +30,4 @@
 202010280400|BasilicaVoto|Grotesques of native Ecuadorian seabirds on the Basílica del Voto Nacional in Quito, Ecuador (© Henri Leduc/Getty Images)|A 'grotesque' scene|![](/en-CA/2020/10/202010280400BasilicaVoto.jpg)|
 202010290400|Mazezilla|Mazezilla corn maze at Klingel's Farm in Pennsylvania (© Alex Potemkin/Getty Images)|Let's get lost|![](/en-CA/2020/10/202010290400Mazezilla.jpg)|
 202010300400|OwlRoseBush|Northern Saw-whet Owl (Aegolius acadicus) perching in a wild rose bush in British Columbia (© Tim Fitzharris/Minden Pictures)|A true night owl|![](/en-CA/2020/10/202010300400OwlRoseBush.jpg)|
+202010310400|GreyLady|Dark Hedges in County Antrim, Northern Ireland (© VanderWolf Images/Shutterstock)|‘Twas a night just like tonight…|![](/en-CA/2020/10/202010310400GreyLady.jpg)|

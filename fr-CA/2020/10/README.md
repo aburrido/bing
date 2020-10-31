@@ -30,3 +30,4 @@
 202010280400|BasilicaVoto|Oiseaux de mer équatoriens indigènes en grotesque sur la Basílica del Voto Nacional à Quito, Équateur (© Henri Leduc/Getty Images)||![](/fr-CA/2020/10/202010280400BasilicaVoto.jpg)|
 202010290400|Mazezilla|Labyrinthe de maïs Mazezilla à Klingel’s Farm en Pennsylvanie (© Alex Potemkin/Getty Images)||![](/fr-CA/2020/10/202010290400Mazezilla.jpg)|
 202010300400|OwlRoseBush|Petite Nyctale (Aegolius acadicus) perchée sur un rosier sauvage en Colombie-Britannique (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2020/10/202010300400OwlRoseBush.jpg)|
+202010310400|GreyLady|Dark Hedges (allées sombres bordées d’arbres) dans le comté d'Antrim en Irlande du Nord (© VanderWolf Images/Shutterstock)||![](/fr-CA/2020/10/202010310400GreyLady.jpg)|
