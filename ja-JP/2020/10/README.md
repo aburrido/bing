@@ -31,3 +31,4 @@
 202010281500|Mazezilla|｢コーンメイズ｣米国ペンシルバニア州, セイラーズバーグ (© Alex Potemkin/Getty Images)|米国の秋の風景|![](/ja-JP/2020/10/202010281500Mazezilla.jpg)|
 202010291500|BCPumpkins|｢パンプキンパッチ｣カナダ, ブリティッシュコロンビア (© James Chen/Shutterstock)|明日はハロウィン|![](/ja-JP/2020/10/202010291500BCPumpkins.jpg)|
 202010301500|HWkakash|｢ジャック・オー・ランタンのカカシ｣ (© Chris Aschenbrener/Alamy Stock Photo)|ハッピー・ハロウィン！|![](/ja-JP/2020/10/202010301500HWkakash.jpg)|
+202010311500|WolfPup|｢ハイイロオオカミと子ども｣米国モンタナ州 (© Tim Fitzharris/Minden Pictures)|今日は｢イヌの日｣|![](/ja-JP/2020/10/202010311500WolfPup.jpg)|
