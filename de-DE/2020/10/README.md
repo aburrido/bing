@@ -31,3 +31,4 @@
 202010282300|Mazezilla|Mazezilla-Maislabyrinth auf der Klingel’s Farm in Pennsylvania, USA (© Alex Potemkin/Getty Images)|Finden Sie den Ausgang?|![](/de-DE/2020/10/202010282300Mazezilla.jpg)|
 202010292300|FishOwl|Riesen-Fischuhu, Hokkaido, Japan (© Martin Bailey/Offset by Shutterstock)|Eine der größten Eulenarten der Welt|![](/de-DE/2020/10/202010292300FishOwl.jpg)|
 202010302300|GreyLady|Dark Hedges im County Antrim, Nordirland (© VanderWolf Images/Shutterstock)|In einer dunklen Nacht wie dieser …|![](/de-DE/2020/10/202010302300GreyLady.jpg)|
+202010312300|TorngatsMt|Eisbären im Torngat-Mountains-Nationalpark, Kanada (© Cavan Images/Offset byShutterstock)|Warten auf den Winter|![](/de-DE/2020/10/202010312300TorngatsMt.jpg)|

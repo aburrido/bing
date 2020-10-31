@@ -31,3 +31,4 @@
 202010282300|Mazezilla|Le labyrinthe de maïs de Mazezilla en Pennsylvanie (© Alex Potemkin/Getty Images)|À s’y perdre|![](/fr-FR/2020/10/202010282300Mazezilla.jpg)|
 202010292300|FishOwl|Hibou Ketupa à Hokkaido, Japon (© Martin Bailey/Offset by Shutterstock)|En exclusivité|![](/fr-FR/2020/10/202010292300FishOwl.jpg)|
 202010302300|GreyLady|La Haie Sombre dans le comté d’Antrim, Irlande du Nord (© VanderWolf Images/Shutterstock)|Promenons-nous, dans les bois…|![](/fr-FR/2020/10/202010302300GreyLady.jpg)|
+202010312300|GorgeSavoie|Le torrent Chéran s’écoulant au milieu des Alpes, Savoie (© Jean-Philippe Delobelle/Minden)|Une (très) précieuse rivière|![](/fr-FR/2020/10/202010312300GorgeSavoie.jpg)|
