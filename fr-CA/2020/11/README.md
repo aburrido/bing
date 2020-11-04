@@ -4,3 +4,4 @@
 202011010400|MapleGrenville|Feuille d'érable sous l'eau, Grenville-sur-la-Rouge, Québec (© Steeve Marcoux/Plainpicture/Design Pics)||![](/fr-CA/2020/11/202011010400MapleGrenville.jpg)|
 202011020500|TorngatsMt|Ours polaires dans le parc national des monts Torngat à Terre-Neuve-et-Labrador (© Cavan Images/Offset by Shutterstock)||![](/fr-CA/2020/11/202011020500TorngatsMt.jpg)|
 202011030500|LochLeum|Loch Leum na Luirginn et Loch Cleat vus du Quiraing, île de Skye, Écosse, Royaume-Uni (© Sebastian Wasek/Sime/eStock Photo)||![](/fr-CA/2020/11/202011030500LochLeum.jpg)|
+202011040500|KobukRiver|Caribous traversant la rivière Kobuk en Alaska lors de leur migration automnale (© Michio Hoshino/Minden Pictures)||![](/fr-CA/2020/11/202011040500KobukRiver.jpg)|
