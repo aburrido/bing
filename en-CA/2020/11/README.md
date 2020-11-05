@@ -5,3 +5,4 @@
 202011020500|TorngatsMt|Polar bears in Torngat Mountains National Park, Canada (© Cavan Images/Offset by Shutterstock)|Waiting for winter|![](/en-CA/2020/11/202011020500TorngatsMt.jpg)|
 202011030500|LochLeum|Loch Leum na Luirginn and Loch Cleat seen from the Quiraing, Isle of Skye, Scotland, U.K. (© Sebastian Wasek/Sime/eStock Photo)|The sliding landscape of Skye|![](/en-CA/2020/11/202011030500LochLeum.jpg)|
 202011040500|KobukRiver|Caribou swimming across Alaska's Kobuk River during fall migration (© Michio Hoshino/Minden Pictures)|Caribou on the move|![](/en-CA/2020/11/202011040500KobukRiver.jpg)|
+202011050500|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-CA/2020/11/202011050500Albarracin.jpg)|
