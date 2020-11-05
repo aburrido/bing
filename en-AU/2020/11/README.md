@@ -5,3 +5,4 @@
 202011021300|LochLeum|Loch Leum na Luirginn and Loch Cleat seen from the Quiraing, Isle of Skye, Scotland, UK (© Sebastian Wasek/Sime/eStock Photo)|The sliding landscape of Skye|![](/en-AU/2020/11/202011021300LochLeum.jpg)|
 202011031300|KobukRiver|Caribou swimming across Alaska's Kobuk River during autumn migration, USA (© Michio Hoshino/Minden Pictures)|Caribou on the move|![](/en-AU/2020/11/202011031300KobukRiver.jpg)|
 202011041300|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-AU/2020/11/202011041300Albarracin.jpg)|
+202011051300|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida, USA (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-AU/2020/11/202011051300TwoWest.jpg)|
