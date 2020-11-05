@@ -5,3 +5,4 @@
 202011021830|JalMahal2|Jal Mahaal water palace at lake Man Sagar, Jaipur (© Amit kg/Shutterstock)|Jaipur's breathtaking water palace|![](/en-IN/2020/11/202011021830JalMahal2.jpg)|
 202011031830|KobukRiver|Caribou swimming across Alaska's Kobuk River during fall migration (© Michio Hoshino/Minden Pictures)|Caribou on the move|![](/en-IN/2020/11/202011031830KobukRiver.jpg)|
 202011041830|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-IN/2020/11/202011041830Albarracin.jpg)|
+202011051830|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida, USA (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-IN/2020/11/202011051830TwoWest.jpg)|
