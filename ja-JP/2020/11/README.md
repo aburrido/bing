@@ -5,3 +5,4 @@
 202011021500|bunkanohi1|｢演武の準備をする流鏑馬の騎手｣東京, 明治神宮 (© Matt McClain/The Washington Post via Getty Images)|今日は｢文化の日｣|![](/ja-JP/2020/11/202011021500bunkanohi1.jpg)|
 202011031500|FraserRiver|｢フレーザー川｣カナダ, ブリティッシュコロンビア州 (© LeonU/Getty Images)|カナディアン・ロッキーの静かな川|![](/ja-JP/2020/11/202011031500FraserRiver.jpg)|
 202011041500|TorngatsMt|｢ホッキョクグマ｣カナダ, トーンガット山脈国立公園 (© Cavan Images/Offset byShutterstock)|ホッキョクグマの季節です|![](/ja-JP/2020/11/202011041500TorngatsMt.jpg)|
+202011051500|TwoWest|｢アメリカマナティー｣米国フロリダ州, スリー・シスターズ・スプリングス (© Norbert Probst/Getty Images)|今月は｢マナティー月間｣|![](/ja-JP/2020/11/202011051500TwoWest.jpg)|
