@@ -6,3 +6,4 @@
 202011030500|LochLeum|Loch Leum na Luirginn et Loch Cleat vus du Quiraing, île de Skye, Écosse, Royaume-Uni (© Sebastian Wasek/Sime/eStock Photo)||![](/fr-CA/2020/11/202011030500LochLeum.jpg)|
 202011040500|KobukRiver|Caribous traversant la rivière Kobuk en Alaska lors de leur migration automnale (© Michio Hoshino/Minden Pictures)||![](/fr-CA/2020/11/202011040500KobukRiver.jpg)|
 202011050500|Albarracin|Albarracín, Espagne (© Domingo Leiva/Getty Images)||![](/fr-CA/2020/11/202011050500Albarracin.jpg)|
+202011060500|TwoWest|Lamantins des Caraïbes à Three Sisters Springs, Réserve nationale faunique de Crystal River en Floride (© Norbert Probst/Getty Images)||![](/fr-CA/2020/11/202011060500TwoWest.jpg)|
