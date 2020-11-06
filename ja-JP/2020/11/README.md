@@ -6,3 +6,4 @@
 202011031500|FraserRiver|｢フレーザー川｣カナダ, ブリティッシュコロンビア州 (© LeonU/Getty Images)|カナディアン・ロッキーの静かな川|![](/ja-JP/2020/11/202011031500FraserRiver.jpg)|
 202011041500|TorngatsMt|｢ホッキョクグマ｣カナダ, トーンガット山脈国立公園 (© Cavan Images/Offset byShutterstock)|ホッキョクグマの季節です|![](/ja-JP/2020/11/202011041500TorngatsMt.jpg)|
 202011051500|TwoWest|｢アメリカマナティー｣米国フロリダ州, スリー・シスターズ・スプリングス (© Norbert Probst/Getty Images)|今月は｢マナティー月間｣|![](/ja-JP/2020/11/202011051500TwoWest.jpg)|
+202011061500|HokkaidoShida|｢シダの紅葉｣北海道 (© Hiroshi Yokoyama/Sime/eStock Photo)|今日は｢立冬｣|![](/ja-JP/2020/11/202011061500HokkaidoShida.jpg)|
