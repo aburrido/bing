@@ -6,3 +6,4 @@
 202011031300|KobukRiver|Caribou swimming across Alaska's Kobuk River during autumn migration, USA (© Michio Hoshino/Minden Pictures)|Caribou on the move|![](/en-AU/2020/11/202011031300KobukRiver.jpg)|
 202011041300|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-AU/2020/11/202011041300Albarracin.jpg)|
 202011051300|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida, USA (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-AU/2020/11/202011051300TwoWest.jpg)|
+202011061300|EsskastanieD|Chestnuts inside their husks (© Kai Keisuke/Shutterstock)|Absolutely nuts|![](/en-AU/2020/11/202011061300EsskastanieD.jpg)|
