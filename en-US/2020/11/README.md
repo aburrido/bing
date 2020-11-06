@@ -6,3 +6,4 @@
 202011030800|Election2020|The United States Capitol Building in Washington, DC (© f11photo/Getty Images)|Vote!|![](/en-US/2020/11/202011030800Election2020.jpg)|
 202011040800|KobukRiver|Caribou swimming across Alaska's Kobuk River during fall migration (© Michio Hoshino/Minden Pictures)|Caribou on the move|![](/en-US/2020/11/202011040800KobukRiver.jpg)|
 202011050800|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-US/2020/11/202011050800Albarracin.jpg)|
+202011060800|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-US/2020/11/202011060800TwoWest.jpg)|
