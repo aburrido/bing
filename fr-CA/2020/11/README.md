@@ -7,3 +7,4 @@
 202011040500|KobukRiver|Caribous traversant la rivière Kobuk en Alaska lors de leur migration automnale (© Michio Hoshino/Minden Pictures)||![](/fr-CA/2020/11/202011040500KobukRiver.jpg)|
 202011050500|Albarracin|Albarracín, Espagne (© Domingo Leiva/Getty Images)||![](/fr-CA/2020/11/202011050500Albarracin.jpg)|
 202011060500|TwoWest|Lamantins des Caraïbes à Three Sisters Springs, Réserve nationale faunique de Crystal River en Floride (© Norbert Probst/Getty Images)||![](/fr-CA/2020/11/202011060500TwoWest.jpg)|
+202011070500|BigBison|Bison dans le parc national de Grand Teton au Wyoming (© Brian Evans/Getty Images)||![](/fr-CA/2020/11/202011070500BigBison.jpg)|

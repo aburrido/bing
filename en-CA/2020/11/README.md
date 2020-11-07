@@ -7,3 +7,4 @@
 202011040500|KobukRiver|Caribou swimming across Alaska's Kobuk River during fall migration (© Michio Hoshino/Minden Pictures)|Caribou on the move|![](/en-CA/2020/11/202011040500KobukRiver.jpg)|
 202011050500|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-CA/2020/11/202011050500Albarracin.jpg)|
 202011060500|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-CA/2020/11/202011060500TwoWest.jpg)|
+202011070500|BigBison|Bison in Grand Teton National Park, Wyoming (© Brian Evans/Getty Images)|Largest mammal in North America|![](/en-CA/2020/11/202011070500BigBison.jpg)|
