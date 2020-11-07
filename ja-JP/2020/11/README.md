@@ -7,3 +7,4 @@
 202011041500|TorngatsMt|｢ホッキョクグマ｣カナダ, トーンガット山脈国立公園 (© Cavan Images/Offset byShutterstock)|ホッキョクグマの季節です|![](/ja-JP/2020/11/202011041500TorngatsMt.jpg)|
 202011051500|TwoWest|｢アメリカマナティー｣米国フロリダ州, スリー・シスターズ・スプリングス (© Norbert Probst/Getty Images)|今月は｢マナティー月間｣|![](/ja-JP/2020/11/202011051500TwoWest.jpg)|
 202011061500|HokkaidoShida|｢シダの紅葉｣北海道 (© Hiroshi Yokoyama/Sime/eStock Photo)|今日は｢立冬｣|![](/ja-JP/2020/11/202011061500HokkaidoShida.jpg)|
+202011071500|FinancialTowers|｢陸家嘴の摩天楼｣中国, 上海 (© Jackal Pan/Getty Images)|今日は｢世界都市計画の日｣|![](/ja-JP/2020/11/202011071500FinancialTowers.jpg)|
