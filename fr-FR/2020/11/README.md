@@ -7,3 +7,4 @@
 202011042300|Albarracin|Albarracín, Espagne (© Domingo Leiva/Getty Images)|Un joyau médiéval|![](/fr-FR/2020/11/202011042300Albarracin.jpg)|
 202011052300|TwoWest|Lamantins des Caraïbes dans le Crystal River National Wildlife Refuge, Floride, États-Unis (© Norbert Probst/Getty Images)|Gentils géants|![](/fr-FR/2020/11/202011052300TwoWest.jpg)|
 202011062300|BigBison|Bison dans le Parc national de Grand Teton, Wyoming, États-Unis (© Brian Evans/Getty Images)|Bison des plaines|![](/fr-FR/2020/11/202011062300BigBison.jpg)|
+202011072300|DerwentIsle|Derwent Island House sur le lac Derwentwater dans le Lake District, Cumbria, Angleterre (© Chris Warren/Stock Photo)|Île privée|![](/fr-FR/2020/11/202011072300DerwentIsle.jpg)|
