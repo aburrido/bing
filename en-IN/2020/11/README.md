@@ -7,3 +7,4 @@
 202011041830|Albarracin|Albarracín, Spain (© Domingo Leiva/Getty Images)|A medieval Moorish gem|![](/en-IN/2020/11/202011041830Albarracin.jpg)|
 202011051830|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida, USA (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-IN/2020/11/202011051830TwoWest.jpg)|
 202011061830|BigBison|Bison in Grand Teton National Park, Wyoming, United States (© Brian Evans/Getty Images)|National Bison Day, USA|![](/en-IN/2020/11/202011061830BigBison.jpg)|
+202011071830|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria, England (© Chris Warren/eStock Photo)|Languid life on the Lakes|![](/en-IN/2020/11/202011071830DerwentIsle.jpg)|
