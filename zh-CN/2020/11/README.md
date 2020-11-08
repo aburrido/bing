@@ -8,3 +8,4 @@
 202011051600|TwoWest|三姐妹泉中的西印度海牛，佛罗里达州克里斯特尔里弗国家野生动物保护区 (© Norbert Probst/Getty Images)||![](/zh-CN/2020/11/202011051600TwoWest.jpg)|
 202011061600|BigBison|大提顿国家公园中的野牛，怀俄明州 (© Brian Evans/Getty Images)||![](/zh-CN/2020/11/202011061600BigBison.jpg)|
 202011071600|DerwentIsle|德文特湖上的德文特岛房屋，英国坎布里亚郡湖区国家公园 (© Chris Warren/eStock Photo)||![](/zh-CN/2020/11/202011071600DerwentIsle.jpg)|
+202011081600|PiedmontRegion|巴罗洛葡萄园的山丘，意大利皮埃蒙特 (© Marco Arduino/eStock Photo)||![](/zh-CN/2020/11/202011081600PiedmontRegion.jpg)|
