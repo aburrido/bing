@@ -8,3 +8,4 @@
 202011050500|Albarracin|Albarracín, Espagne (© Domingo Leiva/Getty Images)||![](/fr-CA/2020/11/202011050500Albarracin.jpg)|
 202011060500|TwoWest|Lamantins des Caraïbes à Three Sisters Springs, Réserve nationale faunique de Crystal River en Floride (© Norbert Probst/Getty Images)||![](/fr-CA/2020/11/202011060500TwoWest.jpg)|
 202011070500|BigBison|Bison dans le parc national de Grand Teton au Wyoming (© Brian Evans/Getty Images)||![](/fr-CA/2020/11/202011070500BigBison.jpg)|
+202011080500|DerwentIsle|île Derwent sur Derwentwater dans le parc national Lake District, Cumbria, Angleterre (© Chris Warren/eStock Photo)||![](/fr-CA/2020/11/202011080500DerwentIsle.jpg)|
