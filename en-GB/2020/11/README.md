@@ -9,3 +9,4 @@
 ||||![](/en-GB/2020/11/.jpg)|
 202011070000|BigBison|Bison in Grand Teton National Park, Wyoming, USA (© Brian Evans/Getty Images)|In praise of bisons|![](/en-GB/2020/11/202011070000BigBison.jpg)|
 202011080000|BurrowMump|St Michael's Church on Burrow Mump, Burrowbridge, Somerset  (© DEEPOL by plainpicture/Adam Burton)|A lookout on the Levels|![](/en-GB/2020/11/202011080000BurrowMump.jpg)|
+202011090000|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-GB/2020/11/202011090000PiedmontRegion.jpg)|
