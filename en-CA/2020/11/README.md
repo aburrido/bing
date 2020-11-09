@@ -9,3 +9,4 @@
 202011060500|TwoWest|West Indian manatees in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Norbert Probst/Getty Images)|Life in the slow lane|![](/en-CA/2020/11/202011060500TwoWest.jpg)|
 202011070500|BigBison|Bison in Grand Teton National Park, Wyoming (© Brian Evans/Getty Images)|Largest mammal in North America|![](/en-CA/2020/11/202011070500BigBison.jpg)|
 202011080500|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria, England (© Chris Warren/eStock Photo)|Languid life on the Lakes|![](/en-CA/2020/11/202011080500DerwentIsle.jpg)|
+202011090500|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-CA/2020/11/202011090500PiedmontRegion.jpg)|
