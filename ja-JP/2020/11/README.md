@@ -9,3 +9,4 @@
 202011061500|HokkaidoShida|｢シダの紅葉｣北海道 (© Hiroshi Yokoyama/Sime/eStock Photo)|今日は｢立冬｣|![](/ja-JP/2020/11/202011061500HokkaidoShida.jpg)|
 202011071500|FinancialTowers|｢陸家嘴の摩天楼｣中国, 上海 (© Jackal Pan/Getty Images)|今日は｢世界都市計画の日｣|![](/ja-JP/2020/11/202011071500FinancialTowers.jpg)|
 202011081500|PirateSails|｢夕日と帆船｣ドイツ, ヴァーネミュンデ (© Rico Ködder/Getty Images)|ドイツの海の風景|![](/ja-JP/2020/11/202011081500PirateSails.jpg)|
+202011091500|SangreCristoDunes|｢グレートサンドデューンズ国立公園｣米国コロラド州 (© Tim Fitzharris/Minden Pictures)|米国の砂丘|![](/ja-JP/2020/11/202011091500SangreCristoDunes.jpg)|
