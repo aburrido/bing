@@ -9,3 +9,4 @@
 202011062300|BigBison|Bison vor der Teton-Gebirgskette im Grand-Teton-Nationalpark, Wyoming, USA (© Brian Evans/Getty Images)|Im Land der Bisons|![](/de-DE/2020/11/202011062300BigBison.jpg)|
 202011072300|DerwentIsle|Das Derwent Island House auf dem See Derwent Water im Lake-District-Nationalpark, Cumbria, England, Vereinigtes Königreich (© Chris Warren/Stock Photo)|Englands viertgrößter See|![](/de-DE/2020/11/202011072300DerwentIsle.jpg)|
 202011082300|PiedmontRegion|Die Hügel des Weinbaugebiets Barolo im Piemont, Italien (© Marco Arduino/eStock Photo)|Herbst im Piemont|![](/de-DE/2020/11/202011082300PiedmontRegion.jpg)|
+202011092300|LakotaBadlands|Badlands-Nationalpark, South Dakota, USA (© Dennis Frates/Alamy)|Malerisches „schlechtes Land“|![](/de-DE/2020/11/202011092300LakotaBadlands.jpg)|

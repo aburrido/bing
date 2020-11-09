@@ -9,3 +9,4 @@
 202011062300|BigBison|Bison dans le Parc national de Grand Teton, Wyoming, États-Unis (© Brian Evans/Getty Images)|Bison des plaines|![](/fr-FR/2020/11/202011062300BigBison.jpg)|
 202011072300|DerwentIsle|Derwent Island House sur le lac Derwentwater dans le Lake District, Cumbria, Angleterre (© Chris Warren/Stock Photo)|Île privée|![](/fr-FR/2020/11/202011072300DerwentIsle.jpg)|
 202011082300|PiedmontRegion|Les collines de Barolo et des vignes dans le Piémont, Italie (© Marco Arduino/eStock Photo)|Automne italien|![](/fr-FR/2020/11/202011082300PiedmontRegion.jpg)|
+202011092300|AndAction|Fresque representant Buster Keaton, le cameraman, Cannes (© Arterra Picture Library/Alamy Stock Photo)|Et… Action !|![](/fr-FR/2020/11/202011092300AndAction.jpg)|
