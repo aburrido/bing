@@ -10,3 +10,4 @@
 202011072300|DerwentIsle|Das Derwent Island House auf dem See Derwent Water im Lake-District-Nationalpark, Cumbria, England, Vereinigtes Königreich (© Chris Warren/Stock Photo)|Englands viertgrößter See|![](/de-DE/2020/11/202011072300DerwentIsle.jpg)|
 202011082300|PiedmontRegion|Die Hügel des Weinbaugebiets Barolo im Piemont, Italien (© Marco Arduino/eStock Photo)|Herbst im Piemont|![](/de-DE/2020/11/202011082300PiedmontRegion.jpg)|
 202011092300|LakotaBadlands|Badlands-Nationalpark, South Dakota, USA (© Dennis Frates/Alamy)|Malerisches „schlechtes Land“|![](/de-DE/2020/11/202011092300LakotaBadlands.jpg)|
+202011102300|EsskastanieD|Esskastanien (© Kai Keisuke/Shutterstock)|Von „Plumpsfrüchten“ und gerösteten Maronen|![](/de-DE/2020/11/202011102300EsskastanieD.jpg)|
