@@ -10,3 +10,4 @@
 202011070500|BigBison|Bison dans le parc national de Grand Teton au Wyoming (© Brian Evans/Getty Images)||![](/fr-CA/2020/11/202011070500BigBison.jpg)|
 202011080500|DerwentIsle|île Derwent sur Derwentwater dans le parc national Lake District, Cumbria, Angleterre (© Chris Warren/eStock Photo)||![](/fr-CA/2020/11/202011080500DerwentIsle.jpg)|
 202011090500|PiedmontRegion|Les collines des vignobles de Barolo dans le Piémont en Italie (© Marco Arduino/eStock Photo)||![](/fr-CA/2020/11/202011090500PiedmontRegion.jpg)|
+202011100500|LakotaBadlands|Parc national des Badlands, Dakota du Sud (© Dennis Frates/Alamy)||![](/fr-CA/2020/11/202011100500LakotaBadlands.jpg)|
