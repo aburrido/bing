@@ -10,3 +10,4 @@
 202011071300|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria, England (© Chris Warren/eStock Photo)|Languid life on the Lakes|![](/en-AU/2020/11/202011071300DerwentIsle.jpg)|
 202011081300|RecycleWeek|An entry from the Castaways Sculpture Awards, 2012 (© Universal Images Group/Superstock)|It’s National Recycling Week|![](/en-AU/2020/11/202011081300RecycleWeek.jpg)|
 202011091300|LakotaBadlands|Badlands National Park, South Dakota, USA (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-AU/2020/11/202011091300LakotaBadlands.jpg)|
+202011101300|PoppiesOperaHouse|Poppies projected on the Sydney Opera House sails to mark Remembrance Day (© James D. Morgan/Getty Images)|Lest we forget|![](/en-AU/2020/11/202011101300PoppiesOperaHouse.jpg)|
