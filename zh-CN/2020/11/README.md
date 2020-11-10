@@ -10,3 +10,4 @@
 202011071600|DerwentIsle|德文特湖上的德文特岛房屋，英国坎布里亚郡湖区国家公园 (© Chris Warren/eStock Photo)||![](/zh-CN/2020/11/202011071600DerwentIsle.jpg)|
 202011081600|PiedmontRegion|巴罗洛葡萄园的山丘，意大利皮埃蒙特 (© Marco Arduino/eStock Photo)||![](/zh-CN/2020/11/202011081600PiedmontRegion.jpg)|
 202011091600|LakotaBadlands|恶地国家公园，南达科他州 (© Dennis Frates/Alamy)||![](/zh-CN/2020/11/202011091600LakotaBadlands.jpg)|
+202011101600|EsskastanieD|带壳的栗子 (© Kai Keisuke/Shutterstock)||![](/zh-CN/2020/11/202011101600EsskastanieD.jpg)|
