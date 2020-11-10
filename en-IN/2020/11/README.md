@@ -10,3 +10,4 @@
 202011071830|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria, England (© Chris Warren/eStock Photo)|Languid life on the Lakes|![](/en-IN/2020/11/202011071830DerwentIsle.jpg)|
 202011081830|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-IN/2020/11/202011081830PiedmontRegion.jpg)|
 202011091830|LakotaBadlands|Badlands National Park, South Dakota, USA (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-IN/2020/11/202011091830LakotaBadlands.jpg)|
+202011101830|MunnarMist|Mist surrounding a forest in Munnar, Kerala (© Ahammed Riswan/EyeEm/Getty Images)|Misty forests of Munnar|![](/en-IN/2020/11/202011101830MunnarMist.jpg)|
