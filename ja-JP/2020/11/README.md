@@ -11,3 +11,4 @@
 202011081500|PirateSails|｢夕日と帆船｣ドイツ, ヴァーネミュンデ (© Rico Ködder/Getty Images)|ドイツの海の風景|![](/ja-JP/2020/11/202011081500PirateSails.jpg)|
 202011091500|SangreCristoDunes|｢グレートサンドデューンズ国立公園｣米国コロラド州 (© Tim Fitzharris/Minden Pictures)|米国の砂丘|![](/ja-JP/2020/11/202011091500SangreCristoDunes.jpg)|
 202011101500|MistyVineyard|｢秋のワインヤード｣フランス, ボルドー (© agefotostock/Alamy)|ボルドーのシャトー|![](/ja-JP/2020/11/202011101500MistyVineyard.jpg)|
+202011111500|LifeguardEntrance|｢ライフガード・タワー｣オーストラリア, ニューサウスウェールズ州 (© Yury Prokopenko/Getty Images)|オーストラリアの浜辺の風景|![](/ja-JP/2020/11/202011111500LifeguardEntrance.jpg)|
