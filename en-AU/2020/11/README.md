@@ -11,3 +11,4 @@
 202011081300|RecycleWeek|An entry from the Castaways Sculpture Awards, 2012 (© Universal Images Group/Superstock)|It’s National Recycling Week|![](/en-AU/2020/11/202011081300RecycleWeek.jpg)|
 202011091300|LakotaBadlands|Badlands National Park, South Dakota, USA (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-AU/2020/11/202011091300LakotaBadlands.jpg)|
 202011101300|PoppiesOperaHouse|Poppies projected on the Sydney Opera House sails to mark Remembrance Day (© James D. Morgan/Getty Images)|Lest we forget|![](/en-AU/2020/11/202011101300PoppiesOperaHouse.jpg)|
+202011111300|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Pinteresque Piedmont|![](/en-AU/2020/11/202011111300PiedmontRegion.jpg)|
