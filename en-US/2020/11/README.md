@@ -11,3 +11,4 @@
 202011080800|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria, England (© Chris Warren/eStock Photo)|Languid life on the Lakes|![](/en-US/2020/11/202011080800DerwentIsle.jpg)|
 202011090800|PiedmontRegion|Vineyards near Barolo, Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-US/2020/11/202011090800PiedmontRegion.jpg)|
 202011100800|LakotaBadlands|Badlands National Park, South Dakota (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-US/2020/11/202011100800LakotaBadlands.jpg)|
+202011110800|KWVeterans|The Korean War Veterans Memorial, Washington, DC (© Ian G Dagnall/Alamy)|Honoring our veterans|![](/en-US/2020/11/202011110800KWVeterans.jpg)|
