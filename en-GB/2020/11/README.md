@@ -11,3 +11,4 @@
 202011080000|BurrowMump|St Michael's Church on Burrow Mump, Burrowbridge, Somerset  (© DEEPOL by plainpicture/Adam Burton)|A lookout on the Levels|![](/en-GB/2020/11/202011080000BurrowMump.jpg)|
 202011090000|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-GB/2020/11/202011090000PiedmontRegion.jpg)|
 202011100000|LakotaBadlands|Badlands National Park, South Dakota, USA (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-GB/2020/11/202011100000LakotaBadlands.jpg)|
+202011110000|RemembranceTommy|A British Tommy figure at the war memorial in Selkirk (© Rob Gray/Alamy Live News)|Remembering the fallen|![](/en-GB/2020/11/202011110000RemembranceTommy.jpg)|
