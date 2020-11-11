@@ -11,3 +11,4 @@
 202011082300|PiedmontRegion|Les collines de Barolo et des vignes dans le Piémont, Italie (© Marco Arduino/eStock Photo)|Automne italien|![](/fr-FR/2020/11/202011082300PiedmontRegion.jpg)|
 202011092300|AndAction|Fresque representant Buster Keaton, le cameraman, Cannes (© Arterra Picture Library/Alamy Stock Photo)|Et… Action !|![](/fr-FR/2020/11/202011092300AndAction.jpg)|
 202011102300|EsskastanieD|Châtaignes dans leurs coquilles (© Kai Keisuke/Shutterstock)|Gourmandise d’automne|![](/fr-FR/2020/11/202011102300EsskastanieD.jpg)|
+202011112300|ConneryPond|Le Connery Pond et Whiteface Mountain dans l’état de New York (© Henk Meijer/Alamy)|Cache-cache dans la brume|![](/fr-FR/2020/11/202011112300ConneryPond.jpg)|
