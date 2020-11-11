@@ -11,3 +11,4 @@
 202011080500|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria, England (© Chris Warren/eStock Photo)|Languid life on the Lakes|![](/en-CA/2020/11/202011080500DerwentIsle.jpg)|
 202011090500|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-CA/2020/11/202011090500PiedmontRegion.jpg)|
 202011100500|LakotaBadlands|Badlands National Park, South Dakota (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-CA/2020/11/202011100500LakotaBadlands.jpg)|
+202011110500|OttawaTomb|The tomb of the unknown soldier at the National War Memorial in Ottawa (© Norman Pogson/Alamy Stock Photo)|Lest we forget|![](/en-CA/2020/11/202011110500OttawaTomb.jpg)|

@@ -11,3 +11,4 @@
 202011080500|DerwentIsle|île Derwent sur Derwentwater dans le parc national Lake District, Cumbria, Angleterre (© Chris Warren/eStock Photo)||![](/fr-CA/2020/11/202011080500DerwentIsle.jpg)|
 202011090500|PiedmontRegion|Les collines des vignobles de Barolo dans le Piémont en Italie (© Marco Arduino/eStock Photo)||![](/fr-CA/2020/11/202011090500PiedmontRegion.jpg)|
 202011100500|LakotaBadlands|Parc national des Badlands, Dakota du Sud (© Dennis Frates/Alamy)||![](/fr-CA/2020/11/202011100500LakotaBadlands.jpg)|
+202011110500|OttawaTomb|La tombe du soldat inconnu au Monument commémoratif de guerre à Ottawa (© Norman Pogson/Alamy Stock Photo)||![](/fr-CA/2020/11/202011110500OttawaTomb.jpg)|
