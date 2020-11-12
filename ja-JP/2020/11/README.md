@@ -12,3 +12,4 @@
 202011091500|SangreCristoDunes|｢グレートサンドデューンズ国立公園｣米国コロラド州 (© Tim Fitzharris/Minden Pictures)|米国の砂丘|![](/ja-JP/2020/11/202011091500SangreCristoDunes.jpg)|
 202011101500|MistyVineyard|｢秋のワインヤード｣フランス, ボルドー (© agefotostock/Alamy)|ボルドーのシャトー|![](/ja-JP/2020/11/202011101500MistyVineyard.jpg)|
 202011111500|LifeguardEntrance|｢ライフガード・タワー｣オーストラリア, ニューサウスウェールズ州 (© Yury Prokopenko/Getty Images)|オーストラリアの浜辺の風景|![](/ja-JP/2020/11/202011111500LifeguardEntrance.jpg)|
+202011121500|SailingStone|｢セーリングストーン｣米国カリフォルニア州, デスバレー (© Patrick Walsh/Getty Images)|米国の不思議な転がる岩|![](/ja-JP/2020/11/202011121500SailingStone.jpg)|
