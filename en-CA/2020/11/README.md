@@ -12,3 +12,4 @@
 202011090500|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Autumn in Piedmont|![](/en-CA/2020/11/202011090500PiedmontRegion.jpg)|
 202011100500|LakotaBadlands|Badlands National Park, South Dakota (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-CA/2020/11/202011100500LakotaBadlands.jpg)|
 202011110500|OttawaTomb|The tomb of the unknown soldier at the National War Memorial in Ottawa (© Norman Pogson/Alamy Stock Photo)|Lest we forget|![](/en-CA/2020/11/202011110500OttawaTomb.jpg)|
+202011120500|ConneryPond|Connery Pond and Whiteface Mountain in New York state (© Henk Meijer/Alamy)|Upstate autumn|![](/en-CA/2020/11/202011120500ConneryPond.jpg)|
