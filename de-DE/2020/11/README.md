@@ -12,3 +12,4 @@
 202011092300|LakotaBadlands|Badlands-Nationalpark, South Dakota, USA (© Dennis Frates/Alamy)|Malerisches „schlechtes Land“|![](/de-DE/2020/11/202011092300LakotaBadlands.jpg)|
 202011102300|EsskastanieD|Esskastanien (© Kai Keisuke/Shutterstock)|Von „Plumpsfrüchten“ und gerösteten Maronen|![](/de-DE/2020/11/202011102300EsskastanieD.jpg)|
 202011112300|ConneryPond|Connery Pond und Whiteface Mountain, Adirondack Mountains, US-Bundesstaat New York (© Henk Meijer/Alamy)|Herbst im Hinterland|![](/de-DE/2020/11/202011112300ConneryPond.jpg)|
+202011122300|RavensSnow|Raben in einem Schneesturm in der Nähe von Kuhmo, Finnland (© Frans Lemmens/Alamy)|Freitag, der 13. – Sind Sie abergläubisch?|![](/de-DE/2020/11/202011122300RavensSnow.jpg)|
