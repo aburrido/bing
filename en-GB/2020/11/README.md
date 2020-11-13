@@ -13,3 +13,4 @@
 202011100000|LakotaBadlands|Badlands National Park, South Dakota, USA (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-GB/2020/11/202011100000LakotaBadlands.jpg)|
 202011110000|RemembranceTommy|A British Tommy figure at the war memorial in Selkirk (© Rob Gray/Alamy Live News)|Remembering the fallen|![](/en-GB/2020/11/202011110000RemembranceTommy.jpg)|
 202011120000|CambronBridge|Cambron Covered Bridge in Green Mountain Park, Alabama, USA (© Jens Lambert/Shutterstock)|A bridge of Madison County|![](/en-GB/2020/11/202011120000CambronBridge.jpg)|
+202011130000|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|Unlucky for some|![](/en-GB/2020/11/202011130000RavensSnow.jpg)|
