@@ -13,3 +13,4 @@
 202011100500|LakotaBadlands|Parc national des Badlands, Dakota du Sud (© Dennis Frates/Alamy)||![](/fr-CA/2020/11/202011100500LakotaBadlands.jpg)|
 202011110500|OttawaTomb|La tombe du soldat inconnu au Monument commémoratif de guerre à Ottawa (© Norman Pogson/Alamy Stock Photo)||![](/fr-CA/2020/11/202011110500OttawaTomb.jpg)|
 202011120500|ConneryPond|Connery Pond et Whiteface Mountain dans l'État de New York (© Henk Meijer/Alamy)||![](/fr-CA/2020/11/202011120500ConneryPond.jpg)|
+202011130500|RavensSnow|Corbeaux dans une tempête de neige près de Kuhmo en Finlande (© Frans Lemmens/Alamy)||![](/fr-CA/2020/11/202011130500RavensSnow.jpg)|
