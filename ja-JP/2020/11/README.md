@@ -13,3 +13,4 @@
 202011101500|MistyVineyard|｢秋のワインヤード｣フランス, ボルドー (© agefotostock/Alamy)|ボルドーのシャトー|![](/ja-JP/2020/11/202011101500MistyVineyard.jpg)|
 202011111500|LifeguardEntrance|｢ライフガード・タワー｣オーストラリア, ニューサウスウェールズ州 (© Yury Prokopenko/Getty Images)|オーストラリアの浜辺の風景|![](/ja-JP/2020/11/202011111500LifeguardEntrance.jpg)|
 202011121500|SailingStone|｢セーリングストーン｣米国カリフォルニア州, デスバレー (© Patrick Walsh/Getty Images)|米国の不思議な転がる岩|![](/ja-JP/2020/11/202011121500SailingStone.jpg)|
+202011131500|SaryuRiverDiyas|｢ランプが並ぶサラユ川｣インド, アヨーディヤー (© Rajesh Kumar Singh/AP Photo)|今日は｢ディーワーリー｣|![](/ja-JP/2020/11/202011131500SaryuRiverDiyas.jpg)|
