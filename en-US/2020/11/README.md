@@ -13,3 +13,4 @@
 202011100800|LakotaBadlands|Badlands National Park, South Dakota (© Dennis Frates/Alamy)|Baddest of the badlands|![](/en-US/2020/11/202011100800LakotaBadlands.jpg)|
 202011110800|KWVeterans|The Korean War Veterans Memorial, Washington, DC (© Ian G Dagnall/Alamy)|Honoring our veterans|![](/en-US/2020/11/202011110800KWVeterans.jpg)|
 202011120800|ConneryPond|Connery Pond and Whiteface Mountain in New York state (© Henk Meijer/Alamy)|Upstate autumn|![](/en-US/2020/11/202011120800ConneryPond.jpg)|
+202011130800|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|Once upon a midafternoon dreary…|![](/en-US/2020/11/202011130800RavensSnow.jpg)|
