@@ -13,3 +13,4 @@
 202011101300|PoppiesOperaHouse|Poppies projected on the Sydney Opera House sails to mark Remembrance Day (© James D. Morgan/Getty Images)|Lest we forget|![](/en-AU/2020/11/202011101300PoppiesOperaHouse.jpg)|
 202011111300|PiedmontRegion|The hills of Barolo vineyards in Piedmont, Italy (© Marco Arduino/eStock Photo)|Pinteresque Piedmont|![](/en-AU/2020/11/202011111300PiedmontRegion.jpg)|
 202011121300|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|A beaky bevy of bad luck|![](/en-AU/2020/11/202011121300RavensSnow.jpg)|
+202011131300|DiwaliRangoli|Oil lamps being arranged on rangoli during Diwali (© Subir Basak/Getty Images)|Decorating for Diwali|![](/en-AU/2020/11/202011131300DiwaliRangoli.jpg)|
