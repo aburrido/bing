@@ -13,3 +13,4 @@
 202011102300|EsskastanieD|Esskastanien (© Kai Keisuke/Shutterstock)|Von „Plumpsfrüchten“ und gerösteten Maronen|![](/de-DE/2020/11/202011102300EsskastanieD.jpg)|
 202011112300|ConneryPond|Connery Pond und Whiteface Mountain, Adirondack Mountains, US-Bundesstaat New York (© Henk Meijer/Alamy)|Herbst im Hinterland|![](/de-DE/2020/11/202011112300ConneryPond.jpg)|
 202011122300|RavensSnow|Raben in einem Schneesturm in der Nähe von Kuhmo, Finnland (© Frans Lemmens/Alamy)|Freitag, der 13. – Sind Sie abergläubisch?|![](/de-DE/2020/11/202011122300RavensSnow.jpg)|
+202011132300|DiwaliRangoli|Öllampen auf einer Rangoli-Dekoration während des Diwali-Lichterfests (© Subir Basak/Getty Images)|Dekorationen zum Diwali-Fest|![](/de-DE/2020/11/202011132300DiwaliRangoli.jpg)|
