@@ -14,3 +14,4 @@
 202011110500|OttawaTomb|The tomb of the unknown soldier at the National War Memorial in Ottawa (© Norman Pogson/Alamy Stock Photo)|Lest we forget|![](/en-CA/2020/11/202011110500OttawaTomb.jpg)|
 202011120500|ConneryPond|Connery Pond and Whiteface Mountain in New York state (© Henk Meijer/Alamy)|Upstate autumn|![](/en-CA/2020/11/202011120500ConneryPond.jpg)|
 202011130500|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|Once upon a midafternoon dreary…|![](/en-CA/2020/11/202011130500RavensSnow.jpg)|
+202011140500|DiwaliRangoli|Oil lamps being arranged on rangoli during Diwali (© Subir Basak/Getty Images)|Decorating for Diwali|![](/en-CA/2020/11/202011140500DiwaliRangoli.jpg)|
