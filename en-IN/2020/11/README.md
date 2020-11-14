@@ -14,3 +14,4 @@
 202011111830|ConneryPond|Connery Pond and Whiteface Mountain in New York state, USA (© Henk Meijer/Alamy)|Upstate autumn|![](/en-IN/2020/11/202011111830ConneryPond.jpg)|
 202011121830|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|A beaky bevy of bad luck|![](/en-IN/2020/11/202011121830RavensSnow.jpg)|
 202011131830|DiaHand|The festival of lights (© ARIF ALI/AFP via Getty Images)|A representation of triumph of good over evil|![](/en-IN/2020/11/202011131830DiaHand.jpg)|
+202011141830|LupineNZ|Lupins on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|What are these blooms?|![](/en-IN/2020/11/202011141830LupineNZ.jpg)|
