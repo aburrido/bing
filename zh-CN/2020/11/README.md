@@ -14,3 +14,4 @@
 202011111600|ConneryPond|Connery Pond和怀特菲斯山，纽约州 (© Henk Meijer/Alamy)||![](/zh-CN/2020/11/202011111600ConneryPond.jpg)|
 202011121600|RavensSnow|库赫莫附近暴风雪中的乌鸦，芬兰 (© Frans Lemmens/Alamy)||![](/zh-CN/2020/11/202011121600RavensSnow.jpg)|
 202011131600|DiwaliRangoli|排灯节期间摆放在蓝果丽上的油灯 (© Subir Basak/Getty Images)||![](/zh-CN/2020/11/202011131600DiwaliRangoli.jpg)|
+202011141600|LupineNZ|特卡波湖岸上的羽扇豆，新西兰 (© Stanislav Kachyna/Shutterstock)||![](/zh-CN/2020/11/202011141600LupineNZ.jpg)|
