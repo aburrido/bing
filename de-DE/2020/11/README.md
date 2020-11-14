@@ -14,3 +14,4 @@
 202011112300|ConneryPond|Connery Pond und Whiteface Mountain, Adirondack Mountains, US-Bundesstaat New York (© Henk Meijer/Alamy)|Herbst im Hinterland|![](/de-DE/2020/11/202011112300ConneryPond.jpg)|
 202011122300|RavensSnow|Raben in einem Schneesturm in der Nähe von Kuhmo, Finnland (© Frans Lemmens/Alamy)|Freitag, der 13. – Sind Sie abergläubisch?|![](/de-DE/2020/11/202011122300RavensSnow.jpg)|
 202011132300|DiwaliRangoli|Öllampen auf einer Rangoli-Dekoration während des Diwali-Lichterfests (© Subir Basak/Getty Images)|Dekorationen zum Diwali-Fest|![](/de-DE/2020/11/202011132300DiwaliRangoli.jpg)|
+202011142300|LupineNZ|Lupinen am Ufer des Lake Tekapo in Neuseeland (© Stanislav Kachyna/Shutterstock)|Frühling im „Land der langen weißen Wolke“|![](/de-DE/2020/11/202011142300LupineNZ.jpg)|
