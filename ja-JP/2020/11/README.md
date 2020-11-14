@@ -14,3 +14,4 @@
 202011111500|LifeguardEntrance|｢ライフガード・タワー｣オーストラリア, ニューサウスウェールズ州 (© Yury Prokopenko/Getty Images)|オーストラリアの浜辺の風景|![](/ja-JP/2020/11/202011111500LifeguardEntrance.jpg)|
 202011121500|SailingStone|｢セーリングストーン｣米国カリフォルニア州, デスバレー (© Patrick Walsh/Getty Images)|米国の不思議な転がる岩|![](/ja-JP/2020/11/202011121500SailingStone.jpg)|
 202011131500|SaryuRiverDiyas|｢ランプが並ぶサラユ川｣インド, アヨーディヤー (© Rajesh Kumar Singh/AP Photo)|今日は｢ディーワーリー｣|![](/ja-JP/2020/11/202011131500SaryuRiverDiyas.jpg)|
+202011141500|CrystalRiver|｢キャノ・クリスタレス｣コロンビア, シエラ・デ・ラ・マカレナ国立自然公園 (© Jorge Iván Vásquez Cuartas/Getty Images)|コロンビアの色彩の川|![](/ja-JP/2020/11/202011141500CrystalRiver.jpg)|
