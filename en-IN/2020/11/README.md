@@ -15,3 +15,4 @@
 202011121830|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|A beaky bevy of bad luck|![](/en-IN/2020/11/202011121830RavensSnow.jpg)|
 202011131830|DiaHand|The festival of lights (© ARIF ALI/AFP via Getty Images)|A representation of triumph of good over evil|![](/en-IN/2020/11/202011131830DiaHand.jpg)|
 202011141830|LupineNZ|Lupins on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|What are these blooms?|![](/en-IN/2020/11/202011141830LupineNZ.jpg)|
+202011151830|MainEntryTemple|The interior of the Abu Simbel Great Temple in Egypt (© George Steinmetz/Getty Images)|A temple, preserved|![](/en-IN/2020/11/202011151830MainEntryTemple.jpg)|
