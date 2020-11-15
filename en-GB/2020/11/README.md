@@ -15,3 +15,4 @@
 202011120000|CambronBridge|Cambron Covered Bridge in Green Mountain Park, Alabama, USA (© Jens Lambert/Shutterstock)|A bridge of Madison County|![](/en-GB/2020/11/202011120000CambronBridge.jpg)|
 202011130000|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|Unlucky for some|![](/en-GB/2020/11/202011130000RavensSnow.jpg)|
 202011140000|DiwaliRangoli|Oil lamps being arranged on rangoli during Diwali (© Subir Basak/Getty Images)|Decorating for Diwali|![](/en-GB/2020/11/202011140000DiwaliRangoli.jpg)|
+202011150000|LupineNZ|Lupins on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|Invaders of the lake|![](/en-GB/2020/11/202011150000LupineNZ.jpg)|
