@@ -15,3 +15,4 @@
 202011122300|November13|Le drapeau français flottant au centre de la Tour Eiffel, le 11 mars 2020, lors d’une cérémonie pour la première Journée nationale d’hommage aux victimes du terrorisme (© PHILIPPE LOPEZ/POOL/AFP via Getty Images)|Devoir de mémoire|![](/fr-FR/2020/11/202011122300November13.jpg)|
 202011132300|DiwaliRangoli|Lampes à huile arrangées en rangoli Diwali (© Subir Basak/Getty Images)|Rangée de lumière|![](/fr-FR/2020/11/202011132300DiwaliRangoli.jpg)|
 202011142300|LupineNZ|Lupins sur le rivage du Lake Tekapo en Nouvelle Zélande (© Stanislav Kachyna/Shutterstock)|Rivage coloré|![](/fr-FR/2020/11/202011142300LupineNZ.jpg)|
+202011152300|MainEntryTemple|Entrée des temples Abou Simbel en Égypte (© George Steinmetz/Getty Images)|À la gloire d’un pharaon|![](/fr-FR/2020/11/202011152300MainEntryTemple.jpg)|
