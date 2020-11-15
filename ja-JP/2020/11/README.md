@@ -15,3 +15,4 @@
 202011121500|SailingStone|｢セーリングストーン｣米国カリフォルニア州, デスバレー (© Patrick Walsh/Getty Images)|米国の不思議な転がる岩|![](/ja-JP/2020/11/202011121500SailingStone.jpg)|
 202011131500|SaryuRiverDiyas|｢ランプが並ぶサラユ川｣インド, アヨーディヤー (© Rajesh Kumar Singh/AP Photo)|今日は｢ディーワーリー｣|![](/ja-JP/2020/11/202011131500SaryuRiverDiyas.jpg)|
 202011141500|CrystalRiver|｢キャノ・クリスタレス｣コロンビア, シエラ・デ・ラ・マカレナ国立自然公園 (© Jorge Iván Vásquez Cuartas/Getty Images)|コロンビアの色彩の川|![](/ja-JP/2020/11/202011141500CrystalRiver.jpg)|
+202011151500|LupineNZ|｢テカポ湖のルピナス｣ニュージーランド南島 (© Stanislav Kachyna/Shutterstock)|ニュージーランドの初夏|![](/ja-JP/2020/11/202011151500LupineNZ.jpg)|
