@@ -16,3 +16,4 @@
 202011131830|DiaHand|The festival of lights (© ARIF ALI/AFP via Getty Images)|A representation of triumph of good over evil|![](/en-IN/2020/11/202011131830DiaHand.jpg)|
 202011141830|LupineNZ|Lupins on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|What are these blooms?|![](/en-IN/2020/11/202011141830LupineNZ.jpg)|
 202011151830|MainEntryTemple|The interior of the Abu Simbel Great Temple in Egypt (© George Steinmetz/Getty Images)|A temple, preserved|![](/en-IN/2020/11/202011151830MainEntryTemple.jpg)|
+202011161830|WoodLine|Andy Goldsworthy's 'Wood Line' installation along Lovers' Lane in the Presidio of San Francisco, California, USA (© Chris LaBasco/Alamy)|Take a hike near Lovers' Lane|![](/en-IN/2020/11/202011161830WoodLine.jpg)|
