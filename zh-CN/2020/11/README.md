@@ -16,3 +16,4 @@
 202011131600|DiwaliRangoli|排灯节期间摆放在蓝果丽上的油灯 (© Subir Basak/Getty Images)||![](/zh-CN/2020/11/202011131600DiwaliRangoli.jpg)|
 202011141600|LupineNZ|特卡波湖岸上的羽扇豆，新西兰 (© Stanislav Kachyna/Shutterstock)||![](/zh-CN/2020/11/202011141600LupineNZ.jpg)|
 202011151600|HokkaidoShida|日本北海道 (© Hiroshi Yokoyama/eStock Photo)||![](/zh-CN/2020/11/202011151600HokkaidoShida.jpg)|
+202011161600|MischwaldFuessen|混交林，菲森，巴伐利亚，德国 (© Erich Kuchling/DEEPOL by plainpicture)||![](/zh-CN/2020/11/202011161600MischwaldFuessen.jpg)|
