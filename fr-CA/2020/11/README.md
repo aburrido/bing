@@ -16,3 +16,4 @@
 202011130500|RavensSnow|Corbeaux dans une tempête de neige près de Kuhmo en Finlande (© Frans Lemmens/Alamy)||![](/fr-CA/2020/11/202011130500RavensSnow.jpg)|
 202011140500|DiwaliRangoli|Lampes à huile disposées sur des rangoli pendant la fête de Divali (© Subir Basak/Getty Images)||![](/fr-CA/2020/11/202011140500DiwaliRangoli.jpg)|
 202011150500|LupineNZ|Lupins bordant les rives du lac Tekapo en Nouvelle-Zélande (© Stanislav Kachyna/Shutterstock)||![](/fr-CA/2020/11/202011150500LupineNZ.jpg)|
+202011160500|MischwaldFuessen|Forêt mixte à Füssen en Bavière, Allemagne (© Erich Kuchling/DEEPOL by plainpicture)||![](/fr-CA/2020/11/202011160500MischwaldFuessen.jpg)|
