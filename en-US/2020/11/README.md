@@ -16,3 +16,4 @@
 202011130800|RavensSnow|Ravens in a snowstorm near Kuhmo, Finland (© Frans Lemmens/Alamy)|Once upon a midafternoon dreary…|![](/en-US/2020/11/202011130800RavensSnow.jpg)|
 202011140800|DiwaliRangoli|Oil lamps being arranged on rangoli designs during Diwali (© Subir Basak/Getty Images)|Decorating for Diwali|![](/en-US/2020/11/202011140800DiwaliRangoli.jpg)|
 202011150800|LupineNZ|Lupines on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|What’s blooming in New Zealand?|![](/en-US/2020/11/202011150800LupineNZ.jpg)|
+202011160800|MainEntryTemple|The interior of the Great Temple at Abu Simbel, Egypt (© George Steinmetz/Getty Images)|A temple, preserved|![](/en-US/2020/11/202011160800MainEntryTemple.jpg)|
