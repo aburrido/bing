@@ -17,3 +17,4 @@
 202011141830|LupineNZ|Lupins on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|What are these blooms?|![](/en-IN/2020/11/202011141830LupineNZ.jpg)|
 202011151830|MainEntryTemple|The interior of the Abu Simbel Great Temple in Egypt (© George Steinmetz/Getty Images)|A temple, preserved|![](/en-IN/2020/11/202011151830MainEntryTemple.jpg)|
 202011161830|WoodLine|Andy Goldsworthy's 'Wood Line' installation along Lovers' Lane in the Presidio of San Francisco, California, USA (© Chris LaBasco/Alamy)|Take a hike near Lovers' Lane|![](/en-IN/2020/11/202011161830WoodLine.jpg)|
+202011171830|InukshukLights|Inukshuk silhouetted against the Northern Lights in Barren Lands, Northwest Territories, Canada (© Mark Duffy/Alamy)|A symbol of culture and communication|![](/en-IN/2020/11/202011171830InukshukLights.jpg)|
