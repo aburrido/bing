@@ -17,3 +17,4 @@
 202011140000|DiwaliRangoli|Oil lamps being arranged on rangoli during Diwali (© Subir Basak/Getty Images)|Decorating for Diwali|![](/en-GB/2020/11/202011140000DiwaliRangoli.jpg)|
 202011150000|LupineNZ|Lupins on the shores of Lake Tekapo in New Zealand (© Stanislav Kachyna/Shutterstock)|Invaders of the lake|![](/en-GB/2020/11/202011150000LupineNZ.jpg)|
 202011160000|MainEntryTemple|The interior of the Abu Simbel Great Temple in Egypt (© George Steinmetz/Getty Images)|Relocating Abu Simbel|![](/en-GB/2020/11/202011160000MainEntryTemple.jpg)|
+202011170000|WoodLine|Andy Goldsworthy's Wood Line installation along Lovers' Lane in the Presidio of San Francisco, California, USA (© Chris LaBasco/Alamy)|Winding through nature|![](/en-GB/2020/11/202011170000WoodLine.jpg)|
