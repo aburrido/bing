@@ -17,3 +17,4 @@
 202011142300|LupineNZ|Lupinen am Ufer des Lake Tekapo in Neuseeland (© Stanislav Kachyna/Shutterstock)|Frühling im „Land der langen weißen Wolke“|![](/de-DE/2020/11/202011142300LupineNZ.jpg)|
 202011152300|MainEntryTemple|Der Innenraum des großen Tempels von Abu Simbel in Ägypten (© George Steinmetz/Getty Images)|UNESCO-Welterbe seit 1979|![](/de-DE/2020/11/202011152300MainEntryTemple.jpg)|
 202011162300|NordstrandStrandkoerbe|Strandkörbe im Abendrot am Nordstrand der Insel Borkum, Niedersachsen (© DEEPOL by plainpicture/Wilfried Wirth)|Herbst an der Nordsee|![](/de-DE/2020/11/202011162300NordstrandStrandkoerbe.jpg)|
+202011172300|InukshukLights|Silhouette eines Inunnguaqs vor einer Aurora borealis in Barren Lands, Nordwest-Territorien, Kanada (© Mark Duffy/Alamy Stock Photo)|Ein Symbol für Kultur und Kommunikation|![](/de-DE/2020/11/202011172300InukshukLights.jpg)|

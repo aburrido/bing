@@ -17,3 +17,4 @@
 202011142300|LupineNZ|Lupins sur le rivage du Lake Tekapo en Nouvelle Zélande (© Stanislav Kachyna/Shutterstock)|Rivage coloré|![](/fr-FR/2020/11/202011142300LupineNZ.jpg)|
 202011152300|MainEntryTemple|Entrée des temples Abou Simbel en Égypte (© George Steinmetz/Getty Images)|À la gloire d’un pharaon|![](/fr-FR/2020/11/202011152300MainEntryTemple.jpg)|
 202011162300|WoodLine|Installation artistique “Wood Line” d’Andy Goldsworthy's le long du chemin des amoureux dans le Presidio de San Francisco, California (© Chris LaBasco/Alamy)|Zigzaguer dans les bois|![](/fr-FR/2020/11/202011162300WoodLine.jpg)|
+202011172300|InukshukLights|Silhouette d’Inukshuk et aurore polaire, Territoires du Nord-Ouest, Canada (© Mark Duffy/Alamy Stock Photo)|Communication inuit|![](/fr-FR/2020/11/202011172300InukshukLights.jpg)|
