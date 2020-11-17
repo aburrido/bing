@@ -17,3 +17,4 @@
 202011141500|CrystalRiver|｢キャノ・クリスタレス｣コロンビア, シエラ・デ・ラ・マカレナ国立自然公園 (© Jorge Iván Vásquez Cuartas/Getty Images)|コロンビアの色彩の川|![](/ja-JP/2020/11/202011141500CrystalRiver.jpg)|
 202011151500|LupineNZ|｢テカポ湖のルピナス｣ニュージーランド南島 (© Stanislav Kachyna/Shutterstock)|ニュージーランドの初夏|![](/ja-JP/2020/11/202011151500LupineNZ.jpg)|
 202011161500|HuntsMesa|｢モニュメント・バレー・ナバホ・トライバル・パーク｣米国アリゾナ州, ユタ州 (© AWL Images/Danita Delimont)|米国の自然公園|![](/ja-JP/2020/11/202011161500HuntsMesa.jpg)|
+202011171500|ToucanCostaRica|｢クリハシオオハシ｣コスタリカ (© Greg Basco/Minden Pictures)|中南米の野鳥|![](/ja-JP/2020/11/202011171500ToucanCostaRica.jpg)|
