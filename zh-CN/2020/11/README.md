@@ -17,3 +17,4 @@
 202011141600|LupineNZ|特卡波湖岸上的羽扇豆，新西兰 (© Stanislav Kachyna/Shutterstock)||![](/zh-CN/2020/11/202011141600LupineNZ.jpg)|
 202011151600|HokkaidoShida|日本北海道 (© Hiroshi Yokoyama/eStock Photo)||![](/zh-CN/2020/11/202011151600HokkaidoShida.jpg)|
 202011161600|MischwaldFuessen|混交林，菲森，巴伐利亚，德国 (© Erich Kuchling/DEEPOL by plainpicture)||![](/zh-CN/2020/11/202011161600MischwaldFuessen.jpg)|
+202011171600|InukshukLights|被北极光映衬出轮廓的因努伊特石堆，加拿大西北地区 (© Mark Duffy/Alamy)||![](/zh-CN/2020/11/202011171600InukshukLights.jpg)|
