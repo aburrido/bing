@@ -18,3 +18,4 @@
 202011151600|HokkaidoShida|日本北海道 (© Hiroshi Yokoyama/eStock Photo)||![](/zh-CN/2020/11/202011151600HokkaidoShida.jpg)|
 202011161600|MischwaldFuessen|混交林，菲森，巴伐利亚，德国 (© Erich Kuchling/DEEPOL by plainpicture)||![](/zh-CN/2020/11/202011161600MischwaldFuessen.jpg)|
 202011171600|InukshukLights|被北极光映衬出轮廓的因努伊特石堆，加拿大西北地区 (© Mark Duffy/Alamy)||![](/zh-CN/2020/11/202011171600InukshukLights.jpg)|
+202011181600|ToucanCostaRica|巢穴中的栗嘴巨嘴鸟，哥斯达黎加 (© Greg Basco/Minden Pictures)||![](/zh-CN/2020/11/202011181600ToucanCostaRica.jpg)|
