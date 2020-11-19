@@ -19,3 +19,4 @@
 202011161500|HuntsMesa|｢モニュメント・バレー・ナバホ・トライバル・パーク｣米国アリゾナ州, ユタ州 (© AWL Images/Danita Delimont)|米国の自然公園|![](/ja-JP/2020/11/202011161500HuntsMesa.jpg)|
 202011171500|ToucanCostaRica|｢クリハシオオハシ｣コスタリカ (© Greg Basco/Minden Pictures)|中南米の野鳥|![](/ja-JP/2020/11/202011171500ToucanCostaRica.jpg)|
 202011181500|ArroyoGrande|｢セントラルコーストのワインヤード｣米国カリフォルニア州, アローヨ・グランデ (© Ian Shive/Tandem Motion + Stills)|今日はボジョレー･ヌーボー解禁日|![](/ja-JP/2020/11/202011181500ArroyoGrande.jpg)|
+202011191500|ToleranceShip|｢シップ・オブ・トレランス｣スイス, ツーク (© Linda Kennard/Alamy)|今日は｢世界こどもの日｣|![](/ja-JP/2020/11/202011191500ToleranceShip.jpg)|
