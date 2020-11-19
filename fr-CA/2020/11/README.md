@@ -19,3 +19,4 @@
 202011160500|MischwaldFuessen|Forêt mixte à Füssen en Bavière, Allemagne (© Erich Kuchling/DEEPOL by plainpicture)||![](/fr-CA/2020/11/202011160500MischwaldFuessen.jpg)|
 202011170500|HokkaidoShida|Hokkaïdo, Japon (© Hiroshi Yokoyama/eStock Photo)||![](/fr-CA/2020/11/202011170500HokkaidoShida.jpg)|
 202011180500|InukshukLights|Silhouette d’inukshuk sur fond d’aurore boréale, Barren Lands, Territoires du Nord-Ouest (© Mark Duffy/Alamy Stock Photo)||![](/fr-CA/2020/11/202011180500InukshukLights.jpg)|
+202011190500|ToucanCostaRica|Toucan de Swainson dans la cavité de son nid, Costa Rica (© Greg Basco/Minden Pictures)||![](/fr-CA/2020/11/202011190500ToucanCostaRica.jpg)|
