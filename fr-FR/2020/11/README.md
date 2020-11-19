@@ -19,3 +19,4 @@
 202011162300|WoodLine|Installation artistique “Wood Line” d’Andy Goldsworthy's le long du chemin des amoureux dans le Presidio de San Francisco, California (© Chris LaBasco/Alamy)|Zigzaguer dans les bois|![](/fr-FR/2020/11/202011162300WoodLine.jpg)|
 202011172300|InukshukLights|Silhouette d’Inukshuk et aurore polaire, Territoires du Nord-Ouest, Canada (© Mark Duffy/Alamy Stock Photo)|Communication inuit|![](/fr-FR/2020/11/202011172300InukshukLights.jpg)|
 202011182300|FoldedInk|Structure décorative de pages de livres pliées, Angles-sur-l'Anglin, Vienne (© Ed Buziak/Alamy Banque d'Images)|Le choix des lycéens|![](/fr-FR/2020/11/202011182300FoldedInk.jpg)|
+202011192300|MontBlancPeak|Vue aérienne de l’Aiguille du Midi dans le massif du Mont-Blanc (© Amazing Aerial Agency/Offset by Shutterstock)|Du haut de l’Aiguille|![](/fr-FR/2020/11/202011192300MontBlancPeak.jpg)|

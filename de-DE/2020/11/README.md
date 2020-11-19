@@ -19,3 +19,4 @@
 202011162300|NordstrandStrandkoerbe|Strandkörbe im Abendrot am Nordstrand der Insel Borkum, Niedersachsen (© DEEPOL by plainpicture/Wilfried Wirth)|Herbst an der Nordsee|![](/de-DE/2020/11/202011162300NordstrandStrandkoerbe.jpg)|
 202011172300|InukshukLights|Silhouette eines Inunnguaqs vor einer Aurora borealis in Barren Lands, Nordwest-Territorien, Kanada (© Mark Duffy/Alamy Stock Photo)|Ein Symbol für Kultur und Kommunikation|![](/de-DE/2020/11/202011172300InukshukLights.jpg)|
 202011182300|ToucanCostaRica|Swainson-Tukan in einer Nisthöhle, Costa Rica (© Greg Basco/Minden Pictures)|Der Schnabel passt hier sicher nicht mehr rein|![](/de-DE/2020/11/202011182300ToucanCostaRica.jpg)|
+202011192300|MontBlancPeak|Luftbild der Aiguille du Midi in der Mont-Blanc-Gruppe, Chamonix, Frankreich (© Amazing Aerial Agency/Offset by Shutterstock)|2800 Meter über Chamonix|![](/de-DE/2020/11/202011192300MontBlancPeak.jpg)|
