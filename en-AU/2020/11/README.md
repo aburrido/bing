@@ -19,3 +19,4 @@
 202011161300|WoodLine|Andy Goldsworthy's 'Wood Line' installation along Lovers' Lane in the Presidio of San Francisco, California, USA (© Chris LaBasco/Alamy)|Taking a hike near Lovers' Lane|![](/en-AU/2020/11/202011161300WoodLine.jpg)|
 202011171300|InukshukLights|Inukshuk silhouetted against the Northern Lights in Barren Lands, Northwest Territories, Canada (© Mark Duffy/Alamy)|A symbol of culture and communication|![](/en-AU/2020/11/202011171300InukshukLights.jpg)|
 202011181300|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-AU/2020/11/202011181300ToucanCostaRica.jpg)|
+202011191300|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-AU/2020/11/202011191300MontBlancPeak.jpg)|
