@@ -19,3 +19,4 @@
 202011160800|MainEntryTemple|The interior of the Great Temple at Abu Simbel, Egypt (© George Steinmetz/Getty Images)|A temple, preserved|![](/en-US/2020/11/202011160800MainEntryTemple.jpg)|
 202011170800|WoodLine|Andy Goldsworthy's 'Wood Line' installation near Lovers' Lane in the Presidio of San Francisco, California (© Chris LaBasco/Alamy)|Take a hike near Lovers' Lane|![](/en-US/2020/11/202011170800WoodLine.jpg)|
 202011180800|UdvarHazy|Interior view of the Steven F. Udvar-Hazy Center, Smithsonian National Air and Space Museum in Chantilly, Virginia (© Rebecca Wyatt/Offset by Shutterstock)|An aviation celebration|![](/en-US/2020/11/202011180800UdvarHazy.jpg)|
+202011190800|ToucanCostaRica|Chestnut-mandibled toucan nesting in the cavity of a tree, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-US/2020/11/202011190800ToucanCostaRica.jpg)|
