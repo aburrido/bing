@@ -20,3 +20,4 @@
 202011170500|HokkaidoShida|Hokkaïdo, Japon (© Hiroshi Yokoyama/eStock Photo)||![](/fr-CA/2020/11/202011170500HokkaidoShida.jpg)|
 202011180500|InukshukLights|Silhouette d’inukshuk sur fond d’aurore boréale, Barren Lands, Territoires du Nord-Ouest (© Mark Duffy/Alamy Stock Photo)||![](/fr-CA/2020/11/202011180500InukshukLights.jpg)|
 202011190500|ToucanCostaRica|Toucan de Swainson dans la cavité de son nid, Costa Rica (© Greg Basco/Minden Pictures)||![](/fr-CA/2020/11/202011190500ToucanCostaRica.jpg)|
+202011200500|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2020/11/202011200500MontBlancPeak.jpg)|
