@@ -20,3 +20,4 @@
 202011171830|InukshukLights|Inukshuk silhouetted against the Northern Lights in Barren Lands, Northwest Territories, Canada (© Mark Duffy/Alamy)|A symbol of culture and communication|![](/en-IN/2020/11/202011171830InukshukLights.jpg)|
 202011181830|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-IN/2020/11/202011181830ToucanCostaRica.jpg)|
 202011191830|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-IN/2020/11/202011191830MontBlancPeak.jpg)|
+202011201830|LeopardShrubs|An Indian leopard on the prowl (© Colin Langford/Getty Images)|Indian leopard on the prowl|![](/en-IN/2020/11/202011201830LeopardShrubs.jpg)|
