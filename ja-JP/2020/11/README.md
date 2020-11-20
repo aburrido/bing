@@ -20,3 +20,4 @@
 202011171500|ToucanCostaRica|｢クリハシオオハシ｣コスタリカ (© Greg Basco/Minden Pictures)|中南米の野鳥|![](/ja-JP/2020/11/202011171500ToucanCostaRica.jpg)|
 202011181500|ArroyoGrande|｢セントラルコーストのワインヤード｣米国カリフォルニア州, アローヨ・グランデ (© Ian Shive/Tandem Motion + Stills)|今日はボジョレー･ヌーボー解禁日|![](/ja-JP/2020/11/202011181500ArroyoGrande.jpg)|
 202011191500|ToleranceShip|｢シップ・オブ・トレランス｣スイス, ツーク (© Linda Kennard/Alamy)|今日は｢世界こどもの日｣|![](/ja-JP/2020/11/202011191500ToleranceShip.jpg)|
+202011201500|BentsGeneral|｢ゴーストタウンの雑貨店｣カナダ, サスカチュワン州 (© ImagineGolf/Getty Images)|カナダのゴーストタウン|![](/ja-JP/2020/11/202011201500BentsGeneral.jpg)|
