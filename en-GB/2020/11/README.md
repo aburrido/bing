@@ -20,3 +20,4 @@
 202011170000|WoodLine|Andy Goldsworthy's Wood Line installation along Lovers' Lane in the Presidio of San Francisco, California, USA (© Chris LaBasco/Alamy)|Winding through nature|![](/en-GB/2020/11/202011170000WoodLine.jpg)|
 202011180000|DerwentIsle|Derwent Island on Derwentwater in the Lake District National Park, Cumbria (© Chris Warren/Stock Photo)|Languid life on the Lakes|![](/en-GB/2020/11/202011180000DerwentIsle.jpg)|
 202011190000|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|Will this nest fit the bill?|![](/en-GB/2020/11/202011190000ToucanCostaRica.jpg)|
+202011200000|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|The Needle of Chamonix|![](/en-GB/2020/11/202011200000MontBlancPeak.jpg)|
