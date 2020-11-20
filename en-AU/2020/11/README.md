@@ -20,3 +20,4 @@
 202011171300|InukshukLights|Inukshuk silhouetted against the Northern Lights in Barren Lands, Northwest Territories, Canada (© Mark Duffy/Alamy)|A symbol of culture and communication|![](/en-AU/2020/11/202011171300InukshukLights.jpg)|
 202011181300|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-AU/2020/11/202011181300ToucanCostaRica.jpg)|
 202011191300|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-AU/2020/11/202011191300MontBlancPeak.jpg)|
+202011201300|HocesDuraton|Nuestra Señora de la Hoz, an old monastery in the Duratón River gorge, Segovia, Castile and León, Spain (© Arco Images GmbH/Alamy)|A canyon filled with history|![](/en-AU/2020/11/202011201300HocesDuraton.jpg)|
