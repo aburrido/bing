@@ -21,3 +21,4 @@
 202011181600|ToucanCostaRica|巢穴中的栗嘴巨嘴鸟，哥斯达黎加 (© Greg Basco/Minden Pictures)||![](/zh-CN/2020/11/202011181600ToucanCostaRica.jpg)|
 202011191600|MontBlancPeak|鸟瞰勃朗峰山脉中的南针峰，法国 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2020/11/202011191600MontBlancPeak.jpg)|
 202011201600|NCHighCountry|普莱斯湖中冰封的秋叶，北卡罗莱纳州朱利安·普莱斯纪念公园 (© Richard Bernabe/Offset by Shutterstock)||![](/zh-CN/2020/11/202011201600NCHighCountry.jpg)|
+202011211600|Dromling|Drömling湿地中的灰鹤，德国 (© Mike Friedrichs/Getty Images)||![](/zh-CN/2020/11/202011211600Dromling.jpg)|
