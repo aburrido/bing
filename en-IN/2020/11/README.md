@@ -21,3 +21,4 @@
 202011181830|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-IN/2020/11/202011181830ToucanCostaRica.jpg)|
 202011191830|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-IN/2020/11/202011191830MontBlancPeak.jpg)|
 202011201830|LeopardShrubs|An Indian leopard on the prowl (© Colin Langford/Getty Images)|Indian leopard on the prowl|![](/en-IN/2020/11/202011201830LeopardShrubs.jpg)|
+202011211830|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-IN/2020/11/202011211830Dromling.jpg)|
