@@ -21,3 +21,4 @@
 202011181300|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-AU/2020/11/202011181300ToucanCostaRica.jpg)|
 202011191300|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-AU/2020/11/202011191300MontBlancPeak.jpg)|
 202011201300|HocesDuraton|Nuestra Señora de la Hoz, an old monastery in the Duratón River gorge, Segovia, Castile and León, Spain (© Arco Images GmbH/Alamy)|A canyon filled with history|![](/en-AU/2020/11/202011201300HocesDuraton.jpg)|
+202011211300|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-AU/2020/11/202011211300Dromling.jpg)|
