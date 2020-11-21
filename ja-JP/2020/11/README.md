@@ -21,3 +21,4 @@
 202011181500|ArroyoGrande|｢セントラルコーストのワインヤード｣米国カリフォルニア州, アローヨ・グランデ (© Ian Shive/Tandem Motion + Stills)|今日はボジョレー･ヌーボー解禁日|![](/ja-JP/2020/11/202011181500ArroyoGrande.jpg)|
 202011191500|ToleranceShip|｢シップ・オブ・トレランス｣スイス, ツーク (© Linda Kennard/Alamy)|今日は｢世界こどもの日｣|![](/ja-JP/2020/11/202011191500ToleranceShip.jpg)|
 202011201500|BentsGeneral|｢ゴーストタウンの雑貨店｣カナダ, サスカチュワン州 (© ImagineGolf/Getty Images)|カナダのゴーストタウン|![](/ja-JP/2020/11/202011201500BentsGeneral.jpg)|
+202011211500|NaganoAki|｢霧ヶ峰のサンピラー｣長野, 八ヶ岳中信高原国定公園 (© Aflo Co. Ltd./Alamy Stock Photo)|今日は｢小雪｣|![](/ja-JP/2020/11/202011211500NaganoAki.jpg)|
