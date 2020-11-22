@@ -22,3 +22,4 @@
 202011190000|ToucanCostaRica|Chestnut-mandibled toucan in nest cavity, Costa Rica (© Greg Basco/Minden Pictures)|Will this nest fit the bill?|![](/en-GB/2020/11/202011190000ToucanCostaRica.jpg)|
 202011200000|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|The Needle of Chamonix|![](/en-GB/2020/11/202011200000MontBlancPeak.jpg)|
 202011210000|InukshukLights|Inunnguaq silhouetted against the Northern Lights in Barren Lands, Northwest Territories, Canada (© Mark Duffy/Alamy Stock Photo)|Arctic lightshow|![](/en-GB/2020/11/202011210000InukshukLights.jpg)|
+202011220000|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-GB/2020/11/202011220000Dromling.jpg)|
