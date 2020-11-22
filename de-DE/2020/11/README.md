@@ -22,3 +22,4 @@
 202011192300|MontBlancPeak|Luftbild der Aiguille du Midi in der Mont-Blanc-Gruppe, Chamonix, Frankreich (© Amazing Aerial Agency/Offset by Shutterstock)|2800 Meter über Chamonix|![](/de-DE/2020/11/202011192300MontBlancPeak.jpg)|
 202011202300|AsilomarSB|Brandung am Asilomar State Beach, Pacific Grove, Kalifornien, USA (© Sheila Haddad/Danita Delimont)|Spüren Sie die Gischt auf Ihrem Gesicht?|![](/de-DE/2020/11/202011202300AsilomarSB.jpg)|
 202011212300|Dromling|Kraniche im Feuchtgebiet Drömling zwischen Niedersachen und Sachsen-Anhalt (© Mike Friedrichs/Getty Images)|Reger Flugbetrieb im Drömling|![](/de-DE/2020/11/202011212300Dromling.jpg)|
+202011222300|BernCH|Berner Altstadt, Schweiz (© Simon Zenger/Alamy)|Herbst in der Altstadt|![](/de-DE/2020/11/202011222300BernCH.jpg)|
