@@ -22,3 +22,4 @@
 202011190800|ToucanCostaRica|Chestnut-mandibled toucan nesting in the cavity of a tree, Costa Rica (© Greg Basco/Minden Pictures)|That bill's just not going to fit|![](/en-US/2020/11/202011190800ToucanCostaRica.jpg)|
 202011200800|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-US/2020/11/202011200800MontBlancPeak.jpg)|
 202011210800|NCHighCountry|Autumn leaves frozen in ice, Price Lake, Julian Price Memorial Park, Blue Ridge Parkway, North Carolina (© Richard Bernabe/Offset by Shutterstock)|Headed to the High Country|![](/en-US/2020/11/202011210800NCHighCountry.jpg)|
+202011220800|Dromling|Common cranes in the Drömling wetland, Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-US/2020/11/202011220800Dromling.jpg)|
