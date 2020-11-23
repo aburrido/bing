@@ -23,3 +23,4 @@
 202011201600|NCHighCountry|普莱斯湖中冰封的秋叶，北卡罗莱纳州朱利安·普莱斯纪念公园 (© Richard Bernabe/Offset by Shutterstock)||![](/zh-CN/2020/11/202011201600NCHighCountry.jpg)|
 202011211600|Dromling|Drömling湿地中的灰鹤，德国 (© Mike Friedrichs/Getty Images)||![](/zh-CN/2020/11/202011211600Dromling.jpg)|
 202011221600|BernCH|伯尔尼老城，瑞士 (© Simon Zenger/Alamy)||![](/zh-CN/2020/11/202011221600BernCH.jpg)|
+202011231600|AsilomarSB|巨浪冲击着阿斯洛玛尔州立海滩的岩石，加利福尼亚州帕西菲克格罗夫 (© Sheila Haddad/Danita Delimont)||![](/zh-CN/2020/11/202011231600AsilomarSB.jpg)|
