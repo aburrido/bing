@@ -23,3 +23,4 @@
 202011201300|HocesDuraton|Nuestra Señora de la Hoz, an old monastery in the Duratón River gorge, Segovia, Castile and León, Spain (© Arco Images GmbH/Alamy)|A canyon filled with history|![](/en-AU/2020/11/202011201300HocesDuraton.jpg)|
 202011211300|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-AU/2020/11/202011211300Dromling.jpg)|
 202011221300|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Taking a tour of Old Town|![](/en-AU/2020/11/202011221300BernCH.jpg)|
+202011231300|AsilomarSB|Huge waves crashing on rocks along Asilomar State Beach, Pacific Grove, California, USA (© Sheila Haddad/Danita Delimont)|Feel the spray in Monterey|![](/en-AU/2020/11/202011231300AsilomarSB.jpg)|
