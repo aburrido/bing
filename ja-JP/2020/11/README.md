@@ -23,3 +23,4 @@
 202011201500|BentsGeneral|｢ゴーストタウンの雑貨店｣カナダ, サスカチュワン州 (© ImagineGolf/Getty Images)|カナダのゴーストタウン|![](/ja-JP/2020/11/202011201500BentsGeneral.jpg)|
 202011211500|NaganoAki|｢霧ヶ峰のサンピラー｣長野, 八ヶ岳中信高原国定公園 (© Aflo Co. Ltd./Alamy Stock Photo)|今日は｢小雪｣|![](/ja-JP/2020/11/202011211500NaganoAki.jpg)|
 202011221500|HammeringMan|｢ハンマリングマン｣ドイツ, フランクフルト (© Arne Dedert/Alamy)|今日は｢勤労感謝の日｣|![](/ja-JP/2020/11/202011221500HammeringMan.jpg)|
+202011231500|OysterFarm|｢垂下連で眠る牡蠣｣石川, 能登半島 (© divedog/Shutterstock)|昨日は｢牡蠣の日｣|![](/ja-JP/2020/11/202011231500OysterFarm.jpg)|
