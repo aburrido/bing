@@ -23,3 +23,4 @@
 202011200800|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-US/2020/11/202011200800MontBlancPeak.jpg)|
 202011210800|NCHighCountry|Autumn leaves frozen in ice, Price Lake, Julian Price Memorial Park, Blue Ridge Parkway, North Carolina (© Richard Bernabe/Offset by Shutterstock)|Headed to the High Country|![](/en-US/2020/11/202011210800NCHighCountry.jpg)|
 202011220800|Dromling|Common cranes in the Drömling wetland, Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-US/2020/11/202011220800Dromling.jpg)|
+202011230800|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Autumn comes to Old Town|![](/en-US/2020/11/202011230800BernCH.jpg)|
