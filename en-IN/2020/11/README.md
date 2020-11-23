@@ -23,3 +23,4 @@
 202011201830|LeopardShrubs|An Indian leopard on the prowl (© Colin Langford/Getty Images)|Indian leopard on the prowl|![](/en-IN/2020/11/202011201830LeopardShrubs.jpg)|
 202011211830|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-IN/2020/11/202011211830Dromling.jpg)|
 202011221830|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Autumn comes to Old Town|![](/en-IN/2020/11/202011221830BernCH.jpg)|
+202011231830|AsilomarSB|Huge waves crashing on rocks along Asilomar State Beach, Pacific Grove, California, USA (© Sheila Haddad/Danita Delimont)|Feel the spray in Monterey|![](/en-IN/2020/11/202011231830AsilomarSB.jpg)|
