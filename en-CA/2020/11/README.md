@@ -23,3 +23,4 @@
 202011200500|MontBlancPeak|Aerial view of the Aiguille du Midi in the Mont Blanc massif, France (© Amazing Aerial Agency/Offset by Shutterstock)|Atop the Needle of Chamonix|![](/en-CA/2020/11/202011200500MontBlancPeak.jpg)|
 202011210500|NunavutWetlands|Wetlands in the Kitikmeot region of Nunavut (© Robert Simmon/NASA)|Explore the Arctic|![](/en-CA/2020/11/202011210500NunavutWetlands.jpg)|
 202011220500|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-CA/2020/11/202011220500Dromling.jpg)|
+202011230500|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Autumn comes to Old Town|![](/en-CA/2020/11/202011230500BernCH.jpg)|
