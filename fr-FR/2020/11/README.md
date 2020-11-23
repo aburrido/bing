@@ -23,3 +23,4 @@
 202011202300|NCHighCountry|Feuilles d’automne gelées par la glace, Julian Price Memorial Park, Caroline du Nord, États-Unis (© Richard Bernabe/Offset by Shutterstock)|Clash des saisons|![](/fr-FR/2020/11/202011202300NCHighCountry.jpg)|
 202011212300|Dromling|Grues cendrées dans la zone humide du Drömling en Allemagne (© Mike Friedrichs/Getty Images)|Envolée sauvage|![](/fr-FR/2020/11/202011212300Dromling.jpg)|
 202011222300|BernCH|Vieille ville de Bern, Suisse (© Simon Zenger/Alamy)|Une vraie vieille ville|![](/fr-FR/2020/11/202011222300BernCH.jpg)|
+202011232300|AsilomarSB|Vague s’écrasant sur un rocher le long de la plage d’état d’Asilomar, Pacific Grove, Californie, États-Unis (© Sheila Haddad/Danita Delimont)|Force de la nature|![](/fr-FR/2020/11/202011232300AsilomarSB.jpg)|

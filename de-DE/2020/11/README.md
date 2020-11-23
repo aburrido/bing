@@ -23,3 +23,4 @@
 202011202300|AsilomarSB|Brandung am Asilomar State Beach, Pacific Grove, Kalifornien, USA (© Sheila Haddad/Danita Delimont)|Spüren Sie die Gischt auf Ihrem Gesicht?|![](/de-DE/2020/11/202011202300AsilomarSB.jpg)|
 202011212300|Dromling|Kraniche im Feuchtgebiet Drömling zwischen Niedersachen und Sachsen-Anhalt (© Mike Friedrichs/Getty Images)|Reger Flugbetrieb im Drömling|![](/de-DE/2020/11/202011212300Dromling.jpg)|
 202011222300|BernCH|Berner Altstadt, Schweiz (© Simon Zenger/Alamy)|Herbst in der Altstadt|![](/de-DE/2020/11/202011222300BernCH.jpg)|
+202011232300|Schweingartensee|Rotbuchen und Kiefern spiegeln sich im Schweingartensee bei Carpin, Mecklenburg-Vorpommern (© Sandra Bartocha/Minden Pictures)|Herbststimmung im Müritz-Nationalpark|![](/de-DE/2020/11/202011232300Schweingartensee.jpg)|
