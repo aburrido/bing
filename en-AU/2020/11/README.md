@@ -24,3 +24,4 @@
 202011211300|Dromling|Common cranes in the Drömling wetland in Germany (© Mike Friedrichs/Getty Images)|Birds of the Drömling|![](/en-AU/2020/11/202011211300Dromling.jpg)|
 202011221300|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Taking a tour of Old Town|![](/en-AU/2020/11/202011221300BernCH.jpg)|
 202011231300|AsilomarSB|Huge waves crashing on rocks along Asilomar State Beach, Pacific Grove, California, USA (© Sheila Haddad/Danita Delimont)|Feel the spray in Monterey|![](/en-AU/2020/11/202011231300AsilomarSB.jpg)|
+202011241300|CPMall|A grove of American elm trees in Central Park's Mall, New York City, USA (© AWL Images/Danita Delimont)|A dying breed of tree thrives in an American park|![](/en-AU/2020/11/202011241300CPMall.jpg)|
