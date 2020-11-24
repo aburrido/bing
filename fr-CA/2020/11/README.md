@@ -24,3 +24,4 @@
 202011210500|NCHighCountry|Feuilles d'automne emprisonnées dans la glace, Price Lake, Julian Price Memorial Park, Blue Ridge Parkway, Caroline du Nord (© Richard Bernabe/Offset by Shutterstock)||![](/fr-CA/2020/11/202011210500NCHighCountry.jpg)|
 202011220500|Dromling|Grues cendrées dans la zone humide de Drömling en Allemagne (© Mike Friedrichs/Getty Images)||![](/fr-CA/2020/11/202011220500Dromling.jpg)|
 202011230500|BernCH|Vieille ville de Berne, Suisse (© Simon Zenger/Alamy)||![](/fr-CA/2020/11/202011230500BernCH.jpg)|
+202011240500|AsilomarSB|s gigantesques s'écrasant sur les rochers le long de la plage d'Asilomar State Beach, Pacific Grove, Californie (© Sheila Haddad/Danita Delimont)||![](/fr-CA/2020/11/202011240500AsilomarSB.jpg)|
