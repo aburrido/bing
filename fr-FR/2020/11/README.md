@@ -25,3 +25,4 @@
 202011222300|BernCH|Vieille ville de Bern, Suisse (© Simon Zenger/Alamy)|Une vraie vieille ville|![](/fr-FR/2020/11/202011222300BernCH.jpg)|
 202011232300|AsilomarSB|Vague s’écrasant sur un rocher le long de la plage d’état d’Asilomar, Pacific Grove, Californie, États-Unis (© Sheila Haddad/Danita Delimont)|Force de la nature|![](/fr-FR/2020/11/202011232300AsilomarSB.jpg)|
 202011242300|CPMall|Un bosquet d’Ormes d'Amérique le long du Mall de Central Park, New York, États-Unis (© AWL Images/Danita Delimont)|Nature newyorkaise|![](/fr-FR/2020/11/202011242300CPMall.jpg)|
+202011252300|ChipmunkJP|Un tamia de Sibérie sur le mont Taisetsu, Hokkaido, Japon (© © plainpicture/Score. by Aflo/Takao Onozato/Aflo)|En attendant Alvin|![](/fr-FR/2020/11/202011252300ChipmunkJP.jpg)|

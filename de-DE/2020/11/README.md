@@ -25,3 +25,4 @@
 202011222300|BernCH|Berner Altstadt, Schweiz (© Simon Zenger/Alamy)|Herbst in der Altstadt|![](/de-DE/2020/11/202011222300BernCH.jpg)|
 202011232300|Schweingartensee|Rotbuchen und Kiefern spiegeln sich im Schweingartensee bei Carpin, Mecklenburg-Vorpommern (© Sandra Bartocha/Minden Pictures)|Herbststimmung im Müritz-Nationalpark|![](/de-DE/2020/11/202011232300Schweingartensee.jpg)|
 202011242300|EDCScotland|Eilean Donan Castle in Schottland (© CBW/Alamy)|Ein Schloss im Wasser|![](/de-DE/2020/11/202011242300EDCScotland.jpg)|
+202011252300|ChipmunkJP|Ein Burunduk im Herbst, Hokkaido, Japan (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|Den Mund nicht zu voll nehmen|![](/de-DE/2020/11/202011252300ChipmunkJP.jpg)|
