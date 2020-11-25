@@ -25,3 +25,4 @@
 202011220500|Dromling|Grues cendrées dans la zone humide de Drömling en Allemagne (© Mike Friedrichs/Getty Images)||![](/fr-CA/2020/11/202011220500Dromling.jpg)|
 202011230500|BernCH|Vieille ville de Berne, Suisse (© Simon Zenger/Alamy)||![](/fr-CA/2020/11/202011230500BernCH.jpg)|
 202011240500|AsilomarSB|s gigantesques s'écrasant sur les rochers le long de la plage d'Asilomar State Beach, Pacific Grove, Californie (© Sheila Haddad/Danita Delimont)||![](/fr-CA/2020/11/202011240500AsilomarSB.jpg)|
+202011250500|CPMall|Ormes d'Amérique bordant le Mall de Central Park, New York (© AWL Images/Danita Delimont)||![](/fr-CA/2020/11/202011250500CPMall.jpg)|
