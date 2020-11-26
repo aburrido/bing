@@ -26,3 +26,4 @@
 202011231600|AsilomarSB|巨浪冲击着阿斯洛玛尔州立海滩的岩石，加利福尼亚州帕西菲克格罗夫 (© Sheila Haddad/Danita Delimont)||![](/zh-CN/2020/11/202011231600AsilomarSB.jpg)|
 202011241600|CPMall|中央公园购物中心的美国榆树丛，纽约市 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/11/202011241600CPMall.jpg)|
 202011251600|ChipmunkJP|大雪山上的花鼠，日本北海道 (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)||![](/zh-CN/2020/11/202011251600ChipmunkJP.jpg)|
+202011261600|NaturesWindowLookout|卡尔巴里国家公园，澳大利亚 (© AWL Images/Offset by Shutterstock)||![](/zh-CN/2020/11/202011261600NaturesWindowLookout.jpg)|
