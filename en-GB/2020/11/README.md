@@ -26,3 +26,4 @@
 202011230000|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Autumn comes to Old Town|![](/en-GB/2020/11/202011230000BernCH.jpg)|
 202011240000|AsilomarSB|Huge waves crashing on rocks along Asilomar State Beach, California, USA (© Sheila Haddad/Danita Delimont)|Making waves|![](/en-GB/2020/11/202011240000AsilomarSB.jpg)|
 202011250000|EDCScotland|Eilean Donan Castle, western Highlands (© CBW/Alamy)|How old is this castle?|![](/en-GB/2020/11/202011250000EDCScotland.jpg)|
+202011260000|ChipmunkJP|A Siberian chipmunk, Hokkaido, Japan (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|An expert face-stuffer|![](/en-GB/2020/11/202011260000ChipmunkJP.jpg)|
