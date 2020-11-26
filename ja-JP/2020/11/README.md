@@ -26,3 +26,4 @@
 202011231500|OysterFarm|｢垂下連で眠る牡蠣｣石川, 能登半島 (© divedog/Shutterstock)|昨日は｢牡蠣の日｣|![](/ja-JP/2020/11/202011231500OysterFarm.jpg)|
 202011241500|BernCH|｢ベルン旧市街｣スイス (© Simon Zenger/Alamy)|スイスの世界遺産|![](/ja-JP/2020/11/202011241500BernCH.jpg)|
 202011251500|iifuro|｢妙高高原温泉郷｣新潟, 妙高市 (© KAZUMASA KOIWAI/amanaimagesRF/Getty Images)|今日は｢いい風呂の日｣|![](/ja-JP/2020/11/202011251500iifuro.jpg)|
+202011261500|CPMall|｢アメリカニレの散歩道｣米国ニューヨーク州, セントラル・パーク (© AWL Images/Danita Delimont)|秋のセントラル・パーク|![](/ja-JP/2020/11/202011261500CPMall.jpg)|
