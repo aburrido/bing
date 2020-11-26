@@ -26,3 +26,4 @@
 202011230800|BernCH|Old Town of Bern, Switzerland (© Simon Zenger/Alamy)|Autumn comes to Old Town|![](/en-US/2020/11/202011230800BernCH.jpg)|
 202011240800|AsilomarSB|Huge waves crashing on rocks along Asilomar State Beach, Pacific Grove, California (© Sheila Haddad/Danita Delimont)|Feel the spray in Monterey|![](/en-US/2020/11/202011240800AsilomarSB.jpg)|
 202011250800|CPMall|A grove of American elm trees at Central Park's Mall, New York City (© AWL Images/Danita Delimont)|A dying breed of tree thrives in an American park|![](/en-US/2020/11/202011250800CPMall.jpg)|
+202011260800|ChipmunkThanksgiving|A Siberian chipmunk on Mount Taisetsu, Hokkaido, Japan (© Ida Toshiaki/Minden Pictures)|Happy Thanksgiving from an expert face-stuffer|![](/en-US/2020/11/202011260800ChipmunkThanksgiving.jpg)|
