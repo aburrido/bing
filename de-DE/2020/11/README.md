@@ -26,3 +26,4 @@
 202011232300|Schweingartensee|Rotbuchen und Kiefern spiegeln sich im Schweingartensee bei Carpin, Mecklenburg-Vorpommern (© Sandra Bartocha/Minden Pictures)|Herbststimmung im Müritz-Nationalpark|![](/de-DE/2020/11/202011232300Schweingartensee.jpg)|
 202011242300|EDCScotland|Eilean Donan Castle in Schottland (© CBW/Alamy)|Ein Schloss im Wasser|![](/de-DE/2020/11/202011242300EDCScotland.jpg)|
 202011252300|ChipmunkJP|Ein Burunduk im Herbst, Hokkaido, Japan (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|Den Mund nicht zu voll nehmen|![](/de-DE/2020/11/202011252300ChipmunkJP.jpg)|
+202011262300|NaturesWindowLookout|Kalbarri-Nationalpark, Australien (© AWL Images/Offset by Shutterstock)|Welch wunderbares Fenster|![](/de-DE/2020/11/202011262300NaturesWindowLookout.jpg)|
