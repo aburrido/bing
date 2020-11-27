@@ -27,3 +27,4 @@
 202011242300|CPMall|Un bosquet d’Ormes d'Amérique le long du Mall de Central Park, New York, États-Unis (© AWL Images/Danita Delimont)|Nature newyorkaise|![](/fr-FR/2020/11/202011242300CPMall.jpg)|
 202011252300|ChipmunkJP|Un tamia de Sibérie sur le mont Taisetsu, Hokkaido, Japon (© © plainpicture/Score. by Aflo/Takao Onozato/Aflo)|En attendant Alvin|![](/fr-FR/2020/11/202011252300ChipmunkJP.jpg)|
 202011262300|FirstSnow|Tête de Gorgias (gauche) and Roche Grande (second plan), près d’Entraunes, Alpes-Maritimes, France (© aerial-photos.com/Alamy Stock Photo)|Premières neiges et mélèzes automnaux|![](/fr-FR/2020/11/202011262300FirstSnow.jpg)|
+202011272300|StrasbourgXmas|Guirlandes illuminant les rues de Strasbourg (© Marco Desscouleurs/Adobe Photo Stock)|Noël coûte que coûte|![](/fr-FR/2020/11/202011272300StrasbourgXmas.jpg)|
