@@ -27,3 +27,4 @@
 202011240500|AsilomarSB|s gigantesques s'écrasant sur les rochers le long de la plage d'Asilomar State Beach, Pacific Grove, Californie (© Sheila Haddad/Danita Delimont)||![](/fr-CA/2020/11/202011240500AsilomarSB.jpg)|
 202011250500|CPMall|Ormes d'Amérique bordant le Mall de Central Park, New York (© AWL Images/Danita Delimont)||![](/fr-CA/2020/11/202011250500CPMall.jpg)|
 202011260500|ChipmunkJP|Un tamia de Sibérie, Hokkaido, Japon (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)||![](/fr-CA/2020/11/202011260500ChipmunkJP.jpg)|
+202011270500|NunavutWetlands|Terres humides dans la région de Kitikmeot au Nunavut (© Robert Simmon/NASA)||![](/fr-CA/2020/11/202011270500NunavutWetlands.jpg)|
