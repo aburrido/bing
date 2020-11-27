@@ -27,3 +27,4 @@
 202011241600|CPMall|中央公园购物中心的美国榆树丛，纽约市 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/11/202011241600CPMall.jpg)|
 202011251600|ChipmunkJP|大雪山上的花鼠，日本北海道 (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)||![](/zh-CN/2020/11/202011251600ChipmunkJP.jpg)|
 202011261600|NaturesWindowLookout|卡尔巴里国家公园，澳大利亚 (© AWL Images/Offset by Shutterstock)||![](/zh-CN/2020/11/202011261600NaturesWindowLookout.jpg)|
+202011271600|ValCervara|部分被雪覆盖的Val Cervara山坡上的老山毛榉林，意大利蒙帕赛诺 (© Bruno D'Amicis/Minden Pictures)||![](/zh-CN/2020/11/202011271600ValCervara.jpg)|
