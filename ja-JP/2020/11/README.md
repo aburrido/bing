@@ -28,3 +28,4 @@
 202011251500|iifuro|｢妙高高原温泉郷｣新潟, 妙高市 (© KAZUMASA KOIWAI/amanaimagesRF/Getty Images)|今日は｢いい風呂の日｣|![](/ja-JP/2020/11/202011251500iifuro.jpg)|
 202011261500|CPMall|｢アメリカニレの散歩道｣米国ニューヨーク州, セントラル・パーク (© AWL Images/Danita Delimont)|秋のセントラル・パーク|![](/ja-JP/2020/11/202011261500CPMall.jpg)|
 202011271500|LochLeum|｢クリート湖｣スコットランド, スカイ島 (© Sebastian Wasek/Sime/eStock Photo)|スコットランドのロッホ|![](/ja-JP/2020/11/202011271500LochLeum.jpg)|
+202011281500|MountTaranaki|｢タラナキ山｣ニュージーランド北島, エグモント国立公園 (© Francesco Vaninetti/plainpicture)|笠をかぶるニュージーランド富士|![](/ja-JP/2020/11/202011281500MountTaranaki.jpg)|
