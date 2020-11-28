@@ -28,3 +28,4 @@
 202011250800|CPMall|A grove of American elm trees at Central Park's Mall, New York City (© AWL Images/Danita Delimont)|A dying breed of tree thrives in an American park|![](/en-US/2020/11/202011250800CPMall.jpg)|
 202011260800|ChipmunkThanksgiving|A Siberian chipmunk on Mount Taisetsu, Hokkaido, Japan (© Ida Toshiaki/Minden Pictures)|Happy Thanksgiving from an expert face-stuffer|![](/en-US/2020/11/202011260800ChipmunkThanksgiving.jpg)|
 202011270800|KayakGreenFriday|Kayaking in Glacier National Park, Montana (© Makayla Crist/Cavan)|Green is the new black|![](/en-US/2020/11/202011270800KayakGreenFriday.jpg)|
+202011280800|ValCervara|Partly snow-covered slope in Val Cervara, an old-growth beech forest, Abruzzo, Italy (© Bruno D'Amicis/Minden Pictures)|Europe's oldest beech forest|![](/en-US/2020/11/202011280800ValCervara.jpg)|
