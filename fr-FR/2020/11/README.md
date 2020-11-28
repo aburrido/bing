@@ -28,3 +28,4 @@
 202011252300|ChipmunkJP|Un tamia de Sibérie sur le mont Taisetsu, Hokkaido, Japon (© © plainpicture/Score. by Aflo/Takao Onozato/Aflo)|En attendant Alvin|![](/fr-FR/2020/11/202011252300ChipmunkJP.jpg)|
 202011262300|FirstSnow|Tête de Gorgias (gauche) and Roche Grande (second plan), près d’Entraunes, Alpes-Maritimes, France (© aerial-photos.com/Alamy Stock Photo)|Premières neiges et mélèzes automnaux|![](/fr-FR/2020/11/202011262300FirstSnow.jpg)|
 202011272300|StrasbourgXmas|Guirlandes illuminant les rues de Strasbourg (© Marco Desscouleurs/Adobe Photo Stock)|Noël coûte que coûte|![](/fr-FR/2020/11/202011272300StrasbourgXmas.jpg)|
+202011282300|MountTaranaki|Mont Taranaki, Parc national d’Egmont, île du Nord, Nouvelle-Zélande (© Francesco Vaninetti/plainpicture)|Amoureux éconduit|![](/fr-FR/2020/11/202011282300MountTaranaki.jpg)|

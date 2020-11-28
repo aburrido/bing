@@ -28,3 +28,4 @@
 202011252300|ChipmunkJP|Ein Burunduk im Herbst, Hokkaido, Japan (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|Den Mund nicht zu voll nehmen|![](/de-DE/2020/11/202011252300ChipmunkJP.jpg)|
 202011262300|NaturesWindowLookout|Kalbarri-Nationalpark, Australien (© AWL Images/Offset by Shutterstock)|Welch wunderbares Fenster|![](/de-DE/2020/11/202011262300NaturesWindowLookout.jpg)|
 202011272300|ValCervara|Teilweise schneebedeckter Hang im Val Cervara, einem alten Buchenwald, in den Abruzzen, Italien (© Bruno D'Amicis/Minden Pictures)|Der älteste Buchenwald Europas|![](/de-DE/2020/11/202011272300ValCervara.jpg)|
+202011282300|MountTaranaki|Mount Taranaki, Egmont-Nationalpark, Nordinsel, Neuseeland (© Francesco Vaninetti/plainpicture)|Neuseelands einsamster Berg|![](/de-DE/2020/11/202011282300MountTaranaki.jpg)|
