@@ -28,3 +28,4 @@
 202011250500|CPMall|Ormes d'Amérique bordant le Mall de Central Park, New York (© AWL Images/Danita Delimont)||![](/fr-CA/2020/11/202011250500CPMall.jpg)|
 202011260500|ChipmunkJP|Un tamia de Sibérie, Hokkaido, Japon (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)||![](/fr-CA/2020/11/202011260500ChipmunkJP.jpg)|
 202011270500|NunavutWetlands|Terres humides dans la région de Kitikmeot au Nunavut (© Robert Simmon/NASA)||![](/fr-CA/2020/11/202011270500NunavutWetlands.jpg)|
+202011280500|ValCervara|Pente partiellement enneigée dans le Val Cervara, une ancienne hêtraie, dans les Abruzzes en Italie (© Bruno D'Amicis/Minden Pictures)||![](/fr-CA/2020/11/202011280500ValCervara.jpg)|
