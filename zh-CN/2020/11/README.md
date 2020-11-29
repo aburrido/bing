@@ -29,3 +29,4 @@
 202011261600|NaturesWindowLookout|卡尔巴里国家公园，澳大利亚 (© AWL Images/Offset by Shutterstock)||![](/zh-CN/2020/11/202011261600NaturesWindowLookout.jpg)|
 202011271600|ValCervara|部分被雪覆盖的Val Cervara山坡上的老山毛榉林，意大利蒙帕赛诺 (© Bruno D'Amicis/Minden Pictures)||![](/zh-CN/2020/11/202011271600ValCervara.jpg)|
 202011281600|MountTaranaki|塔拉纳基山，新西兰艾格蒙特国家公园 (© Francesco Vaninetti/plainpicture)||![](/zh-CN/2020/11/202011281600MountTaranaki.jpg)|
+202011291600|EDCScotland|艾琳多南堡，苏格兰 (© CBW/Alamy)||![](/zh-CN/2020/11/202011291600EDCScotland.jpg)|
