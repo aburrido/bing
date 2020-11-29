@@ -29,3 +29,4 @@
 202011260500|ChipmunkJP|A Siberian chipmunk in Hokkaido, Japan (© plainpicture/Score. by Aflo/Takao Onozato/Aflo)|An expert face stuffer|![](/en-CA/2020/11/202011260500ChipmunkJP.jpg)|
 202011270500|NaturesWindowLookout|Kalbarri National Park, Australia (© AWL Images/Offset by Shutterstock)|What a wonderful window|![](/en-CA/2020/11/202011270500NaturesWindowLookout.jpg)|
 202011280500|ValCervara|Partly snow-covered slope in Val Cervara, an old-growth beech forest, in Abruzzo, Italy (© Bruno D'Amicis/Minden Pictures)|Europe's oldest beech forest|![](/en-CA/2020/11/202011280500ValCervara.jpg)|
+202011290500|MountTaranaki|Mount Taranaki, Egmont National Park, North Island, New Zealand (© Francesco Vaninetti/plainpicture)|New Zealand's loneliest mountain|![](/en-CA/2020/11/202011290500MountTaranaki.jpg)|
