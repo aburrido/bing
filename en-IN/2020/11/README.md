@@ -29,3 +29,4 @@
 202011261830|NaturesWindowLookout|Kalbarri National Park, Australia (© AWL Images/Offset by Shutterstock)|A window carved by the wind|![](/en-IN/2020/11/202011261830NaturesWindowLookout.jpg)|
 202011271830|ValCervara|Partly snow-covered slope in Val Cervara, an old-growth beech forest, in Abruzzo, Italy (© Bruno D'Amicis/Minden Pictures)|Europe's oldest beech forest|![](/en-IN/2020/11/202011271830ValCervara.jpg)|
 202011281830|MountTaranaki|Mount Taranaki, Egmont National Park, North Island, New Zealand (© Francesco Vaninetti/plainpicture)|New Zealand's loneliest mountain|![](/en-IN/2020/11/202011281830MountTaranaki.jpg)|
+202011291830|GuruDiyas|Oil lamps on the birth anniversary of Sikh founder Guru Nanak Dev (© REUTERS/Munish Sharma)|Birth anniversary of Guru Nanak Dev Ji|![](/en-IN/2020/11/202011291830GuruDiyas.jpg)|
