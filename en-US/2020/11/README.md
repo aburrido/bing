@@ -29,3 +29,4 @@
 202011260800|ChipmunkThanksgiving|A Siberian chipmunk on Mount Taisetsu, Hokkaido, Japan (© Ida Toshiaki/Minden Pictures)|Happy Thanksgiving from an expert face-stuffer|![](/en-US/2020/11/202011260800ChipmunkThanksgiving.jpg)|
 202011270800|KayakGreenFriday|Kayaking in Glacier National Park, Montana (© Makayla Crist/Cavan)|Green is the new black|![](/en-US/2020/11/202011270800KayakGreenFriday.jpg)|
 202011280800|ValCervara|Partly snow-covered slope in Val Cervara, an old-growth beech forest, Abruzzo, Italy (© Bruno D'Amicis/Minden Pictures)|Europe's oldest beech forest|![](/en-US/2020/11/202011280800ValCervara.jpg)|
+202011290800|MountTaranaki|Mount Taranaki, Egmont National Park, North Island, New Zealand (© Francesco Vaninetti/plainpicture)|New Zealand's loneliest mountain|![](/en-US/2020/11/202011290800MountTaranaki.jpg)|
