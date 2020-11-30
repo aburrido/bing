@@ -30,3 +30,4 @@
 202011271600|ValCervara|部分被雪覆盖的Val Cervara山坡上的老山毛榉林，意大利蒙帕赛诺 (© Bruno D'Amicis/Minden Pictures)||![](/zh-CN/2020/11/202011271600ValCervara.jpg)|
 202011281600|MountTaranaki|塔拉纳基山，新西兰艾格蒙特国家公园 (© Francesco Vaninetti/plainpicture)||![](/zh-CN/2020/11/202011281600MountTaranaki.jpg)|
 202011291600|EDCScotland|艾琳多南堡，苏格兰 (© CBW/Alamy)||![](/zh-CN/2020/11/202011291600EDCScotland.jpg)|
+202011301600|HocesDuraton|杜拉通河谷中的Nuestra Señora de la Hoz老修道院，西班牙塞哥维亚 (© Arco Images GmbH/Alamy)||![](/zh-CN/2020/11/202011301600HocesDuraton.jpg)|
