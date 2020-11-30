@@ -30,3 +30,4 @@
 202011270500|NunavutWetlands|Terres humides dans la région de Kitikmeot au Nunavut (© Robert Simmon/NASA)||![](/fr-CA/2020/11/202011270500NunavutWetlands.jpg)|
 202011280500|ValCervara|Pente partiellement enneigée dans le Val Cervara, une ancienne hêtraie, dans les Abruzzes en Italie (© Bruno D'Amicis/Minden Pictures)||![](/fr-CA/2020/11/202011280500ValCervara.jpg)|
 202011290500|MountTaranaki|Mont Taranaki, parc national d'Egmont, île du Nord, Nouvelle-Zélande (© Francesco Vaninetti/plainpicture)||![](/fr-CA/2020/11/202011290500MountTaranaki.jpg)|
+202011300500|EDCScotland|Le château d'Eilean Donan en Écosse (© CBW/Alamy)||![](/fr-CA/2020/11/202011300500EDCScotland.jpg)|

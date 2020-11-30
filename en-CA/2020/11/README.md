@@ -30,3 +30,4 @@
 202011270500|NaturesWindowLookout|Kalbarri National Park, Australia (© AWL Images/Offset by Shutterstock)|What a wonderful window|![](/en-CA/2020/11/202011270500NaturesWindowLookout.jpg)|
 202011280500|ValCervara|Partly snow-covered slope in Val Cervara, an old-growth beech forest, in Abruzzo, Italy (© Bruno D'Amicis/Minden Pictures)|Europe's oldest beech forest|![](/en-CA/2020/11/202011280500ValCervara.jpg)|
 202011290500|MountTaranaki|Mount Taranaki, Egmont National Park, North Island, New Zealand (© Francesco Vaninetti/plainpicture)|New Zealand's loneliest mountain|![](/en-CA/2020/11/202011290500MountTaranaki.jpg)|
+202011300500|EDCScotland|Eilean Donan Castle in Scotland (© CBW/Alamy)|A water loch-ed castle|![](/en-CA/2020/11/202011300500EDCScotland.jpg)|
