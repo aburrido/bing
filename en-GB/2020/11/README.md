@@ -30,3 +30,4 @@
 202011270000|NaturesWindowLookout|Kalbarri National Park, Western Australia (© AWL Images/Offset by Shutterstock)|A window carved by the wind|![](/en-GB/2020/11/202011270000NaturesWindowLookout.jpg)|
 202011280000|MistyTrees|Leafless trees in the mist at sunrise, Surrey (© plainpicture/Design Pics/Charles Bowman)|Celebrating our trees|![](/en-GB/2020/11/202011280000MistyTrees.jpg)|
 202011290000|MountTaranaki|Mount Taranaki, Egmont National Park, North Island, New Zealand (© Francesco Vaninetti/plainpicture)|New Zealand's loneliest mountain|![](/en-GB/2020/11/202011290000MountTaranaki.jpg)|
+202011300000|StAndrewsCoast|View of the coastline at dusk, Saint Andrews, Fife (© Graham Hutchison/500px/Getty Images)|Sea views from St Andrews|![](/en-GB/2020/11/202011300000StAndrewsCoast.jpg)|
