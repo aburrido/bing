@@ -30,3 +30,4 @@
 202011271500|LochLeum|｢クリート湖｣スコットランド, スカイ島 (© Sebastian Wasek/Sime/eStock Photo)|スコットランドのロッホ|![](/ja-JP/2020/11/202011271500LochLeum.jpg)|
 202011281500|MountTaranaki|｢タラナキ山｣ニュージーランド北島, エグモント国立公園 (© Francesco Vaninetti/plainpicture)|笠をかぶるニュージーランド富士|![](/ja-JP/2020/11/202011281500MountTaranaki.jpg)|
 202011291500|EDCScotland|｢アイリーン・ドナン城｣イギリス, スコットランド (© CBW/Alamy)|スコットランドの古城|![](/ja-JP/2020/11/202011291500EDCScotland.jpg)|
+202011301500|ValCervara|｢ヴァッレ・チェルヴァーラ｣イタリア, アブルッツォ州 (© Bruno D'Amicis/Minden Pictures)|イタリアの世界遺産|![](/ja-JP/2020/11/202011301500ValCervara.jpg)|
