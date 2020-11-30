@@ -30,3 +30,4 @@
 202011272300|StrasbourgXmas|Guirlandes illuminant les rues de Strasbourg (© Marco Desscouleurs/Adobe Photo Stock)|Noël coûte que coûte|![](/fr-FR/2020/11/202011272300StrasbourgXmas.jpg)|
 202011282300|MountTaranaki|Mont Taranaki, Parc national d’Egmont, île du Nord, Nouvelle-Zélande (© Francesco Vaninetti/plainpicture)|Amoureux éconduit|![](/fr-FR/2020/11/202011282300MountTaranaki.jpg)|
 202011292300|EDCScotland|Château d’Eilean Donan en Écosse (© CBW/Alamy)|Sur les hauteurs écossaises|![](/fr-FR/2020/11/202011292300EDCScotland.jpg)|
+202011302300|HocesDuraton|L’ancien monastère de Nuestra Señora de la Hoz dans les gorges de la rivière Duratón, Castille-et-León, Espagne (© Arco Images GmbH/Alamy)|Espace spirituel|![](/fr-FR/2020/11/202011302300HocesDuraton.jpg)|

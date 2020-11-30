@@ -30,3 +30,4 @@
 202011272300|ValCervara|Teilweise schneebedeckter Hang im Val Cervara, einem alten Buchenwald, in den Abruzzen, Italien (© Bruno D'Amicis/Minden Pictures)|Der älteste Buchenwald Europas|![](/de-DE/2020/11/202011272300ValCervara.jpg)|
 202011282300|MountTaranaki|Mount Taranaki, Egmont-Nationalpark, Nordinsel, Neuseeland (© Francesco Vaninetti/plainpicture)|Neuseelands einsamster Berg|![](/de-DE/2020/11/202011282300MountTaranaki.jpg)|
 202011292300|NussknackerBerlin|Nussknacker, Alexanderplatz, Berlin (© dpa picture alliance/Alamy Stock Photo)|Nussknacker-Trio|![](/de-DE/2020/11/202011292300NussknackerBerlin.jpg)|
+202011302300|HocesDuraton|Die Wallfahrtskirche Nuestra Señora de la Hoz in den Schluchten des Flusses Duraton, Segovia, Kastilien und León, Spanien (© Arco Images GmbH/Alamy)|Versteck in der Schlucht|![](/de-DE/2020/11/202011302300HocesDuraton.jpg)|
