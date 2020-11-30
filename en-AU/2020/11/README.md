@@ -30,3 +30,4 @@
 202011271300|ValCervara|Partly snow-covered slope in Val Cervara, an old-growth beech forest, in Abruzzo, Italy (© Bruno D'Amicis/Minden Pictures)|Europe's oldest beech forest|![](/en-AU/2020/11/202011271300ValCervara.jpg)|
 202011281300|MountTaranaki|Mount Taranaki, Egmont National Park, North Island, New Zealand (© Francesco Vaninetti/plainpicture)|New Zealand's loneliest mountain|![](/en-AU/2020/11/202011281300MountTaranaki.jpg)|
 202011291300|EDCScotland|Eilean Donan Castle in Scotland (© CBW/Alamy)|A water loch-ed castle|![](/en-AU/2020/11/202011291300EDCScotland.jpg)|
+202011301300|CronullaTidalBath|Aerial view of Cronulla rock pool with incoming waves, New South Wales (© ai_yoshi/iStock/Getty Images Plus)|Welcome back, summer|![](/en-AU/2020/11/202011301300CronullaTidalBath.jpg)|
