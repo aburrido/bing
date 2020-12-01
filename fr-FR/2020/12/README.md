@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202011302300|HocesDuraton|L’ancien monastère de Nuestra Señora de la Hoz dans les gorges de la rivière Duratón, Castille-et-León, Espagne (© Arco Images GmbH/Alamy)|Espace spirituel|![](/fr-FR/2020/12/202011302300HocesDuraton.jpg)|
+202012012300|PorcupineBay|Cove of Spires dans le parc national des Kenai Fjords, Alaska, États-Unis (© Sekar B/Shutterstock)|Terre d’un autre monde|![](/fr-FR/2020/12/202012012300PorcupineBay.jpg)|
