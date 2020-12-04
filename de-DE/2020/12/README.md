@@ -4,3 +4,4 @@
 202012012300|PorcupineBay|Bucht der Türme im Kenai-Fjords-Nationalpark, Alaska, USA (© Sekar B/Shutterstock)|Schutz für Alaska|![](/de-DE/2020/12/202012012300PorcupineBay.jpg)|
 202012022300|BrasovXmas|Weihnachtsmarkt auf dem Hauptplatz von Braşov, Rumänien (© Alpineguide/Alamy)|Ein Karpaten-Weihnachtsmarkt|![](/de-DE/2020/12/202012022300BrasovXmas.jpg)|
 202012032300|WCDBabyElephant|Afrikanische Elefanten im Addo-Elefanten-Nationalpark, Südafrika (© Robert Harding/Alamy)|Kleiner unter Großen|![](/de-DE/2020/12/202012032300WCDBabyElephant.jpg)|
+202012042300|BenasqueValley|Das Dorf Benasque, Provinz Huesca, Autonome Region Aragón, Spanien (© Miscellaneoustock/Alamy)|Ein malerisches Winterdorf|![](/de-DE/2020/12/202012042300BenasqueValley.jpg)|
