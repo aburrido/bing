@@ -4,3 +4,4 @@
 202012010800|CommonTernsGiving|Common terns sharing a small fish (© Ryzhkov Sergey/Shutterstock)|Giving Tuesday|![](/en-US/2020/12/202012010800CommonTernsGiving.jpg)|
 202012020800|PorcupineBay|Cove of Spires in Kenai Fjords National Park, Alaska (© Sekar B/Shutterstock)|Protecting Alaska|![](/en-US/2020/12/202012020800PorcupineBay.jpg)|
 202012030800|BrasovXmas|Christmas market in the main square of Braşov, Romania (© Alpineguide/Alamy)|A Carpathian Christmas celebration|![](/en-US/2020/12/202012030800BrasovXmas.jpg)|
+202012040800|WCDBabyElephant|African savanna elephants in Addo Elephant National Park, South Africa (© Robert Harding/Alamy)|Protecting wildlife today and tomorrow|![](/en-US/2020/12/202012040800WCDBabyElephant.jpg)|
