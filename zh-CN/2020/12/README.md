@@ -4,3 +4,4 @@
 202012011600|PorcupineBay|基奈峡湾国家公园的尖顶湾，阿拉斯加 (© Sekar B/Shutterstock)||![](/zh-CN/2020/12/202012011600PorcupineBay.jpg)|
 202012021600|BrasovXmas|布拉索夫中央广场的圣诞市集，罗马尼亚 (© Alpineguide/Alamy)||![](/zh-CN/2020/12/202012021600BrasovXmas.jpg)|
 202012031600|WCDBabyElephant|阿多大象国家公园中的非洲象，南非 (© Robert Harding/Alamy)||![](/zh-CN/2020/12/202012031600WCDBabyElephant.jpg)|
+202012041600|BenasqueValley|贝纳斯克，西班牙韦斯卡 (© Miscelleneoustock/Alamy)||![](/zh-CN/2020/12/202012041600BenasqueValley.jpg)|
