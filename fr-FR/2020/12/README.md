@@ -5,3 +5,4 @@
 202012022300|BrasovXmas|Marché de Noël sur la place de Braşov, Roumanie (© Alpineguide/Alamy)|Noël au pas de la porte|![](/fr-FR/2020/12/202012022300BrasovXmas.jpg)|
 202012032300|WCDBabyElephant|Eléphants d’Afrique dans le parc national des éléphants d’Ado, Afrique du Sud (© Robert Harding/Alamy)|Babar et compagnie|![](/fr-FR/2020/12/202012032300WCDBabyElephant.jpg)|
 202012042300|BenasqueValley|Le village de Benasque, Huesca, Espagne (© Miscelleneoustock/Alamy)|Entre culture et aventure|![](/fr-FR/2020/12/202012042300BenasqueValley.jpg)|
+202012052300|PLNP|Sentier surélevé dans le parc national des lacs de Plitvice, Croatie (© Alessandro Laporta/Offset by Shutterstock)|Insoupçonnable Croatie|![](/fr-FR/2020/12/202012052300PLNP.jpg)|
