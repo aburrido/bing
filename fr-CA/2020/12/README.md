@@ -5,3 +5,4 @@
 202012020500|PorcupineBay|Cove of Spires dans le parc national des fjords de Kenai en Alaska (© Sekar B/Shutterstock)||![](/fr-CA/2020/12/202012020500PorcupineBay.jpg)|
 202012030500|BrasovXmas|Marché de Noël sur la place principale de Braşov en Roumanie (© Alpineguide/Alamy)||![](/fr-CA/2020/12/202012030500BrasovXmas.jpg)|
 202012040500|WCDBabyElephant|Éléphants d'Afrique dans le parc national des éléphants d'Addo en Afrique du Sud (© Robert Harding/Alamy)||![](/fr-CA/2020/12/202012040500WCDBabyElephant.jpg)|
+202012050500|BenasqueValley|Le village de Benasque, Huesca, Espagne (© Miscelleneoustock/Alamy)||![](/fr-CA/2020/12/202012050500BenasqueValley.jpg)|
