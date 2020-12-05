@@ -5,3 +5,4 @@
 202012021600|BrasovXmas|布拉索夫中央广场的圣诞市集，罗马尼亚 (© Alpineguide/Alamy)||![](/zh-CN/2020/12/202012021600BrasovXmas.jpg)|
 202012031600|WCDBabyElephant|阿多大象国家公园中的非洲象，南非 (© Robert Harding/Alamy)||![](/zh-CN/2020/12/202012031600WCDBabyElephant.jpg)|
 202012041600|BenasqueValley|贝纳斯克，西班牙韦斯卡 (© Miscelleneoustock/Alamy)||![](/zh-CN/2020/12/202012041600BenasqueValley.jpg)|
+202012051600|PLNP|普利特维采湖群国家公园中的高架步道，克罗地亚 (© Alessandro Laporta/Offset by Shutterstock)||![](/zh-CN/2020/12/202012051600PLNP.jpg)|
