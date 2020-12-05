@@ -5,3 +5,4 @@
 202012021830|BrasovXmas|Christmas Market in Main Square of Braşov, Romania (© Alpineguide/Alamy)|A Carpathian Christmas celebration|![](/en-IN/2020/12/202012021830BrasovXmas.jpg)|
 202012031830|NavyFire|Indian Navy soldiers demonstrate their skills as they play drums during a rehearsal ahead of Navy Day (© Danish Siddiqui/Reuters)|Indian Navy Day celebrations|![](/en-IN/2020/12/202012031830NavyFire.jpg)|
 202012041830|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscelleneoustock/Alamy)|A cozy winter village|![](/en-IN/2020/12/202012041830BenasqueValley.jpg)|
+202012051830|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-IN/2020/12/202012051830PLNP.jpg)|
