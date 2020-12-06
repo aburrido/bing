@@ -6,3 +6,4 @@
 202012030500|BrasovXmas|Christmas Market in Main Square of Braşov, Romania (© Alpineguide/Alamy)|A Carpathian Christmas celebration|![](/en-CA/2020/12/202012030500BrasovXmas.jpg)|
 202012040500|WCDBabyElephant|African elephants in Addo Elephant National Park in South Africa (© Robert Harding/Alamy)|Protecting wildlife today and tomorrow|![](/en-CA/2020/12/202012040500WCDBabyElephant.jpg)|
 202012050500|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscelleneoustock/Alamy)|A cozy winter village|![](/en-CA/2020/12/202012050500BenasqueValley.jpg)|
+202012060500|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-CA/2020/12/202012060500PLNP.jpg)|
