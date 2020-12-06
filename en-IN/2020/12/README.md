@@ -6,3 +6,4 @@
 202012031830|NavyFire|Indian Navy soldiers demonstrate their skills as they play drums during a rehearsal ahead of Navy Day (© Danish Siddiqui/Reuters)|Indian Navy Day celebrations|![](/en-IN/2020/12/202012031830NavyFire.jpg)|
 202012041830|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscelleneoustock/Alamy)|A cozy winter village|![](/en-IN/2020/12/202012041830BenasqueValley.jpg)|
 202012051830|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-IN/2020/12/202012051830PLNP.jpg)|
+202012061830|WCDBabyElephant|African elephants in Addo Elephant National Park in South Africa (© Robert Harding/Alamy)|Protecting wildlife today and tomorrow|![](/en-IN/2020/12/202012061830WCDBabyElephant.jpg)|
