@@ -6,3 +6,4 @@
 202012031600|WCDBabyElephant|阿多大象国家公园中的非洲象，南非 (© Robert Harding/Alamy)||![](/zh-CN/2020/12/202012031600WCDBabyElephant.jpg)|
 202012041600|BenasqueValley|贝纳斯克，西班牙韦斯卡 (© Miscelleneoustock/Alamy)||![](/zh-CN/2020/12/202012041600BenasqueValley.jpg)|
 202012051600|PLNP|普利特维采湖群国家公园中的高架步道，克罗地亚 (© Alessandro Laporta/Offset by Shutterstock)||![](/zh-CN/2020/12/202012051600PLNP.jpg)|
+202012061600|VogelhaeuserD|挂在树上的小鸟舍 (© Westend61/Getty Images)||![](/zh-CN/2020/12/202012061600VogelhaeuserD.jpg)|
