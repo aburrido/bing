@@ -6,3 +6,4 @@
 202012031500|WCDBabyElephant|｢アフリカゾウの家族｣南アフリカ, アドゥ・エレファント国立公園 (© Robert Harding/Alamy)|今日は｢野生動物保護の日｣|![](/ja-JP/2020/12/202012031500WCDBabyElephant.jpg)|
 202012041500|BenasqueValley|｢冬のベナスケ｣スペイン, アラゴン州 (© Miscelleneoustock/Alamy)|ピレネー山脈のふもとの村|![](/ja-JP/2020/12/202012041500BenasqueValley.jpg)|
 202012051500|PLNP|｢プリトヴィツェ湖群国立公園｣クロアチア (© Alessandro Laporta/Offset by Shutterstock)|クロアチアの世界遺産|![](/ja-JP/2020/12/202012051500PLNP.jpg)|
+202012061500|JPMakaque|｢温泉に入るニホンザル｣ (© M. Watson/ardea.c/age fotostock)|今日は｢大雪｣|![](/ja-JP/2020/12/202012061500JPMakaque.jpg)|
