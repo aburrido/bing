@@ -7,3 +7,4 @@
 202012041600|BenasqueValley|贝纳斯克，西班牙韦斯卡 (© Miscelleneoustock/Alamy)||![](/zh-CN/2020/12/202012041600BenasqueValley.jpg)|
 202012051600|PLNP|普利特维采湖群国家公园中的高架步道，克罗地亚 (© Alessandro Laporta/Offset by Shutterstock)||![](/zh-CN/2020/12/202012051600PLNP.jpg)|
 202012061600|VogelhaeuserD|挂在树上的小鸟舍 (© Westend61/Getty Images)||![](/zh-CN/2020/12/202012061600VogelhaeuserD.jpg)|
+202012071600|RoccaCalascio|阿布鲁佐的Rocca Calascio，意大利 (© Francesco Russo/eStock Photo)||![](/zh-CN/2020/12/202012071600RoccaCalascio.jpg)|
