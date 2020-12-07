@@ -7,3 +7,4 @@
 202012041300|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscelleneoustock/Alamy)|A cosy Spanish village|![](/en-AU/2020/12/202012041300BenasqueValley.jpg)|
 202012051300|ElbeBastei|Bastei Bridge above the Elbe river in Saxon Switzerland National Park, Germany (© Reinhard Schmid/eStock Photo)|A bridge that rocks|![](/en-AU/2020/12/202012051300ElbeBastei.jpg)|
 202012061300|VogelhaeuserD|Birdhouses hanging in a tree (© Westend61/Getty Images)|Ready to feed|![](/en-AU/2020/12/202012061300VogelhaeuserD.jpg)|
+202012071300|AusXmasBush|Macro shot of NSW Christmas bush (© Michael Leslie/Shutterstock)|Enjoying some Christmas blooms|![](/en-AU/2020/12/202012071300AusXmasBush.jpg)|
