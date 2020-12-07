@@ -7,3 +7,4 @@
 202012040800|WCDBabyElephant|African savanna elephants in Addo Elephant National Park, South Africa (© Robert Harding/Alamy)|Protecting wildlife today and tomorrow|![](/en-US/2020/12/202012040800WCDBabyElephant.jpg)|
 202012050800|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscellaneoustock/Alamy)|A cozy winter village|![](/en-US/2020/12/202012050800BenasqueValley.jpg)|
 202012060800|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-US/2020/12/202012060800PLNP.jpg)|
+202012070800|WWIIPHDedication|View of the Washington Monument and the National World War II Memorial with its Pearl Harbor Dedication, Washington, DC (© Olga Bogatyrenko/Shutterstock)|In memory of those lost|![](/en-US/2020/12/202012070800WWIIPHDedication.jpg)|
