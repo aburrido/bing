@@ -7,3 +7,4 @@
 202012040500|WCDBabyElephant|African elephants in Addo Elephant National Park in South Africa (© Robert Harding/Alamy)|Protecting wildlife today and tomorrow|![](/en-CA/2020/12/202012040500WCDBabyElephant.jpg)|
 202012050500|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscelleneoustock/Alamy)|A cozy winter village|![](/en-CA/2020/12/202012050500BenasqueValley.jpg)|
 202012060500|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-CA/2020/12/202012060500PLNP.jpg)|
+202012070500|ButchartXmas|Christmas lights at the Butchart Gardens in British Columbia (© James Wheeler/Getty Images)|Magic of Christmas|![](/en-CA/2020/12/202012070500ButchartXmas.jpg)|
