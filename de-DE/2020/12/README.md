@@ -7,3 +7,4 @@
 202012042300|BenasqueValley|Das Dorf Benasque, Provinz Huesca, Autonome Region Aragón, Spanien (© Miscellaneoustock/Alamy)|Ein malerisches Winterdorf|![](/de-DE/2020/12/202012042300BenasqueValley.jpg)|
 202012052300|PLNP|Holzbohlenweg im Nationalpark Plitvicer Seen, Kroatien (© Alessandro Laporta/Offset by Shutterstock)|Ein verstecktes Juwel in Kroatien|![](/de-DE/2020/12/202012052300PLNP.jpg)|
 202012062300|VogelhaeuserD|Vogelhäuschen in einem Baum (© Westend61/Getty Images)|Bereit zur Fütterung|![](/de-DE/2020/12/202012062300VogelhaeuserD.jpg)|
+202012072300|RoccaCalascio|Rocca Calascio in den Abruzzen, Italien (© Francesco Russo/eStock Photo)|Eine Festung im Himmel|![](/de-DE/2020/12/202012072300RoccaCalascio.jpg)|

@@ -7,3 +7,4 @@
 202012042300|BenasqueValley|Le village de Benasque, Huesca, Espagne (© Miscelleneoustock/Alamy)|Entre culture et aventure|![](/fr-FR/2020/12/202012042300BenasqueValley.jpg)|
 202012052300|PLNP|Sentier surélevé dans le parc national des lacs de Plitvice, Croatie (© Alessandro Laporta/Offset by Shutterstock)|Insoupçonnable Croatie|![](/fr-FR/2020/12/202012052300PLNP.jpg)|
 202012062300|FallenLeaves|Feuilles d’automne sur de l’eau gelée, France (© Jean-Philippe Delobelle/Minden Pictures)|L’heure de la résistance|![](/fr-FR/2020/12/202012062300FallenLeaves.jpg)|
+202012072300|RoccaCalascio|Rocca Calascio, les Abruzzes, Italie (© Francesco Russo/eStock Photo)|Une forteresse dans le ciel|![](/fr-FR/2020/12/202012072300RoccaCalascio.jpg)|
