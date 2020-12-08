@@ -8,3 +8,4 @@
 202012051830|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-IN/2020/12/202012051830PLNP.jpg)|
 202012061830|WCDBabyElephant|African elephants in Addo Elephant National Park in South Africa (© Robert Harding/Alamy)|Protecting wildlife today and tomorrow|![](/en-IN/2020/12/202012061830WCDBabyElephant.jpg)|
 202012071830|RoccaCalascio|Rocca Calascio in Abruzzo, Italy (© Francesco Russo/eStock Photo)|A fortress in the sky|![](/en-IN/2020/12/202012071830RoccaCalascio.jpg)|
+202012081830|DecryptionMachine|Bletchley Park bombe code cracking decryption machine, United Kingdom (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-IN/2020/12/202012081830DecryptionMachine.jpg)|
