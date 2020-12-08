@@ -8,3 +8,4 @@
 202012050500|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscelleneoustock/Alamy)|A cozy winter village|![](/en-CA/2020/12/202012050500BenasqueValley.jpg)|
 202012060500|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-CA/2020/12/202012060500PLNP.jpg)|
 202012070500|ButchartXmas|Christmas lights at the Butchart Gardens in British Columbia (© James Wheeler/Getty Images)|Magic of Christmas|![](/en-CA/2020/12/202012070500ButchartXmas.jpg)|
+202012080500|RoccaCalascio|Rocca Calascio in Abruzzo, Italy (© Francesco Russo/eStock Photo)|A fortress in the sky|![](/en-CA/2020/12/202012080500RoccaCalascio.jpg)|

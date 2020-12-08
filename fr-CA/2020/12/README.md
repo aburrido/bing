@@ -8,3 +8,4 @@
 202012050500|BenasqueValley|Le village de Benasque, Huesca, Espagne (© Miscelleneoustock/Alamy)||![](/fr-CA/2020/12/202012050500BenasqueValley.jpg)|
 202012060500|PLNP|Sentier surélevé dans le parc national des lacs de Plitvice, Croatie (© Alessandro Laporta/Offset by Shutterstock)||![](/fr-CA/2020/12/202012060500PLNP.jpg)|
 202012070500|ButchartXmas|Lumières de Noël dans les jardins Butchart en Colombie-Britannique (© James Wheeler/Getty Images)||![](/fr-CA/2020/12/202012070500ButchartXmas.jpg)|
+202012080500|RoccaCalascio|Rocca Calascio dans les Abruzzes, Italie (© Francesco Russo/eStock Photo)||![](/fr-CA/2020/12/202012080500RoccaCalascio.jpg)|
