@@ -8,3 +8,4 @@
 202012052300|PLNP|Holzbohlenweg im Nationalpark Plitvicer Seen, Kroatien (© Alessandro Laporta/Offset by Shutterstock)|Ein verstecktes Juwel in Kroatien|![](/de-DE/2020/12/202012052300PLNP.jpg)|
 202012062300|VogelhaeuserD|Vogelhäuschen in einem Baum (© Westend61/Getty Images)|Bereit zur Fütterung|![](/de-DE/2020/12/202012062300VogelhaeuserD.jpg)|
 202012072300|RoccaCalascio|Rocca Calascio in den Abruzzen, Italien (© Francesco Russo/eStock Photo)|Eine Festung im Himmel|![](/de-DE/2020/12/202012072300RoccaCalascio.jpg)|
+202012082300|Kinkakuji|Kinkaku-ji-Tempel im Winter, Kyoto, Japan (© yoko_ken_chan/Shutterstock)|Der „Goldene Pavillon“|![](/de-DE/2020/12/202012082300Kinkakuji.jpg)|
