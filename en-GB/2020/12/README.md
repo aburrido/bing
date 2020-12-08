@@ -7,3 +7,4 @@
 202012050000|BenasqueValley|The village of Benasque, Huesca, Spain (© Miscellaneoustock/Alamy)|Peak cosiness in the Pyrenees|![](/en-GB/2020/12/202012050000BenasqueValley.jpg)|
 202012060000|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-GB/2020/12/202012060000PLNP.jpg)|
 202012070000|DecryptionMachine|Bombe code-breaking machine, Bletchley Park, Milton Keynes, Buckinghamshire (© Louis Berk/Alamy)|Deciphering an Enigma|![](/en-GB/2020/12/202012070000DecryptionMachine.jpg)|
+202012080000|RoccaCalascio|Rocca Calascio in Abruzzo, Italy (© Francesco Russo/eStock Photo)|A fortress in the sky|![](/en-GB/2020/12/202012080000RoccaCalascio.jpg)|
