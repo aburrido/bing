@@ -9,3 +9,4 @@
 202012060800|PLNP|Elevated path in Plitvice Lakes National Park, Croatia (© Alessandro Laporta/Offset by Shutterstock)|A hidden jewel in Croatia|![](/en-US/2020/12/202012060800PLNP.jpg)|
 202012070800|WWIIPHDedication|View of the Washington Monument and the National World War II Memorial with its Pearl Harbor Dedication, Washington, DC (© Olga Bogatyrenko/Shutterstock)|In memory of those lost|![](/en-US/2020/12/202012070800WWIIPHDedication.jpg)|
 202012080800|RoccaCalascio|Rocca Calascio in Abruzzo, Italy (© Francesco Russo/eStock Photo)|A fortress in the sky|![](/en-US/2020/12/202012080800RoccaCalascio.jpg)|
+202012090800|DecryptionMachine|Bombe code-cracking decryption machine, Bletchley Park, England (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-US/2020/12/202012090800DecryptionMachine.jpg)|
