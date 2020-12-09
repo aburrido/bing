@@ -9,3 +9,4 @@
 202012061600|VogelhaeuserD|挂在树上的小鸟舍 (© Westend61/Getty Images)||![](/zh-CN/2020/12/202012061600VogelhaeuserD.jpg)|
 202012071600|RoccaCalascio|阿布鲁佐的Rocca Calascio，意大利 (© Francesco Russo/eStock Photo)||![](/zh-CN/2020/12/202012071600RoccaCalascio.jpg)|
 202012081600|Kinkakuji|冬天的金阁寺，日本京都 (© yoko_ken_chan/Shutterstock)||![](/zh-CN/2020/12/202012081600Kinkakuji.jpg)|
+202012091600|SleepingArcticFox|正在睡觉的北极狐 (© Menno Schaefer/Getty Images)||![](/zh-CN/2020/12/202012091600SleepingArcticFox.jpg)|
