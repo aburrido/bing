@@ -9,3 +9,4 @@
 202012061500|JPMakaque|｢温泉に入るニホンザル｣ (© M. Watson/ardea.c/age fotostock)|今日は｢大雪｣|![](/ja-JP/2020/12/202012061500JPMakaque.jpg)|
 202012071500|DecryptionMachine|｢ボンベ暗号解読機｣イギリス, ブレッチリー・パーク (© Louis Berk/Alamy)|今週は｢コンピュータサイエンス教育週間｣|![](/ja-JP/2020/12/202012071500DecryptionMachine.jpg)|
 202012081500|RoccaCalascio|｢ロッカ・カラーショ｣イタリア, アブルッツォ州 (© Francesco Russo/eStock Photo)|イタリアの古城|![](/ja-JP/2020/12/202012081500RoccaCalascio.jpg)|
+202012091500|GoldenHall|｢ノーベル賞晩さん会が行われるゴールデンホール｣スウェーデン, ストックホルム (© Mikhail Markovskiy/Shutterstock)|今日は｢ノーベル賞授賞式｣|![](/ja-JP/2020/12/202012091500GoldenHall.jpg)|
