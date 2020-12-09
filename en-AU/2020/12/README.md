@@ -9,3 +9,4 @@
 202012061300|VogelhaeuserD|Birdhouses hanging in a tree (© Westend61/Getty Images)|Ready to feed|![](/en-AU/2020/12/202012061300VogelhaeuserD.jpg)|
 202012071300|AusXmasBush|Macro shot of NSW Christmas bush (© Michael Leslie/Shutterstock)|Enjoying some Christmas blooms|![](/en-AU/2020/12/202012071300AusXmasBush.jpg)|
 202012081300|DecryptionMachine|Bletchley Park bombe code cracking decryption machine, United Kingdom (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-AU/2020/12/202012081300DecryptionMachine.jpg)|
+202012091300|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-AU/2020/12/202012091300SleepingArcticFox.jpg)|
