@@ -10,3 +10,4 @@
 202012071300|AusXmasBush|Macro shot of NSW Christmas bush (© Michael Leslie/Shutterstock)|Enjoying some Christmas blooms|![](/en-AU/2020/12/202012071300AusXmasBush.jpg)|
 202012081300|DecryptionMachine|Bletchley Park bombe code cracking decryption machine, United Kingdom (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-AU/2020/12/202012081300DecryptionMachine.jpg)|
 202012091300|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-AU/2020/12/202012091300SleepingArcticFox.jpg)|
+202012101300|QueenoftheAndes|Queen of the Andes plants with the Cordillera Blanca massif in the background, Peru (© Cyril Ruoso/Minden Pictures)|Mountains fit for a queen|![](/en-AU/2020/12/202012101300QueenoftheAndes.jpg)|
