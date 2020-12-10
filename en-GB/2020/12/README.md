@@ -9,3 +9,4 @@
 202012070000|DecryptionMachine|Bombe code-breaking machine, Bletchley Park, Milton Keynes, Buckinghamshire (© Louis Berk/Alamy)|Deciphering an Enigma|![](/en-GB/2020/12/202012070000DecryptionMachine.jpg)|
 202012080000|RoccaCalascio|Rocca Calascio in Abruzzo, Italy (© Francesco Russo/eStock Photo)|A fortress in the sky|![](/en-GB/2020/12/202012080000RoccaCalascio.jpg)|
 202012090000|SalfordQuays|The Lowry Theatre and Imperial War Museum North, with reflections at Salford Quays, Greater Manchester (© Michelle McMahon/Getty Images)|Which famous street is found here?|![](/en-GB/2020/12/202012090000SalfordQuays.jpg)|
+202012100000|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-GB/2020/12/202012100000SleepingArcticFox.jpg)|
