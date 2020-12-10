@@ -10,3 +10,4 @@
 202012072300|RoccaCalascio|Rocca Calascio, les Abruzzes, Italie (© Francesco Russo/eStock Photo)|Une forteresse dans le ciel|![](/fr-FR/2020/12/202012072300RoccaCalascio.jpg)|
 202012082300|VGE|Valéry Giscard d'Estaing reçoit Paris Match à l'Elysée, Août 1979 (©  GAROFALO Jack/Contributor/Getty Images)|Le monopole du coeur|![](/fr-FR/2020/12/202012082300VGE.jpg)|
 202012092300|SleepingArcticFox|Renard polaire endormi  (© Menno Schaefer/Getty Images)|À quoi rêve-t-il ?|![](/fr-FR/2020/12/202012092300SleepingArcticFox.jpg)|
+202012102300|QueenoftheAndes|Rois des Andes et la Cordillère Blanche en arrière-plan, Pérou (© Cyril Ruoso/Minden Pictures)|La place du roi|![](/fr-FR/2020/12/202012102300QueenoftheAndes.jpg)|
