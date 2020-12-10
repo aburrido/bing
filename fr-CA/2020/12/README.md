@@ -10,3 +10,4 @@
 202012070500|ButchartXmas|Lumières de Noël dans les jardins Butchart en Colombie-Britannique (© James Wheeler/Getty Images)||![](/fr-CA/2020/12/202012070500ButchartXmas.jpg)|
 202012080500|RoccaCalascio|Rocca Calascio dans les Abruzzes, Italie (© Francesco Russo/eStock Photo)||![](/fr-CA/2020/12/202012080500RoccaCalascio.jpg)|
 202012090500|NarniaForest|Forêt enneigée d'épinettes de Norvège au coucher du soleil, Thuringe, Allemagne (© Frank Sommariva/ImageBROKER/Offset by Shutterstock)||![](/fr-CA/2020/12/202012090500NarniaForest.jpg)|
+202012100500|SleepingArcticFox|Renard arctique endormi (© Menno Schaefer/Getty Images)||![](/fr-CA/2020/12/202012100500SleepingArcticFox.jpg)|
