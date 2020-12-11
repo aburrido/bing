@@ -11,3 +11,4 @@
 202012081600|Kinkakuji|冬天的金阁寺，日本京都 (© yoko_ken_chan/Shutterstock)||![](/zh-CN/2020/12/202012081600Kinkakuji.jpg)|
 202012091600|SleepingArcticFox|正在睡觉的北极狐 (© Menno Schaefer/Getty Images)||![](/zh-CN/2020/12/202012091600SleepingArcticFox.jpg)|
 202012101600|QueenoftheAndes|以布兰卡山脉为背景的安地斯皇后（莴氏普亚凤梨），秘鲁 (© Cyril Ruoso/Minden Pictures)||![](/zh-CN/2020/12/202012101600QueenoftheAndes.jpg)|
+202012111600|BractCloseup|一品红叶子特写 (© Charles Floyd/Alamy)||![](/zh-CN/2020/12/202012111600BractCloseup.jpg)|
