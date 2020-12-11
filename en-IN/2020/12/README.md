@@ -11,3 +11,4 @@
 202012081830|DecryptionMachine|Bletchley Park bombe code cracking decryption machine, United Kingdom (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-IN/2020/12/202012081830DecryptionMachine.jpg)|
 202012091830|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-IN/2020/12/202012091830SleepingArcticFox.jpg)|
 202012101830|PuneGhat|Dark clouds over the Western Ghats, Pune (© Shantanu Magdum/EyeEm/Getty Images)|Tribute to the mountains of the world|![](/en-IN/2020/12/202012101830PuneGhat.jpg)|
+202012111830|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-IN/2020/12/202012111830BractCloseup.jpg)|
