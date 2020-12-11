@@ -11,3 +11,4 @@
 202012082300|VGE|Valéry Giscard d'Estaing reçoit Paris Match à l'Elysée, Août 1979 (©  GAROFALO Jack/Contributor/Getty Images)|Le monopole du coeur|![](/fr-FR/2020/12/202012082300VGE.jpg)|
 202012092300|SleepingArcticFox|Renard polaire endormi  (© Menno Schaefer/Getty Images)|À quoi rêve-t-il ?|![](/fr-FR/2020/12/202012092300SleepingArcticFox.jpg)|
 202012102300|QueenoftheAndes|Rois des Andes et la Cordillère Blanche en arrière-plan, Pérou (© Cyril Ruoso/Minden Pictures)|La place du roi|![](/fr-FR/2020/12/202012102300QueenoftheAndes.jpg)|
+202012112300|BractCloseup|Gros plan d’une feuille de Poinsettia (© Charles Floyd/Alamy)|Couleurs de noël|![](/fr-FR/2020/12/202012112300BractCloseup.jpg)|
