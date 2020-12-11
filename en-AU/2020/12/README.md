@@ -11,3 +11,4 @@
 202012081300|DecryptionMachine|Bletchley Park bombe code cracking decryption machine, United Kingdom (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-AU/2020/12/202012081300DecryptionMachine.jpg)|
 202012091300|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-AU/2020/12/202012091300SleepingArcticFox.jpg)|
 202012101300|QueenoftheAndes|Queen of the Andes plants with the Cordillera Blanca massif in the background, Peru (© Cyril Ruoso/Minden Pictures)|Mountains fit for a queen|![](/en-AU/2020/12/202012101300QueenoftheAndes.jpg)|
+202012111300|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-AU/2020/12/202012111300BractCloseup.jpg)|
