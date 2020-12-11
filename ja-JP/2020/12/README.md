@@ -11,3 +11,4 @@
 202012081500|RoccaCalascio|｢ロッカ・カラーショ｣イタリア, アブルッツォ州 (© Francesco Russo/eStock Photo)|イタリアの古城|![](/ja-JP/2020/12/202012081500RoccaCalascio.jpg)|
 202012091500|GoldenHall|｢ノーベル賞晩さん会が行われるゴールデンホール｣スウェーデン, ストックホルム (© Mikhail Markovskiy/Shutterstock)|今日は｢ノーベル賞授賞式｣|![](/ja-JP/2020/12/202012091500GoldenHall.jpg)|
 202012101500|QueenoftheAndes|｢プヤ・ライモンディとブランカ山群｣ペルー (© Cyril Ruoso/Minden Pictures)|今日は｢国際山岳デー｣|![](/ja-JP/2020/12/202012101500QueenoftheAndes.jpg)|
+202012111500|SleepingArcticFox|｢ホッキョクギツネ｣ (© Menno Schaefer/Getty Images)|北極圏の動物たち|![](/ja-JP/2020/12/202012111500SleepingArcticFox.jpg)|
