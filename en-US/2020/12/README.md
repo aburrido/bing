@@ -11,3 +11,4 @@
 202012080800|RoccaCalascio|Rocca Calascio in Abruzzo, Italy (© Francesco Russo/eStock Photo)|A fortress in the sky|![](/en-US/2020/12/202012080800RoccaCalascio.jpg)|
 202012090800|DecryptionMachine|Bombe code-cracking decryption machine, Bletchley Park, England (© Louis Berk/Alamy)|It's Computer Science Education Week|![](/en-US/2020/12/202012090800DecryptionMachine.jpg)|
 202012100800|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-US/2020/12/202012100800SleepingArcticFox.jpg)|
+202012110800|QueenoftheAndes|Queen of the Andes plants with the Cordillera Blanca massif in the background, Peru (© Cyril Ruoso/Minden Pictures)|Mountains fit for a queen|![](/en-US/2020/12/202012110800QueenoftheAndes.jpg)|
