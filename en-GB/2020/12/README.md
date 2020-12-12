@@ -11,3 +11,4 @@
 202012090000|SalfordQuays|The Lowry Theatre and Imperial War Museum North, with reflections at Salford Quays, Greater Manchester (© Michelle McMahon/Getty Images)|Which famous street is found here?|![](/en-GB/2020/12/202012090000SalfordQuays.jpg)|
 202012100000|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-GB/2020/12/202012100000SleepingArcticFox.jpg)|
 202012110000|QueenoftheAndes|Queen of the Andes plants in the Cordillera Blanca mountains, Peru (© Cyril Ruoso/Minden Pictures)|Queen of the Andes|![](/en-GB/2020/12/202012110000QueenoftheAndes.jpg)|
+202012120000|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|Festive foliage|![](/en-GB/2020/12/202012120000BractCloseup.jpg)|
