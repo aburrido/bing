@@ -12,3 +12,4 @@
 202012091600|SleepingArcticFox|正在睡觉的北极狐 (© Menno Schaefer/Getty Images)||![](/zh-CN/2020/12/202012091600SleepingArcticFox.jpg)|
 202012101600|QueenoftheAndes|以布兰卡山脉为背景的安地斯皇后（莴氏普亚凤梨），秘鲁 (© Cyril Ruoso/Minden Pictures)||![](/zh-CN/2020/12/202012101600QueenoftheAndes.jpg)|
 202012111600|BractCloseup|一品红叶子特写 (© Charles Floyd/Alamy)||![](/zh-CN/2020/12/202012111600BractCloseup.jpg)|
+202012121600|PolarExpress|戈尔内格拉特火车站和马特洪峰，瑞士采尔马特 (© coolbiere photograph/Getty Images)||![](/zh-CN/2020/12/202012121600PolarExpress.jpg)|
