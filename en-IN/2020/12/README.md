@@ -12,3 +12,4 @@
 202012091830|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-IN/2020/12/202012091830SleepingArcticFox.jpg)|
 202012101830|PuneGhat|Dark clouds over the Western Ghats, Pune (© Shantanu Magdum/EyeEm/Getty Images)|Tribute to the mountains of the world|![](/en-IN/2020/12/202012101830PuneGhat.jpg)|
 202012111830|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-IN/2020/12/202012111830BractCloseup.jpg)|
+202012121830|PolarExpress|Gornergrat railway station and the Matterhorn in Zermatt, Switzerland (© coolbiere photograph/Getty Images)|The view will stop you in your tracks|![](/en-IN/2020/12/202012121830PolarExpress.jpg)|
