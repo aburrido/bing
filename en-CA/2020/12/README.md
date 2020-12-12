@@ -12,3 +12,4 @@
 202012090500|ParliamentWinter|View of the Parliament Hill in winter, Ottawa (© Thomas Brissiaud/Shutterstock)|Frosty landscapes|![](/en-CA/2020/12/202012090500ParliamentWinter.jpg)|
 202012100500|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-CA/2020/12/202012100500SleepingArcticFox.jpg)|
 202012110500|QueenoftheAndes|Queen of the Andes plants with the Cordillera Blanca massif in the background, Peru (© Cyril Ruoso/Minden Pictures)|Mountains fit for a queen|![](/en-CA/2020/12/202012110500QueenoftheAndes.jpg)|
+202012120500|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-CA/2020/12/202012120500BractCloseup.jpg)|
