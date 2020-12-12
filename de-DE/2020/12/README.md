@@ -12,3 +12,4 @@
 202012092300|SleepingArcticFox|Schlafender Polarfuchs (© Menno Schaefer/Getty Images)|Wovon mag dieser Fuchs träumen?|![](/de-DE/2020/12/202012092300SleepingArcticFox.jpg)|
 202012102300|QueenoftheAndes|Riesenbromelien (Puya raimondii) mit der Cordillera-Blanca-Gebirgskette im Hintergrund, Peru (© Cyril Ruoso/Minden Pictures)|„Königin der Anden“|![](/de-DE/2020/12/202012102300QueenoftheAndes.jpg)|
 202012112300|BractCloseup|Blatt eines Weihnachtssterns in der Nahaufnahme (© Charles Floyd/Alamy)|Was ist hier abgebildet?|![](/de-DE/2020/12/202012112300BractCloseup.jpg)|
+202012122300|PolarExpress|Bahnstation Gornergrat mit dem Matterhorn im Hintergrund, Zermatt, Schweiz (© coolbiere photograph/Getty Images)|Bahnfahren auf 3.089 Meter über dem Meer|![](/de-DE/2020/12/202012122300PolarExpress.jpg)|
