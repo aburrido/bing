@@ -13,3 +13,4 @@
 202012101300|QueenoftheAndes|Queen of the Andes plants with the Cordillera Blanca massif in the background, Peru (© Cyril Ruoso/Minden Pictures)|Mountains fit for a queen|![](/en-AU/2020/12/202012101300QueenoftheAndes.jpg)|
 202012111300|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-AU/2020/12/202012111300BractCloseup.jpg)|
 202012121300|PolarExpress|Gornergrat railway station and the Matterhorn in Zermatt, Switzerland (© coolbiere photograph/Getty Images)|The view will stop you in your tracks|![](/en-AU/2020/12/202012121300PolarExpress.jpg)|
+202012131300|PineGrosbeak|Pine grosbeak (© Peter Lilja/Getty Images)|I see one!|![](/en-AU/2020/12/202012131300PineGrosbeak.jpg)|
