@@ -13,3 +13,4 @@
 202012101500|QueenoftheAndes|｢プヤ・ライモンディとブランカ山群｣ペルー (© Cyril Ruoso/Minden Pictures)|今日は｢国際山岳デー｣|![](/ja-JP/2020/12/202012101500QueenoftheAndes.jpg)|
 202012111500|SleepingArcticFox|｢ホッキョクギツネ｣ (© Menno Schaefer/Getty Images)|北極圏の動物たち|![](/ja-JP/2020/12/202012111500SleepingArcticFox.jpg)|
 202012121500|VogelhaeuserD|｢ツリーに飾られたバードハウス｣ドイツ (© Westend61/Getty Images)|森のクリスマスツリー|![](/ja-JP/2020/12/202012121500VogelhaeuserD.jpg)|
+202012131500|PineGrosbeak|｢ギンザンマシコ｣スウェーデン (© Peter Lilja/Getty Images)|今日から｢クリスマスバードカウント｣|![](/ja-JP/2020/12/202012131500PineGrosbeak.jpg)|
