@@ -13,3 +13,4 @@
 202012100800|SleepingArcticFox|Sleeping Arctic fox (© Menno Schaefer/Getty Images)|What does the fox dream?|![](/en-US/2020/12/202012100800SleepingArcticFox.jpg)|
 202012110800|QueenoftheAndes|Queen of the Andes plants with the Cordillera Blanca massif in the background, Peru (© Cyril Ruoso/Minden Pictures)|Mountains fit for a queen|![](/en-US/2020/12/202012110800QueenoftheAndes.jpg)|
 202012120800|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-US/2020/12/202012120800BractCloseup.jpg)|
+202012130800|PolarExpress|Gornergrat railway station and the Matterhorn in Zermatt, Switzerland (© coolbiere photograph/Getty Images)|The view will stop you in your tracks|![](/en-US/2020/12/202012130800PolarExpress.jpg)|
