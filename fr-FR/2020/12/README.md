@@ -13,3 +13,4 @@
 202012102300|QueenoftheAndes|Rois des Andes et la Cordillère Blanche en arrière-plan, Pérou (© Cyril Ruoso/Minden Pictures)|La place du roi|![](/fr-FR/2020/12/202012102300QueenoftheAndes.jpg)|
 202012112300|BractCloseup|Gros plan d’une feuille de Poinsettia (© Charles Floyd/Alamy)|Couleurs de noël|![](/fr-FR/2020/12/202012112300BractCloseup.jpg)|
 202012122300|PolarExpress|Chemin de fer du Gornergrat et le Cervin à Zermatt, Suisse (© coolbiere photograph/Getty Images)|Tchou Tchou !|![](/fr-FR/2020/12/202012122300PolarExpress.jpg)|
+202012132300|HiddenSun|Le soleil caché par la lune lors de l’éclipse totale de La Higuera, Chili, le 2 juillet 2019 (© AP Photo/Esteban Felix)|Clair obscure|![](/fr-FR/2020/12/202012132300HiddenSun.jpg)|
