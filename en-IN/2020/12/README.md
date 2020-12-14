@@ -14,3 +14,4 @@
 202012111830|BractCloseup|Poinsettia leaf close-up (© Charles Floyd/Alamy)|What are we looking at?|![](/en-IN/2020/12/202012111830BractCloseup.jpg)|
 202012121830|PolarExpress|Gornergrat railway station and the Matterhorn in Zermatt, Switzerland (© coolbiere photograph/Getty Images)|The view will stop you in your tracks|![](/en-IN/2020/12/202012121830PolarExpress.jpg)|
 202012131830|PineGrosbeak|Pine grosbeak (© Peter Lilja/Getty Images)|I see one!|![](/en-IN/2020/12/202012131830PineGrosbeak.jpg)|
+202012141830|ElbeBastei|Bastei Bridge above the Elbe river in Saxon Switzerland National Park, Germany (© Reinhard Schmid/eStock Photo)|A bridge that rocks|![](/en-IN/2020/12/202012141830ElbeBastei.jpg)|
