@@ -14,3 +14,4 @@
 202012110500|QueenoftheAndes|Reines des Andes en avant-plan du massif de la cordillère Blanche, Pérou (© Cyril Ruoso/Minden Pictures)||![](/fr-CA/2020/12/202012110500QueenoftheAndes.jpg)|
 202012120500|BractCloseup|Gros plan sur une feuille de poinsettia (© Charles Floyd/Alamy)||![](/fr-CA/2020/12/202012120500BractCloseup.jpg)|
 202012130500|PolarExpress|La gare du Gornergrat et le mont Cervin à Zermatt, Suisse (© coolbiere photograph/Getty Images)||![](/fr-CA/2020/12/202012130500PolarExpress.jpg)|
+202012140500|PineGrosbeak|Durbec des sapins (© Peter Lilja/Getty Images)||![](/fr-CA/2020/12/202012140500PineGrosbeak.jpg)|
