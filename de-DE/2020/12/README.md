@@ -14,3 +14,4 @@
 202012112300|BractCloseup|Blatt eines Weihnachtssterns in der Nahaufnahme (© Charles Floyd/Alamy)|Was ist hier abgebildet?|![](/de-DE/2020/12/202012112300BractCloseup.jpg)|
 202012122300|PolarExpress|Bahnstation Gornergrat mit dem Matterhorn im Hintergrund, Zermatt, Schweiz (© coolbiere photograph/Getty Images)|Bahnfahren auf 3.089 Meter über dem Meer|![](/de-DE/2020/12/202012122300PolarExpress.jpg)|
 202012132300|HannoverChristmasMarket|Leuchtende Papierhäuschen and Weihnachtssterne auf einem Weihnachtsmarkt in Hannover, Niedersachsen (© Elena Eliachevitch/Getty Images)|Leuchten in der Nacht|![](/de-DE/2020/12/202012132300HannoverChristmasMarket.jpg)|
+202012142300|ElbeBastei|Basteibrücke im Nationalpark Sächsische Schweiz, Sachsen (© Reinhard Schmid/eStock Photo)|Winter an der Bastei|![](/de-DE/2020/12/202012142300ElbeBastei.jpg)|
