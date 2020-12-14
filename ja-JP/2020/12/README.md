@@ -14,3 +14,4 @@
 202012111500|SleepingArcticFox|｢ホッキョクギツネ｣ (© Menno Schaefer/Getty Images)|北極圏の動物たち|![](/ja-JP/2020/12/202012111500SleepingArcticFox.jpg)|
 202012121500|VogelhaeuserD|｢ツリーに飾られたバードハウス｣ドイツ (© Westend61/Getty Images)|森のクリスマスツリー|![](/ja-JP/2020/12/202012121500VogelhaeuserD.jpg)|
 202012131500|PineGrosbeak|｢ギンザンマシコ｣スウェーデン (© Peter Lilja/Getty Images)|今日から｢クリスマスバードカウント｣|![](/ja-JP/2020/12/202012131500PineGrosbeak.jpg)|
+202012141500|BrasovXmas|｢ブラショヴのクリスマスマーケット｣ルーマニア, トランシルヴァニア (© Alpineguide/Alamy)|クリスマスマーケットに行こう|![](/ja-JP/2020/12/202012141500BrasovXmas.jpg)|
