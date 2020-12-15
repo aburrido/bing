@@ -15,3 +15,4 @@
 202012120500|BractCloseup|Gros plan sur une feuille de poinsettia (© Charles Floyd/Alamy)||![](/fr-CA/2020/12/202012120500BractCloseup.jpg)|
 202012130500|PolarExpress|La gare du Gornergrat et le mont Cervin à Zermatt, Suisse (© coolbiere photograph/Getty Images)||![](/fr-CA/2020/12/202012130500PolarExpress.jpg)|
 202012140500|PineGrosbeak|Durbec des sapins (© Peter Lilja/Getty Images)||![](/fr-CA/2020/12/202012140500PineGrosbeak.jpg)|
+202012150500|ElbeBastei|Pont de la Bastei au-dessus de l'Elbe dans le parc national de la Suisse saxonne, Allemagne (© Reinhard Schmid/eStock Photo)||![](/fr-CA/2020/12/202012150500ElbeBastei.jpg)|
