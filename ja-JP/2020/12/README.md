@@ -15,3 +15,4 @@
 202012121500|VogelhaeuserD|｢ツリーに飾られたバードハウス｣ドイツ (© Westend61/Getty Images)|森のクリスマスツリー|![](/ja-JP/2020/12/202012121500VogelhaeuserD.jpg)|
 202012131500|PineGrosbeak|｢ギンザンマシコ｣スウェーデン (© Peter Lilja/Getty Images)|今日から｢クリスマスバードカウント｣|![](/ja-JP/2020/12/202012131500PineGrosbeak.jpg)|
 202012141500|BrasovXmas|｢ブラショヴのクリスマスマーケット｣ルーマニア, トランシルヴァニア (© Alpineguide/Alamy)|クリスマスマーケットに行こう|![](/ja-JP/2020/12/202012141500BrasovXmas.jpg)|
+202012151500|TempleofSaturn|｢サトゥルヌス神殿｣イタリア, ローマ (© Joe Daniel Price/Getty Images)|クリスマスの起源？|![](/ja-JP/2020/12/202012151500TempleofSaturn.jpg)|
