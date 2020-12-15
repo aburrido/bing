@@ -15,3 +15,4 @@
 202012121600|PolarExpress|戈尔内格拉特火车站和马特洪峰，瑞士采尔马特 (© coolbiere photograph/Getty Images)||![](/zh-CN/2020/12/202012121600PolarExpress.jpg)|
 202012131600|PineGrosbeak|松雀 (© Peter Lilja/Getty Images)||![](/zh-CN/2020/12/202012131600PineGrosbeak.jpg)|
 202012141600|ElbeBastei|易北河上的巴斯泰桥，德国撒克逊瑞士国家公园 (© Reinhard Schmid/eStock Photo)||![](/zh-CN/2020/12/202012141600ElbeBastei.jpg)|
+202012151600|MunnarMist|雾气环绕的森林，喀拉拉邦慕那尔市，印度 (© Ahammed Riswan/EyeEm/Getty Images)||![](/zh-CN/2020/12/202012151600MunnarMist.jpg)|
