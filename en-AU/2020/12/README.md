@@ -16,3 +16,4 @@
 202012131300|PineGrosbeak|Pine grosbeak (© Peter Lilja/Getty Images)|I see one!|![](/en-AU/2020/12/202012131300PineGrosbeak.jpg)|
 202012141300|MartinPlaceXmas|Close-up of Christmas tree decorations in Martin Place, Sydney, New South Wales (© Karin de Mamiel/iStock/Getty Images Plus)|It’s beginning to look a lot like Christmas|![](/en-AU/2020/12/202012141300MartinPlaceXmas.jpg)|
 202012151300|Beethoven250|Ludwig van Beethoven sculptures and monument at the Münsterplatz, Bonn, Germany (© dpa/Alamy Live News)|Beethoven's 250th|![](/en-AU/2020/12/202012151300Beethoven250.jpg)|
+202012161300|ENBNutcracker|The English National Ballet's 2016 production of 'The Nutcracker' at the London Coliseum in London, England (© Robbie Jack/Corbis via Getty Images)|A Christmas tradition endures|![](/en-AU/2020/12/202012161300ENBNutcracker.jpg)|
