@@ -16,3 +16,4 @@
 202012132300|HannoverChristmasMarket|Leuchtende Papierhäuschen and Weihnachtssterne auf einem Weihnachtsmarkt in Hannover, Niedersachsen (© Elena Eliachevitch/Getty Images)|Leuchten in der Nacht|![](/de-DE/2020/12/202012132300HannoverChristmasMarket.jpg)|
 202012142300|ElbeBastei|Basteibrücke im Nationalpark Sächsische Schweiz, Sachsen (© Reinhard Schmid/eStock Photo)|Winter an der Bastei|![](/de-DE/2020/12/202012142300ElbeBastei.jpg)|
 202012152300|Beethoven250|Ludwig-van-Beethoven-Skulpturen und Beethoven-Denkmal auf dem Münsterplatz in Bonn, Nordrhein-Westfalen (© dpa/Alamy Live News)|Beethovens 250. Geburtstag|![](/de-DE/2020/12/202012152300Beethoven250.jpg)|
+202012162300|ENBNutcracker|Nussknacker-Aufführung des English National Ballet im Jahr 2016 im London Coliseum, London, England, Vereinigtes Königreich (© Robbie Jack/Corbis via Getty Images)|Wintermärchen zur Weihnachtszeit|![](/de-DE/2020/12/202012162300ENBNutcracker.jpg)|

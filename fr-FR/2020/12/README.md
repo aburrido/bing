@@ -16,3 +16,4 @@
 202012132300|HiddenSun|Le soleil caché par la lune lors de l’éclipse totale de La Higuera, Chili, le 2 juillet 2019 (© AP Photo/Esteban Felix)|Clair obscure|![](/fr-FR/2020/12/202012132300HiddenSun.jpg)|
 202012142300|ElbeBastei|Le pont de la Bastei au-dessus de l’Elbe dans le parc national de la Suisse saxonne, Allemagne (© Reinhard Schmid/eStock Photo)|Un pont d’enfer|![](/fr-FR/2020/12/202012142300ElbeBastei.jpg)|
 202012152300|Beethoven250|Statues de Beethoven et le Monument Beethoven sur la Münsterplatz, Bonn, Allemagne (© dpa/Alamy Live News)|À la gloire d’un génie|![](/fr-FR/2020/12/202012152300Beethoven250.jpg)|
+202012162300|ENBNutcracker|Production 2016 de Casse-Noisette par l’English National Ballet au London Coliseum, Londres, Angleterre (© Robbie Jack/Corbis via Getty Images)|La grâce des étoiles|![](/fr-FR/2020/12/202012162300ENBNutcracker.jpg)|
