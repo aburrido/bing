@@ -17,3 +17,4 @@
 202012140500|PineGrosbeak|Durbec des sapins (© Peter Lilja/Getty Images)||![](/fr-CA/2020/12/202012140500PineGrosbeak.jpg)|
 202012150500|ElbeBastei|Pont de la Bastei au-dessus de l'Elbe dans le parc national de la Suisse saxonne, Allemagne (© Reinhard Schmid/eStock Photo)||![](/fr-CA/2020/12/202012150500ElbeBastei.jpg)|
 202012160500|MunnarMist|Forêt entourée de brume à Munnar dans l’État de Kerala, Indes (© Ahammed Riswan/EyeEm/Getty Images)||![](/fr-CA/2020/12/202012160500MunnarMist.jpg)|
+202012170500|ParliamentWinter|Vue de la colline du Parlement en hiver, Ottawa (© Thomas Brissiaud/Shutterstock)||![](/fr-CA/2020/12/202012170500ParliamentWinter.jpg)|
