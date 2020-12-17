@@ -17,3 +17,4 @@
 202012140800|PineGrosbeak|Pine grosbeak (© Peter Lilja/Getty Images)|I see one!|![](/en-US/2020/12/202012140800PineGrosbeak.jpg)|
 202012150800|ElbeBastei|Bastei Bridge above the Elbe River in Saxon Switzerland National Park, Germany (© Reinhard Schmid/eStock Photo)|A bridge that rocks|![](/en-US/2020/12/202012150800ElbeBastei.jpg)|
 202012160800|Beethoven250|Ludwig van Beethoven sculptures and monument at the Münsterplatz, Bonn, Germany (© dpa/Alamy Live News)|Beethoven's 250th|![](/en-US/2020/12/202012160800Beethoven250.jpg)|
+202012170800|PineconesSwap|Pine cones, Netherlands (© Marcel ter Bekke/Getty Images)|Pining for spring|![](/en-US/2020/12/202012170800PineconesSwap.jpg)|
