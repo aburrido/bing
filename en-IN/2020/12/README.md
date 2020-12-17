@@ -17,3 +17,4 @@
 202012141830|ElbeBastei|Bastei Bridge above the Elbe river in Saxon Switzerland National Park, Germany (© Reinhard Schmid/eStock Photo)|A bridge that rocks|![](/en-IN/2020/12/202012141830ElbeBastei.jpg)|
 202012151830|Beethoven250|Ludwig van Beethoven sculptures and monument at the Münsterplatz, Bonn, Germany (© dpa/Alamy Live News)|Beethoven's 250th|![](/en-IN/2020/12/202012151830Beethoven250.jpg)|
 202012161830|ENBNutcracker|The English National Ballet's 2016 production of 'The Nutcracker' at the London Coliseum in London, England (© Robbie Jack/Corbis via Getty Images)|A holiday tradition endures|![](/en-IN/2020/12/202012161830ENBNutcracker.jpg)|
+202012171830|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the 'Pale Mountains'|![](/en-IN/2020/12/202012171830TreCime.jpg)|
