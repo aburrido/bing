@@ -17,3 +17,4 @@
 202012141500|BrasovXmas|｢ブラショヴのクリスマスマーケット｣ルーマニア, トランシルヴァニア (© Alpineguide/Alamy)|クリスマスマーケットに行こう|![](/ja-JP/2020/12/202012141500BrasovXmas.jpg)|
 202012151500|TempleofSaturn|｢サトゥルヌス神殿｣イタリア, ローマ (© Joe Daniel Price/Getty Images)|クリスマスの起源？|![](/ja-JP/2020/12/202012151500TempleofSaturn.jpg)|
 202012161500|Kinkakuji|｢金閣寺｣京都, 北区 (© M. Watson/ardea.c/age fotostock)|世界遺産｢古都京都の文化財｣の誕生日|![](/ja-JP/2020/12/202012161500Kinkakuji.jpg)|
+202012171500|ReindeerNorway|｢トナカイの群れ｣ノルウェー (© Lena Granefelt/plainpicture)|もうすぐだいじなお仕事の日|![](/ja-JP/2020/12/202012171500ReindeerNorway.jpg)|
