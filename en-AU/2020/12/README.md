@@ -18,3 +18,4 @@
 202012151300|Beethoven250|Ludwig van Beethoven sculptures and monument at the Münsterplatz, Bonn, Germany (© dpa/Alamy Live News)|Beethoven's 250th|![](/en-AU/2020/12/202012151300Beethoven250.jpg)|
 202012161300|ENBNutcracker|The English National Ballet's 2016 production of 'The Nutcracker' at the London Coliseum in London, England (© Robbie Jack/Corbis via Getty Images)|A Christmas tradition endures|![](/en-AU/2020/12/202012161300ENBNutcracker.jpg)|
 202012171300|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the 'Pale Mountains'|![](/en-AU/2020/12/202012171300TreCime.jpg)|
+202012181300|Siguniangshan|Early morning frost on trees in Mount Siguniang National Park in Sichuan Province, China (© Robert Harding World Imagery/Offset by Shutterstock)|Four Sisters, thousands of trees|![](/en-AU/2020/12/202012181300Siguniangshan.jpg)|
