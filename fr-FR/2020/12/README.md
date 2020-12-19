@@ -19,3 +19,4 @@
 202012162300|ENBNutcracker|Production 2016 de Casse-Noisette par l’English National Ballet au London Coliseum, Londres, Angleterre (© Robbie Jack/Corbis via Getty Images)|La grâce des étoiles|![](/fr-FR/2020/12/202012162300ENBNutcracker.jpg)|
 202012172300|TreCime|Tre Cime di Lavaredo vues depuis Forcella Lavaredo, Dolomites, Italie (© AWL Images/Danita Delimont)|Les montagnes pâles|![](/fr-FR/2020/12/202012172300TreCime.jpg)|
 202012182300|Siguniangshan|Givre au petit matin sur les arbres du parc national du mont Siguniang, Sichuan, Chine (© Robert Harding World Imagery/Offset by Shutterstock)|Tout près des pandas|![](/fr-FR/2020/12/202012182300Siguniangshan.jpg)|
+202012192300|BabyGoat|Bébé chèvre des montagnes Rocheuses à l’ouest du Montana (© Donald M. Jones/Minden Pictures)|Fourrure de circonstance|![](/fr-FR/2020/12/202012192300BabyGoat.jpg)|

@@ -19,3 +19,4 @@
 202012162300|ENBNutcracker|Nussknacker-Aufführung des English National Ballet im Jahr 2016 im London Coliseum, London, England, Vereinigtes Königreich (© Robbie Jack/Corbis via Getty Images)|Wintermärchen zur Weihnachtszeit|![](/de-DE/2020/12/202012162300ENBNutcracker.jpg)|
 202012172300|TreCime|Blick vom Paternsattel (Forcella Lavaredo) auf die Drei Zinnen (Tre Cime di Lavaredo), Sextner Dolomiten, Italien (© AWL Images/Danita Delimont)|Überwältigender Blick auf die „bleichen Berge“|![](/de-DE/2020/12/202012172300TreCime.jpg)|
 202012182300|LucerneHoliday|Die Altstadt von Luzern, Schweiz (© Xantana/Getty Images)|Altstadt im vorweihnachtlichen Glanz|![](/de-DE/2020/12/202012182300LucerneHoliday.jpg)|
+202012192300|BabyGoat|Junge Schneeziege im westlichen Montana, USA (© Donald M. Jones/Minden Pictures)|Spaß im Schnee|![](/de-DE/2020/12/202012192300BabyGoat.jpg)|
