@@ -18,3 +18,4 @@
 202012160000|Beethoven250|Ludwig van Beethoven sculptures and monument at the Münsterplatz, Bonn, Germany (© dpa/Alamy Live News)|Beethoven's 250th|![](/en-GB/2020/12/202012160000Beethoven250.jpg)|
 202012170000|ElbeBastei|Bastei Bridge above the Elbe river in Saxon Switzerland National Park, Germany (© Reinhard Schmid/eStock Photo)|A bridge that rocks|![](/en-GB/2020/12/202012170000ElbeBastei.jpg)|
 202012180000|HedgehogHolly|Hedgehog in snowy winter weather, sat on green moss (© Coatsey/Alamy Stock Photo)|A prickly combination|![](/en-GB/2020/12/202012180000HedgehogHolly.jpg)|
+202012190000|Siguniangshan|Morning frost on trees in Mount Siguniang National Park, Sichuan Province, China (© Robert Harding World Imagery/Offset by Shutterstock)|Four Sisters, thousands of trees|![](/en-GB/2020/12/202012190000Siguniangshan.jpg)|
