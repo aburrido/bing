@@ -19,3 +19,4 @@
 202012160500|MunnarMist|Forêt entourée de brume à Munnar dans l’État de Kerala, Indes (© Ahammed Riswan/EyeEm/Getty Images)||![](/fr-CA/2020/12/202012160500MunnarMist.jpg)|
 202012170500|ParliamentWinter|Vue de la colline du Parlement en hiver, Ottawa (© Thomas Brissiaud/Shutterstock)||![](/fr-CA/2020/12/202012170500ParliamentWinter.jpg)|
 202012180500|TreCime|Tre Cime di Lavaredo vus de l’embranchement de Lavaredo, Dolomites de Sesto, Italie (© AWL Images/Danita Delimont)||![](/fr-CA/2020/12/202012180500TreCime.jpg)|
+202012190500|Siguniangshan|Gel matinal sur les arbres du parc national du Mont Siguniang dans la province du Sichuan en Chine (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2020/12/202012190500Siguniangshan.jpg)|
