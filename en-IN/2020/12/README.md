@@ -19,3 +19,4 @@
 202012161830|ENBNutcracker|The English National Ballet's 2016 production of 'The Nutcracker' at the London Coliseum in London, England (© Robbie Jack/Corbis via Getty Images)|A holiday tradition endures|![](/en-IN/2020/12/202012161830ENBNutcracker.jpg)|
 202012171830|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the 'Pale Mountains'|![](/en-IN/2020/12/202012171830TreCime.jpg)|
 202012181830|BascillaGoa|Basilica of Bom Jesus, the most famous church of Old Goa (© Cindy Miller Hopkins/DanitaDelimont.com)|A piece of Goan history|![](/en-IN/2020/12/202012181830BascillaGoa.jpg)|
+202012191830|BabyGoat|Mountain goat kid in western Montana, USA (© Donald M. Jones/Minden Pictures)|Dressed for winter fun|![](/en-IN/2020/12/202012191830BabyGoat.jpg)|
