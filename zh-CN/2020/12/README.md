@@ -19,3 +19,4 @@
 202012161600|NarniaForest|日落时分被雪覆盖的挪威云杉林，德国图林根 (© Frank Sommariva/ImageBROKER/Offset by Shutterstock)||![](/zh-CN/2020/12/202012161600NarniaForest.jpg)|
 202012171600|TreCime|从环绕山峰的小径最高点看到的拉瓦莱多三峰山，意大利 (© AWL Images/Danita Delimont)||![](/zh-CN/2020/12/202012171600TreCime.jpg)|
 202012181600|Siguniangshan|清晨结了霜的树林，中国四姑娘山 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2020/12/202012181600Siguniangshan.jpg)|
+202012191600|BabyGoat|蒙大拿州西部的小雪羊 (© Donald M. Jones/Minden Pictures)||![](/zh-CN/2020/12/202012191600BabyGoat.jpg)|
