@@ -20,3 +20,4 @@
 202012170500|ENBNutcracker|The English National Ballet's 2016 production of 'The Nutcracker' at the London Coliseum in London, England (© Robbie Jack/Corbis via Getty Images)|An enchanting performance|![](/en-CA/2020/12/202012170500ENBNutcracker.jpg)|
 202012180500|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the 'Pale Mountains'|![](/en-CA/2020/12/202012180500TreCime.jpg)|
 202012190500|Siguniangshan|Early morning frost on trees in Mount Siguniang National Park in Sichuan Province, China (© Robert Harding World Imagery/Offset by Shutterstock)|Four Sisters, thousands of trees|![](/en-CA/2020/12/202012190500Siguniangshan.jpg)|
+202012200500|BabyGoat|Mountain goat kid in western Montana (© Donald M. Jones/Minden Pictures)|Dressed for winter fun|![](/en-CA/2020/12/202012200500BabyGoat.jpg)|
