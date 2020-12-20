@@ -20,3 +20,4 @@
 202012170800|PineconesSwap|Pine cones, Netherlands (© Marcel ter Bekke/Getty Images)|Pining for spring|![](/en-US/2020/12/202012170800PineconesSwap.jpg)|
 202012180800|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the 'Pale Mountains'|![](/en-US/2020/12/202012180800TreCime.jpg)|
 202012190800|Siguniangshan|Early morning frost on trees in Mount Siguniang National Park in Sichuan province, China (© Robert Harding World Imagery/Offset by Shutterstock)|Four Sisters, thousands of trees|![](/en-US/2020/12/202012190800Siguniangshan.jpg)|
+202012200800|BabyGoat|Mountain goat kid in western Montana (© Donald M. Jones/Minden Pictures)|Dressed for winter fun|![](/en-US/2020/12/202012200800BabyGoat.jpg)|
