@@ -21,3 +21,4 @@
 202012181830|BascillaGoa|Basilica of Bom Jesus, the most famous church of Old Goa (© Cindy Miller Hopkins/DanitaDelimont.com)|A piece of Goan history|![](/en-IN/2020/12/202012181830BascillaGoa.jpg)|
 202012191830|BabyGoat|Mountain goat kid in western Montana, USA (© Donald M. Jones/Minden Pictures)|Dressed for winter fun|![](/en-IN/2020/12/202012191830BabyGoat.jpg)|
 202012201830|CastleriggStone|Castlerigg Stone Circle near Keswick, Lake District, Cumbria, United Kingdom (© Alan Copson/plainpicture)|Older than Stonehenge?|![](/en-IN/2020/12/202012201830CastleriggStone.jpg)|
+202012211830|HolidayNubble|Holiday lights on Cape Neddick Light in York, Maine, USA (© Walter Bibikow/Alamy)|A holiday beacon of light|![](/en-IN/2020/12/202012211830HolidayNubble.jpg)|
