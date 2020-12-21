@@ -21,3 +21,4 @@
 202012180500|TreCime|Tre Cime di Lavaredo vus de l’embranchement de Lavaredo, Dolomites de Sesto, Italie (© AWL Images/Danita Delimont)||![](/fr-CA/2020/12/202012180500TreCime.jpg)|
 202012190500|Siguniangshan|Gel matinal sur les arbres du parc national du Mont Siguniang dans la province du Sichuan en Chine (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2020/12/202012190500Siguniangshan.jpg)|
 202012200500|BabyGoat|Un chevreau des montagnes dans l'ouest du Montana (© Donald M. Jones/Minden Pictures)||![](/fr-CA/2020/12/202012200500BabyGoat.jpg)|
+202012210500|CastleriggStone|Cromlech de Castlerigg près de Keswick, Lake District, Cumbria, Royaume-Uni (© Alan Copson/plainpicture)||![](/fr-CA/2020/12/202012210500CastleriggStone.jpg)|
