@@ -21,3 +21,4 @@
 202012182300|LucerneHoliday|Die Altstadt von Luzern, Schweiz (© Xantana/Getty Images)|Altstadt im vorweihnachtlichen Glanz|![](/de-DE/2020/12/202012182300LucerneHoliday.jpg)|
 202012192300|BabyGoat|Junge Schneeziege im westlichen Montana, USA (© Donald M. Jones/Minden Pictures)|Spaß im Schnee|![](/de-DE/2020/12/202012192300BabyGoat.jpg)|
 202012202300|CastleriggStone|Steinkreis von Castlerigg in der Nähe von Keswick, Lake District, Cumbria, England, Vereinigtes Königreich (© Alan Copson/plainpicture)|Steinkreis zur Wintersonnenwende|![](/de-DE/2020/12/202012202300CastleriggStone.jpg)|
+202012212300|WildReindeer|Nordlichter und wild lebende Rentiere in der Tundra in Norwegen (© Anton Petrus/Getty Images)|Warmlaufen für Weihnachten|![](/de-DE/2020/12/202012212300WildReindeer.jpg)|
