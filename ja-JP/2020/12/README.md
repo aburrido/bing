@@ -21,3 +21,4 @@
 202012181500|ENBNutcracker|｢くるみ割り人形｣イギリス, ロンドン (© Robbie Jack/Corbis via Getty Images)|聖夜の夢のお語です|![](/ja-JP/2020/12/202012181500ENBNutcracker.jpg)|
 202012191500|WarsawXmas|｢クリスマス・イルミネーション」ポーランド, ワルシャワ (© David Milsen/Alamy)|ワルシャワのイルミネーション|![](/ja-JP/2020/12/202012191500WarsawXmas.jpg)|
 202012201500|CastleriggStone|｢キャッスルリグのストーンサークル｣イギリス, カンブリア州湖水地方 (© Alan Copson/plainpicture)|今日は｢冬至｣|![](/ja-JP/2020/12/202012201500CastleriggStone.jpg)|
+202012211500|HolidayNubble|｢ケープネディック灯台のライトアップ｣米国,メイン州 (© Walter Bibikow/Alamy)|灯台のクリスマス|![](/ja-JP/2020/12/202012211500HolidayNubble.jpg)|
