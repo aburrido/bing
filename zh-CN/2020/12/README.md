@@ -21,3 +21,4 @@
 202012181600|Siguniangshan|清晨结了霜的树林，中国四姑娘山 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2020/12/202012181600Siguniangshan.jpg)|
 202012191600|BabyGoat|蒙大拿州西部的小雪羊 (© Donald M. Jones/Minden Pictures)||![](/zh-CN/2020/12/202012191600BabyGoat.jpg)|
 202012201600|CastleriggStone|凯西克附近的Castlerigg石圈，英国坎布里亚 (© Alan Copson/plainpicture)||![](/zh-CN/2020/12/202012201600CastleriggStone.jpg)|
+202012211600|HolidayNubble|涅迪克角灯塔上的节日彩灯，缅因州 (© Walter Bibikow/Alamy)||![](/zh-CN/2020/12/202012211600HolidayNubble.jpg)|
