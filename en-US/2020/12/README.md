@@ -21,3 +21,4 @@
 202012180800|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the 'Pale Mountains'|![](/en-US/2020/12/202012180800TreCime.jpg)|
 202012190800|Siguniangshan|Early morning frost on trees in Mount Siguniang National Park in Sichuan province, China (© Robert Harding World Imagery/Offset by Shutterstock)|Four Sisters, thousands of trees|![](/en-US/2020/12/202012190800Siguniangshan.jpg)|
 202012200800|BabyGoat|Mountain goat kid in western Montana (© Donald M. Jones/Minden Pictures)|Dressed for winter fun|![](/en-US/2020/12/202012200800BabyGoat.jpg)|
+202012210800|CastleriggStone|Castlerigg stone circle near Keswick, Lake District, Cumbria, United Kingdom (© Alan Copson/plainpicture)|Shadows on the solstice|![](/en-US/2020/12/202012210800CastleriggStone.jpg)|
