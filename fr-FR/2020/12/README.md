@@ -22,3 +22,4 @@
 202012192300|BabyGoat|Bébé chèvre des montagnes Rocheuses à l’ouest du Montana (© Donald M. Jones/Minden Pictures)|Fourrure de circonstance|![](/fr-FR/2020/12/202012192300BabyGoat.jpg)|
 202012202300|IceCave|Grotte de la Mer de Glace, Chamonix, France (© z_m photo/Adobe Stock)|Un glacier en sursis|![](/fr-FR/2020/12/202012202300IceCave.jpg)|
 202012212300|HolidayNubble|Lumières de Noël sur le phare de Cape Neddick à York, Maine, États-Unis (© Walter Bibikow/Alamy)|Phare de Noël|![](/fr-FR/2020/12/202012212300HolidayNubble.jpg)|
+202012222300|BandedPipefish|Poisson-tuyau zébré près de Moalboal, Philippines (© Jenna Szerlag/Alamy)|Nage de saison|![](/fr-FR/2020/12/202012222300BandedPipefish.jpg)|
