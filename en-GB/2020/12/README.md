@@ -21,3 +21,4 @@
 202012190000|Siguniangshan|Morning frost on trees in Mount Siguniang National Park, Sichuan Province, China (© Robert Harding World Imagery/Offset by Shutterstock)|Four Sisters, thousands of trees|![](/en-GB/2020/12/202012190000Siguniangshan.jpg)|
 202012200000|BabyGoat|Mountain goat kid in western Montana, USA (© Donald M. Jones/Minden Pictures)|Wrapping up warm for winter|![](/en-GB/2020/12/202012200000BabyGoat.jpg)|
 202012210000|CastleriggStone|Castlerigg Stone Circle near Keswick, Lake District, Cumbria (© Alan Copson/plainpicture)|Shadows on the solstice|![](/en-GB/2020/12/202012210000CastleriggStone.jpg)|
+202012220000|HolidayNubble|Christmas lights on Cape Neddick Light in York, Maine, USA (© Walter Bibikow/Alamy)|Lighting up a lighthouse|![](/en-GB/2020/12/202012220000HolidayNubble.jpg)|
