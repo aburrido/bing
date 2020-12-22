@@ -22,3 +22,4 @@
 202012191600|BabyGoat|蒙大拿州西部的小雪羊 (© Donald M. Jones/Minden Pictures)||![](/zh-CN/2020/12/202012191600BabyGoat.jpg)|
 202012201600|CastleriggStone|凯西克附近的Castlerigg石圈，英国坎布里亚 (© Alan Copson/plainpicture)||![](/zh-CN/2020/12/202012201600CastleriggStone.jpg)|
 202012211600|HolidayNubble|涅迪克角灯塔上的节日彩灯，缅因州 (© Walter Bibikow/Alamy)||![](/zh-CN/2020/12/202012211600HolidayNubble.jpg)|
+202012221600|BandedPipefish|莫阿尔博阿尔附近的带纹矛吻海龙，菲律宾 (© Jenna Szerlag/Alamy)||![](/zh-CN/2020/12/202012221600BandedPipefish.jpg)|
