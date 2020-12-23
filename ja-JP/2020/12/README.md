@@ -23,3 +23,4 @@
 202012201500|CastleriggStone|｢キャッスルリグのストーンサークル｣イギリス, カンブリア州湖水地方 (© Alan Copson/plainpicture)|今日は｢冬至｣|![](/ja-JP/2020/12/202012201500CastleriggStone.jpg)|
 202012211500|HolidayNubble|｢ケープネディック灯台のライトアップ｣米国,メイン州 (© Walter Bibikow/Alamy)|灯台のクリスマス|![](/ja-JP/2020/12/202012211500HolidayNubble.jpg)|
 202012221500|Xmastokyo|｢東京ドームのイルミネーション｣東京, 文京区 (© REUTERS/Yuya Shino)|夜の遊園地は光の世界|![](/ja-JP/2020/12/202012221500Xmastokyo.jpg)|
+202012231500|WildReindeer|｢オーロラとトナカイ｣ノルウェー (© Anton Petrus/Getty Images)|今宵は｢クリスマスイブ｣|![](/ja-JP/2020/12/202012231500WildReindeer.jpg)|
