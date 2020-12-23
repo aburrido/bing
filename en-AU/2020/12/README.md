@@ -23,3 +23,4 @@
 202012201300|CastleriggStone|Castlerigg Stone Circle near Keswick, Lake District, Cumbria, United Kingdom (© Alan Copson/plainpicture)|Older than Stonehenge?|![](/en-AU/2020/12/202012201300CastleriggStone.jpg)|
 202012211300|HolidayNubble|Holiday lights on Cape Neddick Light in York, Maine, USA (© Walter Bibikow/Alamy)|A Christmas beacon of light|![](/en-AU/2020/12/202012211300HolidayNubble.jpg)|
 202012221300|BandedPipefish|Banded pipefish near Moalboal, Philippines (© Jenna Szerlag/Alamy)|Swimming into the season|![](/en-AU/2020/12/202012221300BandedPipefish.jpg)|
+202012231300|WildReindeer|Northern lights and wild reindeer on the tundra in Norway (© Anton Petrus/Getty Images)|Hey, don't you guys have somewhere to be?|![](/en-AU/2020/12/202012231300WildReindeer.jpg)|
