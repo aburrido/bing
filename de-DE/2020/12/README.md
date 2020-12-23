@@ -23,3 +23,4 @@
 202012202300|CastleriggStone|Steinkreis von Castlerigg in der Nähe von Keswick, Lake District, Cumbria, England, Vereinigtes Königreich (© Alan Copson/plainpicture)|Steinkreis zur Wintersonnenwende|![](/de-DE/2020/12/202012202300CastleriggStone.jpg)|
 202012212300|WildReindeer|Nordlichter und wild lebende Rentiere in der Tundra in Norwegen (© Anton Petrus/Getty Images)|Warmlaufen für Weihnachten|![](/de-DE/2020/12/202012212300WildReindeer.jpg)|
 202012222300|BandedPipefish|Gebänderte Seenadel in der Nähe von Moalboal, Philippinen (© Jenna Szerlag/Alamy)|Aquatischer Weihnachtsbaumschmuck?|![](/de-DE/2020/12/202012222300BandedPipefish.jpg)|
+202012232300|MariaRastKruen|Kapelle Maria Rast bei Krün in Bayern mit dem Wettersteingebirge im Hintergrund (© Reinhard Schmid/Huber/eStock Photo)|Fröhliche Weihnachten!|![](/de-DE/2020/12/202012232300MariaRastKruen.jpg)|
