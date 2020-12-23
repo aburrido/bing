@@ -22,3 +22,4 @@
 202012200000|BabyGoat|Mountain goat kid in western Montana, USA (© Donald M. Jones/Minden Pictures)|Wrapping up warm for winter|![](/en-GB/2020/12/202012200000BabyGoat.jpg)|
 202012210000|CastleriggStone|Castlerigg Stone Circle near Keswick, Lake District, Cumbria (© Alan Copson/plainpicture)|Shadows on the solstice|![](/en-GB/2020/12/202012210000CastleriggStone.jpg)|
 202012220000|HolidayNubble|Christmas lights on Cape Neddick Light in York, Maine, USA (© Walter Bibikow/Alamy)|Lighting up a lighthouse|![](/en-GB/2020/12/202012220000HolidayNubble.jpg)|
+202012230000|BandedPipefish|Banded pipefish near Moalboal, Philippines (© Jenna Szerlag/Alamy)|Swimming into the season|![](/en-GB/2020/12/202012230000BandedPipefish.jpg)|
