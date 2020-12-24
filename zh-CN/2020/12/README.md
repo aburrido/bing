@@ -24,3 +24,4 @@
 202012211600|HolidayNubble|涅迪克角灯塔上的节日彩灯，缅因州 (© Walter Bibikow/Alamy)||![](/zh-CN/2020/12/202012211600HolidayNubble.jpg)|
 202012221600|BandedPipefish|莫阿尔博阿尔附近的带纹矛吻海龙，菲律宾 (© Jenna Szerlag/Alamy)||![](/zh-CN/2020/12/202012221600BandedPipefish.jpg)|
 202012231600|WildReindeer|挪威苔原上的北极光和野生驯鹿 (© Anton Petrus/Getty Images)||![](/zh-CN/2020/12/202012231600WildReindeer.jpg)|
+202012241600|FRbluebirds|雪中的蓝山雀和大山雀，法国北孚日地区自然公园 (© Michel Rauch/Minden Pictures)||![](/zh-CN/2020/12/202012241600FRbluebirds.jpg)|
