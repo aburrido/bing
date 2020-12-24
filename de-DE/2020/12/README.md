@@ -24,3 +24,4 @@
 202012212300|WildReindeer|Nordlichter und wild lebende Rentiere in der Tundra in Norwegen (© Anton Petrus/Getty Images)|Warmlaufen für Weihnachten|![](/de-DE/2020/12/202012212300WildReindeer.jpg)|
 202012222300|BandedPipefish|Gebänderte Seenadel in der Nähe von Moalboal, Philippinen (© Jenna Szerlag/Alamy)|Aquatischer Weihnachtsbaumschmuck?|![](/de-DE/2020/12/202012222300BandedPipefish.jpg)|
 202012232300|MariaRastKruen|Kapelle Maria Rast bei Krün in Bayern mit dem Wettersteingebirge im Hintergrund (© Reinhard Schmid/Huber/eStock Photo)|Fröhliche Weihnachten!|![](/de-DE/2020/12/202012232300MariaRastKruen.jpg)|
+202012242300|SleighMailbox|Der große Schlitten und der riesige Briefkasten des Weihnachtsmanns in Ilulissat, Grönland (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|Große Träume erfordern einen großen Schlitten|![](/de-DE/2020/12/202012242300SleighMailbox.jpg)|

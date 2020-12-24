@@ -24,3 +24,4 @@
 202012212300|HolidayNubble|Lumières de Noël sur le phare de Cape Neddick à York, Maine, États-Unis (© Walter Bibikow/Alamy)|Phare de Noël|![](/fr-FR/2020/12/202012212300HolidayNubble.jpg)|
 202012222300|BandedPipefish|Poisson-tuyau zébré près de Moalboal, Philippines (© Jenna Szerlag/Alamy)|Nage de saison|![](/fr-FR/2020/12/202012222300BandedPipefish.jpg)|
 202012232300|WildReindeer|Aurore boréale et rennes sauvage dans la toundra en Norvège (© Anton Petrus/Getty Images)|En route pour la distribution de cadeaux|![](/fr-FR/2020/12/202012232300WildReindeer.jpg)|
+202012242300|SleighMailbox|Le traîneau géant du Père Noël et sa boîte aux lettres, Ilulissat, Groenland (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|Le grand jour|![](/fr-FR/2020/12/202012242300SleighMailbox.jpg)|
