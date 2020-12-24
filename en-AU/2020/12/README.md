@@ -25,3 +25,4 @@
 202012221300|BandedPipefish|Banded pipefish near Moalboal, Philippines (© Jenna Szerlag/Alamy)|Swimming into the season|![](/en-AU/2020/12/202012221300BandedPipefish.jpg)|
 202012231300|WildReindeer|Northern lights and wild reindeer on the tundra in Norway (© Anton Petrus/Getty Images)|Hey, don't you guys have somewhere to be?|![](/en-AU/2020/12/202012231300WildReindeer.jpg)|
 ||||![](/en-AU/2020/12/.jpg)|
+202012241300|ChristmasSandman|Australian Christmas sandman with decorations on Bondi Beach, NSW (© fogaas/iStock/Getty Images Plus)|Warm Christmas wishes|![](/en-AU/2020/12/202012241300ChristmasSandman.jpg)|
