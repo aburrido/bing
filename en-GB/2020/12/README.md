@@ -23,3 +23,4 @@
 202012210000|CastleriggStone|Castlerigg Stone Circle near Keswick, Lake District, Cumbria (© Alan Copson/plainpicture)|Shadows on the solstice|![](/en-GB/2020/12/202012210000CastleriggStone.jpg)|
 202012220000|HolidayNubble|Christmas lights on Cape Neddick Light in York, Maine, USA (© Walter Bibikow/Alamy)|Lighting up a lighthouse|![](/en-GB/2020/12/202012220000HolidayNubble.jpg)|
 202012230000|BandedPipefish|Banded pipefish near Moalboal, Philippines (© Jenna Szerlag/Alamy)|Swimming into the season|![](/en-GB/2020/12/202012230000BandedPipefish.jpg)|
+202012240000|WildReindeer|Northern lights and wild reindeer on the tundra in Norway (© Anton Petrus/Getty Images)|Running late guys?|![](/en-GB/2020/12/202012240000WildReindeer.jpg)|
