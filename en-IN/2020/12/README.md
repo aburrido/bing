@@ -25,3 +25,4 @@
 202012221830|BandedPipefish|Banded pipefish near Moalboal, Philippines (© Jenna Szerlag/Alamy)|Swimming into the season|![](/en-IN/2020/12/202012221830BandedPipefish.jpg)|
 202012231830|WildReindeer|Northern lights and wild reindeer on the tundra in Norway (© Anton Petrus/Getty Images)|Hey, don't you guys have somewhere to be?|![](/en-IN/2020/12/202012231830WildReindeer.jpg)|
 202012241830|PaperStars|Colourful Christmas stars on sale in a market in Kerala (© Santosh Varky/Alamy Stock Photo)|We wish you a merry Christmas!|![](/en-IN/2020/12/202012241830PaperStars.jpg)|
+202012251830|BarnettsDemesne|Families play on the snow-covered slopes at Barnett Demesne Park, Belfast, Northern Ireland (© Stephen Barnes/Alamy)|Happy Boxing Day!|![](/en-IN/2020/12/202012251830BarnettsDemesne.jpg)|
