@@ -25,3 +25,4 @@
 202012221600|BandedPipefish|莫阿尔博阿尔附近的带纹矛吻海龙，菲律宾 (© Jenna Szerlag/Alamy)||![](/zh-CN/2020/12/202012221600BandedPipefish.jpg)|
 202012231600|WildReindeer|挪威苔原上的北极光和野生驯鹿 (© Anton Petrus/Getty Images)||![](/zh-CN/2020/12/202012231600WildReindeer.jpg)|
 202012241600|FRbluebirds|雪中的蓝山雀和大山雀，法国北孚日地区自然公园 (© Michel Rauch/Minden Pictures)||![](/zh-CN/2020/12/202012241600FRbluebirds.jpg)|
+202012251600|BarnettsDemesne|Barnett Demesne公园中在白雪覆盖的山坡上玩耍的一家，北爱尔兰贝尔法斯特 (© Stephen Barnes/Alamy)||![](/zh-CN/2020/12/202012251600BarnettsDemesne.jpg)|
