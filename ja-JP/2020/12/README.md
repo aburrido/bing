@@ -25,3 +25,4 @@
 202012221500|Xmastokyo|｢東京ドームのイルミネーション｣東京, 文京区 (© REUTERS/Yuya Shino)|夜の遊園地は光の世界|![](/ja-JP/2020/12/202012221500Xmastokyo.jpg)|
 202012231500|WildReindeer|｢オーロラとトナカイ｣ノルウェー (© Anton Petrus/Getty Images)|今宵は｢クリスマスイブ｣|![](/ja-JP/2020/12/202012231500WildReindeer.jpg)|
 202012241500|SleighMailbox|｢サンタのそりと郵便受け｣グリーンランド, イルリサット (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|グリーンランドからメリークリスマス！|![](/ja-JP/2020/12/202012241500SleighMailbox.jpg)|
+202012251500|BabyGoat|｢シロイワヤギの仔｣米国, モンタナ州西部 (© Donald M. Jones/Minden Pictures)|ふかふか毛皮であったかいよ|![](/ja-JP/2020/12/202012251500BabyGoat.jpg)|
