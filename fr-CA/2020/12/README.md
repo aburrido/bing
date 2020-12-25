@@ -25,3 +25,4 @@
 202012220500|HolidayNubble|Lumières de Noël sur le phare du Cap Neddick à York, Maine (© Walter Bibikow/Alamy)||![](/fr-CA/2020/12/202012220500HolidayNubble.jpg)|
 202012230500|BandedPipefish|Poisson-tuyau zébré près de Moalboal, Philippines (© Jenna Szerlag/Alamy)||![](/fr-CA/2020/12/202012230500BandedPipefish.jpg)|
 202012240500|WildReindeer|Aurore boréale et rennes sauvages dans la toundra en Norvège (© Anton Petrus/Getty Images)||![](/fr-CA/2020/12/202012240500WildReindeer.jpg)|
+202012250500|ChateauQuebec|Rue Saint-Denis et Château Frontenac à Québec (© Yves Marcoux/First Light/Alamy Stock Photo)||![](/fr-CA/2020/12/202012250500ChateauQuebec.jpg)|

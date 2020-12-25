@@ -25,3 +25,4 @@
 202012220500|HolidayNubble|Holiday lights on Cape Neddick Light in York, Maine (© Walter Bibikow/Alamy)|A holiday beacon of light|![](/en-CA/2020/12/202012220500HolidayNubble.jpg)|
 202012230500|BandedPipefish|Banded pipefish near Moalboal, Philippines (© Jenna Szerlag/Alamy)|Swimming into the season|![](/en-CA/2020/12/202012230500BandedPipefish.jpg)|
 202012240500|WildReindeer|Northern lights and wild reindeer on the tundra in Norway (© Anton Petrus/Getty Images)|Hey, don't you guys have somewhere to be?|![](/en-CA/2020/12/202012240500WildReindeer.jpg)|
+202012250500|SleighMailbox|Santa's giant sleigh and mailbox, Ilulissat, Greenland (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|Big dreams require a big sleigh|![](/en-CA/2020/12/202012250500SleighMailbox.jpg)|
