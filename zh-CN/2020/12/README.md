@@ -26,3 +26,4 @@
 202012231600|WildReindeer|挪威苔原上的北极光和野生驯鹿 (© Anton Petrus/Getty Images)||![](/zh-CN/2020/12/202012231600WildReindeer.jpg)|
 202012241600|FRbluebirds|雪中的蓝山雀和大山雀，法国北孚日地区自然公园 (© Michel Rauch/Minden Pictures)||![](/zh-CN/2020/12/202012241600FRbluebirds.jpg)|
 202012251600|BarnettsDemesne|Barnett Demesne公园中在白雪覆盖的山坡上玩耍的一家，北爱尔兰贝尔法斯特 (© Stephen Barnes/Alamy)||![](/zh-CN/2020/12/202012251600BarnettsDemesne.jpg)|
+202012261600|IbonPlan|比利牛斯山脉中的高山湖Ibón de Plan，西班牙韦斯卡 (© Getty Images)||![](/zh-CN/2020/12/202012261600IbonPlan.jpg)|
