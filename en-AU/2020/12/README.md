@@ -27,3 +27,4 @@
 ||||![](/en-AU/2020/12/.jpg)|
 202012241300|ChristmasSandman|Australian Christmas sandman with decorations on Bondi Beach, NSW (© fogaas/iStock/Getty Images Plus)|Warm Christmas wishes|![](/en-AU/2020/12/202012241300ChristmasSandman.jpg)|
 202012251300|BarnettsDemesne|Families play on the snow-covered slopes at Barnett Demesne Park, Belfast, Northern Ireland (© Stephen Barnes/Alamy)|Happy Boxing Day!|![](/en-AU/2020/12/202012251300BarnettsDemesne.jpg)|
+202012261300|NabananoSato|Nabana no Sato garden at night in Kuwana, Japan (© Zoonar GmbH/Alamy)|Turning darkness into light|![](/en-AU/2020/12/202012261300NabananoSato.jpg)|
