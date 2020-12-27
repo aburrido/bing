@@ -27,3 +27,4 @@
 202012240800|WildReindeer|Northern lights and wild reindeer on the tundra in Norway (© Anton Petrus/Getty Images)|Hey, don't you guys have somewhere to be?|![](/en-US/2020/12/202012240800WildReindeer.jpg)|
 202012250800|SleighMailbox|Santa's giant sleigh and mailbox, Ilulissat, Greenland (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|Big dreams require a big sleigh|![](/en-US/2020/12/202012250800SleighMailbox.jpg)|
 202012260800|BarnettsDemesne|Families play on the snow-covered slopes at Barnett Demesne Park, Belfast, Northern Ireland (© Stephen Barnes/Alamy)|Happy Boxing Day!|![](/en-US/2020/12/202012260800BarnettsDemesne.jpg)|
+202012270800|NabananoSato|Nabana no Sato garden at night in Kuwana, Japan (© Zoonar GmbH/Alamy)|Turning darkness into light|![](/en-US/2020/12/202012270800NabananoSato.jpg)|
