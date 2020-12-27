@@ -27,3 +27,4 @@
 202012240500|WildReindeer|Aurore boréale et rennes sauvages dans la toundra en Norvège (© Anton Petrus/Getty Images)||![](/fr-CA/2020/12/202012240500WildReindeer.jpg)|
 202012250500|ChateauQuebec|Rue Saint-Denis et Château Frontenac à Québec (© Yves Marcoux/First Light/Alamy Stock Photo)||![](/fr-CA/2020/12/202012250500ChateauQuebec.jpg)|
 202012260500|BarnettsDemesne|Des familles jouent sur les pentes enneigées du parc Barnett Demesne à Belfast en Irlande du Nord (© Stephen Barnes/Alamy)||![](/fr-CA/2020/12/202012260500BarnettsDemesne.jpg)|
+202012270500|WhistlerSnow|Surfeur des neiges à Whistler, C.-B. (© John Crux/Alamy Stock Photo)||![](/fr-CA/2020/12/202012270500WhistlerSnow.jpg)|
