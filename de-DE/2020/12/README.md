@@ -27,3 +27,4 @@
 202012242300|SleighMailbox|Der große Schlitten und der riesige Briefkasten des Weihnachtsmanns in Ilulissat, Grönland (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|Große Träume erfordern einen großen Schlitten|![](/de-DE/2020/12/202012242300SleighMailbox.jpg)|
 202012252300|BarnettsDemesne|Familien spielen an den schneebedeckten Hängen im Barnett Demesne Park in Belfast, Nordirland (© Stephen Barnes/Alamy)|Wintervergnügen am „Boxing Day“|![](/de-DE/2020/12/202012252300BarnettsDemesne.jpg)|
 202012262300|NabananoSato|Nabana-No-Sato-Blumenpark, Kuwana, Japan (© Zoonar GmbH/Alamy)|Faszinierende Lichter-Show|![](/de-DE/2020/12/202012262300NabananoSato.jpg)|
+202012272300|CanadaLynx|Kanadischer Luchs in Montana, USA (© Alan and Sandy Carey/Minden Pictures)|Wildkatze im Winterwunderland|![](/de-DE/2020/12/202012272300CanadaLynx.jpg)|

@@ -27,3 +27,4 @@
 202012242300|SleighMailbox|Le traîneau géant du Père Noël et sa boîte aux lettres, Ilulissat, Groenland (© Walter Bibikow/Jon Arnold Images Ltd/Alamy)|Le grand jour|![](/fr-FR/2020/12/202012242300SleighMailbox.jpg)|
 202012252300|BarnettsDemesne|Familles jouant sur les pelouses enneigées du parc de Barnett Demesne, Belfast, Irlande du Nord (© Stephen Barnes/Alamy)|Le fun d’après Noël|![](/fr-FR/2020/12/202012252300BarnettsDemesne.jpg)|
 202012262300|NabananoSato|Le jardin de Nabana no Sato,  la nuit, à Kuwana, Japon (© Zoonar GmbH/Alamy)|Champ de lumière|![](/fr-FR/2020/12/202012262300NabananoSato.jpg)|
+202012272300|CanadaLynx|Lynx du Canada dans le Montana (© Alan and Sandy Carey/Minden Pictures)|Chat sauvage au cœur de l’hiver|![](/fr-FR/2020/12/202012272300CanadaLynx.jpg)|
