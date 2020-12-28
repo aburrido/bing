@@ -28,3 +28,4 @@
 202012251600|BarnettsDemesne|Barnett Demesne公园中在白雪覆盖的山坡上玩耍的一家，北爱尔兰贝尔法斯特 (© Stephen Barnes/Alamy)||![](/zh-CN/2020/12/202012251600BarnettsDemesne.jpg)|
 202012261600|IbonPlan|比利牛斯山脉中的高山湖Ibón de Plan，西班牙韦斯卡 (© Getty Images)||![](/zh-CN/2020/12/202012261600IbonPlan.jpg)|
 202012271600|CanadaLynx|加拿大猞猁，蒙大拿州 (© Alan and Sandy Carey/Minden Pictures)||![](/zh-CN/2020/12/202012271600CanadaLynx.jpg)|
+202012281600|LucerneHoliday|卢塞恩老城，瑞士 (© Xantana/Getty Images)||![](/zh-CN/2020/12/202012281600LucerneHoliday.jpg)|
