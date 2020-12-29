@@ -29,3 +29,4 @@
 202012260800|BarnettsDemesne|Families play on the snow-covered slopes at Barnett Demesne Park, Belfast, Northern Ireland (© Stephen Barnes/Alamy)|Happy Boxing Day!|![](/en-US/2020/12/202012260800BarnettsDemesne.jpg)|
 202012270800|NabananoSato|Nabana no Sato garden at night in Kuwana, Japan (© Zoonar GmbH/Alamy)|Turning darkness into light|![](/en-US/2020/12/202012270800NabananoSato.jpg)|
 202012280800|CanadaLynx|Canada lynx in Montana (© Alan and Sandy Carey/Minden Pictures)|Wildcat in a winter wonderland|![](/en-US/2020/12/202012280800CanadaLynx.jpg)|
+202012290800|LucerneHoliday|Old Town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the glow of the holidays lingers|![](/en-US/2020/12/202012290800LucerneHoliday.jpg)|
