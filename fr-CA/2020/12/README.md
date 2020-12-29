@@ -29,3 +29,4 @@
 202012260500|BarnettsDemesne|Des familles jouent sur les pentes enneigées du parc Barnett Demesne à Belfast en Irlande du Nord (© Stephen Barnes/Alamy)||![](/fr-CA/2020/12/202012260500BarnettsDemesne.jpg)|
 202012270500|WhistlerSnow|Surfeur des neiges à Whistler, C.-B. (© John Crux/Alamy Stock Photo)||![](/fr-CA/2020/12/202012270500WhistlerSnow.jpg)|
 202012280500|CanadaLynx|Lynx du Canada dans le Montana (© Alan and Sandy Carey/Minden Pictures)||![](/fr-CA/2020/12/202012280500CanadaLynx.jpg)|
+202012290500|LucerneHoliday|Vieille ville de Lucerne, Suisse (© Xantana/Getty Images)||![](/fr-CA/2020/12/202012290500LucerneHoliday.jpg)|
