@@ -28,3 +28,4 @@
 202012260000|BarnettsDemesne|Families play on the snow-covered slopes at Barnett Demesne Park, Belfast (© Stephen Barnes/Alamy)|A Boxing Day stroll|![](/en-GB/2020/12/202012260000BarnettsDemesne.jpg)|
 202012270000|NabananoSato|Nabana no Sato garden at night in Kuwana, Japan (© Zoonar GmbH/Alamy)|Turning darkness into light|![](/en-GB/2020/12/202012270000NabananoSato.jpg)|
 202012280000|CanadaLynx|Canada lynx in Montana, USA (© Alan and Sandy Carey/Minden Pictures)|The missing lynx|![](/en-GB/2020/12/202012280000CanadaLynx.jpg)|
+202012290000|LucerneHoliday|Old Town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the festive glow lingers|![](/en-GB/2020/12/202012290000LucerneHoliday.jpg)|
