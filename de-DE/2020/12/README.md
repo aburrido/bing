@@ -29,3 +29,4 @@
 202012262300|NabananoSato|Nabana-No-Sato-Blumenpark, Kuwana, Japan (© Zoonar GmbH/Alamy)|Faszinierende Lichter-Show|![](/de-DE/2020/12/202012262300NabananoSato.jpg)|
 202012272300|CanadaLynx|Kanadischer Luchs in Montana, USA (© Alan and Sandy Carey/Minden Pictures)|Wildkatze im Winterwunderland|![](/de-DE/2020/12/202012272300CanadaLynx.jpg)|
 202012282300|MeschedeWald|Mit Tannen und Fichten bewaldete Hügel bei Meschede, Sauerland, Nordrhein-Westfalen (© imageBROKER/Alamy Stock Photo)|Winterlandschaft im Sauerland|![](/de-DE/2020/12/202012282300MeschedeWald.jpg)|
+202012292300|WinterBryce|Winter im Bryce-Canyon-National Park, Utah, USA (© Don Paulson/Danita Delimont)|Winter im Wilden Westen|![](/de-DE/2020/12/202012292300WinterBryce.jpg)|
