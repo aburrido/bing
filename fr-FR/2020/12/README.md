@@ -30,3 +30,4 @@
 202012272300|CanadaLynx|Lynx du Canada dans le Montana (© Alan and Sandy Carey/Minden Pictures)|Chat sauvage au cœur de l’hiver|![](/fr-FR/2020/12/202012272300CanadaLynx.jpg)|
 202012282300|LucerneHoliday|Vieille ville de Lucerne, Suisse (© Xantana/Getty Images)|Là où s’attardent les fêtes de fin d’année|![](/fr-FR/2020/12/202012282300LucerneHoliday.jpg)|
 202012292300|FRbluebirds|Mésange bleue et mésange charbonnière sous la neige dans le parc naturel régional des Vosges du Nord (© Michel Rauch/Minden Pictures)|Sur un arbre perché|![](/fr-FR/2020/12/202012292300FRbluebirds.jpg)|
+202012302300|ZaragozaSpain|Feu d’artifice lors de célébrations de la Saint-Sylvestre à Saragosse, Espagne (© Martina Badini/Shutterstock)|Bon vent 2020|![](/fr-FR/2020/12/202012302300ZaragozaSpain.jpg)|
