@@ -29,3 +29,4 @@
 202012270000|NabananoSato|Nabana no Sato garden at night in Kuwana, Japan (© Zoonar GmbH/Alamy)|Turning darkness into light|![](/en-GB/2020/12/202012270000NabananoSato.jpg)|
 202012280000|CanadaLynx|Canada lynx in Montana, USA (© Alan and Sandy Carey/Minden Pictures)|The missing lynx|![](/en-GB/2020/12/202012280000CanadaLynx.jpg)|
 202012290000|LucerneHoliday|Old Town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the festive glow lingers|![](/en-GB/2020/12/202012290000LucerneHoliday.jpg)|
+202012300000|WinterBryce|Winter in Bryce Canyon National Park, Utah, USA (© Don Paulson/Danita Delimont)|Winter in the Wild West|![](/en-GB/2020/12/202012300000WinterBryce.jpg)|
