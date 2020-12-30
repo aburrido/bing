@@ -30,3 +30,4 @@
 202012271600|CanadaLynx|加拿大猞猁，蒙大拿州 (© Alan and Sandy Carey/Minden Pictures)||![](/zh-CN/2020/12/202012271600CanadaLynx.jpg)|
 202012281600|LucerneHoliday|卢塞恩老城，瑞士 (© Xantana/Getty Images)||![](/zh-CN/2020/12/202012281600LucerneHoliday.jpg)|
 202012291600|WinterBryce|布莱斯峡谷国家公园的冬天，犹他州 (© Don Paulson/Danita Delimont)||![](/zh-CN/2020/12/202012291600WinterBryce.jpg)|
+202012301600|ZaragozaSpain|跨年庆典中燃放的烟花，西班牙萨拉戈萨 (© Martina Badini/Shutterstock)||![](/zh-CN/2020/12/202012301600ZaragozaSpain.jpg)|
