@@ -31,3 +31,4 @@
 202012271300|CanadaLynx|Canada lynx in Montana, USA (© Alan and Sandy Carey/Minden Pictures)|Wildcat in a winter wonderland|![](/en-AU/2020/12/202012271300CanadaLynx.jpg)|
 202012281300|LucerneHoliday|Old town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the glow of the holidays lingers|![](/en-AU/2020/12/202012281300LucerneHoliday.jpg)|
 202012291300|LadyElliotTurtle|Green turtle swimming over a coral reef, Lady Elliot Island, Queensland (© seanscott/Getty Images)|A seriously scenic swim|![](/en-AU/2020/12/202012291300LadyElliotTurtle.jpg)|
+202012301300|ZaragozaSpain|Fireworks during a New Year's Eve celebration in Zaragoza, Spain (© Martina Badini/Shutterstock)|Goodbye, 2020!|![](/en-AU/2020/12/202012301300ZaragozaSpain.jpg)|
