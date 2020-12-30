@@ -30,3 +30,4 @@
 202012271500|CanadaLynx|｢カナダオオヤマネコ｣米国, モンタナ州 (© Alan and Sandy Carey/Minden Pictures)|米国絶滅危惧種保護法制定の日|![](/ja-JP/2020/12/202012271500CanadaLynx.jpg)|
 202012281500|LucerneHoliday|｢ルツェルン旧市街｣スイス (© Xantana/Getty Images)|スイスの年の暮れ|![](/ja-JP/2020/12/202012281500LucerneHoliday.jpg)|
 202012291500|Beethoven250|｢ミュンスター広場の記念碑とベートーヴェン像｣ドイツ , ボン (© dpa/Alamy Live News)|年末といえば｢第九｣です|![](/ja-JP/2020/12/202012291500Beethoven250.jpg)|
+202012301500|ZaragozaSpain|｢大みそかの花火｣スペイン, サラゴサ (© Martina Badini/Shutterstock)|今年一年お世話になりました|![](/ja-JP/2020/12/202012301500ZaragozaSpain.jpg)|
