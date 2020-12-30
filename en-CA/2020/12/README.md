@@ -30,3 +30,4 @@
 202012270500|NabananoSato|Nabana no Sato garden at night in Kuwana, Japan (© Zoonar GmbH/Alamy)|Turning darkness into light|![](/en-CA/2020/12/202012270500NabananoSato.jpg)|
 202012280500|WhistlerSnow|Snow boarder in Whistler, B.C. (© John Crux/Alamy Stock Photo)|A winter wonderland|![](/en-CA/2020/12/202012280500WhistlerSnow.jpg)|
 202012290500|LucerneHoliday|Old town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the glow of the holidays lingers|![](/en-CA/2020/12/202012290500LucerneHoliday.jpg)|
+202012300500|WinterBryce|Winter in Bryce Canyon National Park, Utah (© Don Paulson/Danita Delimont)|Winter in the Wild West|![](/en-CA/2020/12/202012300500WinterBryce.jpg)|

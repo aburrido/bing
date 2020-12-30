@@ -30,3 +30,4 @@
 202012270500|WhistlerSnow|Surfeur des neiges à Whistler, C.-B. (© John Crux/Alamy Stock Photo)||![](/fr-CA/2020/12/202012270500WhistlerSnow.jpg)|
 202012280500|CanadaLynx|Lynx du Canada dans le Montana (© Alan and Sandy Carey/Minden Pictures)||![](/fr-CA/2020/12/202012280500CanadaLynx.jpg)|
 202012290500|LucerneHoliday|Vieille ville de Lucerne, Suisse (© Xantana/Getty Images)||![](/fr-CA/2020/12/202012290500LucerneHoliday.jpg)|
+202012300500|WinterBryce|L'hiver dans le parc national de Bryce Canyon, Utah (© Don Paulson/Danita Delimont)||![](/fr-CA/2020/12/202012300500WinterBryce.jpg)|
