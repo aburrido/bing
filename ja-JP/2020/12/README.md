@@ -31,3 +31,4 @@
 202012281500|LucerneHoliday|｢ルツェルン旧市街｣スイス (© Xantana/Getty Images)|スイスの年の暮れ|![](/ja-JP/2020/12/202012281500LucerneHoliday.jpg)|
 202012291500|Beethoven250|｢ミュンスター広場の記念碑とベートーヴェン像｣ドイツ , ボン (© dpa/Alamy Live News)|年末といえば｢第九｣です|![](/ja-JP/2020/12/202012291500Beethoven250.jpg)|
 202012301500|ZaragozaSpain|｢大みそかの花火｣スペイン, サラゴサ (© Martina Badini/Shutterstock)|今年一年お世話になりました|![](/ja-JP/2020/12/202012301500ZaragozaSpain.jpg)|
+202012311500|NewYearMtFuji|｢雲海に映る影富士｣山梨県, 南都留郡鳴沢村 (© 30 characters/Getty Images)|初日の出を霊峰富士で|![](/ja-JP/2020/12/202012311500NewYearMtFuji.jpg)|
