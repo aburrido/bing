@@ -31,3 +31,4 @@
 202012282300|LucerneHoliday|Vieille ville de Lucerne, Suisse (© Xantana/Getty Images)|Là où s’attardent les fêtes de fin d’année|![](/fr-FR/2020/12/202012282300LucerneHoliday.jpg)|
 202012292300|FRbluebirds|Mésange bleue et mésange charbonnière sous la neige dans le parc naturel régional des Vosges du Nord (© Michel Rauch/Minden Pictures)|Sur un arbre perché|![](/fr-FR/2020/12/202012292300FRbluebirds.jpg)|
 202012302300|ZaragozaSpain|Feu d’artifice lors de célébrations de la Saint-Sylvestre à Saragosse, Espagne (© Martina Badini/Shutterstock)|Bon vent 2020|![](/fr-FR/2020/12/202012302300ZaragozaSpain.jpg)|
+202012312300|LoonyDook|Ours blanc dans les eaux de l’archipel du Svalbard, Norvège (© Westend61/Getty Images)|On efface tout et on recommence|![](/fr-FR/2020/12/202012312300LoonyDook.jpg)|

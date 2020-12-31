@@ -31,3 +31,4 @@
 202012282300|MeschedeWald|Mit Tannen und Fichten bewaldete Hügel bei Meschede, Sauerland, Nordrhein-Westfalen (© imageBROKER/Alamy Stock Photo)|Winterlandschaft im Sauerland|![](/de-DE/2020/12/202012282300MeschedeWald.jpg)|
 202012292300|WinterBryce|Winter im Bryce-Canyon-National Park, Utah, USA (© Don Paulson/Danita Delimont)|Winter im Wilden Westen|![](/de-DE/2020/12/202012292300WinterBryce.jpg)|
 202012302300|ZaragozaSpain|Feuerwerk in der Silvesternacht in Saragossa, Spanien (© Martina Badini/Shutterstock)|Das wars, 2020!|![](/de-DE/2020/12/202012302300ZaragozaSpain.jpg)|
+202012312300|LoonyDook|Eisbär in den Küstengewässern vor Spitzbergen, Norwegen (© Westend61/Getty Images)|Tauchen Sie ein ins Jahr 2021!|![](/de-DE/2020/12/202012312300LoonyDook.jpg)|
