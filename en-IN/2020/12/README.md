@@ -31,3 +31,4 @@
 202012281830|LucerneHoliday|Old town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the glow of the holidays lingers|![](/en-IN/2020/12/202012281830LucerneHoliday.jpg)|
 202012291830|WinterBryce|Winter in Bryce Canyon National Park, Utah, USA (© Don Paulson/Danita Delimont)|Winter in the Wild West|![](/en-IN/2020/12/202012291830WinterBryce.jpg)|
 202012301830|GatewayFireworks|New Year's Eve fireworks at the Gateway of India, Mumbai (© INDRANIL MUKHERJEE/AFP via Getty Images)|Ringing in 2021|![](/en-IN/2020/12/202012301830GatewayFireworks.jpg)|
+202012311830|LoonyDook|Polar bear in waters off Svalbard, Norway (© Westend61/Getty Images)|Take the plunge into 2021|![](/en-IN/2020/12/202012311830LoonyDook.jpg)|
