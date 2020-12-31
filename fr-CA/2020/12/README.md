@@ -31,3 +31,4 @@
 202012280500|CanadaLynx|Lynx du Canada dans le Montana (© Alan and Sandy Carey/Minden Pictures)||![](/fr-CA/2020/12/202012280500CanadaLynx.jpg)|
 202012290500|LucerneHoliday|Vieille ville de Lucerne, Suisse (© Xantana/Getty Images)||![](/fr-CA/2020/12/202012290500LucerneHoliday.jpg)|
 202012300500|WinterBryce|L'hiver dans le parc national de Bryce Canyon, Utah (© Don Paulson/Danita Delimont)||![](/fr-CA/2020/12/202012300500WinterBryce.jpg)|
+202012310500|ZaragozaSpain|Feux d'artifice lors d'une célébration du Nouvel An à Saragosse en Espagne (© Martina Badini/Shutterstock)||![](/fr-CA/2020/12/202012310500ZaragozaSpain.jpg)|
