@@ -31,3 +31,4 @@
 202012280800|CanadaLynx|Canada lynx in Montana (© Alan and Sandy Carey/Minden Pictures)|Wildcat in a winter wonderland|![](/en-US/2020/12/202012280800CanadaLynx.jpg)|
 202012290800|LucerneHoliday|Old Town of Lucerne, Switzerland (© Xantana/Getty Images)|Where the glow of the holidays lingers|![](/en-US/2020/12/202012290800LucerneHoliday.jpg)|
 202012300800|WinterBryce|Winter in Bryce Canyon National Park, Utah (© Don Paulson/Danita Delimont)|Winter in the Wild West|![](/en-US/2020/12/202012300800WinterBryce.jpg)|
+202012310800|ZaragozaSpain|Fireworks during a New Year's Eve celebration in Zaragoza, Spain (© Martina Badini/Shutterstock)|Goodbye, 2020!|![](/en-US/2020/12/202012310800ZaragozaSpain.jpg)|
