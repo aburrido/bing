@@ -3,3 +3,4 @@
 202101010000|LoonyDook|Polar bear in waters off Svalbard, Norway (© Westend61/Getty Images)|Take the plunge into 2021|![](/en-GB/2021/01/202101010000LoonyDook.jpg)|
 202101020000|LargestCave|Sơn Đoòng cave in Phong Nha-Kẻ Bàng National Park, Vietnam (© David A Knight/Shutterstock)|An underground universe|![](/en-GB/2021/01/202101020000LargestCave.jpg)|
 202101030000|DiamondBeach|Diamond Beach across from Jökulsárlón, a glacier lagoon in Iceland (© surangaw/Getty Images)|A gem of a beach|![](/en-GB/2021/01/202101030000DiamondBeach.jpg)|
+202101040000|NashPoint|Sunset over Nash Point on the Glamorgan Heritage Coast, South Wales in winter. (© AWL Images/DanitaDelimont.com)|Sunsets and shipwrecks|![](/en-GB/2021/01/202101040000NashPoint.jpg)|
