@@ -4,3 +4,4 @@
 202101012300|LargestCave|Sơn-Đoòng-Höhle im Nationalpark Phong Nha-Ke Bang, Vietnam (© David A Knight/shutterstock)|Eine Welt im Untergrund|![](/de-DE/2021/01/202101012300LargestCave.jpg)|
 202101022300|DiamondBeach|Diamantstrand am Gletschersee Jökulsárlón, Island (© surangaw/Getty Images)|Glitzernde Eisdiamanten am schwarzen Strand|![](/de-DE/2021/01/202101022300DiamondBeach.jpg)|
 202101032300|Goessweinstein|Blick auf die Gemeinde Gößweinstein mit der Burg Gößweinstein im Hintergrund, Fränkische Schweiz, Bayern (© Juergen Sack/Getty Images)|Gipfelburg in der Fränkischen Schweiz|![](/de-DE/2021/01/202101032300Goessweinstein.jpg)|
+202101042300|RedFrontMacaw|Rotohraras in Omerque,  Cochabamba, Bolivien (© Bernard Castelein/Minden Pictures)|Formationsflug|![](/de-DE/2021/01/202101042300RedFrontMacaw.jpg)|
