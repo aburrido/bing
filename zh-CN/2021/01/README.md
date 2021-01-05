@@ -5,3 +5,4 @@
 202101021600|Goessweinstein|远眺格斯韦因斯泰因村和格斯韦因斯泰因城堡 (© Juergen Sack/Getty Images)||![](/zh-CN/2021/01/202101021600Goessweinstein.jpg)|
 202101031600|DiamondBeach|冰河湖对面的钻石冰沙滩，冰岛 (© surangaw/Getty Images)||![](/zh-CN/2021/01/202101031600DiamondBeach.jpg)|
 202101041600|RedFrontMacaw|奥梅雷克的红额金刚鹦鹉，玻利维亚科恰班巴 (© Bernard Castelein/Minden Pictures)||![](/zh-CN/2021/01/202101041600RedFrontMacaw.jpg)|
+202101051600|SnowCraterLake|火山口湖，俄勒冈州 (© Steve Bloom Images/Alamy)||![](/zh-CN/2021/01/202101051600SnowCraterLake.jpg)|
