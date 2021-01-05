@@ -5,3 +5,4 @@
 202101020500|LargestCave|Grotte Sơn Đoòng dans le parc national de Phong Nha-Kẻ Bàng au Vietnam (© David A Knight/Shutterstock)||![](/fr-CA/2021/01/202101020500LargestCave.jpg)|
 202101030500|Goessweinstein|Vue aérienne du village et du château de Gößweinstein en Allemagne (© Juergen Sack/Getty Images)||![](/fr-CA/2021/01/202101030500Goessweinstein.jpg)|
 202101040500|DiamondBeach|Plage de diamants en face du Jökulsárlón, un lagon glaciaire en Islande (© surangaw/Getty Images)||![](/fr-CA/2021/01/202101040500DiamondBeach.jpg)|
+202101050500|RedFrontMacaw|Aras à front rouge à Omerque, Cochabamba, Bolivie (© Bernard Castelein/Minden Pictures)||![](/fr-CA/2021/01/202101050500RedFrontMacaw.jpg)|
