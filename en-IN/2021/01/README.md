@@ -5,3 +5,4 @@
 202101021830|SeaFort|Aerial view of Sindhudurg Fort, Maharashtra coast (© MovingMaratha/Alamy)|Sea Fort of the Marathas|![](/en-IN/2021/01/202101021830SeaFort.jpg)|
 202101031830|DiamondBeach|Diamond Beach across from Jökulsárlón, a glacier lagoon in Iceland (© surangaw/Getty Images)|Sparkling ice diamonds on a black sandy beach|![](/en-IN/2021/01/202101031830DiamondBeach.jpg)|
 202101041830|RedFrontMacaw|Red-fronted macaws in Omerque, Cochabamba, Bolivia (© Bernard Castelein/Minden Pictures)|Red-fronted macaws flying high|![](/en-IN/2021/01/202101041830RedFrontMacaw.jpg)|
+202101051830|SnowCraterLake|Crater Lake in Oregon, USA (© Steve Bloom Images/Alamy)|Travels to the Oregon deep|![](/en-IN/2021/01/202101051830SnowCraterLake.jpg)|
