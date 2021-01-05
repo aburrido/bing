@@ -5,3 +5,4 @@
 202101020800|LargestCave|Sơn Đoòng cave in Phong Nha-Kẻ Bàng National Park, Vietnam (© David A Knight/Shutterstock)|A universe underground|![](/en-US/2021/01/202101020800LargestCave.jpg)|
 202101030800|HohenschwangauWinter|Hohenschwangau Castle, Bavaria, Germany (© Mespilia/Shutterstock)|An Alpine fairy-tale castle|![](/en-US/2021/01/202101030800HohenschwangauWinter.jpg)|
 202101040800|DiamondBeach|Diamond Beach across from Jökulsárlón, a glacial lagoon in Iceland (© surangaw/Getty Images)|Sparkling ice diamonds on a black sandy beach|![](/en-US/2021/01/202101040800DiamondBeach.jpg)|
+202101050800|RedFrontMacaw|Red-fronted macaws in Omerque, Cochabamba, Bolivia (© Bernard Castelein/Minden Pictures)|Flying high on National Bird Day|![](/en-US/2021/01/202101050800RedFrontMacaw.jpg)|
