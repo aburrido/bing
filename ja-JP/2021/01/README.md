@@ -6,3 +6,4 @@
 202101031500|LoonyDook|｢ホッキョクグマ｣ノルウェー, スヴァールバル諸島 (© Westend61/Getty Images)|真冬の寒中水泳|![](/ja-JP/2021/01/202101031500LoonyDook.jpg)|
 202101041500|Goessweinstein|｢ゲスヴァインシュタイン城をのぞむゲスヴァインシュタイン村｣ドイツ, バイエルン州 (© Juergen Sack/Getty Images)|ここは聖杯城|![](/ja-JP/2021/01/202101041500Goessweinstein.jpg)|
 202101051500|DiamondBeach|｢ダイヤモンドビーチ｣アイスランド, ヨクルサルロン湖 (© surangaw/Getty Images)|氷山の宝石たち|![](/ja-JP/2021/01/202101051500DiamondBeach.jpg)|
+202101061500|WhiteCliffs|｢ドーバーのホワイトクリフ｣イギリス, ケント州 (© LisaValder/Getty Images)|ドーバー海峡空中横断の日|![](/ja-JP/2021/01/202101061500WhiteCliffs.jpg)|
