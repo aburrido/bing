@@ -5,3 +5,4 @@
 202101030000|DiamondBeach|Diamond Beach across from Jökulsárlón, a glacier lagoon in Iceland (© surangaw/Getty Images)|A gem of a beach|![](/en-GB/2021/01/202101030000DiamondBeach.jpg)|
 202101040000|NashPoint|Sunset over Nash Point on the Glamorgan Heritage Coast, South Wales in winter. (© AWL Images/DanitaDelimont.com)|Sunsets and shipwrecks|![](/en-GB/2021/01/202101040000NashPoint.jpg)|
 202101050000|IceSailing|Antique ice yachts on the frozen Hudson River near Astor Point in Barrytown, New York, USA (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-GB/2021/01/202101050000IceSailing.jpg)|
+202101060000|SnowCraterLake|Crater Lake in Oregon, USA (© Steve Bloom Images/Alamy)|Still waters run (very) deep|![](/en-GB/2021/01/202101060000SnowCraterLake.jpg)|
