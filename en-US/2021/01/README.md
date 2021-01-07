@@ -7,3 +7,4 @@
 202101040800|DiamondBeach|Diamond Beach across from Jökulsárlón, a glacial lagoon in Iceland (© surangaw/Getty Images)|Sparkling ice diamonds on a black sandy beach|![](/en-US/2021/01/202101040800DiamondBeach.jpg)|
 202101050800|RedFrontMacaw|Red-fronted macaws in Omerque, Cochabamba, Bolivia (© Bernard Castelein/Minden Pictures)|Flying high on National Bird Day|![](/en-US/2021/01/202101050800RedFrontMacaw.jpg)|
 202101060800|SnowCraterLake|Crater Lake in Oregon (© Steve Bloom Images/Alamy)|Travels to the Oregon deep|![](/en-US/2021/01/202101060800SnowCraterLake.jpg)|
+202101070800|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Of balloons and lost pantaloons|![](/en-US/2021/01/202101070800WhiteCliffs.jpg)|
