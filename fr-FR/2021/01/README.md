@@ -7,3 +7,4 @@
 202101042300|OperaGarnier|Vue intérieure de l’Opéra national de Paris Garnier prise le 31 mars 2017, Paris (© Gilmanshin/Shutterstock)|Anniversaire d’un temple du spectacle|![](/fr-FR/2021/01/202101042300OperaGarnier.jpg)|
 202101052300|SnowCraterLake|Crater Lake dans l’Oregon, États-Unis (© Steve Bloom Images/Alamy)|Discrète profondeur|![](/fr-FR/2021/01/202101052300SnowCraterLake.jpg)|
 202101062300|WhiteCliffs|Les falaises de Douvres, Angleterre (© LisaValder/Getty Images)|Voyager léger|![](/fr-FR/2021/01/202101062300WhiteCliffs.jpg)|
+202101072300|FoucaultsPendulum|Le pendule de Foucault au Panthéon à Paris (© Adolf/Adobe Stock)|À faire tourner la tête|![](/fr-FR/2021/01/202101072300FoucaultsPendulum.jpg)|

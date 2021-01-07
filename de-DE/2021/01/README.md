@@ -7,3 +7,4 @@
 202101042300|RedFrontMacaw|Rotohraras in Omerque,  Cochabamba, Bolivien (© Bernard Castelein/Minden Pictures)|Formationsflug|![](/de-DE/2021/01/202101042300RedFrontMacaw.jpg)|
 202101052300|SnowCraterLake|Crater Lake, Oregon, USA (© Steve Bloom Images/Alamy)|Der tiefste See der USA|![](/de-DE/2021/01/202101052300SnowCraterLake.jpg)|
 202101062300|WhiteCliffs|Die Kreidefelsen von Dover, England (© LisaValder/Getty Images)|Von Ballons und verlorenen Pumphosen|![](/de-DE/2021/01/202101062300WhiteCliffs.jpg)|
+202101072300|FoucaultsPendulum|Foucaultsches Pendel im Panthéon in Paris, Frankreich (© Adolf/Adobe Stock)|Sichtbar gemachte Erdrotation|![](/de-DE/2021/01/202101072300FoucaultsPendulum.jpg)|
