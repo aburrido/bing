@@ -7,3 +7,4 @@
 202101040500|DiamondBeach|Diamond Beach across from Jökulsárlón, a glacier lagoon in Iceland (© surangaw/Getty Images)|Sparkling ice diamonds on a black sandy beach|![](/en-CA/2021/01/202101040500DiamondBeach.jpg)|
 202101050500|JasperCrystals|Ice crystals, Japser National Park, Alberta (© Mint Images/Art Wolfe/Getty Images)|Covered in winter frost|![](/en-CA/2021/01/202101050500JasperCrystals.jpg)|
 202101060500|SnowCraterLake|Crater Lake in Oregon (© Steve Bloom Images/Alamy)|Travels to the Oregon deep|![](/en-CA/2021/01/202101060500SnowCraterLake.jpg)|
+202101070500|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Of balloons and lost pantaloons|![](/en-CA/2021/01/202101070500WhiteCliffs.jpg)|

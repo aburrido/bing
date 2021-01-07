@@ -7,3 +7,4 @@
 202101040500|DiamondBeach|Plage de diamants en face du Jökulsárlón, un lagon glaciaire en Islande (© surangaw/Getty Images)||![](/fr-CA/2021/01/202101040500DiamondBeach.jpg)|
 202101050500|RedFrontMacaw|Aras à front rouge à Omerque, Cochabamba, Bolivie (© Bernard Castelein/Minden Pictures)||![](/fr-CA/2021/01/202101050500RedFrontMacaw.jpg)|
 202101060500|SnowCraterLake|Crater Lake en Oregon (© Steve Bloom Images/Alamy)||![](/fr-CA/2021/01/202101060500SnowCraterLake.jpg)|
+202101070500|WhiteCliffs|Falaises blanches de Douvres en Angleterre (© LisaValder/Getty Images)||![](/fr-CA/2021/01/202101070500WhiteCliffs.jpg)|
