@@ -7,3 +7,4 @@
 202101050000|IceSailing|Antique ice yachts on the frozen Hudson River near Astor Point in Barrytown, New York, USA (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-GB/2021/01/202101050000IceSailing.jpg)|
 202101060000|SnowCraterLake|Crater Lake in Oregon, USA (© Steve Bloom Images/Alamy)|Still waters run (very) deep|![](/en-GB/2021/01/202101060000SnowCraterLake.jpg)|
 202101070000|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Up, up and away!|![](/en-GB/2021/01/202101070000WhiteCliffs.jpg)|
+202101080000|FoucaultsPendulum|Foucault pendulum at the Panthéon in Paris, France (© Adolf/Adobe Stock)|Take this for a spin...|![](/en-GB/2021/01/202101080000FoucaultsPendulum.jpg)|
