@@ -8,3 +8,4 @@
 202101050800|RedFrontMacaw|Red-fronted macaws in Omerque, Cochabamba, Bolivia (© Bernard Castelein/Minden Pictures)|Flying high on National Bird Day|![](/en-US/2021/01/202101050800RedFrontMacaw.jpg)|
 202101060800|SnowCraterLake|Crater Lake in Oregon (© Steve Bloom Images/Alamy)|Travels to the Oregon deep|![](/en-US/2021/01/202101060800SnowCraterLake.jpg)|
 202101070800|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Of balloons and lost pantaloons|![](/en-US/2021/01/202101070800WhiteCliffs.jpg)|
+202101080800|FoucaultsPendulum|Foucault pendulum at the Panthéon in Paris, France (© Adolf/Adobe Stock)|Take this for a spin...|![](/en-US/2021/01/202101080800FoucaultsPendulum.jpg)|
