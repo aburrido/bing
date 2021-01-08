@@ -8,3 +8,4 @@
 202101051300|ArkadyShilkloper|Arkady Shilkloper plays his three-metre-long alphorn atop the Sydney Opera House as part of the 2013 Sydney Festival (© Mark Metcalfe/Getty Images)|Sydney Festival gets underway|![](/en-AU/2021/01/202101051300ArkadyShilkloper.jpg)|
 202101061300|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Of balloons and lost pantaloons|![](/en-AU/2021/01/202101061300WhiteCliffs.jpg)|
 202101071300|FoucaultsPendulum|Foucault pendulum at the Panthéon in Paris, France (© Adolf/Adobe Stock)|Take this for a spin...|![](/en-AU/2021/01/202101071300FoucaultsPendulum.jpg)|
+202101081300|SpanishSeaSlug|Spanish shawl nudibranch on kelp off Santa Catalina Island, Channel Islands, California, USA (© WaterFrame/Alamy)|One stylish slug|![](/en-AU/2021/01/202101081300SpanishSeaSlug.jpg)|
