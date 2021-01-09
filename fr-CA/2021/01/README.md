@@ -9,3 +9,4 @@
 202101060500|SnowCraterLake|Crater Lake en Oregon (© Steve Bloom Images/Alamy)||![](/fr-CA/2021/01/202101060500SnowCraterLake.jpg)|
 202101070500|WhiteCliffs|Falaises blanches de Douvres en Angleterre (© LisaValder/Getty Images)||![](/fr-CA/2021/01/202101070500WhiteCliffs.jpg)|
 202101080500|FoucaultsPendulum|Pendule de Foucault au Panthéon à Paris en France (© Adolf/Adobe Stock)||![](/fr-CA/2021/01/202101080500FoucaultsPendulum.jpg)|
+202101090500|SpanishSeaSlug|Châle espagnol nudibranche sur varech au large de l'île de Santa Catalina, îles Anglo-Normandes, Californie (© WaterFrame/Alamy)||![](/fr-CA/2021/01/202101090500SpanishSeaSlug.jpg)|

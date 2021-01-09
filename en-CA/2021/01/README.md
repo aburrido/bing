@@ -9,3 +9,4 @@
 202101060500|SnowCraterLake|Crater Lake in Oregon (© Steve Bloom Images/Alamy)|Travels to the Oregon deep|![](/en-CA/2021/01/202101060500SnowCraterLake.jpg)|
 202101070500|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Of balloons and lost pantaloons|![](/en-CA/2021/01/202101070500WhiteCliffs.jpg)|
 202101080500|FoucaultsPendulum|Foucault pendulum at the Panthéon in Paris, France (© Adolf/Adobe Stock)|Take this for a spin...|![](/en-CA/2021/01/202101080500FoucaultsPendulum.jpg)|
+202101090500|SpanishSeaSlug|Spanish shawl nudibranch on kelp off Santa Catalina Island, Channel Islands, California (© WaterFrame/Alamy)|One stylish slug|![](/en-CA/2021/01/202101090500SpanishSeaSlug.jpg)|
