@@ -9,3 +9,4 @@
 202101061500|WhiteCliffs|｢ドーバーのホワイトクリフ｣イギリス, ケント州 (© LisaValder/Getty Images)|ドーバー海峡空中横断の日|![](/ja-JP/2021/01/202101061500WhiteCliffs.jpg)|
 202101071500|FoucaultsPendulum|｢パンテオンのフーコーの振り子｣フランス, パリ (© Adolf/Adobe Stock)|地球は回っている|![](/ja-JP/2021/01/202101071500FoucaultsPendulum.jpg)|
 202101081500|LandwasserViaduct|｢ランドヴァッサー橋を走るベルニナ急行｣スイス, グラウビュンデン州 (© Marco Bottigelli/Getty Images)|貴重な鉄道遺産|![](/ja-JP/2021/01/202101081500LandwasserViaduct.jpg)|
+202101091500|GoldenDragon|｢黄龍風景区｣中国, 四川省 (© primeimages/Getty Images)|金の昇り龍の池|![](/ja-JP/2021/01/202101091500GoldenDragon.jpg)|
