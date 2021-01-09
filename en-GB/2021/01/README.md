@@ -8,3 +8,4 @@
 202101060000|SnowCraterLake|Crater Lake in Oregon, USA (© Steve Bloom Images/Alamy)|Still waters run (very) deep|![](/en-GB/2021/01/202101060000SnowCraterLake.jpg)|
 202101070000|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Up, up and away!|![](/en-GB/2021/01/202101070000WhiteCliffs.jpg)|
 202101080000|FoucaultsPendulum|Foucault pendulum at the Panthéon in Paris, France (© Adolf/Adobe Stock)|Take this for a spin...|![](/en-GB/2021/01/202101080000FoucaultsPendulum.jpg)|
+202101090000|TreCime|Tre Cime di Lavaredo as seen from the Lavaredo fork, Sexten Dolomites, Italy (© AWL Images/Danita Delimont)|A towering view of the Pale Mountains|![](/en-GB/2021/01/202101090000TreCime.jpg)|
