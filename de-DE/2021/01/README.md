@@ -10,3 +10,4 @@
 202101072300|FoucaultsPendulum|Foucaultsches Pendel im Panthéon in Paris, Frankreich (© Adolf/Adobe Stock)|Sichtbar gemachte Erdrotation|![](/de-DE/2021/01/202101072300FoucaultsPendulum.jpg)|
 202101082300|SpanishSeaSlug|Spanischer Schal auf einem Seetang vor Santa Catalina Island, Kanalinseln, Kalifornien, USA (© WaterFrame/Alamy)|Eine stilvolle Schnecke|![](/de-DE/2021/01/202101082300SpanishSeaSlug.jpg)|
 202101092300|BrightonSnow|Schneebedeckte Strandhütten in Brighton and Hove, England (© Tim Jones/Alamy)|Sommerhütten im Winter|![](/de-DE/2021/01/202101092300BrightonSnow.jpg)|
+202101102300|Yunkai|Aït Benhaddou am Fuße des Hohen Atlas, Marokko (© Alex Cimbal/Shutterstock)|Vor den Toren des „Ksar“|![](/de-DE/2021/01/202101102300Yunkai.jpg)|

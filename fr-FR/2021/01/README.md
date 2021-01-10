@@ -10,3 +10,4 @@
 202101072300|FoucaultsPendulum|Le pendule de Foucault au Panthéon à Paris (© Adolf/Adobe Stock)|À faire tourner la tête|![](/fr-FR/2021/01/202101072300FoucaultsPendulum.jpg)|
 202101082300|FlyingBalloon|Le Mont Blanc, surmonté d’un nuage lenticulaire et d’une montgolfière, Haute-Savoie (© Henry Ausloos)|Là-haut dans les nuages|![](/fr-FR/2021/01/202101082300FlyingBalloon.jpg)|
 202101092300|GoldenDragon|Le Huanglong dans le Sichuan, Chine (© primeimages/Getty Images)|Piscine glacées|![](/fr-FR/2021/01/202101092300GoldenDragon.jpg)|
+202101102300|Yunkai|Aït Benhaddou et l’Atlas, Maroc (© Alex Cimbal/Shutterstock)|Aux portes du « Ksar »|![](/fr-FR/2021/01/202101102300Yunkai.jpg)|
