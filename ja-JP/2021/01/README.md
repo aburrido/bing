@@ -10,3 +10,4 @@
 202101071500|FoucaultsPendulum|｢パンテオンのフーコーの振り子｣フランス, パリ (© Adolf/Adobe Stock)|地球は回っている|![](/ja-JP/2021/01/202101071500FoucaultsPendulum.jpg)|
 202101081500|LandwasserViaduct|｢ランドヴァッサー橋を走るベルニナ急行｣スイス, グラウビュンデン州 (© Marco Bottigelli/Getty Images)|貴重な鉄道遺産|![](/ja-JP/2021/01/202101081500LandwasserViaduct.jpg)|
 202101091500|GoldenDragon|｢黄龍風景区｣中国, 四川省 (© primeimages/Getty Images)|金の昇り龍の池|![](/ja-JP/2021/01/202101091500GoldenDragon.jpg)|
+202101101500|Yunkai|｢アトラス山脈とアイット・ベン・ハドゥ｣モロッコ, ワルザザート (© Alex Cimbal/Shutterstock)|砂漠の要塞都市|![](/ja-JP/2021/01/202101101500Yunkai.jpg)|
