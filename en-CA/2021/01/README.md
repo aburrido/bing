@@ -10,3 +10,4 @@
 202101070500|WhiteCliffs|White Cliffs of Dover, England (© LisaValder/Getty Images)|Of balloons and lost pantaloons|![](/en-CA/2021/01/202101070500WhiteCliffs.jpg)|
 202101080500|FoucaultsPendulum|Foucault pendulum at the Panthéon in Paris, France (© Adolf/Adobe Stock)|Take this for a spin...|![](/en-CA/2021/01/202101080500FoucaultsPendulum.jpg)|
 202101090500|SpanishSeaSlug|Spanish shawl nudibranch on kelp off Santa Catalina Island, Channel Islands, California (© WaterFrame/Alamy)|One stylish slug|![](/en-CA/2021/01/202101090500SpanishSeaSlug.jpg)|
+202101100500|GoldenDragon|Huanglong Scenic and Historic Interest Area in Sichuan, China (© primeimages/Getty Images)|China's colourful terraced pools|![](/en-CA/2021/01/202101100500GoldenDragon.jpg)|
