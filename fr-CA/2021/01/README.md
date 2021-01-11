@@ -11,3 +11,4 @@
 202101080500|FoucaultsPendulum|Pendule de Foucault au Panthéon à Paris en France (© Adolf/Adobe Stock)||![](/fr-CA/2021/01/202101080500FoucaultsPendulum.jpg)|
 202101090500|SpanishSeaSlug|Châle espagnol nudibranche sur varech au large de l'île de Santa Catalina, îles Anglo-Normandes, Californie (© WaterFrame/Alamy)||![](/fr-CA/2021/01/202101090500SpanishSeaSlug.jpg)|
 202101100500|GoldenDragon|Zone panoramique et historique de Huanglong dans le Sichuan en Chine (© primeimages/Getty Images)||![](/fr-CA/2021/01/202101100500GoldenDragon.jpg)|
+202101110500|YukonClouds|Nuages rouges au coucher du soleil sur le ruisseau McIntyre à Whitehorse, Yukon (© Robert Postma/plainpicture/Design Pics)||![](/fr-CA/2021/01/202101110500YukonClouds.jpg)|
