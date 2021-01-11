@@ -11,3 +11,4 @@
 202101082300|FlyingBalloon|Le Mont Blanc, surmonté d’un nuage lenticulaire et d’une montgolfière, Haute-Savoie (© Henry Ausloos)|Là-haut dans les nuages|![](/fr-FR/2021/01/202101082300FlyingBalloon.jpg)|
 202101092300|GoldenDragon|Le Huanglong dans le Sichuan, Chine (© primeimages/Getty Images)|Piscine glacées|![](/fr-FR/2021/01/202101092300GoldenDragon.jpg)|
 202101102300|Yunkai|Aït Benhaddou et l’Atlas, Maroc (© Alex Cimbal/Shutterstock)|Aux portes du « Ksar »|![](/fr-FR/2021/01/202101102300Yunkai.jpg)|
+202101112300|IceSailing|Anciens chars à glace sur l’Hudson gelé près d’Astor Point à Barrytown, New York, États-Unis (© Mike Segar/REUTERS)|Sport d’un autre genre|![](/fr-FR/2021/01/202101112300IceSailing.jpg)|

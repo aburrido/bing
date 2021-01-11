@@ -11,3 +11,4 @@
 202101082300|SpanishSeaSlug|Spanischer Schal auf einem Seetang vor Santa Catalina Island, Kanalinseln, Kalifornien, USA (© WaterFrame/Alamy)|Eine stilvolle Schnecke|![](/de-DE/2021/01/202101082300SpanishSeaSlug.jpg)|
 202101092300|BrightonSnow|Schneebedeckte Strandhütten in Brighton and Hove, England (© Tim Jones/Alamy)|Sommerhütten im Winter|![](/de-DE/2021/01/202101092300BrightonSnow.jpg)|
 202101102300|Yunkai|Aït Benhaddou am Fuße des Hohen Atlas, Marokko (© Alex Cimbal/Shutterstock)|Vor den Toren des „Ksar“|![](/de-DE/2021/01/202101102300Yunkai.jpg)|
+202101112300|OswaldCave|Eiszapfen in der Oswaldhöhle bei Muggendorf, Bayern (© Rüdiger Hess/geo-select FotoArt)|Kopf einziehen und Taschenlampe einschalten!|![](/de-DE/2021/01/202101112300OswaldCave.jpg)|
