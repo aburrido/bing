@@ -11,3 +11,4 @@
 202101081600|SpanishSeaSlug|圣卡塔利娜岛附近海藻上的西班牙披肩海蛞蝓，加利福尼亚海峡群岛 (© WaterFrame/Alamy)||![](/zh-CN/2021/01/202101081600SpanishSeaSlug.jpg)|
 202101091600|GoldenDragon|四川黄龙风景名胜区，中国 (© primeimages/Getty Images)||![](/zh-CN/2021/01/202101091600GoldenDragon.jpg)|
 202101101600|SierraNevada|Pradollano滑雪站，西班牙内华达山脉国家公园 (© NTCo/iStock/Getty Images Plus)||![](/zh-CN/2021/01/202101101600SierraNevada.jpg)|
+202101111600|SeaFort|Sindhudurg堡，印度马哈拉施特拉邦 (© MovingMaratha/Alamy)||![](/zh-CN/2021/01/202101111600SeaFort.jpg)|
