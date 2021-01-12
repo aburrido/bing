@@ -12,3 +12,4 @@
 202101091500|GoldenDragon|｢黄龍風景区｣中国, 四川省 (© primeimages/Getty Images)|金の昇り龍の池|![](/ja-JP/2021/01/202101091500GoldenDragon.jpg)|
 202101101500|Yunkai|｢アトラス山脈とアイット・ベン・ハドゥ｣モロッコ, ワルザザート (© Alex Cimbal/Shutterstock)|砂漠の要塞都市|![](/ja-JP/2021/01/202101101500Yunkai.jpg)|
 202101111500|IceSailing|｢冬のハドソン川のヨット｣米国, ニューヨーク州 (© Mike Segar/REUTERS)|冬もヨット日和|![](/ja-JP/2021/01/202101111500IceSailing.jpg)|
+202101121500|SnowCraterLake|｢冬のクレーターレイク国立公園｣米国, オレゴン州 (© Steve Bloom Images/Alamy)|世界で 7 番目に深い湖|![](/ja-JP/2021/01/202101121500SnowCraterLake.jpg)|
