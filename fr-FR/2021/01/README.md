@@ -12,3 +12,4 @@
 202101092300|GoldenDragon|Le Huanglong dans le Sichuan, Chine (© primeimages/Getty Images)|Piscine glacées|![](/fr-FR/2021/01/202101092300GoldenDragon.jpg)|
 202101102300|Yunkai|Aït Benhaddou et l’Atlas, Maroc (© Alex Cimbal/Shutterstock)|Aux portes du « Ksar »|![](/fr-FR/2021/01/202101102300Yunkai.jpg)|
 202101112300|IceSailing|Anciens chars à glace sur l’Hudson gelé près d’Astor Point à Barrytown, New York, États-Unis (© Mike Segar/REUTERS)|Sport d’un autre genre|![](/fr-FR/2021/01/202101112300IceSailing.jpg)|
+202101122300|BolivianSummer|Flamants dans la réserve nationale de faune andine Eduardo Avaroa, Bolivie (© Art Wolfe/Danita Delimont)|Flamants multicolores|![](/fr-FR/2021/01/202101122300BolivianSummer.jpg)|
