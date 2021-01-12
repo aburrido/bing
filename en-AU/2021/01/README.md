@@ -12,3 +12,4 @@
 202101091300|GoldenDragon|Huanglong Scenic and Historic Interest Area in Sichuan, China (© primeimages/Getty Images)|China's colourful terraced pools|![](/en-AU/2021/01/202101091300GoldenDragon.jpg)|
 202101101300|Yunkai|Aït Benhaddou, Atlas Mountains, Morocco (© Alex Cimbal/Shutterstock)|At the gates of the 'ksar'|![](/en-AU/2021/01/202101101300Yunkai.jpg)|
 202101111300|IceSailing|Antique iceboats on the frozen Hudson River near Astor Point in Barrytown, New York, USA (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-AU/2021/01/202101111300IceSailing.jpg)|
+202101121300|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-AU/2021/01/202101121300BolivianSummer.jpg)|
