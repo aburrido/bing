@@ -12,3 +12,4 @@
 202101090800|SpanishSeaSlug|Spanish shawl nudibranch on kelp off Santa Catalina Island, Channel Islands, California (© WaterFrame/Alamy)|The stylish Spanish shawl|![](/en-US/2021/01/202101090800SpanishSeaSlug.jpg)|
 202101100800|GoldenDragon|Huanglong Scenic and Historic Interest Area in Sichuan province, China (© primeimages/Getty Images)|China's colorful terraced pools|![](/en-US/2021/01/202101100800GoldenDragon.jpg)|
 202101110800|Yunkai|Aït Benhaddou, Atlas Mountains, Morocco (© Alex Cimbal/Shutterstock)|At the gates of the 'ksar'|![](/en-US/2021/01/202101110800Yunkai.jpg)|
+202101120800|IceSailing|Antique iceboats on the frozen Hudson River near Astor Point in Barrytown, New York (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-US/2021/01/202101120800IceSailing.jpg)|
