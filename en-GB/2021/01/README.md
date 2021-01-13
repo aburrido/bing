@@ -12,3 +12,4 @@
 202101100000|GoldenDragon|Huanglong Scenic and Historic Interest Area in Sichuan, China (© primeimages/Getty Images)|The icy beauty of Huanglong|![](/en-GB/2021/01/202101100000GoldenDragon.jpg)|
 202101110000|Yunkai|Aït Benhaddou, Atlas Mountains, Morocco (© Alex Cimbal/Shutterstock)|At the gates of the ksar|![](/en-GB/2021/01/202101110000Yunkai.jpg)|
 202101120000|HadriansFrost|Frosty morning at Hadrian's Wall on Winshields Crags, looking towards Crag Lough in Northumberland (© Nigel Eve/Shutterstock)|Edge of an empire|![](/en-GB/2021/01/202101120000HadriansFrost.jpg)|
+202101130000|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-GB/2021/01/202101130000BolivianSummer.jpg)|
