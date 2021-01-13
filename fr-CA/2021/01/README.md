@@ -13,3 +13,4 @@
 202101100500|GoldenDragon|Zone panoramique et historique de Huanglong dans le Sichuan en Chine (© primeimages/Getty Images)||![](/fr-CA/2021/01/202101100500GoldenDragon.jpg)|
 202101110500|YukonClouds|Nuages rouges au coucher du soleil sur le ruisseau McIntyre à Whitehorse, Yukon (© Robert Postma/plainpicture/Design Pics)||![](/fr-CA/2021/01/202101110500YukonClouds.jpg)|
 202101120500|JasperCrystals|Cristaux de glace au Parc national de Japser en Alberta (© Mint Images/Art Wolfe/Getty Images)||![](/fr-CA/2021/01/202101120500JasperCrystals.jpg)|
+202101130500|BolivianSummer|Flamants dans la réserve nationale de faune andine Eduardo Abaroa en Bolivie (© Art Wolfe/Danita Delimont)||![](/fr-CA/2021/01/202101130500BolivianSummer.jpg)|
