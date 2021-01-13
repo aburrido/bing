@@ -13,3 +13,4 @@
 202101102300|Yunkai|Aït Benhaddou am Fuße des Hohen Atlas, Marokko (© Alex Cimbal/Shutterstock)|Vor den Toren des „Ksar“|![](/de-DE/2021/01/202101102300Yunkai.jpg)|
 202101112300|OswaldCave|Eiszapfen in der Oswaldhöhle bei Muggendorf, Bayern (© Rüdiger Hess/geo-select FotoArt)|Kopf einziehen und Taschenlampe einschalten!|![](/de-DE/2021/01/202101112300OswaldCave.jpg)|
 202101122300|BolivianSummer|Flamingos im Nationalpark Reserva Nacional de Fauna Andina Eduardo Avaroa, Bolivien (© Art Wolfe/Danita Delimont)|Spaziergang durch die Rote Lagune|![](/de-DE/2021/01/202101122300BolivianSummer.jpg)|
+202101132300|GoldenDragon|Huanglong, Provinz Sichuan, China (© primeimages/Getty Images)|Chinas farbenfrohe Kalksteinterrassen|![](/de-DE/2021/01/202101132300GoldenDragon.jpg)|
