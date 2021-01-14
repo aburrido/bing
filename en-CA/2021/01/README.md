@@ -14,3 +14,4 @@
 202101110500|Yunkai|Aït Benhaddou, Atlas Mountains, Morocco (© Alex Cimbal/Shutterstock)|At the gates of the 'ksar'|![](/en-CA/2021/01/202101110500Yunkai.jpg)|
 202101120500|IceSailing|Antique iceboats on the frozen Hudson River near Astor Point in Barrytown, New York (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-CA/2021/01/202101120500IceSailing.jpg)|
 202101130500|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-CA/2021/01/202101130500BolivianSummer.jpg)|
+202101140500|BrightonSnow|Beach huts covered in snow in Brighton and Hove, England (© Tim Jones/Alamy)|Summer huts in winter|![](/en-CA/2021/01/202101140500BrightonSnow.jpg)|
