@@ -14,3 +14,4 @@
 202101112300|IceSailing|Anciens chars à glace sur l’Hudson gelé près d’Astor Point à Barrytown, New York, États-Unis (© Mike Segar/REUTERS)|Sport d’un autre genre|![](/fr-FR/2021/01/202101112300IceSailing.jpg)|
 202101122300|BolivianSummer|Flamants dans la réserve nationale de faune andine Eduardo Avaroa, Bolivie (© Art Wolfe/Danita Delimont)|Flamants multicolores|![](/fr-FR/2021/01/202101122300BolivianSummer.jpg)|
 202101132300|BrightonSnow|Cabines de plages recouvertes de neige à Brighton et Hove, Angleterre (© Tim Jones/Alamy)|Repos hivernal|![](/fr-FR/2021/01/202101132300BrightonSnow.jpg)|
+202101142300|ChateauBeynac|Le Château de Beynac dominant la vallée de la Dordogne (© Gareth Kirkland/Alamy)|Terre du diamant noir|![](/fr-FR/2021/01/202101142300ChateauBeynac.jpg)|
