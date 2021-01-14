@@ -14,3 +14,4 @@
 202101111600|SeaFort|Sindhudurg堡，印度马哈拉施特拉邦 (© MovingMaratha/Alamy)||![](/zh-CN/2021/01/202101111600SeaFort.jpg)|
 202101121600|BolivianSummer|爱德阿都·阿瓦罗·安第斯国家保护区内的火烈鸟，玻利维亚 (© Art Wolfe/Danita Delimont)||![](/zh-CN/2021/01/202101121600BolivianSummer.jpg)|
 202101131600|BrightonSnow|布莱顿-霍夫被雪覆盖的海滩小屋，英国 (© Tim Jones/Alamy)||![](/zh-CN/2021/01/202101131600BrightonSnow.jpg)|
+202101141600|ChateauBeynac|俯瞰着多尔多涅河谷的贝纳克城堡，法国 (© Gareth Kirkland/Alamy)||![](/zh-CN/2021/01/202101141600ChateauBeynac.jpg)|
