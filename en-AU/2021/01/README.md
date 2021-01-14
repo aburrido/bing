@@ -14,3 +14,4 @@
 202101111300|IceSailing|Antique iceboats on the frozen Hudson River near Astor Point in Barrytown, New York, USA (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-AU/2021/01/202101111300IceSailing.jpg)|
 202101121300|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-AU/2021/01/202101121300BolivianSummer.jpg)|
 202101131300|SurfingMan|High-angle view of man surfing in the sea, New South Wales (© Benjamin Lee/EyeEm/Getty Images)|Surf’s up|![](/en-AU/2021/01/202101131300SurfingMan.jpg)|
+202101141300|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It’s truffle season here in the Dordogne Valley|![](/en-AU/2021/01/202101141300ChateauBeynac.jpg)|
