@@ -14,3 +14,4 @@
 202101111830|IceSailing|Antique iceboats on the frozen Hudson River near Astor Point in Barrytown, New York, USA (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-IN/2021/01/202101111830IceSailing.jpg)|
 202101121830|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-IN/2021/01/202101121830BolivianSummer.jpg)|
 202101131830|BrightonSnow|Beach huts covered in snow in Brighton and Hove, England (© Tim Jones/Alamy)|Summer huts in winter|![](/en-IN/2021/01/202101131830BrightonSnow.jpg)|
+202101141830|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-IN/2021/01/202101141830GlassIgloos.jpg)|
