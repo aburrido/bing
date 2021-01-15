@@ -15,3 +15,4 @@
 202101120500|JasperCrystals|Cristaux de glace au Parc national de Japser en Alberta (© Mint Images/Art Wolfe/Getty Images)||![](/fr-CA/2021/01/202101120500JasperCrystals.jpg)|
 202101130500|BolivianSummer|Flamants dans la réserve nationale de faune andine Eduardo Abaroa en Bolivie (© Art Wolfe/Danita Delimont)||![](/fr-CA/2021/01/202101130500BolivianSummer.jpg)|
 202101140500|BrightonSnow|Cabanes de plage couvertes de neige à Brighton et Hove en Angleterre (© Tim Jones/Alamy)||![](/fr-CA/2021/01/202101140500BrightonSnow.jpg)|
+202101150500|ChateauBeynac|Château de Beynac surplombant la vallée de la Dordogne en France (© Gareth Kirkland/Alamy)||![](/fr-CA/2021/01/202101150500ChateauBeynac.jpg)|
