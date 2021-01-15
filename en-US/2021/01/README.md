@@ -15,3 +15,4 @@
 202101120800|IceSailing|Antique iceboats on the frozen Hudson River near Astor Point in Barrytown, New York (© Mike Segar/REUTERS)|Sailing on thick ice|![](/en-US/2021/01/202101120800IceSailing.jpg)|
 202101130800|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-US/2021/01/202101130800BolivianSummer.jpg)|
 202101140800|BrightonSnow|Beach huts covered in snow in Brighton and Hove, England (© Tim Jones/Alamy)|Summer huts in winter|![](/en-US/2021/01/202101140800BrightonSnow.jpg)|
+202101150800|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It's truffle season here in the Dordogne Valley|![](/en-US/2021/01/202101150800ChateauBeynac.jpg)|
