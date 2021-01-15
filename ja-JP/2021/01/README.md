@@ -15,3 +15,4 @@
 202101121500|SnowCraterLake|｢冬のクレーターレイク国立公園｣米国, オレゴン州 (© Steve Bloom Images/Alamy)|世界で 7 番目に深い湖|![](/ja-JP/2021/01/202101121500SnowCraterLake.jpg)|
 202101131500|BolivianSummer|｢ラグナ・コロラダのフラミンゴ｣ボリビア, ポトシ県 (© Art Wolfe/Danita Delimont)|アンデスの夏|![](/ja-JP/2021/01/202101131500BolivianSummer.jpg)|
 202101141500|ChateauBeynac|｢ドルドーニュ峡谷とベナック城｣フランス, ドルドーニュ県 (© Gareth Kirkland/Alamy)|百年戦争の城|![](/ja-JP/2021/01/202101141500ChateauBeynac.jpg)|
+202101151500|DarumaTemple|｢勝尾寺の勝ちダルマ｣大阪府, 箕面市 (© bill rubie/Alamy)|センター試験開始|![](/ja-JP/2021/01/202101151500DarumaTemple.jpg)|
