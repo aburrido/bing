@@ -15,3 +15,4 @@
 202101121600|BolivianSummer|爱德阿都·阿瓦罗·安第斯国家保护区内的火烈鸟，玻利维亚 (© Art Wolfe/Danita Delimont)||![](/zh-CN/2021/01/202101121600BolivianSummer.jpg)|
 202101131600|BrightonSnow|布莱顿-霍夫被雪覆盖的海滩小屋，英国 (© Tim Jones/Alamy)||![](/zh-CN/2021/01/202101131600BrightonSnow.jpg)|
 202101141600|ChateauBeynac|俯瞰着多尔多涅河谷的贝纳克城堡，法国 (© Gareth Kirkland/Alamy)||![](/zh-CN/2021/01/202101141600ChateauBeynac.jpg)|
+202101151600|GlassIgloos|卡克斯劳塔宁阿克蒂克度假酒店的玻璃圆顶冰屋，芬兰萨里山  (© Lingxiao Xie/Getty Images)||![](/zh-CN/2021/01/202101151600GlassIgloos.jpg)|
