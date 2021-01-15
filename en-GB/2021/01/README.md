@@ -14,3 +14,4 @@
 202101120000|HadriansFrost|Frosty morning at Hadrian's Wall on Winshields Crags, looking towards Crag Lough in Northumberland (© Nigel Eve/Shutterstock)|Edge of an empire|![](/en-GB/2021/01/202101120000HadriansFrost.jpg)|
 202101130000|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-GB/2021/01/202101130000BolivianSummer.jpg)|
 202101140000|BrightonSnow|Beach huts covered in snow in Brighton and Hove, East Sussex (© Tim Jones/Alamy)|Chilling at the beach|![](/en-GB/2021/01/202101140000BrightonSnow.jpg)|
+202101150000|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley, France (© Gareth Kirkland/Alamy)|Truffle hunting in the Dordogne|![](/en-GB/2021/01/202101150000ChateauBeynac.jpg)|
