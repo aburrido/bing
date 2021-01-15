@@ -15,3 +15,4 @@
 202101122300|BolivianSummer|Flamingos im Nationalpark Reserva Nacional de Fauna Andina Eduardo Avaroa, Bolivien (© Art Wolfe/Danita Delimont)|Spaziergang durch die Rote Lagune|![](/de-DE/2021/01/202101122300BolivianSummer.jpg)|
 202101132300|GoldenDragon|Huanglong, Provinz Sichuan, China (© primeimages/Getty Images)|Chinas farbenfrohe Kalksteinterrassen|![](/de-DE/2021/01/202101132300GoldenDragon.jpg)|
 202101142300|ChateauBeynac|Château de Beynac über dem Tal der Dordogne in Frankreich (© Gareth Kirkland/Alamy)|Trüffelsaison im Tal der Dordogne|![](/de-DE/2021/01/202101142300ChateauBeynac.jpg)|
+202101152300|GlassIgloos|Glasiglus im Kakslauttanen Arctic Resort in Saariselkä, Finnland (© Lingxiao Xie/Getty Images)|Freie Sicht auf Nordlichter und Sternenhimmel|![](/de-DE/2021/01/202101152300GlassIgloos.jpg)|
