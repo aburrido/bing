@@ -16,3 +16,4 @@
 202101130500|BolivianSummer|Flamants dans la réserve nationale de faune andine Eduardo Abaroa en Bolivie (© Art Wolfe/Danita Delimont)||![](/fr-CA/2021/01/202101130500BolivianSummer.jpg)|
 202101140500|BrightonSnow|Cabanes de plage couvertes de neige à Brighton et Hove en Angleterre (© Tim Jones/Alamy)||![](/fr-CA/2021/01/202101140500BrightonSnow.jpg)|
 202101150500|ChateauBeynac|Château de Beynac surplombant la vallée de la Dordogne en France (© Gareth Kirkland/Alamy)||![](/fr-CA/2021/01/202101150500ChateauBeynac.jpg)|
+202101160500|GlassIgloos|Igloos de verre au Kakslauttanen Arctic Resort à Saariselkä, Finlande (© Lingxiao Xie/Getty Images)||![](/fr-CA/2021/01/202101160500GlassIgloos.jpg)|

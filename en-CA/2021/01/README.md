@@ -16,3 +16,4 @@
 202101130500|BolivianSummer|Flamingos in the Eduardo Avaroa Andean Fauna National Reserve in Bolivia (© Art Wolfe/Danita Delimont)|Strolling across the Red Lagoon|![](/en-CA/2021/01/202101130500BolivianSummer.jpg)|
 202101140500|BrightonSnow|Beach huts covered in snow in Brighton and Hove, England (© Tim Jones/Alamy)|Summer huts in winter|![](/en-CA/2021/01/202101140500BrightonSnow.jpg)|
 202101150500|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It’s truffle season here in the Dordogne Valley|![](/en-CA/2021/01/202101150500ChateauBeynac.jpg)|
+202101160500|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-CA/2021/01/202101160500GlassIgloos.jpg)|
