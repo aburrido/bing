@@ -16,3 +16,4 @@
 202101131300|SurfingMan|High-angle view of man surfing in the sea, New South Wales (© Benjamin Lee/EyeEm/Getty Images)|Surf’s up|![](/en-AU/2021/01/202101131300SurfingMan.jpg)|
 202101141300|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It’s truffle season here in the Dordogne Valley|![](/en-AU/2021/01/202101141300ChateauBeynac.jpg)|
 202101151300|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-AU/2021/01/202101151300GlassIgloos.jpg)|
+202101161300|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-AU/2021/01/202101161300PailonDelDiablo.jpg)|
