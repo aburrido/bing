@@ -16,3 +16,4 @@
 202101131830|BrightonSnow|Beach huts covered in snow in Brighton and Hove, England (© Tim Jones/Alamy)|Summer huts in winter|![](/en-IN/2021/01/202101131830BrightonSnow.jpg)|
 202101141830|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-IN/2021/01/202101141830GlassIgloos.jpg)|
 202101151830|SoldiersOrangeTurban|Indian army soldiers march during a dress rehearsal for the Republic Day parade (© Adnan Abidi/Reuters)|Salute to the warriors of the Indian Army|![](/en-IN/2021/01/202101151830SoldiersOrangeTurban.jpg)|
+202101161830|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-IN/2021/01/202101161830PailonDelDiablo.jpg)|
