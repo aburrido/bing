@@ -17,3 +17,4 @@
 202101140500|BrightonSnow|Beach huts covered in snow in Brighton and Hove, England (© Tim Jones/Alamy)|Summer huts in winter|![](/en-CA/2021/01/202101140500BrightonSnow.jpg)|
 202101150500|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It’s truffle season here in the Dordogne Valley|![](/en-CA/2021/01/202101150500ChateauBeynac.jpg)|
 202101160500|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-CA/2021/01/202101160500GlassIgloos.jpg)|
+202101170500|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-CA/2021/01/202101170500PailonDelDiablo.jpg)|
