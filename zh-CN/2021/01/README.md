@@ -17,3 +17,4 @@
 202101141600|ChateauBeynac|俯瞰着多尔多涅河谷的贝纳克城堡，法国 (© Gareth Kirkland/Alamy)||![](/zh-CN/2021/01/202101141600ChateauBeynac.jpg)|
 202101151600|GlassIgloos|卡克斯劳塔宁阿克蒂克度假酒店的玻璃圆顶冰屋，芬兰萨里山  (© Lingxiao Xie/Getty Images)||![](/zh-CN/2021/01/202101151600GlassIgloos.jpg)|
 202101161600|PailonDelDiablo|巴尼奥斯附近的阿格杨瀑布，厄瓜多尔 (© Laura BC/Getty Images)||![](/zh-CN/2021/01/202101161600PailonDelDiablo.jpg)|
+202101171600|FichtelbergWinter|菲希特尔贝格山上的气象站和Fichtelberghaus酒店，德国上维森塔尔 (© Cornelia Dorr/eStock Photo)||![](/zh-CN/2021/01/202101171600FichtelbergWinter.jpg)|
