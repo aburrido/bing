@@ -18,3 +18,4 @@
 202101151600|GlassIgloos|卡克斯劳塔宁阿克蒂克度假酒店的玻璃圆顶冰屋，芬兰萨里山  (© Lingxiao Xie/Getty Images)||![](/zh-CN/2021/01/202101151600GlassIgloos.jpg)|
 202101161600|PailonDelDiablo|巴尼奥斯附近的阿格杨瀑布，厄瓜多尔 (© Laura BC/Getty Images)||![](/zh-CN/2021/01/202101161600PailonDelDiablo.jpg)|
 202101171600|FichtelbergWinter|菲希特尔贝格山上的气象站和Fichtelberghaus酒店，德国上维森塔尔 (© Cornelia Dorr/eStock Photo)||![](/zh-CN/2021/01/202101171600FichtelbergWinter.jpg)|
+202101181600|Calakmul|被丛林包围着的玛雅古城卡拉克穆尔遗址，墨西哥坎佩切 (© Alfredo Matus/Shutterstock)||![](/zh-CN/2021/01/202101181600Calakmul.jpg)|
