@@ -17,3 +17,4 @@
 202101150000|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley, France (© Gareth Kirkland/Alamy)|Truffle hunting in the Dordogne|![](/en-GB/2021/01/202101150000ChateauBeynac.jpg)|
 202101160000|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Asleep beneath the northern lights|![](/en-GB/2021/01/202101160000GlassIgloos.jpg)|
 202101170000|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|Route of the waterfalls|![](/en-GB/2021/01/202101170000PailonDelDiablo.jpg)|
+202101180000|BodminFrost|Sunset over an abandoned cottage on the foothills of Brown Willy on Bodmin Moor, the highest point in Cornwall (© Helen Hotson/Alamy Stock Photo)|In the foothills of Bronn Wennili|![](/en-GB/2021/01/202101180000BodminFrost.jpg)|
