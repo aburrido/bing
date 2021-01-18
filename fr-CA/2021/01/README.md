@@ -18,3 +18,4 @@
 202101150500|ChateauBeynac|Château de Beynac surplombant la vallée de la Dordogne en France (© Gareth Kirkland/Alamy)||![](/fr-CA/2021/01/202101150500ChateauBeynac.jpg)|
 202101160500|GlassIgloos|Igloos de verre au Kakslauttanen Arctic Resort à Saariselkä, Finlande (© Lingxiao Xie/Getty Images)||![](/fr-CA/2021/01/202101160500GlassIgloos.jpg)|
 202101170500|PailonDelDiablo|Cascade d'Agoyán près de Baños de Agua Santa, Équateur (© Laura BC/Getty Images)||![](/fr-CA/2021/01/202101170500PailonDelDiablo.jpg)|
+202101180500|AthabascaIce|Escalade glaciaire au glacier Athabasca dans le parc national de Jasper en Alberta (© Cavan Images/Offset)||![](/fr-CA/2021/01/202101180500AthabascaIce.jpg)|

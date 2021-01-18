@@ -18,3 +18,4 @@
 202101150500|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It’s truffle season here in the Dordogne Valley|![](/en-CA/2021/01/202101150500ChateauBeynac.jpg)|
 202101160500|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-CA/2021/01/202101160500GlassIgloos.jpg)|
 202101170500|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-CA/2021/01/202101170500PailonDelDiablo.jpg)|
+202101180500|AthabascaIce|Ice-climbing at the Athabasca Glacier in Jasper National Park, Alberta (© Cavan Images/Offset)|Jasper's hidden gem|![](/en-CA/2021/01/202101180500AthabascaIce.jpg)|
