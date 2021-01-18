@@ -18,3 +18,4 @@
 202101152300|GlassIgloos|Glasiglus im Kakslauttanen Arctic Resort in Saariselkä, Finnland (© Lingxiao Xie/Getty Images)|Freie Sicht auf Nordlichter und Sternenhimmel|![](/de-DE/2021/01/202101152300GlassIgloos.jpg)|
 202101162300|PailonDelDiablo|Agoyán-Wasserfall in der Nähe von Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|Auf der Route der Wasserfälle|![](/de-DE/2021/01/202101162300PailonDelDiablo.jpg)|
 202101172300|FichtelbergWinter|Wetterstation und Hotel Fichtelberghaus auf dem Fichtelberg, Oberwiesenthal, Erzgebirge, Sachsen (© Cornelia Dorr/Huber/eStock Photo)|Winterstimmung im Erzgebirge|![](/de-DE/2021/01/202101172300FichtelbergWinter.jpg)|
+202101182300|Calakmul|Vom Dschungel umgebene Ruinen der alten Maya-Stadt Calakmul, Campeche, Mexiko (© Alfredo Matus/Shutterstock)|Stumme Zeugen einstiger Maya-Herrschaft|![](/de-DE/2021/01/202101182300Calakmul.jpg)|
