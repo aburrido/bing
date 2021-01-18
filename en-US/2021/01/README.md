@@ -18,3 +18,4 @@
 202101150800|ChateauBeynac|Château de Beynac overlooking the Dordogne Valley in France (© Gareth Kirkland/Alamy)|It's truffle season here in the Dordogne Valley|![](/en-US/2021/01/202101150800ChateauBeynac.jpg)|
 202101160800|GlassIgloos|Glass igloos at the Kakslauttanen Arctic Resort in Saariselkä, Finland (© Lingxiao Xie/Getty Images)|Oh, to sleep under the northern lights|![](/en-US/2021/01/202101160800GlassIgloos.jpg)|
 202101170800|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-US/2021/01/202101170800PailonDelDiablo.jpg)|
+202101180800|IHADInscription|'I Have a Dream' inscription at the location of Dr. Martin Luther King Jr.'s speech on the steps of the Lincoln Memorial in Washington, DC (© Pgiam/Getty Images)|A step toward freedom|![](/en-US/2021/01/202101180800IHADInscription.jpg)|
