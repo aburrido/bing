@@ -18,3 +18,4 @@
 202101151830|SoldiersOrangeTurban|Indian army soldiers march during a dress rehearsal for the Republic Day parade (© Adnan Abidi/Reuters)|Salute to the warriors of the Indian Army|![](/en-IN/2021/01/202101151830SoldiersOrangeTurban.jpg)|
 202101161830|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-IN/2021/01/202101161830PailonDelDiablo.jpg)|
 202101171830|FichtelbergWinter|Weather Station and Fichtelberghaus Hotel on Fichtelberg Mountain (1214m), Oberwiesenthal, Ore Mountains, Erzgebirge, Saxony, Germany (© Cornelia Dorr/eStock Photo)|Weather lights in the Ore Mountains|![](/en-IN/2021/01/202101171830FichtelbergWinter.jpg)|
+202101181830|Calakmul|Ruins of the ancient Mayan city of Calakmul surrounded by the jungle, Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Mayan superpower|![](/en-IN/2021/01/202101181830Calakmul.jpg)|
