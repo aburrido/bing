@@ -19,3 +19,4 @@
 202101160500|GlassIgloos|Igloos de verre au Kakslauttanen Arctic Resort à Saariselkä, Finlande (© Lingxiao Xie/Getty Images)||![](/fr-CA/2021/01/202101160500GlassIgloos.jpg)|
 202101170500|PailonDelDiablo|Cascade d'Agoyán près de Baños de Agua Santa, Équateur (© Laura BC/Getty Images)||![](/fr-CA/2021/01/202101170500PailonDelDiablo.jpg)|
 202101180500|AthabascaIce|Escalade glaciaire au glacier Athabasca dans le parc national de Jasper en Alberta (© Cavan Images/Offset)||![](/fr-CA/2021/01/202101180500AthabascaIce.jpg)|
+202101190500|Calakmul|Les ruines de l'ancienne cité maya de Calakmul entourée par la jungle, Campeche, Mexique (© Alfredo Matus/Shutterstock)||![](/fr-CA/2021/01/202101190500Calakmul.jpg)|
