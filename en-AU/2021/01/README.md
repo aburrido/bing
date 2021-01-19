@@ -19,3 +19,4 @@
 202101161300|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-AU/2021/01/202101161300PailonDelDiablo.jpg)|
 202101171300|TahoeBeach|Sand Harbour, Lake Tahoe Nevada State Park, Nevada, USA (© Mariusz Blach/Getty Images Plus)|The Big Blue of the Sierras|![](/en-AU/2021/01/202101171300TahoeBeach.jpg)|
 202101181300|Calakmul|Ruins of the ancient Mayan city of Calakmul surrounded by the jungle, Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Mayan superpower|![](/en-AU/2021/01/202101181300Calakmul.jpg)|
+202101191300|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-AU/2021/01/202101191300GentooLeap.jpg)|
