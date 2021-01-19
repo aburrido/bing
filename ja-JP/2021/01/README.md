@@ -19,3 +19,4 @@
 202101161500|PailonDelDiablo|｢アゴヤンの滝｣エクアドル, パスタサ県  (© Laura BC/Getty Images)|悪魔の大釜|![](/ja-JP/2021/01/202101161500PailonDelDiablo.jpg)|
 202101171500|FichtelbergWinter|｢フィヒテルベルクの気象台とホテル｣ドイツ, ザクセン州 (© Cornelia Dorr/eStock Photo)|フィヒテの森の冬|![](/ja-JP/2021/01/202101171500FichtelbergWinter.jpg)|
 202101181500|Calakmul|｢カラクムルの古代マヤ文明遺跡｣メキシコ, カンペチェ州 (© Alfredo Matus/Shutterstock)|蛇の王国の都|![](/ja-JP/2021/01/202101181500Calakmul.jpg)|
+202101191500|GentooLeap|｢ジェンツーペンギン｣南極, ダンコ島 (© David Merron/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/01/202101191500GentooLeap.jpg)|
