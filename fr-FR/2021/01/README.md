@@ -19,3 +19,4 @@
 202101162300|PailonDelDiablo|Cascade Agoyán près de Baños de Agua Santa, Équateur (© Laura BC/Getty Images)|Le chaudron du Diable|![](/fr-FR/2021/01/202101162300PailonDelDiablo.jpg)|
 202101172300|FichtelbergWinter|Station météorologique et l’hôtel du Fichtelberg sur le Fichtelberg, Saxe, Allemagne (© Cornelia Dorr/eStock Photo)|Bons baisers de Saxe|![](/fr-FR/2021/01/202101172300FichtelbergWinter.jpg)|
 202101182300|IceWalking|Randonneurs, Mont Blanc, Chamonix (© agustavop/Getty Images)|Un kilomètre à pied, ça use, ça use…|![](/fr-FR/2021/01/202101182300IceWalking.jpg)|
+202101192300|GentooLeap|Manchots papous près de Danco Island, Antarctique (© David Merron/Getty Images)|Et hop !|![](/fr-FR/2021/01/202101192300GentooLeap.jpg)|
