@@ -20,3 +20,4 @@
 202101171830|FichtelbergWinter|Weather Station and Fichtelberghaus Hotel on Fichtelberg Mountain (1214m), Oberwiesenthal, Ore Mountains, Erzgebirge, Saxony, Germany (© Cornelia Dorr/eStock Photo)|Weather lights in the Ore Mountains|![](/en-IN/2021/01/202101171830FichtelbergWinter.jpg)|
 202101181830|Calakmul|Ruins of the ancient Mayan city of Calakmul surrounded by the jungle, Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Mayan superpower|![](/en-IN/2021/01/202101181830Calakmul.jpg)|
 202101191830|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-IN/2021/01/202101191830GentooLeap.jpg)|
+202101201830|RSOakTree|Red squirrel in the Scottish Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|The tale of squirrels like Nutkin|![](/en-IN/2021/01/202101201830RSOakTree.jpg)|
