@@ -20,3 +20,4 @@
 202101172300|FichtelbergWinter|Station météorologique et l’hôtel du Fichtelberg sur le Fichtelberg, Saxe, Allemagne (© Cornelia Dorr/eStock Photo)|Bons baisers de Saxe|![](/fr-FR/2021/01/202101172300FichtelbergWinter.jpg)|
 202101182300|IceWalking|Randonneurs, Mont Blanc, Chamonix (© agustavop/Getty Images)|Un kilomètre à pied, ça use, ça use…|![](/fr-FR/2021/01/202101182300IceWalking.jpg)|
 202101192300|GentooLeap|Manchots papous près de Danco Island, Antarctique (© David Merron/Getty Images)|Et hop !|![](/fr-FR/2021/01/202101192300GentooLeap.jpg)|
+202101202300|HugDay|Maman phoque gris et son petit sur une plage d’Heligoland, Schleswig-Holstein, Allemagne (© imageBROKER/Alamy Stock Photo)|L’heure des câlins|![](/fr-FR/2021/01/202101202300HugDay.jpg)|

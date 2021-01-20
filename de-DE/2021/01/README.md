@@ -20,3 +20,4 @@
 202101172300|FichtelbergWinter|Wetterstation und Hotel Fichtelberghaus auf dem Fichtelberg, Oberwiesenthal, Erzgebirge, Sachsen (© Cornelia Dorr/Huber/eStock Photo)|Winterstimmung im Erzgebirge|![](/de-DE/2021/01/202101172300FichtelbergWinter.jpg)|
 202101182300|Calakmul|Vom Dschungel umgebene Ruinen der alten Maya-Stadt Calakmul, Campeche, Mexiko (© Alfredo Matus/Shutterstock)|Stumme Zeugen einstiger Maya-Herrschaft|![](/de-DE/2021/01/202101182300Calakmul.jpg)|
 202101192300|GentooLeap|Eselspinguine, Danco Island, Antarktis (© David Merron/Getty Images)|Pinguine können nicht fliegen!|![](/de-DE/2021/01/202101192300GentooLeap.jpg)|
+202101202300|RSOakTree|Eichhörnchen in den Highlands, Schottland (© Scotland: The Big Picture/Minden Pictures)|Haben sie den Nager schon entdeckt?|![](/de-DE/2021/01/202101202300RSOakTree.jpg)|
