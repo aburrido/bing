@@ -20,3 +20,4 @@
 202101171600|FichtelbergWinter|菲希特尔贝格山上的气象站和Fichtelberghaus酒店，德国上维森塔尔 (© Cornelia Dorr/eStock Photo)||![](/zh-CN/2021/01/202101171600FichtelbergWinter.jpg)|
 202101181600|Calakmul|被丛林包围着的玛雅古城卡拉克穆尔遗址，墨西哥坎佩切 (© Alfredo Matus/Shutterstock)||![](/zh-CN/2021/01/202101181600Calakmul.jpg)|
 202101191600|GentooLeap|南极丹科岛附近的巴布亚企鹅 (© David Merron/Getty Images)||![](/zh-CN/2021/01/202101191600GentooLeap.jpg)|
+202101201600|RSOakTree|苏格兰高地上的欧亚红松鼠，苏格兰 (© Scotland: The Big Picture/Minden Pictures)||![](/zh-CN/2021/01/202101201600RSOakTree.jpg)|
