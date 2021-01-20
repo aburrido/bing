@@ -20,3 +20,4 @@
 202101170500|PailonDelDiablo|Cascade d'Agoyán près de Baños de Agua Santa, Équateur (© Laura BC/Getty Images)||![](/fr-CA/2021/01/202101170500PailonDelDiablo.jpg)|
 202101180500|AthabascaIce|Escalade glaciaire au glacier Athabasca dans le parc national de Jasper en Alberta (© Cavan Images/Offset)||![](/fr-CA/2021/01/202101180500AthabascaIce.jpg)|
 202101190500|Calakmul|Les ruines de l'ancienne cité maya de Calakmul entourée par la jungle, Campeche, Mexique (© Alfredo Matus/Shutterstock)||![](/fr-CA/2021/01/202101190500Calakmul.jpg)|
+202101200500|GentooLeap|Manchots papous près de l'île de Danco en Antarctique (© David Merron/Getty Images)||![](/fr-CA/2021/01/202101200500GentooLeap.jpg)|

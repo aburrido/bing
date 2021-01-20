@@ -20,3 +20,4 @@
 202101170500|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-CA/2021/01/202101170500PailonDelDiablo.jpg)|
 202101180500|AthabascaIce|Ice-climbing at the Athabasca Glacier in Jasper National Park, Alberta (© Cavan Images/Offset)|Jasper's hidden gem|![](/en-CA/2021/01/202101180500AthabascaIce.jpg)|
 202101190500|Calakmul|Ruins of the ancient Mayan city of Calakmul surrounded by the jungle, Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Mayan superpower|![](/en-CA/2021/01/202101190500Calakmul.jpg)|
+202101200500|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-CA/2021/01/202101200500GentooLeap.jpg)|
