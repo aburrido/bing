@@ -20,3 +20,4 @@
 202101170800|PailonDelDiablo|Agoyán waterfall near Baños de Agua Santa, Ecuador (© Laura BC/Getty Images)|On the Route of the Waterfalls|![](/en-US/2021/01/202101170800PailonDelDiablo.jpg)|
 202101180800|IHADInscription|'I Have a Dream' inscription at the location of Dr. Martin Luther King Jr.'s speech on the steps of the Lincoln Memorial in Washington, DC (© Pgiam/Getty Images)|A step toward freedom|![](/en-US/2021/01/202101180800IHADInscription.jpg)|
 202101190800|Calakmul|Ruins of the ancient Maya city of Calakmul surrounded by jungle in Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Maya superpower|![](/en-US/2021/01/202101190800Calakmul.jpg)|
+202101200800|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-US/2021/01/202101200800GentooLeap.jpg)|
