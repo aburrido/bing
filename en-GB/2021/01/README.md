@@ -20,3 +20,4 @@
 202101180000|BodminFrost|Sunset over an abandoned cottage on the foothills of Brown Willy on Bodmin Moor, the highest point in Cornwall (© Helen Hotson/Alamy Stock Photo)|In the foothills of Bronn Wennili|![](/en-GB/2021/01/202101180000BodminFrost.jpg)|
 202101190000|Calakmul|Ruins of the ancient Mayan city of Calakmul surrounded by the jungle, Campeche, Mexico (© Alfredo Matus/Shutterstock)|A lost civilisation|![](/en-GB/2021/01/202101190000Calakmul.jpg)|
 202101200000|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Jumping with style|![](/en-GB/2021/01/202101200000GentooLeap.jpg)|
+202101210000|RSOakTree|Red squirrel in the Scottish Highlands (© Scotland: The Big Picture/Minden Pictures)|A squirrel's tale|![](/en-GB/2021/01/202101210000RSOakTree.jpg)|
