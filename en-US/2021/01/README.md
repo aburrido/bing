@@ -21,3 +21,4 @@
 202101180800|IHADInscription|'I Have a Dream' inscription at the location of Dr. Martin Luther King Jr.'s speech on the steps of the Lincoln Memorial in Washington, DC (© Pgiam/Getty Images)|A step toward freedom|![](/en-US/2021/01/202101180800IHADInscription.jpg)|
 202101190800|Calakmul|Ruins of the ancient Maya city of Calakmul surrounded by jungle in Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Maya superpower|![](/en-US/2021/01/202101190800Calakmul.jpg)|
 202101200800|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-US/2021/01/202101200800GentooLeap.jpg)|
+202101210800|RSOakTree|Red squirrel in the Highlands of Scotland (© Scotland: The Big Picture/Minden Pictures)|The tale of squirrels like Nutkin|![](/en-US/2021/01/202101210800RSOakTree.jpg)|
