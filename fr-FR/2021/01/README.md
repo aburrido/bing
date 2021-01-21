@@ -21,3 +21,4 @@
 202101182300|IceWalking|Randonneurs, Mont Blanc, Chamonix (© agustavop/Getty Images)|Un kilomètre à pied, ça use, ça use…|![](/fr-FR/2021/01/202101182300IceWalking.jpg)|
 202101192300|GentooLeap|Manchots papous près de Danco Island, Antarctique (© David Merron/Getty Images)|Et hop !|![](/fr-FR/2021/01/202101192300GentooLeap.jpg)|
 202101202300|HugDay|Maman phoque gris et son petit sur une plage d’Heligoland, Schleswig-Holstein, Allemagne (© imageBROKER/Alamy Stock Photo)|L’heure des câlins|![](/fr-FR/2021/01/202101202300HugDay.jpg)|
+202101212300|BloodyBrook|Chemin de fer traversant Bloody Brook, le long du Connecticut, près de Hanover, New Hampshire, États-Unis (© DEEPOL by plainpicture)|Friluftsliv !|![](/fr-FR/2021/01/202101212300BloodyBrook.jpg)|
