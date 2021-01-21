@@ -21,3 +21,4 @@
 202101181500|Calakmul|｢カラクムルの古代マヤ文明遺跡｣メキシコ, カンペチェ州 (© Alfredo Matus/Shutterstock)|蛇の王国の都|![](/ja-JP/2021/01/202101181500Calakmul.jpg)|
 202101191500|GentooLeap|｢ジェンツーペンギン｣南極, ダンコ島 (© David Merron/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/01/202101191500GentooLeap.jpg)|
 202101201500|RSOakTree|｢キタリス｣スコットランド, ハイランド地方 (© Scotland: The Big Picture/Minden Pictures)|今日はリスの日|![](/ja-JP/2021/01/202101201500RSOakTree.jpg)|
+202101211500|BloodyBrook|｢ハノーバーのコネチカット川橋｣米国, ニューハンプシャー州 (© DEEPOL by plainpicture)|花崗岩の難所|![](/ja-JP/2021/01/202101211500BloodyBrook.jpg)|
