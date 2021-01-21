@@ -21,3 +21,4 @@
 202101181830|Calakmul|Ruins of the ancient Mayan city of Calakmul surrounded by the jungle, Campeche, Mexico (© Alfredo Matus/Shutterstock)|The ruins of a Mayan superpower|![](/en-IN/2021/01/202101181830Calakmul.jpg)|
 202101191830|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-IN/2021/01/202101191830GentooLeap.jpg)|
 202101201830|RSOakTree|Red squirrel in the Scottish Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|The tale of squirrels like Nutkin|![](/en-IN/2021/01/202101201830RSOakTree.jpg)|
+202101211830|BloodyBrook|Railroad crossing Bloody Brook alongside the Connecticut River in Hanover, New Hampshire, USA (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-IN/2021/01/202101211830BloodyBrook.jpg)|
