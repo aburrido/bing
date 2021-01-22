@@ -22,3 +22,4 @@
 202101191500|GentooLeap|｢ジェンツーペンギン｣南極, ダンコ島 (© David Merron/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/01/202101191500GentooLeap.jpg)|
 202101201500|RSOakTree|｢キタリス｣スコットランド, ハイランド地方 (© Scotland: The Big Picture/Minden Pictures)|今日はリスの日|![](/ja-JP/2021/01/202101201500RSOakTree.jpg)|
 202101211500|BloodyBrook|｢ハノーバーのコネチカット川橋｣米国, ニューハンプシャー州 (© DEEPOL by plainpicture)|花崗岩の難所|![](/ja-JP/2021/01/202101211500BloodyBrook.jpg)|
+202101221500|ChuDangYa|｢チュダンヤ火山｣ベトナム, ザライ省 (© Quang Ngoc Nguyen/Alamy)|眠りについた火山|![](/ja-JP/2021/01/202101221500ChuDangYa.jpg)|
