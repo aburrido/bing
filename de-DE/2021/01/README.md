@@ -22,3 +22,4 @@
 202101192300|GentooLeap|Eselspinguine, Danco Island, Antarktis (© David Merron/Getty Images)|Pinguine können nicht fliegen!|![](/de-DE/2021/01/202101192300GentooLeap.jpg)|
 202101202300|RSOakTree|Eichhörnchen in den Highlands, Schottland (© Scotland: The Big Picture/Minden Pictures)|Haben sie den Nager schon entdeckt?|![](/de-DE/2021/01/202101202300RSOakTree.jpg)|
 202101212300|ChurchRock|Blitzeinschlag nahe einer Felsformation, Church Rock, Red Rock Park, New Mexico, USA (© Tim Fitzharris/Minden Pictures)|Blitzentladung im Südwesten der USA|![](/de-DE/2021/01/202101212300ChurchRock.jpg)|
+202101222300|Molas|Traditionelle Molas des Kuna-Volks, San-Blas-Inseln, Panama (© Lars Schneider/Tandem Stills + Motion)|Diese Muster erzählen eine Geschichte|![](/de-DE/2021/01/202101222300Molas.jpg)|
