@@ -22,3 +22,4 @@
 202101191600|GentooLeap|南极丹科岛附近的巴布亚企鹅 (© David Merron/Getty Images)||![](/zh-CN/2021/01/202101191600GentooLeap.jpg)|
 202101201600|RSOakTree|苏格兰高地上的欧亚红松鼠，苏格兰 (© Scotland: The Big Picture/Minden Pictures)||![](/zh-CN/2021/01/202101201600RSOakTree.jpg)|
 202101211600|BloodyBrook|横跨康涅狄格河畔血溪的铁路，新罕布什尔州汉诺威 (© DEEPOL by plainpicture)||![](/zh-CN/2021/01/202101211600BloodyBrook.jpg)|
+202101221600|ChuDangYa|波来古市附近的Chu Dang Ya火山，越南嘉来 (© Quang Ngoc Nguyen/Alamy)||![](/zh-CN/2021/01/202101221600ChuDangYa.jpg)|
