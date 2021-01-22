@@ -22,3 +22,4 @@
 202101191300|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Penguins can't fly!|![](/en-AU/2021/01/202101191300GentooLeap.jpg)|
 202101201300|RSOakTree|Red squirrel in the Scottish Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|The tale of squirrels like Nutkin|![](/en-AU/2021/01/202101201300RSOakTree.jpg)|
 202101211300|BloodyBrook|Railroad crossing Bloody Brook alongside the Connecticut River in Hanover, New Hampshire, USA (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-AU/2021/01/202101211300BloodyBrook.jpg)|
+202101221300|ChuDangYa|Chu Dang Ya near Pleiku in Gia Lai Province, Vietnam (© Quang Ngoc Nguyen/Alamy)|A sleeping green giant|![](/en-AU/2021/01/202101221300ChuDangYa.jpg)|
