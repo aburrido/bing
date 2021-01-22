@@ -22,3 +22,4 @@
 202101190500|Calakmul|Les ruines de l'ancienne cité maya de Calakmul entourée par la jungle, Campeche, Mexique (© Alfredo Matus/Shutterstock)||![](/fr-CA/2021/01/202101190500Calakmul.jpg)|
 202101200500|GentooLeap|Manchots papous près de l'île de Danco en Antarctique (© David Merron/Getty Images)||![](/fr-CA/2021/01/202101200500GentooLeap.jpg)|
 202101210500|RSOakTree|Écureuil roux dans les Highlands en Écosse (© Scotland: The Big Picture/Minden Pictures)||![](/fr-CA/2021/01/202101210500RSOakTree.jpg)|
+202101220500|BloodyBrook|Chemin de fer traversant Bloody Brook le long du fleuve Connecticut à Hanovre, New Hampshire (© DEEPOL by plainpicture)||![](/fr-CA/2021/01/202101220500BloodyBrook.jpg)|
