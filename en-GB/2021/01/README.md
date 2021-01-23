@@ -22,3 +22,4 @@
 202101200000|GentooLeap|Gentoo penguins near Danco Island, Antarctica (© David Merron/Getty Images)|Jumping with style|![](/en-GB/2021/01/202101200000GentooLeap.jpg)|
 202101210000|RSOakTree|Red squirrel in the Scottish Highlands (© Scotland: The Big Picture/Minden Pictures)|A squirrel's tale|![](/en-GB/2021/01/202101210000RSOakTree.jpg)|
 202101220000|ChuDangYa|Chu Dang Ya near Pleiku in Gia Lai Province, Vietnam (© Quang Ngoc Nguyen/Alamy)|A sleeping green giant|![](/en-GB/2021/01/202101220000ChuDangYa.jpg)|
+202101230000|Goessweinstein|View over the village of Gößweinstein and Gössweinstein castle, Bavaria, Germany (© Juergen Sack/Getty Images)|A shining beauty in Bavaria|![](/en-GB/2021/01/202101230000Goessweinstein.jpg)|
