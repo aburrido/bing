@@ -23,3 +23,4 @@
 202101201500|RSOakTree|｢キタリス｣スコットランド, ハイランド地方 (© Scotland: The Big Picture/Minden Pictures)|今日はリスの日|![](/ja-JP/2021/01/202101201500RSOakTree.jpg)|
 202101211500|BloodyBrook|｢ハノーバーのコネチカット川橋｣米国, ニューハンプシャー州 (© DEEPOL by plainpicture)|花崗岩の難所|![](/ja-JP/2021/01/202101211500BloodyBrook.jpg)|
 202101221500|ChuDangYa|｢チュダンヤ火山｣ベトナム, ザライ省 (© Quang Ngoc Nguyen/Alamy)|眠りについた火山|![](/ja-JP/2021/01/202101221500ChuDangYa.jpg)|
+202101231500|GPSVideo|｢グランド・プリズマティック・スプリング｣米国, ワイオミング州 (© Darrenp/Shutterstock)|灼熱の熱水泉|![](/ja-JP/2021/01/202101231500GPSVideo.jpg)|
