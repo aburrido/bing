@@ -23,3 +23,4 @@
 202101201300|RSOakTree|Red squirrel in the Scottish Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|The tale of squirrels like Nutkin|![](/en-AU/2021/01/202101201300RSOakTree.jpg)|
 202101211300|BloodyBrook|Railroad crossing Bloody Brook alongside the Connecticut River in Hanover, New Hampshire, USA (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-AU/2021/01/202101211300BloodyBrook.jpg)|
 202101221300|ChuDangYa|Chu Dang Ya near Pleiku in Gia Lai Province, Vietnam (© Quang Ngoc Nguyen/Alamy)|A sleeping green giant|![](/en-AU/2021/01/202101221300ChuDangYa.jpg)|
+202101231300|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-AU/2021/01/202101231300Molas.jpg)|
