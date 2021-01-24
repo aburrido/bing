@@ -24,3 +24,4 @@
 202101212300|BloodyBrook|Chemin de fer traversant Bloody Brook, le long du Connecticut, près de Hanover, New Hampshire, États-Unis (© DEEPOL by plainpicture)|Friluftsliv !|![](/fr-FR/2021/01/202101212300BloodyBrook.jpg)|
 202101222300|ChuDangYa|Chu Dang Ya près de Pleiku dans la province de Gia Lai, Vietnam (© Quang Ngoc Nguyen/Alamy)|Géant vert endormi|![](/fr-FR/2021/01/202101222300ChuDangYa.jpg)|
 202101232300|Molas|Tissu artisanal créé par les Kunas de l’archipel du Guna Yala, Panama (© Lars Schneider/Tandem Stills + Motion)|Liberté brodée|![](/fr-FR/2021/01/202101232300Molas.jpg)|
+202101242300|ChurchRock|La foudre tombant près de Church Rock, Red Rock Park, Nouveau-Mexique, États-Unis (© Tim Fitzharris/Minden Pictures)|Frappé par la foudre|![](/fr-FR/2021/01/202101242300ChurchRock.jpg)|

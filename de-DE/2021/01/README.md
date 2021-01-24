@@ -24,3 +24,4 @@
 202101212300|ChurchRock|Blitzeinschlag nahe einer Felsformation, Church Rock, Red Rock Park, New Mexico, USA (© Tim Fitzharris/Minden Pictures)|Blitzentladung im Südwesten der USA|![](/de-DE/2021/01/202101212300ChurchRock.jpg)|
 202101222300|Molas|Traditionelle Molas des Kuna-Volks, San-Blas-Inseln, Panama (© Lars Schneider/Tandem Stills + Motion)|Diese Muster erzählen eine Geschichte|![](/de-DE/2021/01/202101222300Molas.jpg)|
 202101232300|ChuDangYa|Chu Dang Ya nahe Pleiku, Provinz Gia Lai, Zentrales Hochland, Vietnam (© Quang Ngoc Nguyen/Alamy)|Ein schlafender grüner Riese|![](/de-DE/2021/01/202101232300ChuDangYa.jpg)|
+202101242300|HohenschwangauSchnee|Schloss Hohenschwangau, Schwangau bei Füssen, Bayern (© volkova natalia/Shutterstock)|Märchenhafte Winterlandschaft|![](/de-DE/2021/01/202101242300HohenschwangauSchnee.jpg)|
