@@ -24,3 +24,4 @@
 202101211600|BloodyBrook|横跨康涅狄格河畔血溪的铁路，新罕布什尔州汉诺威 (© DEEPOL by plainpicture)||![](/zh-CN/2021/01/202101211600BloodyBrook.jpg)|
 202101221600|ChuDangYa|波来古市附近的Chu Dang Ya火山，越南嘉来 (© Quang Ngoc Nguyen/Alamy)||![](/zh-CN/2021/01/202101221600ChuDangYa.jpg)|
 202101231600|Molas|库纳族人的手工艺品，巴拿马圣布拉斯群岛 (© Lars Schneider/Tandem Stills + Motion)||![](/zh-CN/2021/01/202101231600Molas.jpg)|
+202101241600|ChurchRock|红石公园教堂岩附近的雷击，新墨西哥州 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2021/01/202101241600ChurchRock.jpg)|
