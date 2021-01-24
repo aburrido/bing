@@ -24,3 +24,4 @@
 202101211300|BloodyBrook|Railroad crossing Bloody Brook alongside the Connecticut River in Hanover, New Hampshire, USA (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-AU/2021/01/202101211300BloodyBrook.jpg)|
 202101221300|ChuDangYa|Chu Dang Ya near Pleiku in Gia Lai Province, Vietnam (© Quang Ngoc Nguyen/Alamy)|A sleeping green giant|![](/en-AU/2021/01/202101221300ChuDangYa.jpg)|
 202101231300|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-AU/2021/01/202101231300Molas.jpg)|
+202101241300|ChurchRock|Lightning strikes near rock formation, Church Rock, Red Rock Park, New Mexico, USA (© Tim Fitzharris/Minden Pictures)|Struck by beauty|![](/en-AU/2021/01/202101241300ChurchRock.jpg)|
