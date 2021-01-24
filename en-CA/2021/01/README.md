@@ -24,3 +24,4 @@
 202101210500|RSOakTree|Red squirrel in the Scottish Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|The tale of squirrels like Nutkin|![](/en-CA/2021/01/202101210500RSOakTree.jpg)|
 202101220500|BloodyBrook|Railroad crossing Bloody Brook alongside the Connecticut River in Hanover, New Hampshire (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-CA/2021/01/202101220500BloodyBrook.jpg)|
 202101230500|PembertonSnow|A snowboarder in Pemberton, B.C. (© Jussi Grznar/Tandem Stills + Motion)|A gateway to winter adventure|![](/en-CA/2021/01/202101230500PembertonSnow.jpg)|
+202101240500|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-CA/2021/01/202101240500Molas.jpg)|
