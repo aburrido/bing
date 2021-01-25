@@ -25,3 +25,4 @@
 202101221600|ChuDangYa|波来古市附近的Chu Dang Ya火山，越南嘉来 (© Quang Ngoc Nguyen/Alamy)||![](/zh-CN/2021/01/202101221600ChuDangYa.jpg)|
 202101231600|Molas|库纳族人的手工艺品，巴拿马圣布拉斯群岛 (© Lars Schneider/Tandem Stills + Motion)||![](/zh-CN/2021/01/202101231600Molas.jpg)|
 202101241600|ChurchRock|红石公园教堂岩附近的雷击，新墨西哥州 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2021/01/202101241600ChurchRock.jpg)|
+202101251600|HeartAustralia|属于大堡礁的一部分的心形礁，澳大利亚昆士兰 (© Peter Adams/Offset by Shutterstock)||![](/zh-CN/2021/01/202101251600HeartAustralia.jpg)|
