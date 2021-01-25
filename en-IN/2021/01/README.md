@@ -25,3 +25,4 @@
 202101221830|ChuDangYa|Chu Dang Ya near Pleiku in Gia Lai Province, Vietnam (© Quang Ngoc Nguyen/Alamy)|A sleeping green giant|![](/en-IN/2021/01/202101221830ChuDangYa.jpg)|
 202101231830|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-IN/2021/01/202101231830Molas.jpg)|
 202101241830|ChurchRock|Lightning strikes near rock formation, Church Rock, Red Rock Park, New Mexico, USA (© Tim Fitzharris/Minden Pictures)|Struck by Southwestern beauty|![](/en-IN/2021/01/202101241830ChurchRock.jpg)|
+202101251830|VTRepublic|CST station Mumbai, illuminated for Republic Day (© R Modi/Dinodia Photo/age fotostock)|Republic Day illumination of CST, Mumbai|![](/en-IN/2021/01/202101251830VTRepublic.jpg)|
