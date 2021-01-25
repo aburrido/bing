@@ -25,3 +25,4 @@
 202101221500|ChuDangYa|｢チュダンヤ火山｣ベトナム, ザライ省 (© Quang Ngoc Nguyen/Alamy)|眠りについた火山|![](/ja-JP/2021/01/202101221500ChuDangYa.jpg)|
 202101231500|GPSVideo|｢グランド・プリズマティック・スプリング｣米国, ワイオミング州 (© Darrenp/Shutterstock)|灼熱の熱水泉|![](/ja-JP/2021/01/202101231500GPSVideo.jpg)|
 202101241500|ChurchRock|｢チャーチロックと稲妻｣米国, ニューメキシコ州 (© Tim Fitzharris/Minden Pictures)|西部劇の赤い岩|![](/ja-JP/2021/01/202101241500ChurchRock.jpg)|
+202101251500|HeartAustralia|｢グレートバリアリーフのハートの島｣オーストラリア, クイーンズランド州 (© Peter Adams/Offset by Shutterstock)|今日はオーストラリアの日|![](/ja-JP/2021/01/202101251500HeartAustralia.jpg)|
