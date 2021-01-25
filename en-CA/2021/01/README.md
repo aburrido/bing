@@ -25,3 +25,4 @@
 202101220500|BloodyBrook|Railroad crossing Bloody Brook alongside the Connecticut River in Hanover, New Hampshire (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-CA/2021/01/202101220500BloodyBrook.jpg)|
 202101230500|PembertonSnow|A snowboarder in Pemberton, B.C. (© Jussi Grznar/Tandem Stills + Motion)|A gateway to winter adventure|![](/en-CA/2021/01/202101230500PembertonSnow.jpg)|
 202101240500|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-CA/2021/01/202101240500Molas.jpg)|
+202101250500|ChurchRock|Lightning strikes near rock formation, Church Rock, Red Rock Park, New Mexico (© Tim Fitzharris/Minden Pictures)|Struck by Southwestern beauty|![](/en-CA/2021/01/202101250500ChurchRock.jpg)|

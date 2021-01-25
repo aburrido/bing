@@ -25,3 +25,4 @@
 202101220500|BloodyBrook|Chemin de fer traversant Bloody Brook le long du fleuve Connecticut à Hanovre, New Hampshire (© DEEPOL by plainpicture)||![](/fr-CA/2021/01/202101220500BloodyBrook.jpg)|
 202101230500|PembertonSnow|Un surfeur des neiges à Pemberton en Colombie-Britannique (© Jussi Grznar/Tandem Stills + Motion)||![](/fr-CA/2021/01/202101230500PembertonSnow.jpg)|
 202101240500|Molas|Artisanat du peuple Guna de l'archipel Guna Yala, Panama (© Lars Schneider/Tandem Stills + Motion)||![](/fr-CA/2021/01/202101240500Molas.jpg)|
+202101250500|ChurchRock|La foudre frappe près d'une formation rocheuse, Church Rock, Red Rock Park, Nouveau-Mexique (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/01/202101250500ChurchRock.jpg)|
