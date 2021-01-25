@@ -25,3 +25,4 @@
 202101220800|BloodyBrook|Paddleboarder in Bloody Brook, alongside the Connecticut River in Hanover, New Hampshire (© DEEPOL by plainpicture)|Cold? What cold?|![](/en-US/2021/01/202101220800BloodyBrook.jpg)|
 202101230800|ChuDangYa|Chu Dang Ya near Pleiku in Gia Lai province, Vietnam (© Quang Ngoc Nguyen/Alamy)|A sleeping green giant|![](/en-US/2021/01/202101230800ChuDangYa.jpg)|
 202101240800|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-US/2021/01/202101240800Molas.jpg)|
+202101250800|ChurchRock|Lightning strikes near Church Rock, New Mexico (© Tim Fitzharris/Minden Pictures)|Struck by Southwestern beauty|![](/en-US/2021/01/202101250800ChurchRock.jpg)|
