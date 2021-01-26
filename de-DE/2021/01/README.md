@@ -26,3 +26,4 @@
 202101232300|ChuDangYa|Chu Dang Ya nahe Pleiku, Provinz Gia Lai, Zentrales Hochland, Vietnam (© Quang Ngoc Nguyen/Alamy)|Ein schlafender grüner Riese|![](/de-DE/2021/01/202101232300ChuDangYa.jpg)|
 202101242300|HohenschwangauSchnee|Schloss Hohenschwangau, Schwangau bei Füssen, Bayern (© volkova natalia/Shutterstock)|Märchenhafte Winterlandschaft|![](/de-DE/2021/01/202101242300HohenschwangauSchnee.jpg)|
 202101252300|HeartAustralia|Heart Reef im Great Barrier Reef, Queensland, Australien (© Peter Adams/Offset by Shutterstock)|Was wird heute in Australien gefeiert?|![](/de-DE/2021/01/202101252300HeartAustralia.jpg)|
+202101262300|Taormina|Taormina, Sizilien, Italien (© Juergen Schonnop/Getty Images)|Sizilianische Ansicht|![](/de-DE/2021/01/202101262300Taormina.jpg)|

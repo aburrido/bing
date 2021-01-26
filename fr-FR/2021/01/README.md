@@ -26,3 +26,4 @@
 202101232300|Molas|Tissu artisanal créé par les Kunas de l’archipel du Guna Yala, Panama (© Lars Schneider/Tandem Stills + Motion)|Liberté brodée|![](/fr-FR/2021/01/202101232300Molas.jpg)|
 202101242300|ChurchRock|La foudre tombant près de Church Rock, Red Rock Park, Nouveau-Mexique, États-Unis (© Tim Fitzharris/Minden Pictures)|Frappé par la foudre|![](/fr-FR/2021/01/202101242300ChurchRock.jpg)|
 202101252300|HeartAustralia|Heart Reef, portion de la Grande Barrière de Corail au large des côtes du Queensland, Australie (© Peter Adams/Offset by Shutterstock)|Le jour de l’Australie !|![](/fr-FR/2021/01/202101252300HeartAustralia.jpg)|
+202101262300|Taormina|Taormine, Sicile, Italie (© Juergen Schonnop/Getty Images)|Vacances siciliennes|![](/fr-FR/2021/01/202101262300Taormina.jpg)|
