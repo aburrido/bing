@@ -26,3 +26,4 @@
 202101240000|SpanishSeaSlug|Spanish shawl nudibranch on kelp off Santa Catalina Island, California, USA (© WaterFrame/Alamy)|One stylish slug|![](/en-GB/2021/01/202101240000SpanishSeaSlug.jpg)|
 202101250000|EdinburghSkyline|Twilight view over Edinburgh as seen from Calton Hill (© Henk Meijer/Alamy Stock Photo)|Burns Night|![](/en-GB/2021/01/202101250000EdinburghSkyline.jpg)|
 202101260000|HeartAustralia|Heart Reef, part of the Great Barrier Reef off Queensland, Australia (© Peter Adams/Offset by Shutterstock)|A big day Down Under|![](/en-GB/2021/01/202101260000HeartAustralia.jpg)|
+202101270000|Taormina|Taormina, Sicily, Italy (© Juergen Schonnop/Getty Images)|A dramatic view of Sicily|![](/en-GB/2021/01/202101270000Taormina.jpg)|
