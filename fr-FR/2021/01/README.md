@@ -27,3 +27,4 @@
 202101242300|ChurchRock|La foudre tombant près de Church Rock, Red Rock Park, Nouveau-Mexique, États-Unis (© Tim Fitzharris/Minden Pictures)|Frappé par la foudre|![](/fr-FR/2021/01/202101242300ChurchRock.jpg)|
 202101252300|HeartAustralia|Heart Reef, portion de la Grande Barrière de Corail au large des côtes du Queensland, Australie (© Peter Adams/Offset by Shutterstock)|Le jour de l’Australie !|![](/fr-FR/2021/01/202101252300HeartAustralia.jpg)|
 202101262300|Taormina|Taormine, Sicile, Italie (© Juergen Schonnop/Getty Images)|Vacances siciliennes|![](/fr-FR/2021/01/202101262300Taormina.jpg)|
+202101272300|ArcticWolf|Famille de loups arctiques, Canada (© 4FR/Getty Images)|La Lune du Loup|![](/fr-FR/2021/01/202101272300ArcticWolf.jpg)|
