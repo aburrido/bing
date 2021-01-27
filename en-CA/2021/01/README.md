@@ -27,3 +27,4 @@
 202101240500|Molas|Handicrafts of the Guna people of the Guna Yala archipelago, Panama (© Lars Schneider/Tandem Stills + Motion)|These patterns tell a story|![](/en-CA/2021/01/202101240500Molas.jpg)|
 202101250500|ChurchRock|Lightning strikes near rock formation, Church Rock, Red Rock Park, New Mexico (© Tim Fitzharris/Minden Pictures)|Struck by Southwestern beauty|![](/en-CA/2021/01/202101250500ChurchRock.jpg)|
 202101260500|HeartAustralia|Heart Reef, part of the Great Barrier Reef off Queensland, Australia (© Peter Adams/Offset by Shutterstock)|Didgeridoo you know what day it is?|![](/en-CA/2021/01/202101260500HeartAustralia.jpg)|
+202101270500|Taormina|Taormina, Sicily, Italy (© Juergen Schonnop/Getty Images)|A dramatic view of Sicily|![](/en-CA/2021/01/202101270500Taormina.jpg)|
