@@ -28,3 +28,4 @@
 202101250500|ChurchRock|La foudre frappe près d'une formation rocheuse, Church Rock, Red Rock Park, Nouveau-Mexique (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/01/202101250500ChurchRock.jpg)|
 202101260500|HeartAustralia|Heart Reef, un récif en forme de cœur faisant partie de la Grande Barrière de Corail au large du Queensland, Australie (© Peter Adams/Offset by Shutterstock)||![](/fr-CA/2021/01/202101260500HeartAustralia.jpg)|
 202101270500|Taormina|Taormine, Sicile, Italie (© Juergen Schonnop/Getty Images)||![](/fr-CA/2021/01/202101270500Taormina.jpg)|
+202101280500|ArcticWolf|Famille de loups arctiques au Canada (© 4FR/Getty Images)||![](/fr-CA/2021/01/202101280500ArcticWolf.jpg)|
