@@ -28,3 +28,4 @@
 202101252300|HeartAustralia|Heart Reef im Great Barrier Reef, Queensland, Australien (© Peter Adams/Offset by Shutterstock)|Was wird heute in Australien gefeiert?|![](/de-DE/2021/01/202101252300HeartAustralia.jpg)|
 202101262300|Taormina|Taormina, Sizilien, Italien (© Juergen Schonnop/Getty Images)|Sizilianische Ansicht|![](/de-DE/2021/01/202101262300Taormina.jpg)|
 202101272300|ArcticWolf|Polarwolf-Rudel in Kanada (© 4FR/Getty Images)|Avatare des Wolfsmonds|![](/de-DE/2021/01/202101272300ArcticWolf.jpg)|
+202101282300|RedRobin|Rotkehlchen im Schneegestöber, Peak-District-Nationalpark, England (© Ben Robson Hull Photography/Getty Images)|Wann kommt endlich der Frühling?|![](/de-DE/2021/01/202101282300RedRobin.jpg)|
