@@ -28,3 +28,4 @@
 202101251830|VTRepublic|CST station Mumbai, illuminated for Republic Day (© R Modi/Dinodia Photo/age fotostock)|Republic Day illumination of CST, Mumbai|![](/en-IN/2021/01/202101251830VTRepublic.jpg)|
 202101261830|Taormina|Taormina, Sicily, Italy (© Juergen Schonnop/Getty Images)|A dramatic view of Sicily|![](/en-IN/2021/01/202101261830Taormina.jpg)|
 202101271830|ArcticWolf|Arctic wolf family in Canada (© 4FR/Getty Images)|Avatars of the Wolf Moon|![](/en-IN/2021/01/202101271830ArcticWolf.jpg)|
+202101281830|RedRobin|European robin during a winter snowstorm, Peak District National Park, England (© Ben Robson Hull Photography/Getty Images)|So, how long 'til springtime?|![](/en-IN/2021/01/202101281830RedRobin.jpg)|
