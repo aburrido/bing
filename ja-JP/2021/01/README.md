@@ -28,3 +28,4 @@
 202101251500|HeartAustralia|｢グレートバリアリーフのハートの島｣オーストラリア, クイーンズランド州 (© Peter Adams/Offset by Shutterstock)|今日はオーストラリアの日|![](/ja-JP/2021/01/202101251500HeartAustralia.jpg)|
 202101261500|Taormina|｢タオルミーナ｣イタリア, シチリア州 (© Juergen Schonnop/Getty Images)|古代遺跡のビーチ|![](/ja-JP/2021/01/202101261500Taormina.jpg)|
 202101271500|ArcticWolf|｢ホッキョクオオカミの家族｣カナダ (© 4FR/Getty Images)|1 月の満月は狼月|![](/ja-JP/2021/01/202101271500ArcticWolf.jpg)|
+202101281500|RedRobin|｢吹雪の中のヨーロッパコマドリ｣イギリス, ピークディストリクト国立公園 (© Ben Robson Hull Photography/Getty Images)|ガーデンバードウォッチの日|![](/ja-JP/2021/01/202101281500RedRobin.jpg)|
