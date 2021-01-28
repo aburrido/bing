@@ -27,3 +27,4 @@
 202101250000|EdinburghSkyline|Twilight view over Edinburgh as seen from Calton Hill (© Henk Meijer/Alamy Stock Photo)|Burns Night|![](/en-GB/2021/01/202101250000EdinburghSkyline.jpg)|
 202101260000|HeartAustralia|Heart Reef, part of the Great Barrier Reef off Queensland, Australia (© Peter Adams/Offset by Shutterstock)|A big day Down Under|![](/en-GB/2021/01/202101260000HeartAustralia.jpg)|
 202101270000|Taormina|Taormina, Sicily, Italy (© Juergen Schonnop/Getty Images)|A dramatic view of Sicily|![](/en-GB/2021/01/202101270000Taormina.jpg)|
+202101280000|ArcticWolf|Arctic wolf family in Canada (© 4FR/Getty Images)|Avatars of the wolf moon|![](/en-GB/2021/01/202101280000ArcticWolf.jpg)|
