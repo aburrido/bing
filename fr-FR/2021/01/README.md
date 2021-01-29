@@ -29,3 +29,4 @@
 202101262300|Taormina|Taormine, Sicile, Italie (© Juergen Schonnop/Getty Images)|Vacances siciliennes|![](/fr-FR/2021/01/202101262300Taormina.jpg)|
 202101272300|ArcticWolf|Famille de loups arctiques, Canada (© 4FR/Getty Images)|La Lune du Loup|![](/fr-FR/2021/01/202101272300ArcticWolf.jpg)|
 202101282300|RedRobin|Rouge-Gorge sous la neige,  parc national du Peak District, Angleterre (© Ben Robson Hull Photography/Getty Images)|Même pas froid|![](/fr-FR/2021/01/202101282300RedRobin.jpg)|
+202101292300|SeedVault|Réserve mondiale de semences du Svalbard et sa façade illuminée, conçue par l’artiste Dyveke Sanne, Svalbard, Norvège (© Pal Hermansen/Minden Pictures)|L’autre arche de Noé|![](/fr-FR/2021/01/202101292300SeedVault.jpg)|
