@@ -29,3 +29,4 @@
 202101261300|Taormina|Taormina, Sicily, Italy (© Juergen Schonnop/Getty Images)|A dramatic view of Sicily|![](/en-AU/2021/01/202101261300Taormina.jpg)|
 202101271300|KermitsPool|Kermits Pool, Karijini National Park, Western Australia (© Abstract Aerial Art/Getty Images)|Karijini’s most picturesque pool|![](/en-AU/2021/01/202101271300KermitsPool.jpg)|
 202101281300|RedRobin|European robin during a winter snowstorm, Peak District National Park, England (© Ben Robson Hull Photography/Getty Images)|Ready for a birdwatch?|![](/en-AU/2021/01/202101281300RedRobin.jpg)|
+202101291300|SeedVault|Svalbard Global Seed Vault with a glittering facade designed by artist Dyveke Sanne, Svalbard, Norway (© Pal Hermansen/Minden Pictures)|Even nature needs a backup plan…|![](/en-AU/2021/01/202101291300SeedVault.jpg)|
