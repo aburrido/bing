@@ -29,3 +29,4 @@
 202101261830|Taormina|Taormina, Sicily, Italy (© Juergen Schonnop/Getty Images)|A dramatic view of Sicily|![](/en-IN/2021/01/202101261830Taormina.jpg)|
 202101271830|ArcticWolf|Arctic wolf family in Canada (© 4FR/Getty Images)|Avatars of the Wolf Moon|![](/en-IN/2021/01/202101271830ArcticWolf.jpg)|
 202101281830|RedRobin|European robin during a winter snowstorm, Peak District National Park, England (© Ben Robson Hull Photography/Getty Images)|So, how long 'til springtime?|![](/en-IN/2021/01/202101281830RedRobin.jpg)|
+202101291830|GandhiFlowers|School children pay homage to a portrait of Mahatma Gandhi on Martyr's Day. (© ARUN SANKAR/AFP via Getty Images)|Ode to the departed martyrs of India|![](/en-IN/2021/01/202101291830GandhiFlowers.jpg)|
