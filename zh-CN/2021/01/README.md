@@ -30,3 +30,4 @@
 202101271600|ArcticWolf|北极狼一家，加拿大 (© 4FR/Getty Images)||![](/zh-CN/2021/01/202101271600ArcticWolf.jpg)|
 202101281600|RedRobin|冬季暴风雪中的欧亚鸲，英格兰峰区国家公园 (© Ben Robson Hull Photography/Getty Images)||![](/zh-CN/2021/01/202101281600RedRobin.jpg)|
 202101291600|BodminFrost|博德明高沼上布朗威利山麓的废弃小屋，英格兰 (© Helen Hotson/Alamy Stock Photo)||![](/zh-CN/2021/01/202101291600BodminFrost.jpg)|
+202101301600|MittenwalderHut|巴伐利亚阿尔卑斯山脉中的米滕瓦尔德小屋，德国 (© Sebastian Frölich/Offset by Shutterstock)||![](/zh-CN/2021/01/202101301600MittenwalderHut.jpg)|
