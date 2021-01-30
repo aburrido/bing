@@ -30,3 +30,4 @@
 202101272300|ArcticWolf|Polarwolf-Rudel in Kanada (© 4FR/Getty Images)|Avatare des Wolfsmonds|![](/de-DE/2021/01/202101272300ArcticWolf.jpg)|
 202101282300|RedRobin|Rotkehlchen im Schneegestöber, Peak-District-Nationalpark, England (© Ben Robson Hull Photography/Getty Images)|Wann kommt endlich der Frühling?|![](/de-DE/2021/01/202101282300RedRobin.jpg)|
 202101292300|SeedVault|Svalbard Global Seed Vault auf Spitzbergen, Norwegen, mit glitzerndem Kunstwerk der Künstlerin Dyveke Sanne über dem Eingang (© Pal Hermansen/Minden Pictures)|Selbst die Natur braucht einen Notfallplan|![](/de-DE/2021/01/202101292300SeedVault.jpg)|
+202101302300|MittenwalderHut|Mittenwalder Hütte unterhalb der Westlichen Karwendelspitze, Bayern (© Sebastian Frölich/Offset by Shutterstock)|Funkelnder Diamant im Karwendel|![](/de-DE/2021/01/202101302300MittenwalderHut.jpg)|
