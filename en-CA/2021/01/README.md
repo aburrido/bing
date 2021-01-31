@@ -31,3 +31,4 @@
 202101280500|ArcticWolf|Arctic wolf family in northern Canada (© 4FR/Getty Images)|Avatars of the Wolf Moon|![](/en-CA/2021/01/202101280500ArcticWolf.jpg)|
 202101290500|RedRobin|European robin during a winter snowstorm, Peak District National Park, England (© Ben Robson Hull Photography/Getty Images)|So, how long 'til springtime?|![](/en-CA/2021/01/202101290500RedRobin.jpg)|
 202101300500|SeedVault|Svalbard Global Seed Vault with a glittering facade designed by artist Dyveke Sanne, Svalbard, Norway (© Pal Hermansen/Minden Pictures)|Even nature needs a backup plan…|![](/en-CA/2021/01/202101300500SeedVault.jpg)|
+202101310500|MittenwalderHut|Mittenwalder Hütte in the Bavarian Alps of Germany (© Sebastian Frölich/Offset by Shutterstock)|A glittering diamond in the rough|![](/en-CA/2021/01/202101310500MittenwalderHut.jpg)|

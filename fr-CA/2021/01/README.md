@@ -31,3 +31,4 @@
 202101280500|ArcticWolf|Famille de loups arctiques au Canada (© 4FR/Getty Images)||![](/fr-CA/2021/01/202101280500ArcticWolf.jpg)|
 202101290500|RedRobin|Rouge-gorge familier pendant une tempête de neige, Parc national du Peak District, Angleterre (© Ben Robson Hull Photography/Getty Images)||![](/fr-CA/2021/01/202101290500RedRobin.jpg)|
 202101300500|MaligneWinter|L’île de l’Esprit en hiver, lac Maligne, parc national de Jasper, Alberta (© Natapong Supalertsophon/Getty Images)||![](/fr-CA/2021/01/202101300500MaligneWinter.jpg)|
+202101310500|MittenwalderHut|Le refuge de montagne Mittenwalder dans les Alpes bavaroises en Allemagne (© Sebastian Frölich/Offset by Shutterstock)||![](/fr-CA/2021/01/202101310500MittenwalderHut.jpg)|
