@@ -31,3 +31,4 @@
 202101281830|RedRobin|European robin during a winter snowstorm, Peak District National Park, England (© Ben Robson Hull Photography/Getty Images)|So, how long 'til springtime?|![](/en-IN/2021/01/202101281830RedRobin.jpg)|
 202101291830|GandhiFlowers|School children pay homage to a portrait of Mahatma Gandhi on Martyr's Day. (© ARUN SANKAR/AFP via Getty Images)|Ode to the departed martyrs of India|![](/en-IN/2021/01/202101291830GandhiFlowers.jpg)|
 202101301830|MittenwalderHut|Mittenwalder Hütte in the Bavarian Alps of Germany (© Sebastian Frölich/Offset by Shutterstock)|A glittering diamond in the rough|![](/en-IN/2021/01/202101301830MittenwalderHut.jpg)|
+202101311830|SeedVault|Svalbard Global Seed Vault with a glittering facade designed by artist Dyveke Sanne, Svalbard, Norway (© Pal Hermansen/Minden Pictures)|Even nature needs a backup plan…|![](/en-IN/2021/01/202101311830SeedVault.jpg)|
