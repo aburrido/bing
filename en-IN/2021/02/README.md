@@ -3,3 +3,4 @@
 202101311830|SeedVault|Svalbard Global Seed Vault with a glittering facade designed by artist Dyveke Sanne, Svalbard, Norway (© Pal Hermansen/Minden Pictures)|Even nature needs a backup plan…|![](/en-IN/2021/02/202101311830SeedVault.jpg)|
 202102011830|RainbowMarmot|Marmot with the peak of Grossglockner in the background, Austria (© SeppFriedhuber/Getty Images)|Did it see its shadow?|![](/en-IN/2021/02/202102011830RainbowMarmot.jpg)|
 202102021830|MountNemrut|Colossal limestone statues on Mount Nemrut, Adıyaman, Turkey (© Peerakit JIrachetthakun/Getty Images)|The mountaintop of toppled gods|![](/en-IN/2021/02/202102021830MountNemrut.jpg)|
+202102031830|VosgesBioReserve|Northern Vosges Regional Nature Park, France (© Michel Rauch/Minden Pictures)|Where is this wintry road?|![](/en-IN/2021/02/202102031830VosgesBioReserve.jpg)|
