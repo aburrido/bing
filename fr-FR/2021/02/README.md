@@ -4,3 +4,4 @@
 202102012300|RainbowMarmot|Marmotte et le sommet du Grossglockner en arrière-plan, Autriche (© SeppFriedhuber/Getty Images)|C’est pour bientôt le printemps ?|![](/fr-FR/2021/02/202102012300RainbowMarmot.jpg)|
 202102022300|MountNemrut|Statues de calcaire sur le Nemrut Dağı, Adiyaman, Turquie (© Peerakit JIrachetthakun/Getty Images)|La montagne des dieux déchus|![](/fr-FR/2021/02/202102022300MountNemrut.jpg)|
 202102032300|VosgesBioReserve|Parc naturel régional des Vosges du Nord, France (© Michel Rauch/Minden Pictures)|Richesses des Alpes|![](/fr-FR/2021/02/202102032300VosgesBioReserve.jpg)|
+202102042300|TheWave|Formation de grès et flaques d’eau dans “La Vague”, Paria Canyon, monument national des Vermilion Cliffs, Arizona, États-Unis (© Dennis Frates/Alamy)|Une mer de grès|![](/fr-FR/2021/02/202102042300TheWave.jpg)|
