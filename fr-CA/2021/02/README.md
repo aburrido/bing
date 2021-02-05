@@ -5,3 +5,4 @@
 202102020500|RainbowMarmot|Une marmotte devant le sommet de Grossglockner en Autriche (© SeppFriedhuber/Getty Images)||![](/fr-CA/2021/02/202102020500RainbowMarmot.jpg)|
 202102030500|MountNemrut|Statues colossales en calcaire sur le Mont Nemrut, Adiyaman, Turquie (© Peerakit JIrachetthakun/Getty Images)||![](/fr-CA/2021/02/202102030500MountNemrut.jpg)|
 202102040500|VosgesBioReserve|Parc naturel régional des Vosges du Nord en France (© Michel Rauch/Minden Pictures)||![](/fr-CA/2021/02/202102040500VosgesBioReserve.jpg)|
+202102050500|TheWave|Formation de grès et mares d'eau dans « The Wave » au Monument national des Vermilion Cliffs, Paria Canyon, Arizona (© Dennis Frates/Alamy)||![](/fr-CA/2021/02/202102050500TheWave.jpg)|
