@@ -4,3 +4,4 @@
 202102020000|RainbowMarmot|Marmot with the peak of Grossglockner in the background, Austria (© SeppFriedhuber/Getty Images)|Groundhog Day|![](/en-GB/2021/02/202102020000RainbowMarmot.jpg)|
 202102030000|MountNemrut|Colossal limestone statues on Mount Nemrut, Adiyaman, Turkey (© Peerakit JIrachetthakun/Getty Images)|The mountaintop of toppled gods|![](/en-GB/2021/02/202102030000MountNemrut.jpg)|
 202102040000|SpottedWoodpecker|Great spotted woodpecker on Scots pine tree, Glenfeshie, Cairngorms National Park. (© Nature Picture Library/Alamy Stock Photo)|Who’s this headbanger?|![](/en-GB/2021/02/202102040000SpottedWoodpecker.jpg)|
+202102050000|TheWave|Sandstone formation and pools of water in The Wave, Paria Canyon-Vermillion Cliffs National Monument, Arizona, USA (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-GB/2021/02/202102050000TheWave.jpg)|
