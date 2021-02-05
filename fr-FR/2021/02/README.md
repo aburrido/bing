@@ -5,3 +5,4 @@
 202102022300|MountNemrut|Statues de calcaire sur le Nemrut Dağı, Adiyaman, Turquie (© Peerakit JIrachetthakun/Getty Images)|La montagne des dieux déchus|![](/fr-FR/2021/02/202102022300MountNemrut.jpg)|
 202102032300|VosgesBioReserve|Parc naturel régional des Vosges du Nord, France (© Michel Rauch/Minden Pictures)|Richesses des Alpes|![](/fr-FR/2021/02/202102032300VosgesBioReserve.jpg)|
 202102042300|TheWave|Formation de grès et flaques d’eau dans “La Vague”, Paria Canyon, monument national des Vermilion Cliffs, Arizona, États-Unis (© Dennis Frates/Alamy)|Une mer de grès|![](/fr-FR/2021/02/202102042300TheWave.jpg)|
+202102052300|MountSefton|Mont Sefton dans le parc national Aoraki/Mont Cook, Ile du Sud, Nouvelle Zélande (© AWL Images/Danita Delimont)|Le jour de la Nouvelle-Zélande|![](/fr-FR/2021/02/202102052300MountSefton.jpg)|
