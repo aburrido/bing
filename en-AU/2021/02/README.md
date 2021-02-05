@@ -5,3 +5,4 @@
 202102021300|MountNemrut|Colossal limestone statues on Mount Nemrut, Adıyaman, Turkey (© Peerakit JIrachetthakun/Getty Images)|The mountaintop of toppled gods|![](/en-AU/2021/02/202102021300MountNemrut.jpg)|
 202102031300|OnkaparingaRiver|Onkaparinga River, Port Noarlunga, South Australia (© plainpicture/AWL/Marco Bottigelli)|Stairway to heaven?|![](/en-AU/2021/02/202102031300OnkaparingaRiver.jpg)|
 202102041300|TheWave|Sandstone formation and pools of water in 'The Wave', Paria Canyon-Vermilion Cliffs National Monument, Arizona, USA (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-AU/2021/02/202102041300TheWave.jpg)|
+202102051300|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|A gorgeous New Zealand peak|![](/en-AU/2021/02/202102051300MountSefton.jpg)|
