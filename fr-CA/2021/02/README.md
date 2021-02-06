@@ -6,3 +6,4 @@
 202102030500|MountNemrut|Statues colossales en calcaire sur le Mont Nemrut, Adiyaman, Turquie (© Peerakit JIrachetthakun/Getty Images)||![](/fr-CA/2021/02/202102030500MountNemrut.jpg)|
 202102040500|VosgesBioReserve|Parc naturel régional des Vosges du Nord en France (© Michel Rauch/Minden Pictures)||![](/fr-CA/2021/02/202102040500VosgesBioReserve.jpg)|
 202102050500|TheWave|Formation de grès et mares d'eau dans « The Wave » au Monument national des Vermilion Cliffs, Paria Canyon, Arizona (© Dennis Frates/Alamy)||![](/fr-CA/2021/02/202102050500TheWave.jpg)|
+202102060500|MountSefton|Le mont Sefton dans le parc national Aoraki/Mount Cook, île du Sud, Nouvelle-Zélande (© AWL Images/Danita Delimont)||![](/fr-CA/2021/02/202102060500MountSefton.jpg)|

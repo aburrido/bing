@@ -7,3 +7,4 @@
 202102030500|MountNemrut|Colossal limestone statues on Mount Nemrut, Adıyaman, Turkey (© Peerakit JIrachetthakun/Getty Images)|The mountaintop of toppled gods|![](/en-CA/2021/02/202102030500MountNemrut.jpg)|
 202102040500|VosgesBioReserve|Northern Vosges Regional Nature Park, France (© Michel Rauch/Minden Pictures)|Where is this wintry road?|![](/en-CA/2021/02/202102040500VosgesBioReserve.jpg)|
 202102050500|TheWave|Sandstone formation and pools of water in 'The Wave,' Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-CA/2021/02/202102050500TheWave.jpg)|
+202102060500|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-CA/2021/02/202102060500MountSefton.jpg)|
