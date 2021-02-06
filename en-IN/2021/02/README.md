@@ -6,3 +6,4 @@
 202102031830|VosgesBioReserve|Northern Vosges Regional Nature Park, France (© Michel Rauch/Minden Pictures)|Where is this wintry road?|![](/en-IN/2021/02/202102031830VosgesBioReserve.jpg)|
 202102041830|TheWave|Sandstone formation and pools of water in 'The Wave,' Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-IN/2021/02/202102041830TheWave.jpg)|
 202102051830|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-IN/2021/02/202102051830MountSefton.jpg)|
+202102061830|CovidWarrior|Artists of the Music and Fine Arts Institute, Jammu, paint 'Thank You Corona Warriors' (© JAIPAL SINGH/EPA-EFE/Shutterstock)|Saluting India's coronavirus warriors|![](/en-IN/2021/02/202102061830CovidWarrior.jpg)|
