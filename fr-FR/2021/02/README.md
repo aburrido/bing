@@ -7,3 +7,4 @@
 202102042300|TheWave|Formation de grès et flaques d’eau dans “La Vague”, Paria Canyon, monument national des Vermilion Cliffs, Arizona, États-Unis (© Dennis Frates/Alamy)|Une mer de grès|![](/fr-FR/2021/02/202102042300TheWave.jpg)|
 202102052300|MountSefton|Mont Sefton dans le parc national Aoraki/Mont Cook, Ile du Sud, Nouvelle Zélande (© AWL Images/Danita Delimont)|Le jour de la Nouvelle-Zélande|![](/fr-FR/2021/02/202102052300MountSefton.jpg)|
 202102062300|SuperbOwl|Chouettes lapones à Montréal, Canada (© rollandgelly/Getty Images)|Juste chouette !|![](/fr-FR/2021/02/202102062300SuperbOwl.jpg)|
+202102072300|SnowyTrees|Scène hivernale dans les montagnes et soleil couchant, France (© Michal Balada/iStock/Getty Images Plus)|Attention les yeux !|![](/fr-FR/2021/02/202102072300SnowyTrees.jpg)|

@@ -7,3 +7,4 @@
 202102042300|TheWave|Wasserpfützen in der versteinerten Düne „The Wave“, Paria Canyon, Vermilion Cliffs National Monument, Arizona, USA (© Dennis Frates/Alamy)|Ein Meer aus wirbelnden Felsen|![](/de-DE/2021/02/202102042300TheWave.jpg)|
 202102052300|MountSefton|Mount Sefton im Aoraki/Mount-Cook-Nationalpark, Südinsel, Neuseeland (© AWL Images/Danita Delimont)|Im „Land der langen weißen Wolke“|![](/de-DE/2021/02/202102052300MountSefton.jpg)|
 202102062300|SuperbOwl|Bartkäuze in Montreal, Kanada (© rollandgelly/Getty Images)|Trainieren für den Super Bowl|![](/de-DE/2021/02/202102062300SuperbOwl.jpg)|
+202102072300|IceWalking|Bergsteiger auf einem alpinen Gletscher am Mont Blanc, Chamonix, Frankreich (© agustavop/Getty Images)|Am höchsten Berg der Alpen|![](/de-DE/2021/02/202102072300IceWalking.jpg)|
