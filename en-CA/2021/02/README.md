@@ -8,3 +8,4 @@
 202102040500|VosgesBioReserve|Northern Vosges Regional Nature Park, France (© Michel Rauch/Minden Pictures)|Where is this wintry road?|![](/en-CA/2021/02/202102040500VosgesBioReserve.jpg)|
 202102050500|TheWave|Sandstone formation and pools of water in 'The Wave,' Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-CA/2021/02/202102050500TheWave.jpg)|
 202102060500|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-CA/2021/02/202102060500MountSefton.jpg)|
+202102070500|SuperbOwl|Great grey owls in Montreal (© rollandgelly/Getty Images)|It's superb owl Sunday|![](/en-CA/2021/02/202102070500SuperbOwl.jpg)|
