@@ -7,3 +7,4 @@
 202102041600|TheWave|波浪谷中的砂岩层和积水，亚利桑那州朱红悬崖国家纪念碑 (© Dennis Frates/Alamy)||![](/zh-CN/2021/02/202102041600TheWave.jpg)|
 202102051600|MountSefton|奥拉基库克山国家公园中的塞夫顿山，新西兰南岛 (© AWL Images/Danita Delimont)||![](/zh-CN/2021/02/202102051600MountSefton.jpg)|
 202102061600|SuperbOwl|蒙特利尔的乌林鸮，加拿大 (© rollandgelly/Getty Images)||![](/zh-CN/2021/02/202102061600SuperbOwl.jpg)|
+202102071600|IceWalking|勃朗峰高山冰川上的徒步者，法国夏慕尼 (© agustavop/Getty Images)||![](/zh-CN/2021/02/202102071600IceWalking.jpg)|
