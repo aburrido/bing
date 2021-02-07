@@ -7,3 +7,4 @@
 202102041830|TheWave|Sandstone formation and pools of water in 'The Wave,' Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-IN/2021/02/202102041830TheWave.jpg)|
 202102051830|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-IN/2021/02/202102051830MountSefton.jpg)|
 202102061830|CovidWarrior|Artists of the Music and Fine Arts Institute, Jammu, paint 'Thank You Corona Warriors' (© JAIPAL SINGH/EPA-EFE/Shutterstock)|Saluting India's coronavirus warriors|![](/en-IN/2021/02/202102061830CovidWarrior.jpg)|
+202102071830|SuperbOwl|Great grey owls in Montreal, Canada (© rollandgelly/Getty Images)|Grey owls ready for action|![](/en-IN/2021/02/202102071830SuperbOwl.jpg)|
