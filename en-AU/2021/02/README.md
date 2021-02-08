@@ -8,3 +8,4 @@
 202102051300|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|A gorgeous New Zealand peak|![](/en-AU/2021/02/202102051300MountSefton.jpg)|
 202102061300|SandyBayMarina|Dusk over a marina in Sandy Bay, Hobart, Tasmania (© Jochen Schlenker/Masterfile)|The Royal Hobart Regatta begins|![](/en-AU/2021/02/202102061300SandyBayMarina.jpg)|
 202102071300|SuperbOwl|Great grey owls in Montreal, Canada (© rollandgelly/Getty Images)|It's superb owl Sunday|![](/en-AU/2021/02/202102071300SuperbOwl.jpg)|
+202102081300|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast, USA (© Ben Coffman/Tandem Stills + Motion)|Why is this night sky so busy?|![](/en-AU/2021/02/202102081300MoonDogs.jpg)|
