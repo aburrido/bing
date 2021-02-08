@@ -8,3 +8,4 @@
 202102051830|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-IN/2021/02/202102051830MountSefton.jpg)|
 202102061830|CovidWarrior|Artists of the Music and Fine Arts Institute, Jammu, paint 'Thank You Corona Warriors' (© JAIPAL SINGH/EPA-EFE/Shutterstock)|Saluting India's coronavirus warriors|![](/en-IN/2021/02/202102061830CovidWarrior.jpg)|
 202102071830|SuperbOwl|Great grey owls in Montreal, Canada (© rollandgelly/Getty Images)|Grey owls ready for action|![](/en-IN/2021/02/202102071830SuperbOwl.jpg)|
+202102081830|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|When moonbeams meet ice crystals|![](/en-IN/2021/02/202102081830MoonDogs.jpg)|
