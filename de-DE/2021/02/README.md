@@ -8,3 +8,4 @@
 202102052300|MountSefton|Mount Sefton im Aoraki/Mount-Cook-Nationalpark, Südinsel, Neuseeland (© AWL Images/Danita Delimont)|Im „Land der langen weißen Wolke“|![](/de-DE/2021/02/202102052300MountSefton.jpg)|
 202102062300|SuperbOwl|Bartkäuze in Montreal, Kanada (© rollandgelly/Getty Images)|Trainieren für den Super Bowl|![](/de-DE/2021/02/202102062300SuperbOwl.jpg)|
 202102072300|IceWalking|Bergsteiger auf einem alpinen Gletscher am Mont Blanc, Chamonix, Frankreich (© agustavop/Getty Images)|Am höchsten Berg der Alpen|![](/de-DE/2021/02/202102072300IceWalking.jpg)|
+202102082300|MoonDogs|Nebenmond, aufgenommen an den Hug Point Falls an der Küste Oregons, USA (© Ben Coffman/Tandem Stills + Motion)|Was ist hier am Himmel los?|![](/de-DE/2021/02/202102082300MoonDogs.jpg)|
