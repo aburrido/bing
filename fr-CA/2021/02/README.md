@@ -8,3 +8,4 @@
 202102050500|TheWave|Formation de grès et mares d'eau dans « The Wave » au Monument national des Vermilion Cliffs, Paria Canyon, Arizona (© Dennis Frates/Alamy)||![](/fr-CA/2021/02/202102050500TheWave.jpg)|
 202102060500|MountSefton|Le mont Sefton dans le parc national Aoraki/Mount Cook, île du Sud, Nouvelle-Zélande (© AWL Images/Danita Delimont)||![](/fr-CA/2021/02/202102060500MountSefton.jpg)|
 202102070500|SuperbOwl|Chouettes cendrées à Montréal (© rollandgelly/Getty Images)||![](/fr-CA/2021/02/202102070500SuperbOwl.jpg)|
+202102080500|FrontenacWinter|Vue hivernale du Château Frontenac à Québec (© NicolasMcComber/Getty Images)||![](/fr-CA/2021/02/202102080500FrontenacWinter.jpg)|

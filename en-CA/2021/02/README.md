@@ -9,3 +9,4 @@
 202102050500|TheWave|Sandstone formation and pools of water in 'The Wave,' Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|A sea of swirling stone|![](/en-CA/2021/02/202102050500TheWave.jpg)|
 202102060500|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-CA/2021/02/202102060500MountSefton.jpg)|
 202102070500|SuperbOwl|Great grey owls in Montreal (© rollandgelly/Getty Images)|It's superb owl Sunday|![](/en-CA/2021/02/202102070500SuperbOwl.jpg)|
+202102080500|FrontenacWinter|Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)|Jewel in the city|![](/en-CA/2021/02/202102080500FrontenacWinter.jpg)|
