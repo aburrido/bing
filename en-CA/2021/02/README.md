@@ -10,3 +10,4 @@
 202102060500|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-CA/2021/02/202102060500MountSefton.jpg)|
 202102070500|SuperbOwl|Great grey owls in Montreal (© rollandgelly/Getty Images)|It's superb owl Sunday|![](/en-CA/2021/02/202102070500SuperbOwl.jpg)|
 202102080500|FrontenacWinter|Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)|Jewel in the city|![](/en-CA/2021/02/202102080500FrontenacWinter.jpg)|
+202102090500|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|What’s going on in this sky?|![](/en-CA/2021/02/202102090500MoonDogs.jpg)|

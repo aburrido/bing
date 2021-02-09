@@ -9,3 +9,4 @@
 202102060500|MountSefton|Le mont Sefton dans le parc national Aoraki/Mount Cook, île du Sud, Nouvelle-Zélande (© AWL Images/Danita Delimont)||![](/fr-CA/2021/02/202102060500MountSefton.jpg)|
 202102070500|SuperbOwl|Chouettes cendrées à Montréal (© rollandgelly/Getty Images)||![](/fr-CA/2021/02/202102070500SuperbOwl.jpg)|
 202102080500|FrontenacWinter|Vue hivernale du Château Frontenac à Québec (© NicolasMcComber/Getty Images)||![](/fr-CA/2021/02/202102080500FrontenacWinter.jpg)|
+202102090500|MoonDogs|Parasélène photographié à Hug Point Falls sur la côte de l'Oregon, É.-U. (© Ben Coffman/Tandem Stills + Motion)||![](/fr-CA/2021/02/202102090500MoonDogs.jpg)|
