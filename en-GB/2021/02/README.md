@@ -8,3 +8,4 @@
 202102060000|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Mists, mountains and mythology|![](/en-GB/2021/02/202102060000MountSefton.jpg)|
 202102070000|SuperbOwl|Great grey owls in Montreal, Canada (© rollandgelly/Getty Images)|It's 'superb owl' Sunday|![](/en-GB/2021/02/202102070000SuperbOwl.jpg)|
 202102080000|VosgesBioReserve|Northern Vosges Regional Nature Park, France (© Michel Rauch/Minden Pictures)|Where is this wintry road?|![](/en-GB/2021/02/202102080000VosgesBioReserve.jpg)|
+202102090000|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast, USA (© Ben Coffman/Tandem Stills + Motion)|When moonbeams meet ice crystals|![](/en-GB/2021/02/202102090000MoonDogs.jpg)|
