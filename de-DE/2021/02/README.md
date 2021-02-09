@@ -9,3 +9,4 @@
 202102062300|SuperbOwl|Bartkäuze in Montreal, Kanada (© rollandgelly/Getty Images)|Trainieren für den Super Bowl|![](/de-DE/2021/02/202102062300SuperbOwl.jpg)|
 202102072300|IceWalking|Bergsteiger auf einem alpinen Gletscher am Mont Blanc, Chamonix, Frankreich (© agustavop/Getty Images)|Am höchsten Berg der Alpen|![](/de-DE/2021/02/202102072300IceWalking.jpg)|
 202102082300|MoonDogs|Nebenmond, aufgenommen an den Hug Point Falls an der Küste Oregons, USA (© Ben Coffman/Tandem Stills + Motion)|Was ist hier am Himmel los?|![](/de-DE/2021/02/202102082300MoonDogs.jpg)|
+202102092300|PenitentSnow|Büßereis-Formationen am Paso de Agua Negra in der Región de Coquimbo, Chile (© Art Wolfe/Danita Delimont)|Ein „Wald“ aus Eisspitzen|![](/de-DE/2021/02/202102092300PenitentSnow.jpg)|
