@@ -9,3 +9,4 @@
 202102061500|SuperbOwl|｢カラフトフクロウ｣カナダ, モントリオール (© rollandgelly/Getty Images)|今日はスーパーサンデー|![](/ja-JP/2021/02/202102061500SuperbOwl.jpg)|
 202102071500|IceWalking|｢モンブランのハイカー｣フランス, シャモニー (© agustavop/Getty Images)|氷上ウォーキング|![](/ja-JP/2021/02/202102071500IceWalking.jpg)|
 202102081500|MoonDogs|｢ハグポイントフォールの月暈｣米国, オレゴン州 (© Ben Coffman/Tandem Stills + Motion)|月の暈|![](/ja-JP/2021/02/202102081500MoonDogs.jpg)|
+202102091500|PenitentSnow|｢アグアネグラ峠のペニテンテ｣チリ, コキンボ地方 (© Ben Coffman/Tandem Stills + Motion)|氷塊のとんがり帽子|![](/ja-JP/2021/02/202102091500PenitentSnow.jpg)|
