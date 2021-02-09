@@ -9,3 +9,4 @@
 202102060800|MountSefton|Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)|Where is this gorgeous peak?|![](/en-US/2021/02/202102060800MountSefton.jpg)|
 202102070800|SuperbOwl|Great gray owls in Montreal, Canada (© rollandgelly/Getty Images)|It's superb owl Sunday|![](/en-US/2021/02/202102070800SuperbOwl.jpg)|
 202102080800|HeroMural|John Lewis hero mural by Sean Schwab in the Sweet Auburn district of Atlanta, Georgia (© Ilene Perlman/Alamy)|A hero for the 21st century|![](/en-US/2021/02/202102080800HeroMural.jpg)|
+202102090800|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|What's going on in this sky?|![](/en-US/2021/02/202102090800MoonDogs.jpg)|
