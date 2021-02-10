@@ -10,3 +10,4 @@
 202102071600|IceWalking|勃朗峰高山冰川上的徒步者，法国夏慕尼 (© agustavop/Getty Images)||![](/zh-CN/2021/02/202102071600IceWalking.jpg)|
 202102081600|MoonDogs|拍摄于俄勒冈州海岸拥抱点瀑布的幻月 (© Ben Coffman/Tandem Stills + Motion)||![](/zh-CN/2021/02/202102081600MoonDogs.jpg)|
 202102091600|PenitentSnow|阿瓜内格拉山口上的融凝冰柱，智利科金博 (© Art Wolfe/Danita Delimont)||![](/zh-CN/2021/02/202102091600PenitentSnow.jpg)|
+202102101600|Lunarnewyeareve2021|【今日除夕】（© DANNY HU）||![](/zh-CN/2021/02/202102101600Lunarnewyeareve2021.jpg)|
