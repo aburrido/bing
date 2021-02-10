@@ -10,3 +10,4 @@
 202102071830|SuperbOwl|Great grey owls in Montreal, Canada (© rollandgelly/Getty Images)|Grey owls ready for action|![](/en-IN/2021/02/202102071830SuperbOwl.jpg)|
 202102081830|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|When moonbeams meet ice crystals|![](/en-IN/2021/02/202102081830MoonDogs.jpg)|
 202102091830|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)|A throng of ice and spires|![](/en-IN/2021/02/202102091830PenitentSnow.jpg)|
+202102101830|CentralCaliBlossoms|Almond blossoms surround a red barn in California's Central Valley, United States (© Jeffrey Lewis/Tandem Stills + Motion)|These trees are famous for bearing what?|![](/en-IN/2021/02/202102101830CentralCaliBlossoms.jpg)|
