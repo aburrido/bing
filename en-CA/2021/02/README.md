@@ -11,3 +11,4 @@
 202102070500|SuperbOwl|Great grey owls in Montreal (© rollandgelly/Getty Images)|It's superb owl Sunday|![](/en-CA/2021/02/202102070500SuperbOwl.jpg)|
 202102080500|FrontenacWinter|Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)|Jewel in the city|![](/en-CA/2021/02/202102080500FrontenacWinter.jpg)|
 202102090500|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|What’s going on in this sky?|![](/en-CA/2021/02/202102090500MoonDogs.jpg)|
+202102100500|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)|A throng of ice and spires|![](/en-CA/2021/02/202102100500PenitentSnow.jpg)|
