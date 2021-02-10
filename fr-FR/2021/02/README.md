@@ -10,3 +10,4 @@
 202102072300|SnowyTrees|Scène hivernale dans les montagnes et soleil couchant, France (© Michal Balada/iStock/Getty Images Plus)|Attention les yeux !|![](/fr-FR/2021/02/202102072300SnowyTrees.jpg)|
 202102082300|MoonDogs|Halo autour de la lune photographié à Hug Point Falls sur la côte de l’Oregon, États-Unis (© Ben Coffman/Tandem Stills + Motion)|Accompagnant la lune|![](/fr-FR/2021/02/202102082300MoonDogs.jpg)|
 202102092300|PenitentSnow|Formations de glace « pénitents de neige » vues sur le col Agua Negra dans la région Coquimbo des Andes, Chili (© Art Wolfe/Danita Delimont)|Les pénitents de neige|![](/fr-FR/2021/02/202102092300PenitentSnow.jpg)|
+202102102300|CentralCaliBlossoms|Verger d’amandiers en fleur autour d’une grange rouge dans la Vallée Centrale, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Merci les abeilles !|![](/fr-FR/2021/02/202102102300CentralCaliBlossoms.jpg)|
