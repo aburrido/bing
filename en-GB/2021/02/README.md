@@ -9,3 +9,4 @@
 202102070000|SuperbOwl|Great grey owls in Montreal, Canada (© rollandgelly/Getty Images)|It's 'superb owl' Sunday|![](/en-GB/2021/02/202102070000SuperbOwl.jpg)|
 202102080000|VosgesBioReserve|Northern Vosges Regional Nature Park, France (© Michel Rauch/Minden Pictures)|Where is this wintry road?|![](/en-GB/2021/02/202102080000VosgesBioReserve.jpg)|
 202102090000|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast, USA (© Ben Coffman/Tandem Stills + Motion)|When moonbeams meet ice crystals|![](/en-GB/2021/02/202102090000MoonDogs.jpg)|
+202102100000|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo region of the Andes, Chile (© Art Wolfe/Danita Delimont)|An icy congregation|![](/en-GB/2021/02/202102100000PenitentSnow.jpg)|
