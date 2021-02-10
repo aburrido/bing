@@ -10,3 +10,4 @@
 202102071500|IceWalking|｢モンブランのハイカー｣フランス, シャモニー (© agustavop/Getty Images)|氷上ウォーキング|![](/ja-JP/2021/02/202102071500IceWalking.jpg)|
 202102081500|MoonDogs|｢ハグポイントフォールの月暈｣米国, オレゴン州 (© Ben Coffman/Tandem Stills + Motion)|月の暈|![](/ja-JP/2021/02/202102081500MoonDogs.jpg)|
 202102091500|PenitentSnow|｢アグアネグラ峠のペニテンテ｣チリ, コキンボ地方 (© Ben Coffman/Tandem Stills + Motion)|氷塊のとんがり帽子|![](/ja-JP/2021/02/202102091500PenitentSnow.jpg)|
+202102101500|CentralCaliBlossoms|｢赤い納屋とアーモンドの花畑｣米国, カリフォルニア州 (© agustavop/Getty Images)|扁桃の花畑|![](/ja-JP/2021/02/202102101500CentralCaliBlossoms.jpg)|
