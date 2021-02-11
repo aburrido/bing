@@ -11,3 +11,4 @@
 202102082300|MoonDogs|Nebenmond, aufgenommen an den Hug Point Falls an der Küste Oregons, USA (© Ben Coffman/Tandem Stills + Motion)|Was ist hier am Himmel los?|![](/de-DE/2021/02/202102082300MoonDogs.jpg)|
 202102092300|PenitentSnow|Büßereis-Formationen am Paso de Agua Negra in der Región de Coquimbo, Chile (© Art Wolfe/Danita Delimont)|Ein „Wald“ aus Eisspitzen|![](/de-DE/2021/02/202102092300PenitentSnow.jpg)|
 202102102300|KoenigsseeWinter|Die Insel Christlieger im Königssee, Bayern (© Dariusz Slowik/EyeEm/Getty Images)|Die einzige Insel im Königssee|![](/de-DE/2021/02/202102102300KoenigsseeWinter.jpg)|
+202102112300|YearoftheOx|Moschusochse mit Kälbchen in der arktischen Küstenebene, Alaska, USA (© Steven Kazlowski/Danita Delimont)|Das Jahr des Ochsen|![](/de-DE/2021/02/202102112300YearoftheOx.jpg)|
