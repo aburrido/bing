@@ -12,3 +12,4 @@
 202102080500|FrontenacWinter|Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)|Jewel in the city|![](/en-CA/2021/02/202102080500FrontenacWinter.jpg)|
 202102090500|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|What’s going on in this sky?|![](/en-CA/2021/02/202102090500MoonDogs.jpg)|
 202102100500|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)|A throng of ice and spires|![](/en-CA/2021/02/202102100500PenitentSnow.jpg)|
+202102110500|CentralCaliBlossoms|Almond blossoms surround a red barn in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)|These trees are famous for bearing what?|![](/en-CA/2021/02/202102110500CentralCaliBlossoms.jpg)|

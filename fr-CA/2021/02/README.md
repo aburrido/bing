@@ -11,3 +11,4 @@
 202102080500|FrontenacWinter|Vue hivernale du Château Frontenac à Québec (© NicolasMcComber/Getty Images)||![](/fr-CA/2021/02/202102080500FrontenacWinter.jpg)|
 202102090500|MoonDogs|Parasélène photographié à Hug Point Falls sur la côte de l'Oregon, É.-U. (© Ben Coffman/Tandem Stills + Motion)||![](/fr-CA/2021/02/202102090500MoonDogs.jpg)|
 202102100500|PenitentSnow|Formation de pénitents de neige sur le col d'Agua Negra dans la région de Coquimbo dans les Andes au Chili (© Art Wolfe/Danita Delimont)||![](/fr-CA/2021/02/202102100500PenitentSnow.jpg)|
+202102110500|CentralCaliBlossoms|Amandiers en fleurs entourant une grange rouge dans la Vallée Centrale de Californie (© Jeffrey Lewis/Tandem Stills + Motion)||![](/fr-CA/2021/02/202102110500CentralCaliBlossoms.jpg)|
