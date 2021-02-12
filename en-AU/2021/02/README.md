@@ -13,3 +13,4 @@
 202102101300|CentralCaliBlossoms|Almond blossoms surround a red barn in California's Central Valley, USA (© Jeffrey Lewis/Tandem Stills + Motion)|These trees are famous for bearing what?|![](/en-AU/2021/02/202102101300CentralCaliBlossoms.jpg)|
 202102111300|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska, USA (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-AU/2021/02/202102111300YearoftheOx.jpg)|
 202102121300|Porto|Porto, Portugal (© Kanuman/Shutterstock)|An important port of Portugal|![](/en-AU/2021/02/202102121300Porto.jpg)|
+202102120800|YearoftheOx|Muskox with newborn on the North Slope of the Brooks Range, Alaska (© Steven Kazlowski/Danita Delimont)||![](/en-AU/2021/02/202102120800YearoftheOx.jpg)|
