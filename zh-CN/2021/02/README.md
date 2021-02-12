@@ -12,3 +12,4 @@
 202102091600|PenitentSnow|阿瓜内格拉山口上的融凝冰柱，智利科金博 (© Art Wolfe/Danita Delimont)||![](/zh-CN/2021/02/202102091600PenitentSnow.jpg)|
 202102101600|Lunarnewyeareve2021|【今日除夕】（© DANNY HU）||![](/zh-CN/2021/02/202102101600Lunarnewyeareve2021.jpg)|
 202102111600|Lunarnewyear2021|【新年快乐】 （ © Kilito Chan ）||![](/zh-CN/2021/02/202102111600Lunarnewyear2021.jpg)|
+202102121600|BluebirdsEastern|四只东蓝鸲，北卡罗莱纳州夏洛特 (© Elizabeth W. Kearley/Getty Images)||![](/zh-CN/2021/02/202102121600BluebirdsEastern.jpg)|
