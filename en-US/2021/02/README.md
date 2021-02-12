@@ -12,3 +12,4 @@
 202102090800|MoonDogs|Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)|What's going on in this sky?|![](/en-US/2021/02/202102090800MoonDogs.jpg)|
 202102100800|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)|A throng of ice and spires|![](/en-US/2021/02/202102100800PenitentSnow.jpg)|
 202102110800|CentralCaliBlossoms|Flowering almond trees in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)|It’s showtime for a precious crop|![](/en-US/2021/02/202102110800CentralCaliBlossoms.jpg)|
+202102120800|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The cycle begins anew|![](/en-US/2021/02/202102120800YearoftheOx.jpg)|
