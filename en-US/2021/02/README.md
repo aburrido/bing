@@ -13,3 +13,4 @@
 202102100800|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)|A throng of ice and spires|![](/en-US/2021/02/202102100800PenitentSnow.jpg)|
 202102110800|CentralCaliBlossoms|Flowering almond trees in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)|It’s showtime for a precious crop|![](/en-US/2021/02/202102110800CentralCaliBlossoms.jpg)|
 202102120800|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The cycle begins anew|![](/en-US/2021/02/202102120800YearoftheOx.jpg)|
+202102130800|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)|Four little birds sitting in a tree…|![](/en-US/2021/02/202102130800BluebirdsEastern.jpg)|

@@ -14,3 +14,4 @@
 202102111300|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska, USA (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-AU/2021/02/202102111300YearoftheOx.jpg)|
 202102121300|Porto|Porto, Portugal (© Kanuman/Shutterstock)|An important port of Portugal|![](/en-AU/2021/02/202102121300Porto.jpg)|
 202102120800|YearoftheOx|Muskox with newborn on the North Slope of the Brooks Range, Alaska (© Steven Kazlowski/Danita Delimont)||![](/en-AU/2021/02/202102120800YearoftheOx.jpg)|
+202102130800|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)||![](/en-AU/2021/02/202102130800BluebirdsEastern.jpg)|
