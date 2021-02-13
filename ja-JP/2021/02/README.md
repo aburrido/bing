@@ -13,3 +13,4 @@
 202102101500|CentralCaliBlossoms|｢赤い納屋とアーモンドの花畑｣米国, カリフォルニア州 (© agustavop/Getty Images)|扁桃の花畑|![](/ja-JP/2021/02/202102101500CentralCaliBlossoms.jpg)|
 202102111500|WolongPanda|｢ジャイアントパンダ｣中国, 四川省 (© Lynn M. Stone/Minden Pictures)|今日は春節|![](/ja-JP/2021/02/202102111500WolongPanda.jpg)|
 202102121500|BluebirdsEastern|｢ルリツグミ｣米国, ノースカロライナ州 (© Elizabeth W. Kearley/Getty Images)|鳥を数える日|![](/ja-JP/2021/02/202102121500BluebirdsEastern.jpg)|
+202102131500|OceanHeart|｢ハート型の岩に寄せる波｣オーストラリア, ニューサウスウェールズ州 (© Kristian Bell/Getty Images)|今日はバレンタインデー|![](/ja-JP/2021/02/202102131500OceanHeart.jpg)|
