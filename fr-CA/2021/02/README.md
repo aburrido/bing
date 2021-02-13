@@ -13,3 +13,4 @@
 202102100500|PenitentSnow|Formation de pénitents de neige sur le col d'Agua Negra dans la région de Coquimbo dans les Andes au Chili (© Art Wolfe/Danita Delimont)||![](/fr-CA/2021/02/202102100500PenitentSnow.jpg)|
 202102110500|CentralCaliBlossoms|Amandiers en fleurs entourant une grange rouge dans la Vallée Centrale de Californie (© Jeffrey Lewis/Tandem Stills + Motion)||![](/fr-CA/2021/02/202102110500CentralCaliBlossoms.jpg)|
 202102120500|YearoftheOx|Bœuf musqué et son petit dans la plaine côtière du centre de l'Arctique en Alaska (© Steven Kazlowski/Danita Delimont)||![](/fr-CA/2021/02/202102120500YearoftheOx.jpg)|
+202102130500|BluebirdsEastern|Quatre merlebleus de l'Est à Charlotte en Caroline du Nord (© Elizabeth W. Kearley/Getty Images)||![](/fr-CA/2021/02/202102130500BluebirdsEastern.jpg)|

@@ -14,3 +14,4 @@
 202102100500|PenitentSnow|Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)|A throng of ice and spires|![](/en-CA/2021/02/202102100500PenitentSnow.jpg)|
 202102110500|CentralCaliBlossoms|Almond blossoms surround a red barn in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)|These trees are famous for bearing what?|![](/en-CA/2021/02/202102110500CentralCaliBlossoms.jpg)|
 202102120500|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-CA/2021/02/202102120500YearoftheOx.jpg)|
+202102130500|CanadaJaySnow|Canada Jay (Perisoreus canadensis) in light snowfall, Ontario (© Alan Murphy/Minden Pictures)|The Great Backyard Bird Count|![](/en-CA/2021/02/202102130500CanadaJaySnow.jpg)|
