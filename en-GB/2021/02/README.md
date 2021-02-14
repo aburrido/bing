@@ -13,3 +13,4 @@
 202102110000|LangdaleSnow|The Langdale Pikes in winter under fresh snow, Lake District, Cumbria (© Nigel Wilkins/Alamy Stock Photo)|The Lakes' icy peaks|![](/en-GB/2021/02/202102110000LangdaleSnow.jpg)|
 202102120000|YearoftheOx|Muskox with newborn in the central Arctic coastal plain in Alaska, USA (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-GB/2021/02/202102120000YearoftheOx.jpg)|
 202102130000|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina, USA (© Elizabeth W. Kearley/Getty Images)|Bluebirds of a feather|![](/en-GB/2021/02/202102130000BluebirdsEastern.jpg)|
+202102140000|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic Valentine|![](/en-GB/2021/02/202102140000OceanHeart.jpg)|
