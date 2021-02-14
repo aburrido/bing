@@ -14,3 +14,4 @@
 202102110800|CentralCaliBlossoms|Flowering almond trees in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)|It’s showtime for a precious crop|![](/en-US/2021/02/202102110800CentralCaliBlossoms.jpg)|
 202102120800|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The cycle begins anew|![](/en-US/2021/02/202102120800YearoftheOx.jpg)|
 202102130800|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)|Four little birds sitting in a tree…|![](/en-US/2021/02/202102130800BluebirdsEastern.jpg)|
+202102140800|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic valentine|![](/en-US/2021/02/202102140800OceanHeart.jpg)|
