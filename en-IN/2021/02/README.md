@@ -14,3 +14,4 @@
 202102111830|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-IN/2021/02/202102111830YearoftheOx.jpg)|
 202102121830|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)|Four little birds sitting in a tree…|![](/en-IN/2021/02/202102121830BluebirdsEastern.jpg)|
 202102131830|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic Valentine|![](/en-IN/2021/02/202102131830OceanHeart.jpg)|
+202102141830|OnkaparingaRiver|Onkaparinga River, Port Noarlunga, South Australia (© plainpicture/AWL/Marco Bottigelli)|Stairway to heaven?|![](/en-IN/2021/02/202102141830OnkaparingaRiver.jpg)|
