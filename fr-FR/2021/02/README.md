@@ -14,3 +14,4 @@
 202102112300|YearoftheOx|Boeuf musqué et son nouveau-né sur les plaines de l’Arctique central, en Alaska (© Steven Kazlowski/Danita Delimont)|L’année du bœuf|![](/fr-FR/2021/02/202102112300YearoftheOx.jpg)|
 202102122300|BluebirdsEastern|Quatre Merlebleus de l’Est à Charlotte, Caroline du Nord, États-Unis (© Elizabeth W. Kearley/Getty Images)|Cohabitation de circonstance|![](/fr-FR/2021/02/202102122300BluebirdsEastern.jpg)|
 202102132300|OceanHeart|Vagues s’écrasant sur un rocher en forme de cœur au large de la côte de Sydney, Australie (© Kristian Bell/Getty Images)|Submergé par les vagues (et l’amour)|![](/fr-FR/2021/02/202102132300OceanHeart.jpg)|
+202102142300|WinterLake|Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)|Lac aux mille reflets|![](/fr-FR/2021/02/202102142300WinterLake.jpg)|

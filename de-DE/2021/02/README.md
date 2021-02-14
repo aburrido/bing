@@ -14,3 +14,4 @@
 202102112300|YearoftheOx|Moschusochse mit Kälbchen in der arktischen Küstenebene, Alaska, USA (© Steven Kazlowski/Danita Delimont)|Das Jahr des Ochsen|![](/de-DE/2021/02/202102112300YearoftheOx.jpg)|
 202102122300|BluebirdsEastern|Rotkehl-Hüttensänger in Charlotte, North Carolina, USA (© Elizabeth W. Kearley/Getty Images)|Warten auf den Frühling|![](/de-DE/2021/02/202102122300BluebirdsEastern.jpg)|
 202102132300|OceanHeart|Meereswellen brechen sich an einer herzförmigen Felseninsel vor der Küste von Sydney, Australien (© Kristian Bell/Getty Images)|Ein ozeanischer Valentinsgruß|![](/de-DE/2021/02/202102132300OceanHeart.jpg)|
+202102142300|OnkaparingaRiver|Onkaparinga River, Port Noarlunga, South Australia, Australien (© plainpicture/AWL/Marco Bottigelli)|Willkommen am Onkaparinga River!|![](/de-DE/2021/02/202102142300OnkaparingaRiver.jpg)|
