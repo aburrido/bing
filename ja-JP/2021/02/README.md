@@ -14,3 +14,4 @@
 202102111500|WolongPanda|｢ジャイアントパンダ｣中国, 四川省 (© Lynn M. Stone/Minden Pictures)|今日は春節|![](/ja-JP/2021/02/202102111500WolongPanda.jpg)|
 202102121500|BluebirdsEastern|｢ルリツグミ｣米国, ノースカロライナ州 (© Elizabeth W. Kearley/Getty Images)|鳥を数える日|![](/ja-JP/2021/02/202102121500BluebirdsEastern.jpg)|
 202102131500|OceanHeart|｢ハート型の岩に寄せる波｣オーストラリア, ニューサウスウェールズ州 (© Kristian Bell/Getty Images)|今日はバレンタインデー|![](/ja-JP/2021/02/202102131500OceanHeart.jpg)|
+202102141500|OnkaparingaRiver|｢オンカパリンガ川｣オーストラリア, 南オーストラリア州 (© plainpicture/AWL/Marco Bottigelli)|ここは自然公園|![](/ja-JP/2021/02/202102141500OnkaparingaRiver.jpg)|
