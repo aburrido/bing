@@ -15,3 +15,4 @@
 202102120800|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The cycle begins anew|![](/en-US/2021/02/202102120800YearoftheOx.jpg)|
 202102130800|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)|Four little birds sitting in a tree…|![](/en-US/2021/02/202102130800BluebirdsEastern.jpg)|
 202102140800|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic valentine|![](/en-US/2021/02/202102140800OceanHeart.jpg)|
+202102150800|Lincoln50MoWA|Lincoln Memorial in Washington, DC (© White House Photo/Alamy)|Presidents hear the echo of history|![](/en-US/2021/02/202102150800Lincoln50MoWA.jpg)|
