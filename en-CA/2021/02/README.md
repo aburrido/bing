@@ -16,3 +16,4 @@
 202102120500|YearoftheOx|Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-CA/2021/02/202102120500YearoftheOx.jpg)|
 202102130500|CanadaJaySnow|Canada Jay (Perisoreus canadensis) in light snowfall, Ontario (© Alan Murphy/Minden Pictures)|The Great Backyard Bird Count|![](/en-CA/2021/02/202102130500CanadaJaySnow.jpg)|
 202102140500|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic Valentine|![](/en-CA/2021/02/202102140500OceanHeart.jpg)|
+202102150500|WhisterLifts|Ski lifts in Whistler, B.C. (© Ben Girardi/Cavan Images)|A winter postcard|![](/en-CA/2021/02/202102150500WhisterLifts.jpg)|

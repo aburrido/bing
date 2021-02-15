@@ -15,3 +15,4 @@
 202102120500|YearoftheOx|Bœuf musqué et son petit dans la plaine côtière du centre de l'Arctique en Alaska (© Steven Kazlowski/Danita Delimont)||![](/fr-CA/2021/02/202102120500YearoftheOx.jpg)|
 202102130500|BluebirdsEastern|Quatre merlebleus de l'Est à Charlotte en Caroline du Nord (© Elizabeth W. Kearley/Getty Images)||![](/fr-CA/2021/02/202102130500BluebirdsEastern.jpg)|
 202102140500|OceanHeart|Vagues de l’océan s'écrasant sur une île rocheuse en forme de cœur au large de Sydney en Australie (© Kristian Bell/Getty Images)||![](/fr-CA/2021/02/202102140500OceanHeart.jpg)|
+202102150500|CanadaJaySnow|Mésangeai du Canada (Perisoreus canadensis) sous une neige légère en Ontario (© Alan Murphy/Minden Pictures)||![](/fr-CA/2021/02/202102150500CanadaJaySnow.jpg)|
