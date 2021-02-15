@@ -14,3 +14,4 @@
 202102120000|YearoftheOx|Muskox with newborn in the central Arctic coastal plain in Alaska, USA (© Steven Kazlowski/Danita Delimont)|The year of the Ox|![](/en-GB/2021/02/202102120000YearoftheOx.jpg)|
 202102130000|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina, USA (© Elizabeth W. Kearley/Getty Images)|Bluebirds of a feather|![](/en-GB/2021/02/202102130000BluebirdsEastern.jpg)|
 202102140000|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic Valentine|![](/en-GB/2021/02/202102140000OceanHeart.jpg)|
+202102150000|ToledoIldefonso|Panoramic view of the city of Toledo after sunset, Spain (© Frank Fischbach/Alamy)|City of swords|![](/en-GB/2021/02/202102150000ToledoIldefonso.jpg)|
