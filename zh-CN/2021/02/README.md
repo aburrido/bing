@@ -15,3 +15,4 @@
 202102121600|BluebirdsEastern|四只东蓝鸲，北卡罗莱纳州夏洛特 (© Elizabeth W. Kearley/Getty Images)||![](/zh-CN/2021/02/202102121600BluebirdsEastern.jpg)|
 202102131600|OceanHeart|海浪冲击着悉尼海岸的一个心形岩石岛，澳大利亚 (© Kristian Bell/Getty Images)||![](/zh-CN/2021/02/202102131600OceanHeart.jpg)|
 202102141600|OnkaparingaRiver|安加白令嘉河与诺朗加港，南澳大利亚州 (© plainpicture/AWL/Marco Bottigelli)||![](/zh-CN/2021/02/202102141600OnkaparingaRiver.jpg)|
+202102151600|PurpleFlowers|屋前的鲜花和铁艺围栏，路易斯安那州新奥尔良 (© Lauren Mitchell/Offset by Shutterstock)||![](/zh-CN/2021/02/202102151600PurpleFlowers.jpg)|
