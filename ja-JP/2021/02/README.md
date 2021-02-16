@@ -16,3 +16,4 @@
 202102131500|OceanHeart|｢ハート型の岩に寄せる波｣オーストラリア, ニューサウスウェールズ州 (© Kristian Bell/Getty Images)|今日はバレンタインデー|![](/ja-JP/2021/02/202102131500OceanHeart.jpg)|
 202102141500|OnkaparingaRiver|｢オンカパリンガ川｣オーストラリア, 南オーストラリア州 (© plainpicture/AWL/Marco Bottigelli)|ここは自然公園|![](/ja-JP/2021/02/202102141500OnkaparingaRiver.jpg)|
 202102151500|PurpleFlowers|｢ニューオーリンズ民家のフェンスと花壇｣米国, ルイジアナ州 (© Lauren Mitchell/Offset by Shutterstock)|今日はマルディグラデー|![](/ja-JP/2021/02/202102151500PurpleFlowers.jpg)|
+202102161500|MisotsuchiIcicle|｢三十槌の氷柱｣埼玉県, 秩父市 (©  Mommyphoto/Shutter.com)|天然の氷の芸術|![](/ja-JP/2021/02/202102161500MisotsuchiIcicle.jpg)|
