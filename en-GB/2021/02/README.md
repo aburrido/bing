@@ -15,3 +15,4 @@
 202102130000|BluebirdsEastern|Eastern bluebirds in Charlotte, North Carolina, USA (© Elizabeth W. Kearley/Getty Images)|Bluebirds of a feather|![](/en-GB/2021/02/202102130000BluebirdsEastern.jpg)|
 202102140000|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic Valentine|![](/en-GB/2021/02/202102140000OceanHeart.jpg)|
 202102150000|ToledoIldefonso|Panoramic view of the city of Toledo after sunset, Spain (© Frank Fischbach/Alamy)|City of swords|![](/en-GB/2021/02/202102150000ToledoIldefonso.jpg)|
+202102160000|CotswoldsSnow|View of Wotton-Under-Edge, Cotswolds, in winter with snow (© Peter Adams Photography/Alamy Stock Photo)|The 'edge' of the Cotswolds|![](/en-GB/2021/02/202102160000CotswoldsSnow.jpg)|
