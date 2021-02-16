@@ -16,3 +16,4 @@
 202102131830|OceanHeart|Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)|An oceanic Valentine|![](/en-IN/2021/02/202102131830OceanHeart.jpg)|
 202102141830|OnkaparingaRiver|Onkaparinga River, Port Noarlunga, South Australia (© plainpicture/AWL/Marco Bottigelli)|Stairway to heaven?|![](/en-IN/2021/02/202102141830OnkaparingaRiver.jpg)|
 202102151830|PurpleFlowers|Flowers and ironwork fence in front of a house in New Orleans, Louisiana (© Lauren Mitchell/Offset by Shutterstock)|Mardi Gras flower power|![](/en-IN/2021/02/202102151830PurpleFlowers.jpg)|
+202102161830|Trevi|Almond blossoms overlooking Trevi, Perugia district, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Trevi in bloom|![](/en-IN/2021/02/202102161830Trevi.jpg)|
