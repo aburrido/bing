@@ -17,3 +17,4 @@
 202102142300|OnkaparingaRiver|Onkaparinga River, Port Noarlunga, South Australia, Australien (© plainpicture/AWL/Marco Bottigelli)|Willkommen am Onkaparinga River!|![](/de-DE/2021/02/202102142300OnkaparingaRiver.jpg)|
 202102152300|GrosserArberWinter|Eingeschneite Arberkapelle am Großen Arber, Niederbayern, Bayern (© Cornelia Dörr/Huber/eStock Photo)|Am höchsten Berg Niederbayerns|![](/de-DE/2021/02/202102152300GrosserArberWinter.jpg)|
 202102162300|PeritoMorenoArgentina|Perito-Moreno-Gletscher im Nationalpark Los Glaciares, Patagonien, Argentinien (© Juergen Schonnop/Getty Images)|Willkommen in Patagonien!|![](/de-DE/2021/02/202102162300PeritoMorenoArgentina.jpg)|
+202102172300|VerzascaValley|Felsen in einem Flussbett nahe der Ortschaft Lavertezzo im Verzascatal in der Schweiz (© Robert Seitz/Offset by Shutterstock)|Wildromantisches Tal im Zentrum des Tessins|![](/de-DE/2021/02/202102172300VerzascaValley.jpg)|
