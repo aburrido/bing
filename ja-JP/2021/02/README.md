@@ -17,3 +17,4 @@
 202102141500|OnkaparingaRiver|｢オンカパリンガ川｣オーストラリア, 南オーストラリア州 (© plainpicture/AWL/Marco Bottigelli)|ここは自然公園|![](/ja-JP/2021/02/202102141500OnkaparingaRiver.jpg)|
 202102151500|PurpleFlowers|｢ニューオーリンズ民家のフェンスと花壇｣米国, ルイジアナ州 (© Lauren Mitchell/Offset by Shutterstock)|今日はマルディグラデー|![](/ja-JP/2021/02/202102151500PurpleFlowers.jpg)|
 202102161500|MisotsuchiIcicle|｢三十槌の氷柱｣埼玉県, 秩父市 (©  Mommyphoto/Shutter.com)|天然の氷の芸術|![](/ja-JP/2021/02/202102161500MisotsuchiIcicle.jpg)|
+202102171500|VerzascaValley|｢ヴェルザスカ川｣スイス, ティチーノ州 (© Robert Seitz/Offset by Shutterstock)|透明度を誇る清流|![](/ja-JP/2021/02/202102171500VerzascaValley.jpg)|
