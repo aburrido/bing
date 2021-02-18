@@ -18,3 +18,4 @@
 202102151830|PurpleFlowers|Flowers and ironwork fence in front of a house in New Orleans, Louisiana (© Lauren Mitchell/Offset by Shutterstock)|Mardi Gras flower power|![](/en-IN/2021/02/202102151830PurpleFlowers.jpg)|
 202102161830|Trevi|Almond blossoms overlooking Trevi, Perugia district, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Trevi in bloom|![](/en-IN/2021/02/202102161830Trevi.jpg)|
 202102171830|VerzascaValley|Stones in a river near the hamlet of Lavertezzo, in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|Valle Verzasca of Switzerland|![](/en-IN/2021/02/202102171830VerzascaValley.jpg)|
+202102181830|CSTAirport|Chhatrapati Shivaji Maharaj International Airport (© AWL Images/DanitaDelimont.com)|Chhatrapati Shivaji Maharaj International Airport|![](/en-IN/2021/02/202102181830CSTAirport.jpg)|
