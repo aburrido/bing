@@ -18,3 +18,4 @@
 202102150800|Lincoln50MoWA|Lincoln Memorial in Washington, DC (© White House Photo/Alamy)|Presidents hear the echo of history|![](/en-US/2021/02/202102150800Lincoln50MoWA.jpg)|
 202102160800|PurpleFlowers|Flowers and an ironwork fence in front of a house in New Orleans, Louisiana (© Lauren Mitchell/Offset by Shutterstock)|Mardi Gras flower power|![](/en-US/2021/02/202102160800PurpleFlowers.jpg)|
 202102170800|PeritoMorenoArgentina|Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)|The persistence of Perito Moreno|![](/en-US/2021/02/202102170800PeritoMorenoArgentina.jpg)|
+202102180800|VerzascaValley|Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|A river runs through it|![](/en-US/2021/02/202102180800VerzascaValley.jpg)|
