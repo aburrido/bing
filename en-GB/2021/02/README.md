@@ -18,3 +18,4 @@
 202102160000|CotswoldsSnow|View of Wotton-Under-Edge, Cotswolds, in winter with snow (© Peter Adams Photography/Alamy Stock Photo)|The 'edge' of the Cotswolds|![](/en-GB/2021/02/202102160000CotswoldsSnow.jpg)|
 202102170000|PeritoMorenoArgentina|Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)|What's unusual about this glacier?|![](/en-GB/2021/02/202102170000PeritoMorenoArgentina.jpg)|
 202102180000|VerzascaValley|Stones in a river near the hamlet of Lavertezzo, in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|Into the Valle Verzasca|![](/en-GB/2021/02/202102180000VerzascaValley.jpg)|
+202102190000|Parrotfish|Parrotfish off the coast of the Philippines (© Tim Fitzharris/Minden Pictures)|Cleaning up the reef|![](/en-GB/2021/02/202102190000Parrotfish.jpg)|
