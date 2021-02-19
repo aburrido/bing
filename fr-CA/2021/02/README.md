@@ -19,3 +19,4 @@
 202102160500|PurpleFlowers|Fleurs et clôture en fer forgé devant une maison de la Nouvelle-Orléans en Louisiane (© Lauren Mitchell/Offset by Shutterstock)||![](/fr-CA/2021/02/202102160500PurpleFlowers.jpg)|
 202102170500|PeritoMorenoArgentina|Le glacier Perito Moreno dans le parc national Los Glaciares en Patagonie argentine (© Juergen Schonnop/Getty Images)||![](/fr-CA/2021/02/202102170500PeritoMorenoArgentina.jpg)|
 202102180500|VerzascaValley|Rochers dans une rivière près du village de Lavertezzo dans le val Verzasca en Suisse (© Robert Seitz/Offset by Shutterstock)||![](/fr-CA/2021/02/202102180500VerzascaValley.jpg)|
+202102190500|Parrotfish|Poissons-perroquets au large de la province orientale de Negros aux Philippines (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/02/202102190500Parrotfish.jpg)|

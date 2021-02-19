@@ -20,3 +20,4 @@
 202102160500|PurpleFlowers|Flowers and ironwork fence in front of a house in New Orleans, Louisiana (© Lauren Mitchell/Offset by Shutterstock)|Mardi Gras flower power|![](/en-CA/2021/02/202102160500PurpleFlowers.jpg)|
 202102170500|PeritoMorenoArgentina|Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)|The persistence of Perito Moreno|![](/en-CA/2021/02/202102170500PeritoMorenoArgentina.jpg)|
 202102180500|VerzascaValley|Stones in a river near the hamlet of Lavertezzo, in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|A river runs through it|![](/en-CA/2021/02/202102180500VerzascaValley.jpg)|
+202102190500|Parrotfish|Parrotfish off the coast of the Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)|Colourful cows of the reef|![](/en-CA/2021/02/202102190500Parrotfish.jpg)|
