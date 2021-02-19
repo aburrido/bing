@@ -19,3 +19,4 @@
 202102162300|PeritoMorenoArgentina|Le glacier Perito Moreno dans le parc national Los Glacieres en Patagonie, Argentine (© Juergen Schonnop/Getty Images)|Leçon d’endurance|![](/fr-FR/2021/02/202102162300PeritoMorenoArgentina.jpg)|
 202102172300|VerzascaValley|Rivière près du hameau Lavertezzo, dans le Val Verzasca, Suisse (© Robert Seitz/Offset by Shutterstock)|Nature helvétique|![](/fr-FR/2021/02/202102172300VerzascaValley.jpg)|
 202102182300|Parrotfish|Poissons-Perroquets au large de la province Negros Orientales dans les Philippines (© Tim Fitzharris/Minden Pictures)|Palette aquatique|![](/fr-FR/2021/02/202102182300Parrotfish.jpg)|
+202102192300|AABday|Tempête approchant, Parc national de Yosemite, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Dans les pas d’une légende|![](/fr-FR/2021/02/202102192300AABday.jpg)|
