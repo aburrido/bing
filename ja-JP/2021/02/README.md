@@ -20,3 +20,4 @@
 202102171500|VerzascaValley|｢ヴェルザスカ川｣スイス, ティチーノ州 (© Robert Seitz/Offset by Shutterstock)|透明度を誇る清流|![](/ja-JP/2021/02/202102171500VerzascaValley.jpg)|
 202102181500|Parrotfish|｢ブダイ｣フィリピン, 東ネグロス州 (© Tim Fitzharris/Minden Pictures)|サンゴと共存する魚|![](/ja-JP/2021/02/202102181500Parrotfish.jpg)|
 202102191500|AABday|｢ヨセミテ国立公園｣米国, カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|今日はアンセル・アダムスの誕生日|![](/ja-JP/2021/02/202102191500AABday.jpg)|
+202102201500|Porto|｢ポルト｣ポルトガル (© Kanuman/Shutterstock)|王国の繁栄を支えた港町|![](/ja-JP/2021/02/202102201500Porto.jpg)|
