@@ -20,3 +20,4 @@
 202102171600|VerzascaValley|拉韦尔泰佐附近一条河里的石头，瑞士塞斯卡山谷 (© Robert Seitz/Offset by Shutterstock)||![](/zh-CN/2021/02/202102171600VerzascaValley.jpg)|
 202102181600|Parrotfish|东内格罗斯省沿海的鹦嘴鱼，菲律宾 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2021/02/202102181600Parrotfish.jpg)|
 202102191600|AABday|暴风雪散去，加利福尼亚优胜美地国家公园 (© Jeff Lewis/Tandem Stills + Motion)||![](/zh-CN/2021/02/202102191600AABday.jpg)|
+202102201600|Porto|波尔图，葡萄牙 (© Kanuman/Shutterstock)||![](/zh-CN/2021/02/202102201600Porto.jpg)|
