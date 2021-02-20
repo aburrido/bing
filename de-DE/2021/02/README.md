@@ -20,3 +20,4 @@
 202102172300|VerzascaValley|Felsen in einem Flussbett nahe der Ortschaft Lavertezzo im Verzascatal in der Schweiz (© Robert Seitz/Offset by Shutterstock)|Wildromantisches Tal im Zentrum des Tessins|![](/de-DE/2021/02/202102172300VerzascaValley.jpg)|
 202102182300|Parrotfish|Papageifische vor der Küste der Provinz Negros Oriental, Philippinen (© Tim Fitzharris/Minden Pictures)|Farbenprächtige „Riff-Kühe“|![](/de-DE/2021/02/202102182300Parrotfish.jpg)|
 202102192300|DalmatianPelicans|Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)|Gewagte Winterfrisuren|![](/de-DE/2021/02/202102192300DalmatianPelicans.jpg)|
+202102202300|Porto|Porto, Portugal (© Kanuman/Shutterstock)|Heimathafen des Portweins|![](/de-DE/2021/02/202102202300Porto.jpg)|
