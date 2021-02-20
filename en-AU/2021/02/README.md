@@ -21,3 +21,4 @@
 202102170800|PeritoMorenoArgentina|Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)||![](/en-AU/2021/02/202102170800PeritoMorenoArgentina.jpg)|
 202102180800|VerzascaValley|Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)||![](/en-AU/2021/02/202102180800VerzascaValley.jpg)|
 202102190800|Parrotfish|Parrotfish off the coast of Negros Oriental province, Philippines (© Tim Fitzharris/Minden Pictures)||![](/en-AU/2021/02/202102190800Parrotfish.jpg)|
+202102200800|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)||![](/en-AU/2021/02/202102200800AABday.jpg)|
