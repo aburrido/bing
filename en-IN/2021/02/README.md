@@ -20,3 +20,4 @@
 202102171830|VerzascaValley|Stones in a river near the hamlet of Lavertezzo, in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|Valle Verzasca of Switzerland|![](/en-IN/2021/02/202102171830VerzascaValley.jpg)|
 202102181830|CSTAirport|Chhatrapati Shivaji Maharaj International Airport (© AWL Images/DanitaDelimont.com)|Chhatrapati Shivaji Maharaj International Airport|![](/en-IN/2021/02/202102181830CSTAirport.jpg)|
 202102191830|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Ansel Adams' enduring vision|![](/en-IN/2021/02/202102191830AABday.jpg)|
+202102201830|Porto|Porto, Portugal (© Kanuman/Shutterstock)|An important port of Portugal|![](/en-IN/2021/02/202102201830Porto.jpg)|
