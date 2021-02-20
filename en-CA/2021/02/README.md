@@ -21,3 +21,4 @@
 202102170500|PeritoMorenoArgentina|Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)|The persistence of Perito Moreno|![](/en-CA/2021/02/202102170500PeritoMorenoArgentina.jpg)|
 202102180500|VerzascaValley|Stones in a river near the hamlet of Lavertezzo, in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|A river runs through it|![](/en-CA/2021/02/202102180500VerzascaValley.jpg)|
 202102190500|Parrotfish|Parrotfish off the coast of the Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)|Colourful cows of the reef|![](/en-CA/2021/02/202102190500Parrotfish.jpg)|
+202102200500|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Ansel Adams' enduring vision|![](/en-CA/2021/02/202102200500AABday.jpg)|
