@@ -21,3 +21,4 @@
 202102181600|Parrotfish|东内格罗斯省沿海的鹦嘴鱼，菲律宾 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2021/02/202102181600Parrotfish.jpg)|
 202102191600|AABday|暴风雪散去，加利福尼亚优胜美地国家公园 (© Jeff Lewis/Tandem Stills + Motion)||![](/zh-CN/2021/02/202102191600AABday.jpg)|
 202102201600|Porto|波尔图，葡萄牙 (© Kanuman/Shutterstock)||![](/zh-CN/2021/02/202102201600Porto.jpg)|
+202102211600|TheCobb|莱姆里杰斯的Cobb防波堤，英格兰多塞特 (© Ross Hoddinott/Offset by Shutterstock)||![](/zh-CN/2021/02/202102211600TheCobb.jpg)|
