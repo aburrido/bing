@@ -21,3 +21,4 @@
 202102180500|VerzascaValley|Rochers dans une rivière près du village de Lavertezzo dans le val Verzasca en Suisse (© Robert Seitz/Offset by Shutterstock)||![](/fr-CA/2021/02/202102180500VerzascaValley.jpg)|
 202102190500|Parrotfish|Poissons-perroquets au large de la province orientale de Negros aux Philippines (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/02/202102190500Parrotfish.jpg)|
 202102200500|AABday|Ttempête de neige en dégagement, Parc national de Yosemite, Californie (© Jeff Lewis/Tandem Stills + Motion)||![](/fr-CA/2021/02/202102200500AABday.jpg)|
+202102210500|Porto|Porto, Portugal (© Kanuman/Shutterstock)||![](/fr-CA/2021/02/202102210500Porto.jpg)|
