@@ -21,3 +21,4 @@
 202102182300|Parrotfish|Poissons-Perroquets au large de la province Negros Orientales dans les Philippines (© Tim Fitzharris/Minden Pictures)|Palette aquatique|![](/fr-FR/2021/02/202102182300Parrotfish.jpg)|
 202102192300|AABday|Tempête approchant, Parc national de Yosemite, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Dans les pas d’une légende|![](/fr-FR/2021/02/202102192300AABday.jpg)|
 202102202300|Porto|Porto, Portugal (© Kanuman/Shutterstock)|À bon Port(o)|![](/fr-FR/2021/02/202102202300Porto.jpg)|
+202102212300|Nideck|Cascade du Nideck gelée, Oberhaslach, Alsace (© Philippe Sainte-Laudy Photography/Getty Images)|Cascade interrompue|![](/fr-FR/2021/02/202102212300Nideck.jpg)|

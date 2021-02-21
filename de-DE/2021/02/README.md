@@ -21,3 +21,4 @@
 202102182300|Parrotfish|Papageifische vor der Küste der Provinz Negros Oriental, Philippinen (© Tim Fitzharris/Minden Pictures)|Farbenprächtige „Riff-Kühe“|![](/de-DE/2021/02/202102182300Parrotfish.jpg)|
 202102192300|DalmatianPelicans|Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)|Gewagte Winterfrisuren|![](/de-DE/2021/02/202102192300DalmatianPelicans.jpg)|
 202102202300|Porto|Porto, Portugal (© Kanuman/Shutterstock)|Heimathafen des Portweins|![](/de-DE/2021/02/202102202300Porto.jpg)|
+202102212300|TheCobb|Die Hafenmauer „The Cobb“ in Lyme Regis, Grafschaft Dorset, England, Vereinigtes Königreich (© Ross Hoddinott/Nature Picture Library/Offset by Shutterstock)|Bollwerk gegen die Flut|![](/de-DE/2021/02/202102212300TheCobb.jpg)|
