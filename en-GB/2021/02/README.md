@@ -20,3 +20,4 @@
 202102180000|VerzascaValley|Stones in a river near the hamlet of Lavertezzo, in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)|Into the Valle Verzasca|![](/en-GB/2021/02/202102180000VerzascaValley.jpg)|
 202102190000|Parrotfish|Parrotfish off the coast of the Philippines (© Tim Fitzharris/Minden Pictures)|Cleaning up the reef|![](/en-GB/2021/02/202102190000Parrotfish.jpg)|
 202102200000|IceWalking|Hikers on alpine glacier, Mont Blanc, Chamonix, France (© agustavop/Getty Images)|A glacial pace|![](/en-GB/2021/02/202102200000IceWalking.jpg)|
+202102210000|Porto|Porto, Portugal (© Kanuman/Shutterstock)|Winding through Porto|![](/en-GB/2021/02/202102210000Porto.jpg)|
