@@ -23,3 +23,4 @@
 202102190800|Parrotfish|Parrotfish off the coast of Negros Oriental province, Philippines (© Tim Fitzharris/Minden Pictures)||![](/en-AU/2021/02/202102190800Parrotfish.jpg)|
 202102200800|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)||![](/en-AU/2021/02/202102200800AABday.jpg)|
 202102210800|Porto|Porto, Portugal (© Kanuman/Shutterstock)||![](/en-AU/2021/02/202102210800Porto.jpg)|
+202102220800|TheCobb|The Cobb breakwater, Lyme Regis, Dorset, England (© Ross Hoddinott/Offset by Shutterstock)||![](/en-AU/2021/02/202102220800TheCobb.jpg)|

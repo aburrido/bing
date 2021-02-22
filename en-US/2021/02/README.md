@@ -22,3 +22,4 @@
 202102190800|Parrotfish|Parrotfish off the coast of Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)|Colorful cows of the reef|![](/en-US/2021/02/202102190800Parrotfish.jpg)|
 202102200800|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|An enduring vision|![](/en-US/2021/02/202102200800AABday.jpg)|
 202102210800|Porto|Porto, Portugal (© Kanuman/Shutterstock)|Overlooking the Douro|![](/en-US/2021/02/202102210800Porto.jpg)|
+202102220800|InvisibleMan|'Invisible Man,' a memorial to Ralph Ellison in Riverside Park, New York City (© Randy Duchaine/Alamy)|Invisible no longer|![](/en-US/2021/02/202102220800InvisibleMan.jpg)|
