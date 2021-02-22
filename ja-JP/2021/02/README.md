@@ -22,3 +22,4 @@
 202102191500|AABday|｢ヨセミテ国立公園｣米国, カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|今日はアンセル・アダムスの誕生日|![](/ja-JP/2021/02/202102191500AABday.jpg)|
 202102201500|Porto|｢ポルト｣ポルトガル (© Kanuman/Shutterstock)|王国の繁栄を支えた港町|![](/ja-JP/2021/02/202102201500Porto.jpg)|
 202102211500|TheCobb|｢コブの防波堤｣英国, ドーセット州 (© Ross Hoddinott/Offset by Shutterstock)|19 世紀からの防波堤|![](/ja-JP/2021/02/202102211500TheCobb.jpg)|
+202102221500|KoukyoGaien|｢皇居外苑｣東京都, 千代田区 (© Sean Pavone/Shutter.com)|今日は天皇誕生日|![](/ja-JP/2021/02/202102221500KoukyoGaien.jpg)|
