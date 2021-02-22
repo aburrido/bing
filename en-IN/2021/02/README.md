@@ -22,3 +22,4 @@
 202102191830|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Ansel Adams' enduring vision|![](/en-IN/2021/02/202102191830AABday.jpg)|
 202102201830|Porto|Porto, Portugal (© Kanuman/Shutterstock)|An important port of Portugal|![](/en-IN/2021/02/202102201830Porto.jpg)|
 202102211830|TheCobb|The Cobb breakwater, Lyme Regis, Dorset, England (© Ross Hoddinott/Offset by Shutterstock)|Holding back the tide|![](/en-IN/2021/02/202102211830TheCobb.jpg)|
+202102221830|DalmatianPelicans|Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)|What kind of bird is this?|![](/en-IN/2021/02/202102221830DalmatianPelicans.jpg)|
