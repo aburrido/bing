@@ -22,3 +22,4 @@
 202102192300|DalmatianPelicans|Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)|Gewagte Winterfrisuren|![](/de-DE/2021/02/202102192300DalmatianPelicans.jpg)|
 202102202300|Porto|Porto, Portugal (© Kanuman/Shutterstock)|Heimathafen des Portweins|![](/de-DE/2021/02/202102202300Porto.jpg)|
 202102212300|TheCobb|Die Hafenmauer „The Cobb“ in Lyme Regis, Grafschaft Dorset, England, Vereinigtes Königreich (© Ross Hoddinott/Nature Picture Library/Offset by Shutterstock)|Bollwerk gegen die Flut|![](/de-DE/2021/02/202102212300TheCobb.jpg)|
+202102222300|KlosterAndechsWinter|Winterliche Morgenstimmung am Kloster Andechs in Bayern mit Blick auf den Ammersee (© Reinhard Schmid/Huber/eStock Photo)|„Bayerns Heiliger Berg“|![](/de-DE/2021/02/202102222300KlosterAndechsWinter.jpg)|
