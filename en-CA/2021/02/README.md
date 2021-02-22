@@ -23,3 +23,4 @@
 202102190500|Parrotfish|Parrotfish off the coast of the Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)|Colourful cows of the reef|![](/en-CA/2021/02/202102190500Parrotfish.jpg)|
 202102200500|AABday|Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Ansel Adams' enduring vision|![](/en-CA/2021/02/202102200500AABday.jpg)|
 202102210500|Porto|Porto, Portugal (© Kanuman/Shutterstock)|An important port of Portugal|![](/en-CA/2021/02/202102210500Porto.jpg)|
+202102220500|TheCobb|The Cobb breakwater, Lyme Regis, Dorset, England (© Ross Hoddinott/Offset by Shutterstock)|Holding back the tide|![](/en-CA/2021/02/202102220500TheCobb.jpg)|
