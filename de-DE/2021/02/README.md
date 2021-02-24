@@ -24,3 +24,4 @@
 202102212300|TheCobb|Die Hafenmauer „The Cobb“ in Lyme Regis, Grafschaft Dorset, England, Vereinigtes Königreich (© Ross Hoddinott/Nature Picture Library/Offset by Shutterstock)|Bollwerk gegen die Flut|![](/de-DE/2021/02/202102212300TheCobb.jpg)|
 202102222300|KlosterAndechsWinter|Winterliche Morgenstimmung am Kloster Andechs in Bayern mit Blick auf den Ammersee (© Reinhard Schmid/Huber/eStock Photo)|„Bayerns Heiliger Berg“|![](/de-DE/2021/02/202102222300KlosterAndechsWinter.jpg)|
 202102232300|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)|Ist das ein Unterwasser-Wasserfall?|![](/de-DE/2021/02/202102232300LeMorneBrabant.jpg)|
+202102242300|Trevi|Mandelblüte bei Trevi, Provinz Perugia, Umbrien, Italien (© Maurizio Rellini/eStock Photo)|Blühendes Trevi|![](/de-DE/2021/02/202102242300Trevi.jpg)|

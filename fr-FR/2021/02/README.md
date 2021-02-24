@@ -24,3 +24,4 @@
 202102212300|Nideck|Cascade du Nideck gelée, Oberhaslach, Alsace (© Philippe Sainte-Laudy Photography/Getty Images)|Cascade interrompue|![](/fr-FR/2021/02/202102212300Nideck.jpg)|
 202102222300|DalmatianPelicans|Pélicans frisés sur le lac Kerkini gelé, Grèce (© Guy Edwardes/Minden Pictures)|Pélicans en danger|![](/fr-FR/2021/02/202102222300DalmatianPelicans.jpg)|
 202102232300|LeMorneBrabant|Le Morne Brabant, île Maurice (© Hemis/Alamy)|Une cascade sous-marine ?|![](/fr-FR/2021/02/202102232300LeMorneBrabant.jpg)|
+202102242300|Trevi|Amandiers en fleur surplombant Trevi, La Pérouse, Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Trevi en fleur|![](/fr-FR/2021/02/202102242300Trevi.jpg)|
