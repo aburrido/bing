@@ -24,3 +24,4 @@
 202102211500|TheCobb|｢コブの防波堤｣英国, ドーセット州 (© Ross Hoddinott/Offset by Shutterstock)|19 世紀からの防波堤|![](/ja-JP/2021/02/202102211500TheCobb.jpg)|
 202102221500|KoukyoGaien|｢皇居外苑｣東京都, 千代田区 (© Sean Pavone/Shutter.com)|今日は天皇誕生日|![](/ja-JP/2021/02/202102221500KoukyoGaien.jpg)|
 202102231500|LeMorneBrabant|｢ルモーンブラバン｣モーリシャス (© Hemis/Alamy)|マルーンの隠れ家|![](/ja-JP/2021/02/202102231500LeMorneBrabant.jpg)|
+202102241500|Trevi|｢トレヴィの街｣イタリア, ウンブリア州 (© Maurizio Rellini/eStock Photo)|イタリアで最も美しい村|![](/ja-JP/2021/02/202102241500Trevi.jpg)|
