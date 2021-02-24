@@ -24,3 +24,4 @@
 202102211600|TheCobb|莱姆里杰斯的Cobb防波堤，英格兰多塞特 (© Ross Hoddinott/Offset by Shutterstock)||![](/zh-CN/2021/02/202102211600TheCobb.jpg)|
 202102221600|DalmatianPelicans|冰上的卷羽鹈鹕，希腊凯尔基尼湖 (© Guy Edwardes/Minden Pictures)||![](/zh-CN/2021/02/202102221600DalmatianPelicans.jpg)|
 202102231600|LeMorneBrabant|莫纳布拉班特山，毛里求斯 (© Hemis/Alamy)||![](/zh-CN/2021/02/202102231600LeMorneBrabant.jpg)|
+202102241600|Trevi|俯瞰着特雷维的扁桃花，意大利佩鲁贾 (© Maurizio Rellini/eStock Photo)||![](/zh-CN/2021/02/202102241600Trevi.jpg)|
