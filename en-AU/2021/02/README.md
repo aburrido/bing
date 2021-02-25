@@ -26,3 +26,4 @@
 202102220800|TheCobb|The Cobb breakwater, Lyme Regis, Dorset, England (© Ross Hoddinott/Offset by Shutterstock)||![](/en-AU/2021/02/202102220800TheCobb.jpg)|
 202102230800|DalmatianPelicans|Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)||![](/en-AU/2021/02/202102230800DalmatianPelicans.jpg)|
 202102240800|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)||![](/en-AU/2021/02/202102240800LeMorneBrabant.jpg)|
+202102250800|Trevi|Trevi, Umbria, Italy, with almond flowers in the foreground (© Maurizio Rellini/eStock Photo)||![](/en-AU/2021/02/202102250800Trevi.jpg)|
