@@ -24,3 +24,4 @@
 202102220000|TheCobb|The Cobb breakwater, Lyme Regis, Dorset (© Ross Hoddinott/Offset by Shutterstock)|Holding back the tide|![](/en-GB/2021/02/202102220000TheCobb.jpg)|
 202102230000|DalmatianPelicans|Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)|Endangered giants|![](/en-GB/2021/02/202102230000DalmatianPelicans.jpg)|
 202102240000|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)|An underwater waterfall?|![](/en-GB/2021/02/202102240000LeMorneBrabant.jpg)|
+202102250000|Trevi|Almond blossoms overlooking Trevi, Perugia district, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Trevi in bloom|![](/en-GB/2021/02/202102250000Trevi.jpg)|
