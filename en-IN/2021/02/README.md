@@ -25,3 +25,4 @@
 202102221830|DalmatianPelicans|Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)|What kind of bird is this?|![](/en-IN/2021/02/202102221830DalmatianPelicans.jpg)|
 202102231830|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)|Getting to the bottom of the underwater waterfall|![](/en-IN/2021/02/202102231830LeMorneBrabant.jpg)|
 202102241830|MehrangarhFortRajasthan|Mehrangarh Fort in Jodhpur old town (© Pratan Ounpitipong/Getty Images)|Mehrangarh Fort in Jodhpur old town|![](/en-IN/2021/02/202102241830MehrangarhFortRajasthan.jpg)|
+202102251830|JinliStreet|Red lanterns hanging in Jinli Street, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Lighting the way to a new year|![](/en-IN/2021/02/202102251830JinliStreet.jpg)|
