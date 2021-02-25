@@ -25,3 +25,4 @@
 202102221500|KoukyoGaien|｢皇居外苑｣東京都, 千代田区 (© Sean Pavone/Shutter.com)|今日は天皇誕生日|![](/ja-JP/2021/02/202102221500KoukyoGaien.jpg)|
 202102231500|LeMorneBrabant|｢ルモーンブラバン｣モーリシャス (© Hemis/Alamy)|マルーンの隠れ家|![](/ja-JP/2021/02/202102231500LeMorneBrabant.jpg)|
 202102241500|Trevi|｢トレヴィの街｣イタリア, ウンブリア州 (© Maurizio Rellini/eStock Photo)|イタリアで最も美しい村|![](/ja-JP/2021/02/202102241500Trevi.jpg)|
+202102251500|JinliStreet|｢赤い提灯｣中国, 四川省, 成都 (© Philippe LEJEANVRE/Getty Images)|今日は元宵節|![](/ja-JP/2021/02/202102251500JinliStreet.jpg)|
