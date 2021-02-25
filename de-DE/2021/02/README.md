@@ -25,3 +25,4 @@
 202102222300|KlosterAndechsWinter|Winterliche Morgenstimmung am Kloster Andechs in Bayern mit Blick auf den Ammersee (© Reinhard Schmid/Huber/eStock Photo)|„Bayerns Heiliger Berg“|![](/de-DE/2021/02/202102222300KlosterAndechsWinter.jpg)|
 202102232300|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)|Ist das ein Unterwasser-Wasserfall?|![](/de-DE/2021/02/202102232300LeMorneBrabant.jpg)|
 202102242300|Trevi|Mandelblüte bei Trevi, Provinz Perugia, Umbrien, Italien (© Maurizio Rellini/eStock Photo)|Blühendes Trevi|![](/de-DE/2021/02/202102242300Trevi.jpg)|
+202102252300|JinliStreet|Rote Laternen in der Jinli-Straße, Chengdu, Provinz Sichuan, China (© Philippe LEJEANVRE/Getty Images)|Erleuchtet in ein neues Jahr|![](/de-DE/2021/02/202102252300JinliStreet.jpg)|

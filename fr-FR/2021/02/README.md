@@ -25,3 +25,4 @@
 202102222300|DalmatianPelicans|Pélicans frisés sur le lac Kerkini gelé, Grèce (© Guy Edwardes/Minden Pictures)|Pélicans en danger|![](/fr-FR/2021/02/202102222300DalmatianPelicans.jpg)|
 202102232300|LeMorneBrabant|Le Morne Brabant, île Maurice (© Hemis/Alamy)|Une cascade sous-marine ?|![](/fr-FR/2021/02/202102232300LeMorneBrabant.jpg)|
 202102242300|Trevi|Amandiers en fleur surplombant Trevi, La Pérouse, Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Trevi en fleur|![](/fr-FR/2021/02/202102242300Trevi.jpg)|
+202102252300|JinliStreet|Lanternes rouges suspendues dans Jinli Street, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Nouveau départ|![](/fr-FR/2021/02/202102252300JinliStreet.jpg)|
