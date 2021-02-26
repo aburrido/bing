@@ -27,3 +27,4 @@
 202102230500|DalmatianPelicans|Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)|What kind of bird is this?|![](/en-CA/2021/02/202102230500DalmatianPelicans.jpg)|
 202102240500|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)|Getting to the bottom of the underwater waterfall|![](/en-CA/2021/02/202102240500LeMorneBrabant.jpg)|
 202102250500|Trevi|Almond blossoms overlooking Trevi, Perugia district, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Trevi in bloom|![](/en-CA/2021/02/202102250500Trevi.jpg)|
+202102260500|JinliStreet|Red lanterns hanging in Jinli Street, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Lighting the way to a new year|![](/en-CA/2021/02/202102260500JinliStreet.jpg)|

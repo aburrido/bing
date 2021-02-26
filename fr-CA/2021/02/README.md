@@ -26,3 +26,4 @@
 202102230500|DalmatianPelicans|Pélicans frisés sur de la glace, lac Kerkini, Grèce (© Guy Edwardes/Minden Pictures)||![](/fr-CA/2021/02/202102230500DalmatianPelicans.jpg)|
 202102240500|LeMorneBrabant|Le Morne Brabant, île Maurice (© Hemis/Alamy)||![](/fr-CA/2021/02/202102240500LeMorneBrabant.jpg)|
 202102250500|Trevi|Amandiers en fleurs surplombant Trevi, district de Pérouse, Ombrie, Italie (© Maurizio Rellini/eStock Photo)||![](/fr-CA/2021/02/202102250500Trevi.jpg)|
+202102260500|JinliStreet|Lanternes rouges suspendues dans la rue Jinli à Chengdu en Chine (© Philippe LEJEANVRE/Getty Images)||![](/fr-CA/2021/02/202102260500JinliStreet.jpg)|
