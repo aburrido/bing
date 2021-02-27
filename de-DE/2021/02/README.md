@@ -27,3 +27,4 @@
 202102242300|Trevi|Mandelblüte bei Trevi, Provinz Perugia, Umbrien, Italien (© Maurizio Rellini/eStock Photo)|Blühendes Trevi|![](/de-DE/2021/02/202102242300Trevi.jpg)|
 202102252300|JinliStreet|Rote Laternen in der Jinli-Straße, Chengdu, Provinz Sichuan, China (© Philippe LEJEANVRE/Getty Images)|Erleuchtet in ein neues Jahr|![](/de-DE/2021/02/202102252300JinliStreet.jpg)|
 202102262300|TwinsDenning|Eisbärenjunge in einer Schneehöhle im Wapusk-Nationalpark, Provinz Manitoba, Kanada (© AF archive/Alamy)|Internationaler Tag der Eisbären|![](/de-DE/2021/02/202102262300TwinsDenning.jpg)|
+202102272300|TurfHouse|Traditionelle Grassodenhäuser bei Skaftafell, Vatnajökull-Nationalpark, Island (© Jarcosa/Getty Images)|Hier kann man das Gras wachsen hören|![](/de-DE/2021/02/202102272300TurfHouse.jpg)|
