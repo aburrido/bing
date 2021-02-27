@@ -28,3 +28,4 @@
 202102240800|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)||![](/en-AU/2021/02/202102240800LeMorneBrabant.jpg)|
 202102250800|Trevi|Trevi, Umbria, Italy, with almond flowers in the foreground (© Maurizio Rellini/eStock Photo)||![](/en-AU/2021/02/202102250800Trevi.jpg)|
 202102260800|JinliStreet|Red lanterns hanging in Jinli Street, Chengdu, China (© Philippe LEJEANVRE/Getty Images)||![](/en-AU/2021/02/202102260800JinliStreet.jpg)|
+202102270800|SchneebergOchsenkopf|Aerial view of the Ochsenkopf and Schneeberg mountains, Bavaria, Germany (© Felix Meyer/Adobe Stock)||![](/en-AU/2021/02/202102270800SchneebergOchsenkopf.jpg)|
