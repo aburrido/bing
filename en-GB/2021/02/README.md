@@ -26,3 +26,4 @@
 202102240000|LeMorneBrabant|Le Morne Brabant, Mauritius (© Hemis/Alamy)|An underwater waterfall?|![](/en-GB/2021/02/202102240000LeMorneBrabant.jpg)|
 202102250000|Trevi|Almond blossoms overlooking Trevi, Perugia district, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Trevi in bloom|![](/en-GB/2021/02/202102250000Trevi.jpg)|
 202102260000|JinliStreet|Red lanterns hanging in Jinli Street, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Lighting the way to a new year|![](/en-GB/2021/02/202102260000JinliStreet.jpg)|
+202102270000|TwinsDenning|Twin cubs asleep in a snow den in Wapusk National Park, Manitoba, Canada (© AF archive/Alamy)|Snuggling up on International Polar Bear Day|![](/en-GB/2021/02/202102270000TwinsDenning.jpg)|
