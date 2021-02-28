@@ -28,3 +28,4 @@
 202102251600|JinliStreet|挂在锦里街上的红灯笼，中国成都 (© Philippe LEJEANVRE/Getty Images)||![](/zh-CN/2021/02/202102251600JinliStreet.jpg)|
 202102261600|SchneebergOchsenkopf|鸟瞰施内贝格山脉-奥克森峰，德国 (© Felix Meyer/Adobe Stock)||![](/zh-CN/2021/02/202102261600SchneebergOchsenkopf.jpg)|
 202102271600|TurfHouse|斯卡夫塔山中的传统农舍，冰岛瓦特纳冰川国家公园 (© Jarcosa/Getty Images)||![](/zh-CN/2021/02/202102271600TurfHouse.jpg)|
+202102281600|BlueTitDaffs|威尔士中部水仙花中的蓝山雀 (© Philip Jones/Alamy)||![](/zh-CN/2021/02/202102281600BlueTitDaffs.jpg)|
