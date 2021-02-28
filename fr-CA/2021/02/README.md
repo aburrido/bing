@@ -28,3 +28,4 @@
 202102250500|Trevi|Amandiers en fleurs surplombant Trevi, district de Pérouse, Ombrie, Italie (© Maurizio Rellini/eStock Photo)||![](/fr-CA/2021/02/202102250500Trevi.jpg)|
 202102260500|JinliStreet|Lanternes rouges suspendues dans la rue Jinli à Chengdu en Chine (© Philippe LEJEANVRE/Getty Images)||![](/fr-CA/2021/02/202102260500JinliStreet.jpg)|
 202102270500|LoganClouds|Vue aérienne du mont Logan s'élevant au-dessus des nuages dans le parc national de Kluane au Yukon (© plainpicture/Design Pics/Robert Postma)||![](/fr-CA/2021/02/202102270500LoganClouds.jpg)|
+202102280500|TurfHouse|Fermes traditionnelles à Skaftafell, Parc national de Vatnajökull, Islande (© Jarcosa/Getty Images)||![](/fr-CA/2021/02/202102280500TurfHouse.jpg)|
