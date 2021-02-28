@@ -28,3 +28,4 @@
 202102252300|JinliStreet|Lanternes rouges suspendues dans Jinli Street, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Nouveau départ|![](/fr-FR/2021/02/202102252300JinliStreet.jpg)|
 202102262300|TwinsDenning|Bébés jumeaux ours polaires endormis dans la neige, dans le parc national Wapusk, Manitoba, Canada (© AF archive/Alamy)|Juste ❤|![](/fr-FR/2021/02/202102262300TwinsDenning.jpg)|
 202102272300|TurfHouse|Fermes traditionnelles à Skaftafell, dans le parc national du Vatnajökull, Islande (© Jarcosa/Getty Images)|Créativité islandaise|![](/fr-FR/2021/02/202102272300TurfHouse.jpg)|
+202102282300|ComplimentsDay|Couple d’albatros royal jouant sur l’île Campbell, Nouvelle-Zélande (© Mike Potts/Minden)|« J'adore ton style ! »|![](/fr-FR/2021/02/202102282300ComplimentsDay.jpg)|

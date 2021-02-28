@@ -28,3 +28,4 @@
 202102252300|JinliStreet|Rote Laternen in der Jinli-Straße, Chengdu, Provinz Sichuan, China (© Philippe LEJEANVRE/Getty Images)|Erleuchtet in ein neues Jahr|![](/de-DE/2021/02/202102252300JinliStreet.jpg)|
 202102262300|TwinsDenning|Eisbärenjunge in einer Schneehöhle im Wapusk-Nationalpark, Provinz Manitoba, Kanada (© AF archive/Alamy)|Internationaler Tag der Eisbären|![](/de-DE/2021/02/202102262300TwinsDenning.jpg)|
 202102272300|TurfHouse|Traditionelle Grassodenhäuser bei Skaftafell, Vatnajökull-Nationalpark, Island (© Jarcosa/Getty Images)|Hier kann man das Gras wachsen hören|![](/de-DE/2021/02/202102272300TurfHouse.jpg)|
+202102282300|SchneebergOchsenkopf|Luftaufnahme von Schneeberg und Ochsenkopf über den Wolken bei Sonnenaufgang, Fichtelgebirge, Bayern (© Felix Meyer/Adobe Stock)|Der höchste Gipfel des Fichtelgebirges|![](/de-DE/2021/02/202102282300SchneebergOchsenkopf.jpg)|
