@@ -28,3 +28,4 @@
 202102251830|JinliStreet|Red lanterns hanging in Jinli Street, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Lighting the way to a new year|![](/en-IN/2021/02/202102251830JinliStreet.jpg)|
 202102261830|TwinsDenning|Twin polar bear cubs asleep in a snow den in Wapusk National Park, Manitoba, Canada (© AF archive/Alamy)|International Polar Bear Day|![](/en-IN/2021/02/202102261830TwinsDenning.jpg)|
 202102271830|CityPalaceUdaipur|City Palace on the banks of Lake Pichola in Udaipur, India (© Chaiyun Damkaew/Getty Image)|The architectural wonder of Rajasthan|![](/en-IN/2021/02/202102271830CityPalaceUdaipur.jpg)|
+202102281830|BlueTitDaffs|A blue tit amongst daffodils on St David's Day in Wales, UK (© Philip Jones/Alamy)|Daffodils on St David’s Day|![](/en-IN/2021/02/202102281830BlueTitDaffs.jpg)|
