@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202102280800|TurfHouse|Traditional farmhouses at Skaftafell, Vatnajökull National Park, Iceland (© Jarcosa/Getty Images)||![](/en-AU/2021/03/202102280800TurfHouse.jpg)|
+202103010800|BlueTitDaffs|A blue tit amongst daffodils in Mid Wales, United Kingdom (© Philip Jones/Alamy)||![](/en-AU/2021/03/202103010800BlueTitDaffs.jpg)|
