@@ -4,3 +4,4 @@
 202103010500|BlueTitDaffs|A blue tit amongst daffodils on St David's Day in Blaenpennal, Aberystwyth Wales, U.K. (© Philip Jones/Alamy Stock Photo)|Daffodils on St David’s Day|![](/en-CA/2021/03/202103010500BlueTitDaffs.jpg)|
 202103020500|VolcanoLlaima|Volcano Llaima with Araucaria trees in the foreground, Conguillío National Park, Chile (© Fotografías Jorge León Cabello/Getty Images)|Fall for Chile|![](/en-CA/2021/03/202103020500VolcanoLlaima.jpg)|
 202103030500|WWDLions|Two female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)|Climb a tree for World Wildlife Day|![](/en-CA/2021/03/202103030500WWDLions.jpg)|
+202103040500|LoganClouds|Aerial image of Mount Logan rising above the clouds in Kluane National Park, Yukon (© plainpicture/Design Pics/Robert Postma)|Highest peak in Canada|![](/en-CA/2021/03/202103040500LoganClouds.jpg)|
