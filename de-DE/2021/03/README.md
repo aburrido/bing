@@ -4,3 +4,4 @@
 202103012300|VolcanoLlaima|Vulkan Llaima mit Chilenischen Araukarien im Vordergrund, Nationalpark Conguillío, Chile (© Fotografías Jorge León Cabello/Getty Images)|Herbst in Chile|![](/de-DE/2021/03/202103012300VolcanoLlaima.jpg)|
 202103022300|WWDLions|Löwinnen in einem Wald am Nakurusee, Kenia (© Scott Davis/Tandem Stills + Motion)|Tag des Artenschutzes|![](/de-DE/2021/03/202103022300WWDLions.jpg)|
 202103032300|Comma|Strand und Kaimauer bei Nusa Dua, Bali, Indonesien (© Dkart/Getty Images)|Ein „Komma“ als Kaimauer|![](/de-DE/2021/03/202103032300Comma.jpg)|
+202103042300|MinasdeRioTinto|Rio Tinto, Provinz Huelva, Andalusien, Spanien (© David Santiago Garcia/Getty Images)|Einer der eigenartigsten Flüsse der Welt|![](/de-DE/2021/03/202103042300MinasdeRioTinto.jpg)|
