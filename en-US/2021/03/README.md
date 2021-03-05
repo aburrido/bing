@@ -5,3 +5,4 @@
 202103020800|VolcanoLlaima|Volcano Llaima with Araucaria trees in the foreground, Conguillío National Park, Chile (© Fotografías Jorge León Cabello/Getty Images)|Fall for Chile|![](/en-US/2021/03/202103020800VolcanoLlaima.jpg)|
 202103030800|WWDLions|Female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)|Climb a tree for wild animals and plants|![](/en-US/2021/03/202103030800WWDLions.jpg)|
 202103040800|Comma|Nusa Dua coast with breakwater, Bali, Indonesia (© Dkart/Getty Images)|The most wonderful day of the year. Period.|![](/en-US/2021/03/202103040800Comma.jpg)|
+202103050800|MinasdeRioTinto|Mineral-laden water in the Rio Tinto, Minas de Riotinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)|Reflecting on one of the world's strangest rivers|![](/en-US/2021/03/202103050800MinasdeRioTinto.jpg)|
