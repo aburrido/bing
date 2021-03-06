@@ -6,3 +6,4 @@
 202103032300|Comma|Strand und Kaimauer bei Nusa Dua, Bali, Indonesien (© Dkart/Getty Images)|Ein „Komma“ als Kaimauer|![](/de-DE/2021/03/202103032300Comma.jpg)|
 202103042300|MinasdeRioTinto|Rio Tinto, Provinz Huelva, Andalusien, Spanien (© David Santiago Garcia/Getty Images)|Einer der eigenartigsten Flüsse der Welt|![](/de-DE/2021/03/202103042300MinasdeRioTinto.jpg)|
 202103052300|PurpleFlowers|Blumen in einem Vorgarten in New Orleans, Louisiana, USA (© Lauren Mitchell/Offset by Shutterstock)|Vorschau auf den Frühling|![](/de-DE/2021/03/202103052300PurpleFlowers.jpg)|
+202103062300|PadarIsland|Nationalpark Komodo, Labuan Bajo, Insel Flores, Indonesien (© Thrithot/Adobe Stock)|Hier gibt es Drachen!|![](/de-DE/2021/03/202103062300PadarIsland.jpg)|
