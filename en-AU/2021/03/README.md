@@ -6,3 +6,4 @@
 202103030800|WWDLions|Two female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)||![](/en-AU/2021/03/202103030800WWDLions.jpg)|
 202103040800|Comma|Nusa Dua coast with breakwater, Bali, Indonesia (© Dkart/Getty Images)||![](/en-AU/2021/03/202103040800Comma.jpg)|
 202103050800|MinasdeRioTinto|Mineral-laden water in the Rio Tinto in Minas de Rio Tinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)||![](/en-AU/2021/03/202103050800MinasdeRioTinto.jpg)|
+202103060800|PadarIsland|Komodo National Park, Labuan Bajo, Flores, Indonesia (© Thrithot/Adobe Stock)||![](/en-AU/2021/03/202103060800PadarIsland.jpg)|
