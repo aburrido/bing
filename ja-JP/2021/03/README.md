@@ -6,3 +6,4 @@
 202103031500|Comma|｢ヌサドゥアビーチの防波堤｣インドネシア, バリ島 (© Dkart/Getty Images)|今日は文法の日|![](/ja-JP/2021/03/202103031500Comma.jpg)|
 202103041500|MinasdeRioTinto|｢リオ・ティント川｣スペイン, アンダルシア (© David Santiago Garcia/Getty Images)|強酸性の赤い川|![](/ja-JP/2021/03/202103041500MinasdeRioTinto.jpg)|
 202103051500|PadarIsland|｢コモド国立公園｣インドネシア, 小スンダ列島 (© Thrithot/Adobe Stock)|コモド国立公園設立の日|![](/ja-JP/2021/03/202103051500PadarIsland.jpg)|
+202103061500|Wakodahatchee|｢オオアオサギ｣米国, フロリダ州 (© Marie Hickman/Getty Images)|渡り鳥の楽園|![](/ja-JP/2021/03/202103061500Wakodahatchee.jpg)|
