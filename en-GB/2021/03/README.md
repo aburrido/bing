@@ -5,3 +5,4 @@
 202103030000|WWDLions|Two female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)|Taking pride in World Wildlife Day|![](/en-GB/2021/03/202103030000WWDLions.jpg)|
 202103040000|HungryCaterpillar|Old world swallowtail caterpillar for World Book Day (© ardea.com/Mary Evans/Tonci/Pantheon/SuperStock)|A very hungry caterpillar|![](/en-GB/2021/03/202103040000HungryCaterpillar.jpg)|
 202103050000|MinasdeRioTinto|Mineral-laden water in the Rio Tinto in Minas de Rio Tinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)|Reflecting on the Rio Tinto|![](/en-GB/2021/03/202103050000MinasdeRioTinto.jpg)|
+202103060000|PadarIsland|Komodo National Park, Labuan Bajo, Flores, Indonesia (© Thrithot/Adobe Stock)|Here be dragons|![](/en-GB/2021/03/202103060000PadarIsland.jpg)|
