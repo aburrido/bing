@@ -6,3 +6,4 @@
 202103030500|WWDLions|Two female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)|Climb a tree for World Wildlife Day|![](/en-CA/2021/03/202103030500WWDLions.jpg)|
 202103040500|LoganClouds|Aerial image of Mount Logan rising above the clouds in Kluane National Park, Yukon (© plainpicture/Design Pics/Robert Postma)|Highest peak in Canada|![](/en-CA/2021/03/202103040500LoganClouds.jpg)|
 202103050500|MinasdeRioTinto|Mineral-laden water in the Rio Tinto in Minas de Rio Tinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)|Reflecting on one of the world’s strangest rivers|![](/en-CA/2021/03/202103050500MinasdeRioTinto.jpg)|
+202103060500|PadarIsland|Komodo National Park, Labuan Bajo, Flores, Indonesia (© Thrithot/Adobe Stock)|Here there be dragons|![](/en-CA/2021/03/202103060500PadarIsland.jpg)|

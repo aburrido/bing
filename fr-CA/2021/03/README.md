@@ -6,3 +6,4 @@
 202103030500|WWDLions|Deux lionnes dans la forêt entourant le lac Nakuru au Kenya (© Scott Davis/Tandem Stills + Motion)||![](/fr-CA/2021/03/202103030500WWDLions.jpg)|
 202103040500|Comma|Côte de Nusa Dua avec brise-lames, Bali, Indonésie (© Dkart/Getty Images)||![](/fr-CA/2021/03/202103040500Comma.jpg)|
 202103050500|MinasdeRioTinto|Eau chargée de minéraux du Río Tinto dans la zone minière de Minas de Río Tinto, province de Huelva, Andalousie, Espagne (© David Santiago Garcia/Getty Images)||![](/fr-CA/2021/03/202103050500MinasdeRioTinto.jpg)|
+202103060500|PadarIsland|Parc national de Komodo, Labuan Bajo, Flores, Indonésie (© Thrithot/Adobe Stock)||![](/fr-CA/2021/03/202103060500PadarIsland.jpg)|
