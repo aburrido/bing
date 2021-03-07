@@ -7,3 +7,4 @@
 202103042300|MinasdeRioTinto|L’eau chargée de minéraux du Rio Tinto, province de Huelva, Espagne (© David Santiago Garcia/Getty Images)|Acidité colorée|![](/fr-FR/2021/03/202103042300MinasdeRioTinto.jpg)|
 202103052300|PadarIsland|Parc national de Komodo, Labuan Bajo, Florès, Indonesie (© Thrithot/Adobe Stock)|L’île aux dragons|![](/fr-FR/2021/03/202103052300PadarIsland.jpg)|
 202103062300|GrannysDay|Hutte en osier dans le potager du parc floral de la Source, Orléans (© Hervé Lenain/Alamy Stock Photo)|C’est la fête des grands-mères !|![](/fr-FR/2021/03/202103062300GrannysDay.jpg)|
+202103072300|FridaMural|Fresque représentant Frida Kahlo sur la façade d’un immeuble près de la bibliothèque Vasconcelos, Mexico, Mexique (© JESSICA SAMPLE/Gallery Stock)|Journée internationale des femmes|![](/fr-FR/2021/03/202103072300FridaMural.jpg)|
