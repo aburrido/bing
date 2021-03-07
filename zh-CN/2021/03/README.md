@@ -7,3 +7,4 @@
 202103041600|MinasdeRioTinto|力拓河中含矿物质的水，西班牙里奥廷托矿区 (© David Santiago Garcia/Getty Images)||![](/zh-CN/2021/03/202103041600MinasdeRioTinto.jpg)|
 202103051600|PadarIsland|弗洛勒斯岛上的纳闽巴霍，印度尼西亚科莫多国家公园 (© Thrithot/Adobe Stock)||![](/zh-CN/2021/03/202103051600PadarIsland.jpg)|
 202103061600|Wakodahatchee|德拉海滩Wakodahatchee湿地的大蓝鹭，佛罗里达州 (© Marie Hickman/Getty Images)||![](/zh-CN/2021/03/202103061600Wakodahatchee.jpg)|
+202103071600|LoganClouds|鸟瞰高耸入云的洛根山，加拿大克鲁瓦尼国家公园 (© plainpicture/Design Pics/Robert Postma)||![](/zh-CN/2021/03/202103071600LoganClouds.jpg)|
