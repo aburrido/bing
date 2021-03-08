@@ -7,3 +7,4 @@
 202103050000|MinasdeRioTinto|Mineral-laden water in the Rio Tinto in Minas de Rio Tinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)|Reflecting on the Rio Tinto|![](/en-GB/2021/03/202103050000MinasdeRioTinto.jpg)|
 202103060000|PadarIsland|Komodo National Park, Labuan Bajo, Flores, Indonesia (© Thrithot/Adobe Stock)|Here be dragons|![](/en-GB/2021/03/202103060000PadarIsland.jpg)|
 202103070000|Wakodahatchee|Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida, USA (© Marie Hickman/Getty Images)|Waste not, want not|![](/en-GB/2021/03/202103070000Wakodahatchee.jpg)|
+202103080000|FridaMural|Mural of Frida Kahlo on an apartment building near the Biblioteca Vasconcelos in Mexico City, Mexico (© Jessica Sample/Gallery Stock)|International Women’s Day|![](/en-GB/2021/03/202103080000FridaMural.jpg)|
