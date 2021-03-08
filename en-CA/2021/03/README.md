@@ -8,3 +8,4 @@
 202103050500|MinasdeRioTinto|Mineral-laden water in the Rio Tinto in Minas de Rio Tinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)|Reflecting on one of the world’s strangest rivers|![](/en-CA/2021/03/202103050500MinasdeRioTinto.jpg)|
 202103060500|PadarIsland|Komodo National Park, Labuan Bajo, Flores, Indonesia (© Thrithot/Adobe Stock)|Here there be dragons|![](/en-CA/2021/03/202103060500PadarIsland.jpg)|
 202103070500|Wakodahatchee|Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida (© Marie Hickman/Getty Images)|Finding a balance between wetlands and water treatment|![](/en-CA/2021/03/202103070500Wakodahatchee.jpg)|
+202103080500|FridaMural|Frida Kahlo mural, Mexico (© Jessica Sample/Gallery Stock)|International Women's Day|![](/en-CA/2021/03/202103080500FridaMural.jpg)|
