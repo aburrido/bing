@@ -9,3 +9,4 @@
 202103060800|PadarIsland|Komodo National Park, Indonesia (© Thrithot/Adobe Stock)|Here there be dragons|![](/en-US/2021/03/202103060800PadarIsland.jpg)|
 202103070800|Wakodahatchee|Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida (© Marie Hickman/Getty Images)|Finding a balance between wetlands and water treatment|![](/en-US/2021/03/202103070800Wakodahatchee.jpg)|
 202103080800|NotoriousRBG|View of the Notorious RBG mural by the street artist Elle in New York City (© lev radin/Alamy)|A notorious advocate for women|![](/en-US/2021/03/202103080800NotoriousRBG.jpg)|
+202103090800|RollingHills|Foothills of the Diablo Range in the East Bay region of Northern California (© Jeff Lewis/Tandem Stills + Motion)|Spring comes to the Diablo foothills|![](/en-US/2021/03/202103090800RollingHills.jpg)|
