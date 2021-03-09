@@ -8,3 +8,4 @@
 202103060000|PadarIsland|Komodo National Park, Labuan Bajo, Flores, Indonesia (© Thrithot/Adobe Stock)|Here be dragons|![](/en-GB/2021/03/202103060000PadarIsland.jpg)|
 202103070000|Wakodahatchee|Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida, USA (© Marie Hickman/Getty Images)|Waste not, want not|![](/en-GB/2021/03/202103070000Wakodahatchee.jpg)|
 202103080000|FridaMural|Mural of Frida Kahlo on an apartment building near the Biblioteca Vasconcelos in Mexico City, Mexico (© Jessica Sample/Gallery Stock)|International Women’s Day|![](/en-GB/2021/03/202103080000FridaMural.jpg)|
+202103090000|RollingHills|Foothills of the Diablo Range near San Jose, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Spring comes to the Diablo foothills|![](/en-GB/2021/03/202103090000RollingHills.jpg)|
