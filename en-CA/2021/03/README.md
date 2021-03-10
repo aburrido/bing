@@ -10,3 +10,4 @@
 202103070500|Wakodahatchee|Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida (© Marie Hickman/Getty Images)|Finding a balance between wetlands and water treatment|![](/en-CA/2021/03/202103070500Wakodahatchee.jpg)|
 202103080500|FridaMural|Frida Kahlo mural, Mexico (© Jessica Sample/Gallery Stock)|International Women's Day|![](/en-CA/2021/03/202103080500FridaMural.jpg)|
 202103090500|RollingHills|Foothills of the Diablo Range near San Jose, California (© Jeff Lewis/Tandem Stills + Motion)|Spring comes to the Diablo foothills|![](/en-CA/2021/03/202103090500RollingHills.jpg)|
+202103100500|SuperiorIce|Snow and ice along the shoreline of Lake Superior in winter; Thunder Bay, Ontario (© plainpicture/Design Pics/Susan Dykstra)|Largest of the Great Lakes|![](/en-CA/2021/03/202103100500SuperiorIce.jpg)|
