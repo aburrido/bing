@@ -10,3 +10,4 @@
 202103072300|FridaMural|Fresque représentant Frida Kahlo sur la façade d’un immeuble près de la bibliothèque Vasconcelos, Mexico, Mexique (© JESSICA SAMPLE/Gallery Stock)|Journée internationale des femmes|![](/fr-FR/2021/03/202103072300FridaMural.jpg)|
 202103082300|RollingHills|Contreforts de la chaine Diablo près de San José, Californie (© Jeff Lewis/Tandem Stills + Motion)|Nature Californienne|![](/fr-FR/2021/03/202103082300RollingHills.jpg)|
 202103092300|HinterseeRamsau|Lac Hintersee encadré par les Alpes, Berchtesgaden, Bavière, Allemagne (© Offset by Shutterstock)|Romantisme alpin|![](/fr-FR/2021/03/202103092300HinterseeRamsau.jpg)|
+202103102300|CapePerpetua|Le Puits de Thor à Cape Perpetua sur la côte de l’Oregon, États-Unis (© Cavan Images/Offset by Shutterstock)|Le Puits de Thor|![](/fr-FR/2021/03/202103102300CapePerpetua.jpg)|
