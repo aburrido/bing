@@ -10,3 +10,4 @@
 202103071830|FridaMural|Mural of Frida Kahlo on an apartment building in Mexico (© Jessica Sample/Gallery Stock)|International Women’s Day|![](/en-IN/2021/03/202103071830FridaMural.jpg)|
 202103081830|RollingHills|Foothills of the Diablo Range near San Jose, California (© Jeff Lewis/Tandem Stills + Motion)|Spring comes to the Diablo foothills|![](/en-IN/2021/03/202103081830RollingHills.jpg)|
 202103091830|TurfHouse|Traditional farmhouses at Skaftafell, Vatnajökull National Park, Iceland (© Jarcosa/Getty Images)|Eco-friendly houses that are super-efficient|![](/en-IN/2021/03/202103091830TurfHouse.jpg)|
+202103101830|KedarnathTemple|Kedarnath temple and mountains in Uttarakhand, India (© Shakti Om Singh/EyeEm/Getty Images)|Temple of the lord of the field|![](/en-IN/2021/03/202103101830KedarnathTemple.jpg)|
