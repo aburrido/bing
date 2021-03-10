@@ -10,3 +10,4 @@
 202103071600|LoganClouds|鸟瞰高耸入云的洛根山，加拿大克鲁瓦尼国家公园 (© plainpicture/Design Pics/Robert Postma)||![](/zh-CN/2021/03/202103071600LoganClouds.jpg)|
 202103081600|RollingHills|圣何塞附近的代阿布洛岭山麓，加利福尼亚 (© Jeff Lewis/Tandem Stills + Motion)||![](/zh-CN/2021/03/202103081600RollingHills.jpg)|
 202103091600|HinterseeRamsau|被阿尔卑斯山环抱的辛特湖，德国贝希特斯加登 (© Offset by Shutterstock)||![](/zh-CN/2021/03/202103091600HinterseeRamsau.jpg)|
+202103101600|CapePerpetua|俄勒冈海岸佩蓓角的雷神之井 (© Cavan Images/Offset by Shutterstock)||![](/zh-CN/2021/03/202103101600CapePerpetua.jpg)|
