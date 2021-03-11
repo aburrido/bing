@@ -11,3 +11,4 @@
 202103080500|FridaMural|Frida Kahlo mural, Mexico (© Jessica Sample/Gallery Stock)|International Women's Day|![](/en-CA/2021/03/202103080500FridaMural.jpg)|
 202103090500|RollingHills|Foothills of the Diablo Range near San Jose, California (© Jeff Lewis/Tandem Stills + Motion)|Spring comes to the Diablo foothills|![](/en-CA/2021/03/202103090500RollingHills.jpg)|
 202103100500|SuperiorIce|Snow and ice along the shoreline of Lake Superior in winter; Thunder Bay, Ontario (© plainpicture/Design Pics/Susan Dykstra)|Largest of the Great Lakes|![](/en-CA/2021/03/202103100500SuperiorIce.jpg)|
+202103110500|CapePerpetua|Thor's Well at Cape Perpetua on the Oregon coast (© Cavan Images/Offset by Shutterstock)|Welcome to the ‘drainpipe of the Pacific’|![](/en-CA/2021/03/202103110500CapePerpetua.jpg)|
