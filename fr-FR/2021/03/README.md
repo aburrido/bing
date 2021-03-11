@@ -11,3 +11,4 @@
 202103082300|RollingHills|Contreforts de la chaine Diablo près de San José, Californie (© Jeff Lewis/Tandem Stills + Motion)|Nature Californienne|![](/fr-FR/2021/03/202103082300RollingHills.jpg)|
 202103092300|HinterseeRamsau|Lac Hintersee encadré par les Alpes, Berchtesgaden, Bavière, Allemagne (© Offset by Shutterstock)|Romantisme alpin|![](/fr-FR/2021/03/202103092300HinterseeRamsau.jpg)|
 202103102300|CapePerpetua|Le Puits de Thor à Cape Perpetua sur la côte de l’Oregon, États-Unis (© Cavan Images/Offset by Shutterstock)|Le Puits de Thor|![](/fr-FR/2021/03/202103102300CapePerpetua.jpg)|
+202103112300|AztecNewYear|Une montgolfière survolant la pyramide du Soleil à l’aube, Teotihuacan, Mexique (© Marco Ugarte/AP Photo)|La fête des Aztèques|![](/fr-FR/2021/03/202103112300AztecNewYear.jpg)|

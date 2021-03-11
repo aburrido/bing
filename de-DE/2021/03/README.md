@@ -11,3 +11,4 @@
 202103082300|RollingHills|Gebirge der Diablo Range bei San Jose, Kalifornien, USA (© Jeff Lewis/Tandem Stills + Motion)|Der Frühling erreicht die Diablo Range|![](/de-DE/2021/03/202103082300RollingHills.jpg)|
 202103092300|HinterseeRamsau|Der Hintersee mit dem Hochkalter-Massiv im Hintergrund, Ramsau, Berchtesgadener Land, Bayern (© Offset by Shutterstock)|Seeidylle am Zauberwald|![](/de-DE/2021/03/202103092300HinterseeRamsau.jpg)|
 202103102300|CapePerpetua|Thor's Well am Kap Perpetua an der Küste von Oregon, USA (© Cavan Images/Offset by Shutterstock)|Willkommen am „Abflussrohr des Pazifiks“!|![](/de-DE/2021/03/202103102300CapePerpetua.jpg)|
+202103112300|AztecNewYear|Heißluftballon im Sonnenaufgang über der Sonnenpyramide, Teotihuacán, Mexiko (© Marco Ugarte/AP Photo)|Neujahrsbeginn in Teotihuacán|![](/de-DE/2021/03/202103112300AztecNewYear.jpg)|
