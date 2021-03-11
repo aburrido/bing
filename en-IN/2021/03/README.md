@@ -11,3 +11,4 @@
 202103081830|RollingHills|Foothills of the Diablo Range near San Jose, California (© Jeff Lewis/Tandem Stills + Motion)|Spring comes to the Diablo foothills|![](/en-IN/2021/03/202103081830RollingHills.jpg)|
 202103091830|TurfHouse|Traditional farmhouses at Skaftafell, Vatnajökull National Park, Iceland (© Jarcosa/Getty Images)|Eco-friendly houses that are super-efficient|![](/en-IN/2021/03/202103091830TurfHouse.jpg)|
 202103101830|KedarnathTemple|Kedarnath temple and mountains in Uttarakhand, India (© Shakti Om Singh/EyeEm/Getty Images)|Temple of the lord of the field|![](/en-IN/2021/03/202103101830KedarnathTemple.jpg)|
+202103111830|AztecNewYear|A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)|Ringing in the New Year at Teotihuacan|![](/en-IN/2021/03/202103111830AztecNewYear.jpg)|
