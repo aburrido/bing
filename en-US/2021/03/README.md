@@ -13,3 +13,4 @@
 202103100800|HarrietTubman|'Step on Board,' the Harriet Tubman Memorial, sculpted by Fern Cunningham, in Boston, Massachusetts (© Anthony Pleva/Alamy)|Commemorating the life of a famous 'railroad' conductor|![](/en-US/2021/03/202103100800HarrietTubman.jpg)|
 ||||![](/en-US/2021/03/.jpg)|
 202103110800|CapePerpetua|Thor's Well at Cape Perpetua on the Oregon coast (© Cavan Images/Offset by Shutterstock)|Welcome to the 'drainpipe of the Pacific'|![](/en-US/2021/03/202103110800CapePerpetua.jpg)|
+202103120800|AztecNewYear|A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)|Ringing in the new year at Teotihuacan|![](/en-US/2021/03/202103120800AztecNewYear.jpg)|
