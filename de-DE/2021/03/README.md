@@ -13,3 +13,4 @@
 202103102300|CapePerpetua|Thor's Well am Kap Perpetua an der Küste von Oregon, USA (© Cavan Images/Offset by Shutterstock)|Willkommen am „Abflussrohr des Pazifiks“!|![](/de-DE/2021/03/202103102300CapePerpetua.jpg)|
 202103112300|AztecNewYear|Heißluftballon im Sonnenaufgang über der Sonnenpyramide, Teotihuacán, Mexiko (© Marco Ugarte/AP Photo)|Neujahrsbeginn in Teotihuacán|![](/de-DE/2021/03/202103112300AztecNewYear.jpg)|
 202103122300|LakeWinnipeg|Frühlingseis am Ufer des Winnipegsees, Provinz Manitoba, Kanada (© Mike Grandmaison/Jaynes Gallery/Danita Delimont)|Frostige Aussichten am „Meer von Manitoba“|![](/de-DE/2021/03/202103122300LakeWinnipeg.jpg)|
+202103132300|MassapequaOwl|Ost-Kreischeule in einer Baumhöhle, Massapequa Preserve, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Mittagsschläfchen|![](/de-DE/2021/03/202103132300MassapequaOwl.jpg)|

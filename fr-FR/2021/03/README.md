@@ -13,3 +13,4 @@
 202103102300|CapePerpetua|Le Puits de Thor à Cape Perpetua sur la côte de l’Oregon, États-Unis (© Cavan Images/Offset by Shutterstock)|Le Puits de Thor|![](/fr-FR/2021/03/202103102300CapePerpetua.jpg)|
 202103112300|AztecNewYear|Une montgolfière survolant la pyramide du Soleil à l’aube, Teotihuacan, Mexique (© Marco Ugarte/AP Photo)|La fête des Aztèques|![](/fr-FR/2021/03/202103112300AztecNewYear.jpg)|
 202103122300|SpringOfPoets|Manuscrit du poème « Les Voyelles » par Arthur Rimbaud (1854-1891),  Musée Arthur Rimbaud, Charleville-Mezieres (© Photo by: Christophel Fine Art/Universal Images Group via Getty Images)|Le Printemps des Poètes|![](/fr-FR/2021/03/202103122300SpringOfPoets.jpg)|
+202103132300|Rhododendron|Des rhododendrons sur l’île de Rügen, Allemagne (© Sandra Bartocha/Minden Pictures)|Arbres à roses|![](/fr-FR/2021/03/202103132300Rhododendron.jpg)|
