@@ -13,3 +13,4 @@
 202103101500|EntsuIN|｢円通院の三慧殿｣宮城県, 松島町 (© Mark Schwettmann/Shutterstock)|東日本大震災から 10 年|![](/ja-JP/2021/03/202103101500EntsuIN.jpg)|
 202103111500|Nigatsudo|｢東大寺二月堂｣奈良県, 奈良市 (© Hiroshi Watanabe/Shutterstock)|今日はお水取りの日|![](/ja-JP/2021/03/202103111500Nigatsudo.jpg)|
 202103121500|Rhododendron|｢シャクナゲ｣ドイツ, リューゲン島 (© Sandra Bartocha/Minden Pictures)|低木の王|![](/ja-JP/2021/03/202103121500Rhododendron.jpg)|
+202103131500|LyonAstronomical|｢サン・ジャン大聖堂の天文時計｣フランス, リヨン (© kyolshin/Alamy)|今日はπの日|![](/ja-JP/2021/03/202103131500LyonAstronomical.jpg)|
