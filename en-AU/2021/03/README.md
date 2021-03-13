@@ -13,3 +13,4 @@
 202103100800|HinterseeRamsau|Lake Hintersee surrounded by alpine mountains, Berchtesgaden, Bavaria, Germany (© Offset by Shutterstock)||![](/en-AU/2021/03/202103100800HinterseeRamsau.jpg)|
 202103110800|CapePerpetua|Thor's Well at Cape Perpetua on the Oregon coast, USA (© Cavan Images/Offset by Shutterstock)||![](/en-AU/2021/03/202103110800CapePerpetua.jpg)|
 202103120800|EibseeSpring|The Zugspitze mountain reflecting in Eibsee lake, Bavaria, Germany (© Martin Siepmann/Westend61/Offset by Shutterstock)|Info|![](/en-AU/2021/03/202103120800EibseeSpring.jpg)|
+202103130800|Rhododendron|Common rhododendrons in Semper Forest Park, Rügen, Germany (© Sandra Bartocha/Minden Pictures)|Info|![](/en-AU/2021/03/202103130800Rhododendron.jpg)|
