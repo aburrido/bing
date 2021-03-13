@@ -13,3 +13,4 @@
 202103101830|KedarnathTemple|Kedarnath temple and mountains in Uttarakhand, India (© Shakti Om Singh/EyeEm/Getty Images)|Temple of the lord of the field|![](/en-IN/2021/03/202103101830KedarnathTemple.jpg)|
 202103111830|AztecNewYear|A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)|Ringing in the New Year at Teotihuacan|![](/en-IN/2021/03/202103111830AztecNewYear.jpg)|
 202103121830|DiskitMonastery|Three stupa with Nubra Valley in the background in Ladakh, India (© Puripat Lertpunyaroj/Getty Images)|Oldest surviving Buddhist monastery|![](/en-IN/2021/03/202103121830DiskitMonastery.jpg)|
+202103131830|LyonAstronomical|Lyon astronomical clock, Lyon, France (© kyolshin/Alamy)|Perfect timing!|![](/en-IN/2021/03/202103131830LyonAstronomical.jpg)|
