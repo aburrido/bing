@@ -14,3 +14,4 @@
 202103111500|Nigatsudo|｢東大寺二月堂｣奈良県, 奈良市 (© Hiroshi Watanabe/Shutterstock)|今日はお水取りの日|![](/ja-JP/2021/03/202103111500Nigatsudo.jpg)|
 202103121500|Rhododendron|｢シャクナゲ｣ドイツ, リューゲン島 (© Sandra Bartocha/Minden Pictures)|低木の王|![](/ja-JP/2021/03/202103121500Rhododendron.jpg)|
 202103131500|LyonAstronomical|｢サン・ジャン大聖堂の天文時計｣フランス, リヨン (© kyolshin/Alamy)|今日はπの日|![](/ja-JP/2021/03/202103131500LyonAstronomical.jpg)|
+202103141500|MassapequaOwl|｢お昼寝中のフクロウ｣米国, ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日はお昼寝の日|![](/ja-JP/2021/03/202103141500MassapequaOwl.jpg)|
