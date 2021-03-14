@@ -15,3 +15,4 @@
 202103110800|CapePerpetua|Thor's Well at Cape Perpetua on the Oregon coast (© Cavan Images/Offset by Shutterstock)|Welcome to the 'drainpipe of the Pacific'|![](/en-US/2021/03/202103110800CapePerpetua.jpg)|
 202103120800|AztecNewYear|A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)|Ringing in the new year at Teotihuacan|![](/en-US/2021/03/202103120800AztecNewYear.jpg)|
 202103130800|Rhododendron|Common rhododendrons in Semper Forest Park, Rügen, Germany (© Sandra Bartocha/Minden Pictures)|All hail the 'king of shrubs'|![](/en-US/2021/03/202103130800Rhododendron.jpg)|
+202103140700|LyonAstronomical|Astronomical clock, Lyon, France (© kyolshin/Alamy)|Perfect timing|![](/en-US/2021/03/202103140700LyonAstronomical.jpg)|
