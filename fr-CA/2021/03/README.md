@@ -14,3 +14,4 @@
 202103110500|CapePerpetua|Thor’s Well (puits de Thor) à Cape Perpetua sur la côte de l'Oregon (© Cavan Images/Offset by Shutterstock)||![](/fr-CA/2021/03/202103110500CapePerpetua.jpg)|
 202103120500|EibseeSpring|La montagne Zugspitze se reflétant dans le lac Eibsee en Bavière, Allemagne (© Martin Siepmann/Westend61/Offset by Shutterstock)||![](/fr-CA/2021/03/202103120500EibseeSpring.jpg)|
 202103130500|Rhododendron|Rhododendrons dans le parc forestier de Semper à Ruegen en Allemagne (© Sandra Bartocha/Minden Pictures)||![](/fr-CA/2021/03/202103130500Rhododendron.jpg)|
+202103140400|LyonAstronomical|Horloge astronomique de Lyon en France (© kyolshin/Alamy)||![](/fr-CA/2021/03/202103140400LyonAstronomical.jpg)|

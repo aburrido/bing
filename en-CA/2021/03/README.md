@@ -14,3 +14,4 @@
 202103110500|CapePerpetua|Thor's Well at Cape Perpetua on the Oregon coast (© Cavan Images/Offset by Shutterstock)|Welcome to the ‘drainpipe of the Pacific’|![](/en-CA/2021/03/202103110500CapePerpetua.jpg)|
 202103120500|AztecNewYear|A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)|Ringing in the New Year at Teotihuacan|![](/en-CA/2021/03/202103120500AztecNewYear.jpg)|
 202103130500|LakeWinnipeg|Spring ice along the shore of Lake Winnipeg, Manitoba (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|A hub for fishing|![](/en-CA/2021/03/202103130500LakeWinnipeg.jpg)|
+202103140400|LyonAstronomical|Lyon astronomical clock, Lyon, France (© kyolshin/Alamy)|Perfect timing|![](/en-CA/2021/03/202103140400LyonAstronomical.jpg)|
