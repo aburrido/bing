@@ -15,3 +15,4 @@
 202103120800|EibseeSpring|The Zugspitze mountain reflecting in Eibsee lake, Bavaria, Germany (© Martin Siepmann/Westend61/Offset by Shutterstock)|Info|![](/en-AU/2021/03/202103120800EibseeSpring.jpg)|
 202103130800|Rhododendron|Common rhododendrons in Semper Forest Park, Rügen, Germany (© Sandra Bartocha/Minden Pictures)|Info|![](/en-AU/2021/03/202103130800Rhododendron.jpg)|
 202103140700|LyonAstronomical|Lyon astronomical clock, Lyon, France (© kyolshin/Alamy)|Info|![](/en-AU/2021/03/202103140700LyonAstronomical.jpg)|
+202103150700|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2021/03/202103150700MassapequaOwl.jpg)|
