@@ -15,3 +15,4 @@
 202103120500|AztecNewYear|A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)|Ringing in the New Year at Teotihuacan|![](/en-CA/2021/03/202103120500AztecNewYear.jpg)|
 202103130500|LakeWinnipeg|Spring ice along the shore of Lake Winnipeg, Manitoba (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|A hub for fishing|![](/en-CA/2021/03/202103130500LakeWinnipeg.jpg)|
 202103140400|LyonAstronomical|Lyon astronomical clock, Lyon, France (© kyolshin/Alamy)|Perfect timing|![](/en-CA/2021/03/202103140400LyonAstronomical.jpg)|
+202103150400|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Resting screech owl|![](/en-CA/2021/03/202103150400MassapequaOwl.jpg)|
