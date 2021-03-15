@@ -15,3 +15,4 @@
 202103121500|Rhododendron|｢シャクナゲ｣ドイツ, リューゲン島 (© Sandra Bartocha/Minden Pictures)|低木の王|![](/ja-JP/2021/03/202103121500Rhododendron.jpg)|
 202103131500|LyonAstronomical|｢サン・ジャン大聖堂の天文時計｣フランス, リヨン (© kyolshin/Alamy)|今日はπの日|![](/ja-JP/2021/03/202103131500LyonAstronomical.jpg)|
 202103141500|MassapequaOwl|｢お昼寝中のフクロウ｣米国, ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日はお昼寝の日|![](/ja-JP/2021/03/202103141500MassapequaOwl.jpg)|
+202103151500|BifengxiaPanda|｢ジャイアントパンダの仔｣中国, 四川省 (© Suzi Eszterhas/Minden Pictures)|今日もパンダ記念日|![](/ja-JP/2021/03/202103151500BifengxiaPanda.jpg)|
