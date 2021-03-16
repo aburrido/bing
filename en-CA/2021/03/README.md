@@ -16,3 +16,4 @@
 202103130500|LakeWinnipeg|Spring ice along the shore of Lake Winnipeg, Manitoba (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|A hub for fishing|![](/en-CA/2021/03/202103130500LakeWinnipeg.jpg)|
 202103140400|LyonAstronomical|Lyon astronomical clock, Lyon, France (© kyolshin/Alamy)|Perfect timing|![](/en-CA/2021/03/202103140400LyonAstronomical.jpg)|
 202103150400|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Resting screech owl|![](/en-CA/2021/03/202103150400MassapequaOwl.jpg)|
+202103160400|BifengxiaPanda|Giant panda cub in Bifengxia Panda Base, Sichuan, China (© Suzi Eszterhas/Minden Pictures)|Why does this panda cub look so happy?|![](/en-CA/2021/03/202103160400BifengxiaPanda.jpg)|

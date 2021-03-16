@@ -16,3 +16,4 @@
 202103130500|Rhododendron|Rhododendrons dans le parc forestier de Semper à Ruegen en Allemagne (© Sandra Bartocha/Minden Pictures)||![](/fr-CA/2021/03/202103130500Rhododendron.jpg)|
 202103140400|LyonAstronomical|Horloge astronomique de Lyon en France (© kyolshin/Alamy)||![](/fr-CA/2021/03/202103140400LyonAstronomical.jpg)|
 202103150400|MassapequaOwl|Petit-duc maculé se reposant dans la cavité d'un arbre, Réserve de Massapequa, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)||![](/fr-CA/2021/03/202103150400MassapequaOwl.jpg)|
+202103160400|BifengxiaPanda|Jeune panda géant dans la base des pandas de Bifengxia, Sichuan, Chine (© Suzi Eszterhas/Minden Pictures)||![](/fr-CA/2021/03/202103160400BifengxiaPanda.jpg)|
