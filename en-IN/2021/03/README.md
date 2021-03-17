@@ -17,3 +17,4 @@
 202103141830|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Every day is Napping Day for this screech owl|![](/en-IN/2021/03/202103141830MassapequaOwl.jpg)|
 202103151830|BifengxiaPanda|Giant panda cub in Bifengxia Panda Base, Sichuan, China (© Suzi Eszterhas/Minden Pictures)|Why does this panda cub look so happy?|![](/en-IN/2021/03/202103151830BifengxiaPanda.jpg)|
 202103161830|Inisheer|Inisheer, the smallest of the three Aran Islands in Galway Bay, Ireland (© Chris Hill/Minden Pictures)|An emerald isle of the Emerald Isle|![](/en-IN/2021/03/202103161830Inisheer.jpg)|
+202103171830|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|A sizzling summit hides in the clouds|![](/en-IN/2021/03/202103171830MtEtna.jpg)|
