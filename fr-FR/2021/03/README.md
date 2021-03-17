@@ -17,3 +17,4 @@
 202103142300|MassapequaOwl|Petit-duc se reposant dans le creux d’un arbre,  Réserve de Massapequa, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Pas vu pas pris !|![](/fr-FR/2021/03/202103142300MassapequaOwl.jpg)|
 202103152300|BifengxiaPanda|Bébé panda géant dans la base des pandas géants de Bifengxia, Sichuan, Chine (© Suzi Eszterhas/Minden Pictures)|Plus mignon tu meurs|![](/fr-FR/2021/03/202103152300BifengxiaPanda.jpg)|
 202103162300|Inisheer|Inisheer, la plus petite des îles d’Aran, Baie de Galway, Irlande (© Chris Hill/NatGeo Image Collection/Minden Pictures)|Joyeuse Saint Patrick !|![](/fr-FR/2021/03/202103162300Inisheer.jpg)|
+202103172300|MtEtna|L’Etna en éruption, Sicile, Italie (© Wead/Alamy Live News)|Colère volcanique|![](/fr-FR/2021/03/202103172300MtEtna.jpg)|

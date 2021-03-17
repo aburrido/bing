@@ -17,3 +17,4 @@
 202103142300|WesterheverSH|Regenbogen über dem Leuchtturm Westerheversand, Westerhever, Schleswig-Holstein (© Sandra Bartocha/Minden Pictures)|Wahrzeichen der Halbinsel Eiderstedt|![](/de-DE/2021/03/202103142300WesterheverSH.jpg)|
 202103152300|BifengxiaPanda|Riesenpanda-Junges, Bifengxia-Zuchtstation, Provinz Sichuan, Volksrepublik China (© Suzi Eszterhas/Minden Pictures)|Warum sieht das Panda-Junge so glücklich aus?|![](/de-DE/2021/03/202103152300BifengxiaPanda.jpg)|
 202103162300|Inisheer|Inis Oírr, die kleinste der drei Aran-Inseln in der Galway Bay, Irland (© Chris Hill/NatGeo Image Collection/Minden Pictures)|Eine grüne Insel der „Grünen Insel“|![](/de-DE/2021/03/202103162300Inisheer.jpg)|
+202103172300|MtEtna|Ausbruch des Ätna im Jahr 2013, Sizilien, Italien (© Wead/Alamy Live News)|Versteckspiel in den Wolken|![](/de-DE/2021/03/202103172300MtEtna.jpg)|
