@@ -17,3 +17,4 @@
 202103141500|MassapequaOwl|｢お昼寝中のフクロウ｣米国, ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日はお昼寝の日|![](/ja-JP/2021/03/202103141500MassapequaOwl.jpg)|
 202103151500|BifengxiaPanda|｢ジャイアントパンダの仔｣中国, 四川省 (© Suzi Eszterhas/Minden Pictures)|今日もパンダ記念日|![](/ja-JP/2021/03/202103151500BifengxiaPanda.jpg)|
 202103161500|Inisheer|｢イニシィア島｣アイルランド, アラン諸島 (© Chris Hill/NatGeo Image Collection/Minden Pictures)|今日は聖パトリックの祝日|![](/ja-JP/2021/03/202103161500Inisheer.jpg)|
+202103171500|MtEtna|｢エトナ山の噴火｣イタリア, シチリア島 (© Wead/Alamy Live News)|欧州最大最高の火山|![](/ja-JP/2021/03/202103171500MtEtna.jpg)|
