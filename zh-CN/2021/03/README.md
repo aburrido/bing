@@ -18,3 +18,4 @@
 202103151600|BifengxiaPanda|碧峰峡熊猫基地的大熊猫宝宝，中国四川 (© Suzi Eszterhas/Minden Pictures)||![](/zh-CN/2021/03/202103151600BifengxiaPanda.jpg)|
 202103161600|Inisheer|阿伦群岛三座岛中最小的伊尼希尔岛，爱尔兰戈尔韦湾 (© Chris Hill/Minden Pictures)||![](/zh-CN/2021/03/202103161600Inisheer.jpg)|
 202103171600|MtEtna|2013年正在喷发的埃特纳火山，意大利西西里岛 (© Wead/Alamy Live News)||![](/zh-CN/2021/03/202103171600MtEtna.jpg)|
+202103181600|MagneticIsland|航拍生长着树木的遇难船“阿德莱德市”残骸，澳大利亚磁岛 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/03/202103181600MagneticIsland.jpg)|
