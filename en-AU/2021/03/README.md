@@ -18,3 +18,4 @@
 202103150700|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2021/03/202103150700MassapequaOwl.jpg)|
 202103160700|BifengxiaPanda|Giant panda cub in Bifengxia Panda Base, Sichuan, China (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2021/03/202103160700BifengxiaPanda.jpg)|
 202103170700|Inisheer|Inisheer, the smallest of the three Aran Islands in Galway Bay, Ireland (© Chris Hill/Minden Pictures)|Info|![](/en-AU/2021/03/202103170700Inisheer.jpg)|
+202103180700|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|Info|![](/en-AU/2021/03/202103180700MtEtna.jpg)|
