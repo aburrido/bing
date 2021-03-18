@@ -17,3 +17,4 @@
 202103150000|CentralCaliBlossoms|Almond blossoms in Central Valley, California, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Blossoming into spring|![](/en-GB/2021/03/202103150000CentralCaliBlossoms.jpg)|
 202103160000|BifengxiaPanda|Giant panda cub in Bifengxia Panda Base, Sichuan, China (© Suzi Eszterhas/Minden Pictures)|Little giant|![](/en-GB/2021/03/202103160000BifengxiaPanda.jpg)|
 202103170000|Inisheer|Inisheer, the smallest of the three Aran Islands in Galway Bay, Ireland (© Chris Hill/Minden Pictures)|The Emerald Isle|![](/en-GB/2021/03/202103170000Inisheer.jpg)|
+202103180000|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|A sizzling summit in the clouds|![](/en-GB/2021/03/202103180000MtEtna.jpg)|
