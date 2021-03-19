@@ -19,3 +19,4 @@
 202103160700|BifengxiaPanda|Giant panda cub in Bifengxia Panda Base, Sichuan, China (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2021/03/202103160700BifengxiaPanda.jpg)|
 202103170700|Inisheer|Inisheer, the smallest of the three Aran Islands in Galway Bay, Ireland (© Chris Hill/Minden Pictures)|Info|![](/en-AU/2021/03/202103170700Inisheer.jpg)|
 202103180700|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|Info|![](/en-AU/2021/03/202103180700MtEtna.jpg)|
+202103190700|MagneticIsland|Aerial view of the 'City of Adelaide' shipwreck with trees growing on it, Magnetic Island, Queensland, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/03/202103190700MagneticIsland.jpg)|
