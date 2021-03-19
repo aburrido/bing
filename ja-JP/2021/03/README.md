@@ -19,3 +19,4 @@
 202103161500|Inisheer|｢イニシィア島｣アイルランド, アラン諸島 (© Chris Hill/NatGeo Image Collection/Minden Pictures)|今日は聖パトリックの祝日|![](/ja-JP/2021/03/202103161500Inisheer.jpg)|
 202103171500|MtEtna|｢エトナ山の噴火｣イタリア, シチリア島 (© Wead/Alamy Live News)|欧州最大最高の火山|![](/ja-JP/2021/03/202103171500MtEtna.jpg)|
 202103181500|MagneticIsland|｢マグネティック島近くの難破船｣オーストラリア, クイーンズランド (© Amazing Aerial Agency/Offset by Shutterstock)|百年前の沈没船|![](/ja-JP/2021/03/202103181500MagneticIsland.jpg)|
+202103191500|ParnidisSundial|｢パルニディス砂丘の日時計｣リトアニア, クルシュー砂州 (© amoklv/Getty Images)|今日は春分|![](/ja-JP/2021/03/202103191500ParnidisSundial.jpg)|
