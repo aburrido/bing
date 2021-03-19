@@ -19,3 +19,4 @@
 202103162300|Inisheer|Inis Oírr, die kleinste der drei Aran-Inseln in der Galway Bay, Irland (© Chris Hill/NatGeo Image Collection/Minden Pictures)|Eine grüne Insel der „Grünen Insel“|![](/de-DE/2021/03/202103162300Inisheer.jpg)|
 202103172300|MtEtna|Ausbruch des Ätna im Jahr 2013, Sizilien, Italien (© Wead/Alamy Live News)|Versteckspiel in den Wolken|![](/de-DE/2021/03/202103172300MtEtna.jpg)|
 202103182300|MagneticIsland|Luftbild des Schiffswracks „City of Adelaide“, Magnetic Island, Queensland, Australien (© Amazing Aerial Agency/Offset by Shutterstock)|Ein Schiffswrack als Biotop|![](/de-DE/2021/03/202103182300MagneticIsland.jpg)|
+202103192300|ParnidisSundial|Sonnenuhr auf der Parnidis-Düne, Kurische Nehrung, Litauen (© amoklv/Getty Images)|Zeit für den Frühling|![](/de-DE/2021/03/202103192300ParnidisSundial.jpg)|
