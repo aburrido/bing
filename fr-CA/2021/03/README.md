@@ -20,3 +20,4 @@
 202103170400|Inisheer|Inisheer, la plus petite des trois îles d'Aran dans la baie de Galway en Irlande (© Chris Hill/Minden Pictures)||![](/fr-CA/2021/03/202103170400Inisheer.jpg)|
 202103180400|MtEtna|L'éruption de l'Etna en 2013, Sicile, Italie (© Wead/Alamy Live News)||![](/fr-CA/2021/03/202103180400MtEtna.jpg)|
 202103190400|MagneticIsland|Vue aérienne de l’épave du City of Adelaide et des arbres qui y ont poussé, Magnetic Island, Queensland, Australie (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/03/202103190400MagneticIsland.jpg)|
+202103200400|ParnidisSundial|Cadran solaire sur la dune de Parnidis, isthme de Courlande en Lituanie (© amoklv/Getty Images)||![](/fr-CA/2021/03/202103200400ParnidisSundial.jpg)|
