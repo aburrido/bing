@@ -20,3 +20,4 @@
 202103171600|MtEtna|2013年正在喷发的埃特纳火山，意大利西西里岛 (© Wead/Alamy Live News)||![](/zh-CN/2021/03/202103171600MtEtna.jpg)|
 202103181600|MagneticIsland|航拍生长着树木的遇难船“阿德莱德市”残骸，澳大利亚磁岛 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/03/202103181600MagneticIsland.jpg)|
 202103191600|ParnidisSundial|帕尼迪斯沙丘上的日晷，立陶宛库尔斯沙嘴 (© amoklv/Getty Images)||![](/zh-CN/2021/03/202103191600ParnidisSundial.jpg)|
+202103201600|HallesWood|覆盖了Hallerbos森林地面的蓝铃花，比利时佛兰德 (© Jason Langley/plainpicture)||![](/zh-CN/2021/03/202103201600HallesWood.jpg)|
