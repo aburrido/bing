@@ -21,3 +21,4 @@
 202103180400|MtEtna|L'éruption de l'Etna en 2013, Sicile, Italie (© Wead/Alamy Live News)||![](/fr-CA/2021/03/202103180400MtEtna.jpg)|
 202103190400|MagneticIsland|Vue aérienne de l’épave du City of Adelaide et des arbres qui y ont poussé, Magnetic Island, Queensland, Australie (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/03/202103190400MagneticIsland.jpg)|
 202103200400|ParnidisSundial|Cadran solaire sur la dune de Parnidis, isthme de Courlande en Lituanie (© amoklv/Getty Images)||![](/fr-CA/2021/03/202103200400ParnidisSundial.jpg)|
+202103210400|HallesWood|Campanules bleues recouvrant le sol de la forêt de Hallerbos, Flandre, Belgique (© Jason Langley/plainpicture)||![](/fr-CA/2021/03/202103210400HallesWood.jpg)|
