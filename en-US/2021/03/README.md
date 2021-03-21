@@ -22,3 +22,4 @@
 202103180700|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|A sizzling summit hides in the clouds|![](/en-US/2021/03/202103180700MtEtna.jpg)|
 202103190700|MagneticIsland|Aerial view of the City of Adelaide shipwreck with trees growing on it, Magnetic Island, Queensland, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Life carries on, rising from a ship's skeleton|![](/en-US/2021/03/202103190700MagneticIsland.jpg)|
 202103200700|ParnidisSundial|Sundial on Parnidis Dune, Curonian Spit, Lithuania (© amoklv/Getty Images)|It's time for spring|![](/en-US/2021/03/202103200700ParnidisSundial.jpg)|
+202103210700|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|A glimpse of the 'Blue Forest'|![](/en-US/2021/03/202103210700HallesWood.jpg)|
