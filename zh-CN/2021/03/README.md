@@ -22,3 +22,4 @@
 202103191600|ParnidisSundial|帕尼迪斯沙丘上的日晷，立陶宛库尔斯沙嘴 (© amoklv/Getty Images)||![](/zh-CN/2021/03/202103191600ParnidisSundial.jpg)|
 202103201600|HallesWood|覆盖了Hallerbos森林地面的蓝铃花，比利时佛兰德 (© Jason Langley/plainpicture)||![](/zh-CN/2021/03/202103201600HallesWood.jpg)|
 202103211600|JouxFog|汝拉山中的Chateau de Joux堡，法国 (© Ivoha/Alamy)||![](/zh-CN/2021/03/202103211600JouxFog.jpg)|
+202103221600|LoftedMadagascar|马尼亚河的卫星图像，马达加斯加 (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)||![](/zh-CN/2021/03/202103221600LoftedMadagascar.jpg)|
