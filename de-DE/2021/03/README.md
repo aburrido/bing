@@ -22,3 +22,4 @@
 202103192300|ParnidisSundial|Sonnenuhr auf der Parnidis-Düne, Kurische Nehrung, Litauen (© amoklv/Getty Images)|Zeit für den Frühling|![](/de-DE/2021/03/202103192300ParnidisSundial.jpg)|
 202103202300|HallesWood|Atlantische Hasenglöckchen bedecken den Waldboden im Hallerbos, Region Flandern, Belgien (© Jason Langley/plainpicture)|Belgiens blaues Wunder|![](/de-DE/2021/03/202103202300HallesWood.jpg)|
 202103212300|EibseeSpring|Die Zugspitze spiegelt sich im Eibsee, Grainau, Werdenfelser Land, Bayern (© Martin Siepmann/Westend61/offset by shutterstock)|Bergsee mit Zugspitz-Panorama|![](/de-DE/2021/03/202103212300EibseeSpring.jpg)|
+202103222300|LoftedMadagascar|Satellitenbild des Flusses Mania auf Madagaskar (© NASA Earth Observatory-Bild von Joshua Stevens mit Landsat-Daten der US Geological Survey)|Ungewöhnliche Wolkenansammlungen|![](/de-DE/2021/03/202103222300LoftedMadagascar.jpg)|
