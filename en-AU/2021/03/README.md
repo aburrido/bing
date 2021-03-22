@@ -22,3 +22,4 @@
 202103190700|MagneticIsland|Aerial view of the 'City of Adelaide' shipwreck with trees growing on it, Magnetic Island, Queensland, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/03/202103190700MagneticIsland.jpg)|
 202103200700|ParnidisSundial|Sundial on Parnidis Dune, Curonian Spit, Lithuania (© amoklv/Getty Images)|Info|![](/en-AU/2021/03/202103200700ParnidisSundial.jpg)|
 202103210700|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|Info|![](/en-AU/2021/03/202103210700HallesWood.jpg)|
+202103220700|JouxFog|Fort de Joux in the Jura mountains of France (© Ivoha/Alamy)|Info|![](/en-AU/2021/03/202103220700JouxFog.jpg)|
