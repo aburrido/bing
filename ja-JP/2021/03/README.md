@@ -22,3 +22,4 @@
 202103191500|ParnidisSundial|｢パルニディス砂丘の日時計｣リトアニア, クルシュー砂州 (© amoklv/Getty Images)|今日は春分|![](/ja-JP/2021/03/202103191500ParnidisSundial.jpg)|
 202103201500|HallesWood|｢ハレルボスのブルーベル｣ベルギー, フランドル地方 (© Jason Langley/plainpicture)|今日は国際森林デー|![](/ja-JP/2021/03/202103201500HallesWood.jpg)|
 202103211500|JouxFog|｢シャトー・ド・ジュー｣フランス, ジュラ山脈 (© Ivoha/Alamy)|1000 年の城|![](/ja-JP/2021/03/202103211500JouxFog.jpg)|
+202103221500|LoftedMadagascar|｢マニア川｣マダガスカル (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|今日は世界気象デー|![](/ja-JP/2021/03/202103221500LoftedMadagascar.jpg)|
