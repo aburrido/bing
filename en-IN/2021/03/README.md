@@ -22,3 +22,4 @@
 202103191830|ParnidisSundial|Sundial on Parnidis Dune, Curonian Spit, in Lithuania (© amoklv/Getty Images)|It's time for spring|![](/en-IN/2021/03/202103191830ParnidisSundial.jpg)|
 202103201830|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|A glimpse of the 'Blue Forest'|![](/en-IN/2021/03/202103201830HallesWood.jpg)|
 202103211830|MahabodhiTemple|Mahabodhi Temple in Bodh Gaya, Bihar, India (© Tinnaporn Sathapornnanont/Shutterstock)|The Buddha attained enlightenment here!|![](/en-IN/2021/03/202103211830MahabodhiTemple.jpg)|
+202103221830|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-IN/2021/03/202103221830LoftedMadagascar.jpg)|
