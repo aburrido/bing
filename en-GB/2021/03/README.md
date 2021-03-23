@@ -22,3 +22,4 @@
 202103200000|ParnidisSundial|Sundial on Parnidis Dune, Curonian Spit, in Lithuania (© amoklv/Getty Images)|It's time for spring|![](/en-GB/2021/03/202103200000ParnidisSundial.jpg)|
 202103210000|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|A glimpse of the Blue Forest|![](/en-GB/2021/03/202103210000HallesWood.jpg)|
 202103220000|HinterseeRamsau|Lake Hintersee surrounded by mountains, Berchtesgaden, Bavaria, Germany (© Offset by Shutterstock)|Inspiration in the Alps|![](/en-GB/2021/03/202103220000HinterseeRamsau.jpg)|
+202103230000|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© Nasa Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Curious clouds|![](/en-GB/2021/03/202103230000LoftedMadagascar.jpg)|
