@@ -23,3 +23,4 @@
 202103202300|HallesWood|Jacinthes recouvrant le sol du bois de Hal, Flandre, Belgique (© Jason Langley/plainpicture)|Bois bleus|![](/fr-FR/2021/03/202103202300HallesWood.jpg)|
 202103212300|JouxFog|Chateau de Joux, Bourgogne-Franche-Comté (© Ivoha/Alamy Stock Photo)|Art militaire|![](/fr-FR/2021/03/202103212300JouxFog.jpg)|
 202103222300|LoftedMadagascar|Image satellite de la rivière Mania à Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Nuages particuliers|![](/fr-FR/2021/03/202103222300LoftedMadagascar.jpg)|
+202103232300|HumpbackMom|Maman baleine à bosse poussant son baleineau à la surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)|Une photo de taille|![](/fr-FR/2021/03/202103232300HumpbackMom.jpg)|
