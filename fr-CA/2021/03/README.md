@@ -23,3 +23,4 @@
 202103200400|ParnidisSundial|Cadran solaire sur la dune de Parnidis, isthme de Courlande en Lituanie (© amoklv/Getty Images)||![](/fr-CA/2021/03/202103200400ParnidisSundial.jpg)|
 202103210400|HallesWood|Campanules bleues recouvrant le sol de la forêt de Hallerbos, Flandre, Belgique (© Jason Langley/plainpicture)||![](/fr-CA/2021/03/202103210400HallesWood.jpg)|
 202103220400|JouxFog|Le château de Joux dans le Jura français (© Ivoha/Alamy)||![](/fr-CA/2021/03/202103220400JouxFog.jpg)|
+202103230400|LoftedMadagascar|Image satellite de la rivière Mania à Madagascar (© NASA Earth Observatory image créée par Joshua Stevens à partir des données Landsat de l'Institut d’études géologiques américain)||![](/fr-CA/2021/03/202103230400LoftedMadagascar.jpg)|

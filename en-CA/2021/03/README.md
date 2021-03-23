@@ -23,3 +23,4 @@
 202103200400|ParnidisSundial|Sundial on Parnidis Dune, Curonian Spit, in Lithuania (© amoklv/Getty Images)|It's time for spring|![](/en-CA/2021/03/202103200400ParnidisSundial.jpg)|
 202103210400|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|A glimpse of the 'Blue Forest'|![](/en-CA/2021/03/202103210400HallesWood.jpg)|
 202103220400|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|A sizzling summit hides in the clouds|![](/en-CA/2021/03/202103220400MtEtna.jpg)|
+202103230400|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-CA/2021/03/202103230400LoftedMadagascar.jpg)|
