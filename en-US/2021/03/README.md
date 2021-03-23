@@ -24,3 +24,4 @@
 202103200700|ParnidisSundial|Sundial on Parnidis Dune, Curonian Spit, Lithuania (© amoklv/Getty Images)|It's time for spring|![](/en-US/2021/03/202103200700ParnidisSundial.jpg)|
 202103210700|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|A glimpse of the 'Blue Forest'|![](/en-US/2021/03/202103210700HallesWood.jpg)|
 202103220700|TuskegeeAirmen|Tuskegee Airmen reading a map (© Bettmann/Getty Images)|Honoring some real heroes of World War II|![](/en-US/2021/03/202103220700TuskegeeAirmen.jpg)|
+202103230700|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-US/2021/03/202103230700LoftedMadagascar.jpg)|
