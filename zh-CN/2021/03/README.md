@@ -24,3 +24,4 @@
 202103211600|JouxFog|汝拉山中的Chateau de Joux堡，法国 (© Ivoha/Alamy)||![](/zh-CN/2021/03/202103211600JouxFog.jpg)|
 202103221600|LoftedMadagascar|马尼亚河的卫星图像，马达加斯加 (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)||![](/zh-CN/2021/03/202103221600LoftedMadagascar.jpg)|
 202103231600|HumpbackMom|座头鲸妈妈将她熟睡的幼鲸推到水面，夏威夷毛伊岛 (© Ralph Pace/Minden Pictures)||![](/zh-CN/2021/03/202103231600HumpbackMom.jpg)|
+202103241600|LakeWinnipeg|温尼伯湖沿岸的春日冰雪，曼尼托巴 (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)||![](/zh-CN/2021/03/202103241600LakeWinnipeg.jpg)|
