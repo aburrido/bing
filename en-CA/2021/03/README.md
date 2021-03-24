@@ -24,3 +24,4 @@
 202103210400|HallesWood|Bluebell flowers carpet the Hallerbos forest floor, Flanders, Belgium (© Jason Langley/plainpicture)|A glimpse of the 'Blue Forest'|![](/en-CA/2021/03/202103210400HallesWood.jpg)|
 202103220400|MtEtna|Mount Etna erupting in 2013, Sicily, Italy (© Wead/Alamy Live News)|A sizzling summit hides in the clouds|![](/en-CA/2021/03/202103220400MtEtna.jpg)|
 202103230400|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-CA/2021/03/202103230400LoftedMadagascar.jpg)|
+202103240400|HumpbackMom|Humpback whale mother pushes her sleeping calf to surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)|A whale of a picture|![](/en-CA/2021/03/202103240400HumpbackMom.jpg)|
