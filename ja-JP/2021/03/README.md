@@ -24,3 +24,4 @@
 202103211500|JouxFog|｢シャトー・ド・ジュー｣フランス, ジュラ山脈 (© Ivoha/Alamy)|1000 年の城|![](/ja-JP/2021/03/202103211500JouxFog.jpg)|
 202103221500|LoftedMadagascar|｢マニア川｣マダガスカル (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|今日は世界気象デー|![](/ja-JP/2021/03/202103221500LoftedMadagascar.jpg)|
 202103231500|HumpbackMom|｢ザトウクジラの親子｣ハワイ, マウイ島 (© Ralph Pace/Minden Pictures)|ホエールウォッチングの季節|![](/ja-JP/2021/03/202103231500HumpbackMom.jpg)|
+202103241500|LakeWinnipeg|｢ウィニペグ湖｣カナダ, マニトバ州 (© Mike Grandmaison/Jaynes Gallery/Danita Delimont)|水質改善進行中|![](/ja-JP/2021/03/202103241500LakeWinnipeg.jpg)|
