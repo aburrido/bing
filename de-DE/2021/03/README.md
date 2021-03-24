@@ -24,3 +24,4 @@
 202103212300|EibseeSpring|Die Zugspitze spiegelt sich im Eibsee, Grainau, Werdenfelser Land, Bayern (© Martin Siepmann/Westend61/offset by shutterstock)|Bergsee mit Zugspitz-Panorama|![](/de-DE/2021/03/202103212300EibseeSpring.jpg)|
 202103222300|LoftedMadagascar|Satellitenbild des Flusses Mania auf Madagaskar (© NASA Earth Observatory-Bild von Joshua Stevens mit Landsat-Daten der US Geological Survey)|Ungewöhnliche Wolkenansammlungen|![](/de-DE/2021/03/202103222300LoftedMadagascar.jpg)|
 202103232300|HumpbackMom|Ein Buckelwalweibchen schiebt sein schlafendes Junges an die Meeresoberfläche, Maui, Hawaii, USA (© Ralph Pace/Minden Pictures)|Schwimmunterricht|![](/de-DE/2021/03/202103232300HumpbackMom.jpg)|
+202103242300|BlueTitDaffs|Eine Blaumeise zwischen Gelben Narzissen, Wales, Vereinigtes Königreich (© Philip Jones/Alamy)|Frühlingsboten|![](/de-DE/2021/03/202103242300BlueTitDaffs.jpg)|
