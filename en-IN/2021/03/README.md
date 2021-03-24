@@ -24,3 +24,4 @@
 202103211830|MahabodhiTemple|Mahabodhi Temple in Bodh Gaya, Bihar, India (© Tinnaporn Sathapornnanont/Shutterstock)|The Buddha attained enlightenment here!|![](/en-IN/2021/03/202103211830MahabodhiTemple.jpg)|
 202103221830|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-IN/2021/03/202103221830LoftedMadagascar.jpg)|
 202103231830|HumpbackMom|Humpback whale mother pushes her sleeping calf to surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)|A whale of a picture|![](/en-IN/2021/03/202103231830HumpbackMom.jpg)|
+202103241830|LakeWinnipeg|Spring ice along the shore of Lake Winnipeg, Manitoba (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|A hub for fishing|![](/en-IN/2021/03/202103241830LakeWinnipeg.jpg)|
