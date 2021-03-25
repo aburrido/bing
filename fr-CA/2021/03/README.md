@@ -25,3 +25,4 @@
 202103220400|JouxFog|Le château de Joux dans le Jura français (© Ivoha/Alamy)||![](/fr-CA/2021/03/202103220400JouxFog.jpg)|
 202103230400|LoftedMadagascar|Image satellite de la rivière Mania à Madagascar (© NASA Earth Observatory image créée par Joshua Stevens à partir des données Landsat de l'Institut d’études géologiques américain)||![](/fr-CA/2021/03/202103230400LoftedMadagascar.jpg)|
 202103240400|HumpbackMom|Baleine à bosse femelle poussant son baleineau endormi à la surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)||![](/fr-CA/2021/03/202103240400HumpbackMom.jpg)|
+202103250400|TofinoBay|Vue de la baie de Tofino, Vancouver, C.-B. (© Ben Kotenberg/Shutterstock)||![](/fr-CA/2021/03/202103250400TofinoBay.jpg)|
