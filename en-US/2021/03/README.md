@@ -26,3 +26,4 @@
 202103220700|TuskegeeAirmen|Tuskegee Airmen reading a map (© Bettmann/Getty Images)|Honoring some real heroes of World War II|![](/en-US/2021/03/202103220700TuskegeeAirmen.jpg)|
 202103230700|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-US/2021/03/202103230700LoftedMadagascar.jpg)|
 202103240700|HumpbackMom|Humpback whale mother pushes her sleeping calf to the surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)|A whale of a picture|![](/en-US/2021/03/202103240700HumpbackMom.jpg)|
+202103250700|GoldMine|Ancient Roman gold mining site of Las Médulas, León province, Spain (© David Santiago Garcia/Getty Images)|There was gold in them there hills…|![](/en-US/2021/03/202103250700GoldMine.jpg)|
