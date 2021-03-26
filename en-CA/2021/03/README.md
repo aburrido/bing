@@ -26,3 +26,4 @@
 202103230400|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Uncommon clouds are gathering|![](/en-CA/2021/03/202103230400LoftedMadagascar.jpg)|
 202103240400|HumpbackMom|Humpback whale mother pushes her sleeping calf to surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)|A whale of a picture|![](/en-CA/2021/03/202103240400HumpbackMom.jpg)|
 202103250400|Rhododendron|Common rhododendrons in Semper Forest Park, Ruegen, Germany (© Sandra Bartocha/Minden Pictures)|All hail the 'king of shrubs'|![](/en-CA/2021/03/202103250400Rhododendron.jpg)|
+202103260400|MTCradle|Cradle Mountain-Lake St. Clair National Park, Tasmania, Australia (© Paparwin Tanupatarachai/Getty Images)|The wild heart of Tasmania|![](/en-CA/2021/03/202103260400MTCradle.jpg)|
