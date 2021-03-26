@@ -26,3 +26,4 @@
 202103230700|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© NASA Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Info|![](/en-AU/2021/03/202103230700LoftedMadagascar.jpg)|
 202103240700|HumpbackMom|Humpback whale mother pushes her sleeping calf to surface, Maui, Hawaii, USA (© Ralph Pace/Minden Pictures)|Info|![](/en-AU/2021/03/202103240700HumpbackMom.jpg)|
 202103250700|LakeWinnipeg|Spring ice along the shore of Lake Winnipeg, Manitoba, Canada (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|Info|![](/en-AU/2021/03/202103250700LakeWinnipeg.jpg)|
+202103260700|MTCradle|Cradle Mountain-Lake St Clair National Park, Tasmania, Australia (© Paparwin Tanupatarachai/Getty Images)|Info|![](/en-AU/2021/03/202103260700MTCradle.jpg)|
