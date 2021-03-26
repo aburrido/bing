@@ -26,3 +26,4 @@
 202103232300|HumpbackMom|Ein Buckelwalweibchen schiebt sein schlafendes Junges an die Meeresoberfläche, Maui, Hawaii, USA (© Ralph Pace/Minden Pictures)|Schwimmunterricht|![](/de-DE/2021/03/202103232300HumpbackMom.jpg)|
 202103242300|BlueTitDaffs|Eine Blaumeise zwischen Gelben Narzissen, Wales, Vereinigtes Königreich (© Philip Jones/Alamy)|Frühlingsboten|![](/de-DE/2021/03/202103242300BlueTitDaffs.jpg)|
 202103252300|SautduBrot|Steinbogenbrücke beim Saut du Brot in der Areuse-Schlucht, Neuenburg, Schweiz (© Andreas Gerth/eStock Photo)|Es war einmal eine Brücke...|![](/de-DE/2021/03/202103252300SautduBrot.jpg)|
+202103262300|MTCradle|Cradle-Mountain-Lake-St.-Clair-Nationalpark, Tasmanien, Australien (© Paparwin Tanupatarachai/Getty Images)|Das wilde Herz Tasmaniens|![](/de-DE/2021/03/202103262300MTCradle.jpg)|

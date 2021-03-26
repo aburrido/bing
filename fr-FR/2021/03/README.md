@@ -26,3 +26,4 @@
 202103232300|HumpbackMom|Maman baleine à bosse poussant son baleineau à la surface, Maui, Hawaii (© Ralph Pace/Minden Pictures)|Une photo de taille|![](/fr-FR/2021/03/202103232300HumpbackMom.jpg)|
 202103242300|LakeWinnipeg|Neiges printanières sur les rives du lac Winnipeg, Province du Manitoba, Canada  (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|Ici, on pêche !|![](/fr-FR/2021/03/202103242300LakeWinnipeg.jpg)|
 202103252300|MTCradle|Le parc national de Cradle Mountain-Lake St Clair, Tasmanie, Australie (© Paparwin Tanupatarachai/Getty Images)|Petite île, grand parc|![](/fr-FR/2021/03/202103252300MTCradle.jpg)|
+202103262300|SummerTime|L’horloge astronomique de la Cathédrale Saint-Pierre de Beauvais (© Catherine Leblanc/Godong/Getty Images)|L’heure d’été ☀️|![](/fr-FR/2021/03/202103262300SummerTime.jpg)|
