@@ -25,3 +25,4 @@
 202103230000|LoftedMadagascar|Satellite image of the Mania River in Madagascar (© Nasa Earth Observatory image by Joshua Stevens, using Landsat data from the US Geological Survey)|Curious clouds|![](/en-GB/2021/03/202103230000LoftedMadagascar.jpg)|
 202103240000|HumpbackMom|Humpback whale mother pushes her sleeping calf to surface, Maui, Hawaii, USA (© Ralph Pace/Minden Pictures)|A whale of a picture|![](/en-GB/2021/03/202103240000HumpbackMom.jpg)|
 202103250000|WildGlencoe|The Lagangarbh hut nestles in the valley beneath Buachaille Etive Mòr, Glencoe (© Sophia Spurgin Photography/iStock/Getty Images Plus)|Icon of the Highlands|![](/en-GB/2021/03/202103250000WildGlencoe.jpg)|
+202103260000|MTCradle|Cradle Mountain-Lake St Clair National Park, Tasmania, Australia (© Paparwin Tanupatarachai/Getty Images)|The wild heart of Tasmania|![](/en-GB/2021/03/202103260000MTCradle.jpg)|
