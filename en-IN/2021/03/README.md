@@ -27,3 +27,4 @@
 202103241830|LakeWinnipeg|Spring ice along the shore of Lake Winnipeg, Manitoba (© Mike Grandmaison/Jaynes Gallery/DanitaDelimont.com)|A hub for fishing|![](/en-IN/2021/03/202103241830LakeWinnipeg.jpg)|
 202103251830|MTCradle|Cradle Mountain-Lake St. Clair National Park, Tasmania, Australia (© Paparwin Tanupatarachai/Getty Images)|The wild heart of Tasmania|![](/en-IN/2021/03/202103251830MTCradle.jpg)|
 202103261830|MadHares|Mountain hare running across snow-covered upland, Scotland (© SCOTLAND: The Big Picture/Minden Pictures)|Blink, and you'll miss it|![](/en-IN/2021/03/202103261830MadHares.jpg)|
+202103271830|LlanberisSlate|Mount Snowdon and the Llanberis Pass from Dinorwic Slate Quarry, Snowdonia National Park, North Wales, UK (© Alan Novelli/Alamy Stock Photo)|A chiselled landscape|![](/en-IN/2021/03/202103271830LlanberisSlate.jpg)|
