@@ -28,3 +28,4 @@
 202103251600|MTCradle|摇篮山-圣克莱尔湖国家公园，澳大利亚塔斯马尼亚州 (© Paparwin Tanupatarachai/Getty Images)||![](/zh-CN/2021/03/202103251600MTCradle.jpg)|
 202103261600|MadHares|在白雪覆盖的高地上奔跑的雪兔，苏格兰 (© SCOTLAND: The Big Picture/Minden Pictures)||![](/zh-CN/2021/03/202103261600MadHares.jpg)|
 202103271600|LlanberisSlate|斯诺登山与兰贝里斯山口，英国史诺多尼亚国家公园 (© Alan Novelli/Alamy)||![](/zh-CN/2021/03/202103271600LlanberisSlate.jpg)|
+202103281600|Reynisfjara|黑沙滩上Reynisdrangar的玄武岩，冰岛 (© Cavan Images/Getty Images)||![](/zh-CN/2021/03/202103281600Reynisfjara.jpg)|
