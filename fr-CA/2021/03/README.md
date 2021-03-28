@@ -28,3 +28,4 @@
 202103250400|TofinoBay|Vue de la baie de Tofino, Vancouver, C.-B. (© Ben Kotenberg/Shutterstock)||![](/fr-CA/2021/03/202103250400TofinoBay.jpg)|
 202103260400|MTCradle|Parc national de Cradle Mountain-Lake St. Clair, Tasmanie, Australie (© Paparwin Tanupatarachai/Getty Images)||![](/fr-CA/2021/03/202103260400MTCradle.jpg)|
 202103270400|MadHares|Lièvre de montagne courant sur les hautes terres enneigées d’Écosse (© SCOTLAND: The Big Picture/Minden Pictures)||![](/fr-CA/2021/03/202103270400MadHares.jpg)|
+202103280400|SaskGrasslands|Foudre sur la butte 70 Mile et la butte du lion endormi, Parc national des Prairies, Saskatchewan (© Design Pics/DanitaDelimont.com)||![](/fr-CA/2021/03/202103280400SaskGrasslands.jpg)|
