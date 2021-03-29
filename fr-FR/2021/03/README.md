@@ -29,3 +29,4 @@
 202103262300|SummerTime|L’horloge astronomique de la Cathédrale Saint-Pierre de Beauvais (© Catherine Leblanc/Godong/Getty Images)|L’heure d’été ☀️|![](/fr-FR/2021/03/202103262300SummerTime.jpg)|
 202103272200|MadHares|Un lièvre variable courant sur les Hautes-Terres d’Écosse,  (© SCOTLAND: The Big Picture/Minden Pictures)|Le talentueux Mr Blanchot|![](/fr-FR/2021/03/202103272200MadHares.jpg)|
 202103282200|Reynisfjara|Formations de basalte sur Reynisfjara Beach, Islande (© Cavan Images/Getty Images)|Mysticisme islandais|![](/fr-FR/2021/03/202103282200Reynisfjara.jpg)|
+202103292200|Etretat|La porte d’Aval et l’Aiguille, Étretat, Normandie (© StevanZZ/Alamy Stock Photo)|Falaises et mystères|![](/fr-FR/2021/03/202103292200Etretat.jpg)|

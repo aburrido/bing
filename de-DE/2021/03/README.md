@@ -29,3 +29,4 @@
 202103262300|MTCradle|Cradle-Mountain-Lake-St.-Clair-Nationalpark, Tasmanien, Australien (© Paparwin Tanupatarachai/Getty Images)|Das wilde Herz Tasmaniens|![](/de-DE/2021/03/202103262300MTCradle.jpg)|
 202103272300|LyonAstronomical|Astronomische Uhr in der Kathedrale von Lyon, Frankreich (© kyolshin/Alamy)|Perfektes Timing|![](/de-DE/2021/03/202103272300LyonAstronomical.jpg)|
 202103282200|Reynisfjara|Die Felsformationen aus Basaltgestein am Strand von Reynisfjara, Vík í Mýrdal, Island (© Cavan Images/Getty Images)|Eine Legende von versteinerten Trollen|![](/de-DE/2021/03/202103282200Reynisfjara.jpg)|
+202103292200|KuckuckseiNest|Kuckucksei im Nest eines Teichrohrsängers, Deutschland (© blickwinkel/Alamy Stock Photo)|Wer hat sich hier eingeschmuggelt?|![](/de-DE/2021/03/202103292200KuckuckseiNest.jpg)|
