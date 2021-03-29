@@ -29,3 +29,4 @@
 202103261830|MadHares|Mountain hare running across snow-covered upland, Scotland (© SCOTLAND: The Big Picture/Minden Pictures)|Blink, and you'll miss it|![](/en-IN/2021/03/202103261830MadHares.jpg)|
 202103271830|LlanberisSlate|Mount Snowdon and the Llanberis Pass from Dinorwic Slate Quarry, Snowdonia National Park, North Wales, UK (© Alan Novelli/Alamy Stock Photo)|A chiselled landscape|![](/en-IN/2021/03/202103271830LlanberisSlate.jpg)|
 202103281830|HoliCelebration|People celebrating Holi in India (© Laura Saffioti/EyeEm/Getty Images)|The festival of colours is here!|![](/en-IN/2021/03/202103281830HoliCelebration.jpg)|
+202103291830|SwordFern|Detail of an ostrich fern in spring, Washington state (© Stephen Matera/Tandem Stills + Motion)|Best fronds forever|![](/en-IN/2021/03/202103291830SwordFern.jpg)|
