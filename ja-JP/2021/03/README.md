@@ -29,3 +29,4 @@
 202103261500|Sakura|｢川辺の桜｣ 大阪府  (© Bongsub Kim/offset by shutterstock)|今日はさくらの日|![](/ja-JP/2021/03/202103261500Sakura.jpg)|
 202103271500|LlanberisSlate|｢スノードニア国立公園｣英国, ウェールズ (© Alan Novelli/Alamy)|巨人が眠る山|![](/ja-JP/2021/03/202103271500LlanberisSlate.jpg)|
 202103281500|Reynisfjara|｢レイニスフィヤラビーチの柱状節理｣アイスランド (© Cavan Images/Getty Images)|黒い柱状節理|![](/ja-JP/2021/03/202103281500Reynisfjara.jpg)|
+202103291500|SwordFern|｢クサソテツ｣米国, ワシントン州  (© Stephen Matera/Tandem Stills + Motion)|春の野の恵み|![](/ja-JP/2021/03/202103291500SwordFern.jpg)|
