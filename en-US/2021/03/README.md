@@ -31,3 +31,4 @@
 202103270700|MadHares|Mountain hare running across snow-covered upland, Scotland (© SCOTLAND: The Big Picture/Minden Pictures)|Blink and you'll miss it|![](/en-US/2021/03/202103270700MadHares.jpg)|
 202103280700|JeffersonCherries|The Jefferson Memorial during the National Cherry Blossom Festival in Washington, DC (© Rae Gabrielle/Alamy)|Cherry blossoms spring to life|![](/en-US/2021/03/202103280700JeffersonCherries.jpg)|
 202103290700|Reynisfjara|Reynisdrangar (basalt rock formations) on Reynisfjara Beach, Iceland (© Cavan Images/Getty Images)|Rising up from the black sand like rock gods|![](/en-US/2021/03/202103290700Reynisfjara.jpg)|
+202103300700|SwordFern|Detail of an ostrich fern in spring, Washington state (© Stephen Matera/Tandem Stills + Motion)|Best fronds forever|![](/en-US/2021/03/202103300700SwordFern.jpg)|
