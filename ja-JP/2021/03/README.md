@@ -30,3 +30,4 @@
 202103271500|LlanberisSlate|｢スノードニア国立公園｣英国, ウェールズ (© Alan Novelli/Alamy)|巨人が眠る山|![](/ja-JP/2021/03/202103271500LlanberisSlate.jpg)|
 202103281500|Reynisfjara|｢レイニスフィヤラビーチの柱状節理｣アイスランド (© Cavan Images/Getty Images)|黒い柱状節理|![](/ja-JP/2021/03/202103281500Reynisfjara.jpg)|
 202103291500|SwordFern|｢クサソテツ｣米国, ワシントン州  (© Stephen Matera/Tandem Stills + Motion)|春の野の恵み|![](/ja-JP/2021/03/202103291500SwordFern.jpg)|
+202103301500|RajaAmpat|｢ラジャ・アンパット諸島｣インドネシア, 西パプア州 (© Amazing Aerial Agency/Offset by Shutterstock)|サンゴ礁の海|![](/ja-JP/2021/03/202103301500RajaAmpat.jpg)|
