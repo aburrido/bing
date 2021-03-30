@@ -30,3 +30,4 @@
 202103271830|LlanberisSlate|Mount Snowdon and the Llanberis Pass from Dinorwic Slate Quarry, Snowdonia National Park, North Wales, UK (© Alan Novelli/Alamy Stock Photo)|A chiselled landscape|![](/en-IN/2021/03/202103271830LlanberisSlate.jpg)|
 202103281830|HoliCelebration|People celebrating Holi in India (© Laura Saffioti/EyeEm/Getty Images)|The festival of colours is here!|![](/en-IN/2021/03/202103281830HoliCelebration.jpg)|
 202103291830|SwordFern|Detail of an ostrich fern in spring, Washington state (© Stephen Matera/Tandem Stills + Motion)|Best fronds forever|![](/en-IN/2021/03/202103291830SwordFern.jpg)|
+202103301830|RajaAmpat|Wayag Island at Raja Ampat, Indonesia (© Amazing Aerial Agency/Offset by Shutterstock)|Paradise, found|![](/en-IN/2021/03/202103301830RajaAmpat.jpg)|
