@@ -30,3 +30,4 @@
 202103280000|LyonAstronomical|Lyon astronomical clock, Lyon, France (© kyolshin/Alamy)|About time|![](/en-GB/2021/03/202103280000LyonAstronomical.jpg)|
 202103282300|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Time for a nap?|![](/en-GB/2021/03/202103282300MassapequaOwl.jpg)|
 202103292300|SwordFern|Detail of an ostrich fern in spring, Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Best fronds forever|![](/en-GB/2021/03/202103292300SwordFern.jpg)|
+202103302300|RajaAmpat|Wayag Island at Raja Ampat, Indonesia (© Amazing Aerial Agency/Offset by Shutterstock)|Paradise, found|![](/en-GB/2021/03/202103302300RajaAmpat.jpg)|
