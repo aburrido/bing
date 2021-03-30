@@ -30,3 +30,4 @@
 202103270400|MadHares|Lièvre de montagne courant sur les hautes terres enneigées d’Écosse (© SCOTLAND: The Big Picture/Minden Pictures)||![](/fr-CA/2021/03/202103270400MadHares.jpg)|
 202103280400|SaskGrasslands|Foudre sur la butte 70 Mile et la butte du lion endormi, Parc national des Prairies, Saskatchewan (© Design Pics/DanitaDelimont.com)||![](/fr-CA/2021/03/202103280400SaskGrasslands.jpg)|
 202103290400|Reynisfjara|Les formations rocheuses de basalte de Reynisdrangar sur la plage de Reynisfjara en Islande (© Cavan Images/Getty Images)||![](/fr-CA/2021/03/202103290400Reynisfjara.jpg)|
+202103300400|SwordFern|Détail d'une fougère plume d’autruche au printemps, État de Washington (© Stephen Matera/Tandem Stills + Motion)||![](/fr-CA/2021/03/202103300400SwordFern.jpg)|
