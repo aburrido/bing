@@ -31,3 +31,4 @@
 202103281600|Reynisfjara|黑沙滩上Reynisdrangar的玄武岩，冰岛 (© Cavan Images/Getty Images)||![](/zh-CN/2021/03/202103281600Reynisfjara.jpg)|
 202103291600|SwordFern|春日里的荚果蕨细节图，华盛顿州 (© Stephen Matera/Tandem Stills + Motion)||![](/zh-CN/2021/03/202103291600SwordFern.jpg)|
 202103301600|RajaAmpat|拉贾安帕特群岛中的瓦亚格岛，印度尼西亚 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/03/202103301600RajaAmpat.jpg)|
+202103311600|FooledYa|卡格拉格帝边境公园中一对正在求偶的鸵鸟，南非 (© Tina Malfilatre/Minden Pictures)||![](/zh-CN/2021/03/202103311600FooledYa.jpg)|
