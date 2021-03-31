@@ -31,3 +31,4 @@
 202103282300|MassapequaOwl|Screech owl resting in a tree cavity, Massapequa Preserve, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Time for a nap?|![](/en-GB/2021/03/202103282300MassapequaOwl.jpg)|
 202103292300|SwordFern|Detail of an ostrich fern in spring, Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Best fronds forever|![](/en-GB/2021/03/202103292300SwordFern.jpg)|
 202103302300|RajaAmpat|Wayag Island at Raja Ampat, Indonesia (© Amazing Aerial Agency/Offset by Shutterstock)|Paradise, found|![](/en-GB/2021/03/202103302300RajaAmpat.jpg)|
+202103312300|ShyGuy|Elephant (Loxodonta laprofolis) in stealth stance, Marakele National Park, Limpopo, South Africa (© Staffan Widstrand/Minden Pictures)|Why do elephants hide in trees?|![](/en-GB/2021/03/202103312300ShyGuy.jpg)|
