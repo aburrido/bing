@@ -31,3 +31,4 @@
 202103282200|Reynisfjara|Die Felsformationen aus Basaltgestein am Strand von Reynisfjara, Vík í Mýrdal, Island (© Cavan Images/Getty Images)|Eine Legende von versteinerten Trollen|![](/de-DE/2021/03/202103282200Reynisfjara.jpg)|
 202103292200|KuckuckseiNest|Kuckucksei im Nest eines Teichrohrsängers, Deutschland (© blickwinkel/Alamy Stock Photo)|Wer hat sich hier eingeschmuggelt?|![](/de-DE/2021/03/202103292200KuckuckseiNest.jpg)|
 202103302200|RajaAmpat|Waiaginseln im Raja-Ampat-Archipel, Indonesien (© Amazing Aerial Agency/Offset by Shutterstock)|Paradies im Indopazifik|![](/de-DE/2021/03/202103302200RajaAmpat.jpg)|
+202103312200|HeulerHelgoland|Junge Kegelrobbe am Strand der Insel Düne, Helgoland, Schleswig-Holstein (© Kerstin Bittner/Westend61/offset by shutterstock)|Moin Moin!|![](/de-DE/2021/03/202103312200HeulerHelgoland.jpg)|

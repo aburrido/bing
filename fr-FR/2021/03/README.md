@@ -31,3 +31,4 @@
 202103282200|Reynisfjara|Formations de basalte sur Reynisfjara Beach, Islande (© Cavan Images/Getty Images)|Mysticisme islandais|![](/fr-FR/2021/03/202103282200Reynisfjara.jpg)|
 202103292200|Etretat|La porte d’Aval et l’Aiguille, Étretat, Normandie (© StevanZZ/Alamy Stock Photo)|Falaises et mystères|![](/fr-FR/2021/03/202103292200Etretat.jpg)|
 202103302200|RajaAmpat|Île de Wayag dans le district de Raja Ampat, Indonésie (© Amazing Aerial Agency/Offset by Shutterstock)|Paradis intact|![](/fr-FR/2021/03/202103302200RajaAmpat.jpg)|
+202103312200|FooledYa|Un couple d’autruches se faisant la cour dans le parc transfrontalier de Kgalagadi (© Tina Malfilatre/Minden Pictures)|L'art de faire l'autruche|![](/fr-FR/2021/03/202103312200FooledYa.jpg)|
