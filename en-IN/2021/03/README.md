@@ -31,3 +31,4 @@
 202103281830|HoliCelebration|People celebrating Holi in India (© Laura Saffioti/EyeEm/Getty Images)|The festival of colours is here!|![](/en-IN/2021/03/202103281830HoliCelebration.jpg)|
 202103291830|SwordFern|Detail of an ostrich fern in spring, Washington state (© Stephen Matera/Tandem Stills + Motion)|Best fronds forever|![](/en-IN/2021/03/202103291830SwordFern.jpg)|
 202103301830|RajaAmpat|Wayag Island at Raja Ampat, Indonesia (© Amazing Aerial Agency/Offset by Shutterstock)|Paradise, found|![](/en-IN/2021/03/202103301830RajaAmpat.jpg)|
+202103311830|FooledYa|A pair of ostriches courting in Kgalagadi Transfrontier Park, South Africa (© Tina Malfilatre/Minden Pictures)|Stellar dads and unusual lovers|![](/en-IN/2021/03/202103311830FooledYa.jpg)|
