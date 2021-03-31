@@ -31,3 +31,4 @@
 202103281500|Reynisfjara|｢レイニスフィヤラビーチの柱状節理｣アイスランド (© Cavan Images/Getty Images)|黒い柱状節理|![](/ja-JP/2021/03/202103281500Reynisfjara.jpg)|
 202103291500|SwordFern|｢クサソテツ｣米国, ワシントン州  (© Stephen Matera/Tandem Stills + Motion)|春の野の恵み|![](/ja-JP/2021/03/202103291500SwordFern.jpg)|
 202103301500|RajaAmpat|｢ラジャ・アンパット諸島｣インドネシア, 西パプア州 (© Amazing Aerial Agency/Offset by Shutterstock)|サンゴ礁の海|![](/ja-JP/2021/03/202103301500RajaAmpat.jpg)|
+202103311500|Kitakitsune|｢キタキツネの仔｣北海道 (© Gouichi Wada/Minden Pictures)|今日はエイプリルフール|![](/ja-JP/2021/03/202103311500Kitakitsune.jpg)|
