@@ -5,3 +5,4 @@
 202104020700|BrazilSandDunes|Lençóis Maranhenses National Park, Brazil (© WIN-Initiative/Getty Images)|Info|![](/en-AU/2021/04/202104020700BrazilSandDunes.jpg)|
 202104030700|AnivaLighthouse|Lighthouse at Cape Aniva, Sakhalin, Russia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/04/202104030700AnivaLighthouse.jpg)|
 202104040700|EggTree|Ostereierbaum (Easter egg tree) in Saalfeld, Germany (© Rudi Sebastian/Alamy)|Info|![](/en-AU/2021/04/202104040700EggTree.jpg)|
+202104050700|SautduBrot|Saut de Brot stone bridge, Areuse Gorge, Switzerland (© Andreas Gerth/eStock Photo)|Info|![](/en-AU/2021/04/202104050700SautduBrot.jpg)|

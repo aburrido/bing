@@ -5,3 +5,4 @@
 202104020700|BrazilSandDunes|Lençóis Maranhenses National Park in the state of Maranhão, Brazil (© WIN-Initiative/Getty Images)|White dunes, blue lagoons|![](/en-US/2021/04/202104020700BrazilSandDunes.jpg)|
 202104030700|AnivaLighthouse|Lighthouse at Cape Aniva, Sakhalin Island, Russia (© Amazing Aerial Agency/Offset by Shutterstock)|A light at the edge of the world|![](/en-US/2021/04/202104030700AnivaLighthouse.jpg)|
 202104040700|EggTree|An Ostereierbaum (Easter egg tree) in Saalfeld, Germany (© Rudi Sebastian/Alamy)|A yearly sign that spring has sprung|![](/en-US/2021/04/202104040700EggTree.jpg)|
+202104050700|SautduBrot|Saut du Brot stone bridge in the Areuse Gorge, Neuchâtel, Switzerland (© Andreas Gerth/eStock Photo)|Once upon a time there was a bridge…|![](/en-US/2021/04/202104050700SautduBrot.jpg)|
