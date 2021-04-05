@@ -4,3 +4,4 @@
 202104020400|BrazilSandDunes|Parc national des Lençóis Maranhenses à Barreirinhas au Brésil (© WIN-Initiative/Getty Images)||![](/fr-CA/2021/04/202104020400BrazilSandDunes.jpg)|
 202104030400|AnivaLighthouse|Phare du cap Aniva, île de Sakhaline, Russie  (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/04/202104030400AnivaLighthouse.jpg)|
 202104040400|EggTree|Un Ostereierbaum (arbre de Pâques) à Saalfeld, Allemagne (© Rudi Sebastian/Alamy)||![](/fr-CA/2021/04/202104040400EggTree.jpg)|
+202104050400|SautduBrot|Pont en pierre du Saut du Brot dans les gorges de l'Areuse, Neuchâtel, Suisse (© Andreas Gerth/eStock Photo)||![](/fr-CA/2021/04/202104050400SautduBrot.jpg)|
