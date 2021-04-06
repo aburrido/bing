@@ -6,3 +6,4 @@
 202104030700|AnivaLighthouse|Lighthouse at Cape Aniva, Sakhalin Island, Russia (© Amazing Aerial Agency/Offset by Shutterstock)|A light at the edge of the world|![](/en-US/2021/04/202104030700AnivaLighthouse.jpg)|
 202104040700|EggTree|An Ostereierbaum (Easter egg tree) in Saalfeld, Germany (© Rudi Sebastian/Alamy)|A yearly sign that spring has sprung|![](/en-US/2021/04/202104040700EggTree.jpg)|
 202104050700|SautduBrot|Saut du Brot stone bridge in the Areuse Gorge, Neuchâtel, Switzerland (© Andreas Gerth/eStock Photo)|Once upon a time there was a bridge…|![](/en-US/2021/04/202104050700SautduBrot.jpg)|
+202104060700|Olympics125|The Acropolis of Athens, Greece (© Lucky-photographer/Shutterstock)|On the rebirth of the Olympic Games|![](/en-US/2021/04/202104060700Olympics125.jpg)|
