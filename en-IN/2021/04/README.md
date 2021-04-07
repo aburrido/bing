@@ -7,3 +7,4 @@
 202104041830|SautduBrot|Saut du Brot stone bridge in the Areuse Gorge, Neuchâtel, Switzerland (© Andreas Gerth/eStock Photo)|Once upon a time there was a bridge…|![](/en-IN/2021/04/202104041830SautduBrot.jpg)|
 202104051830|Olympics125|The Parthenon temple in the Acropolis of Athens, Greece (© Lucky-photographer/Shutterstock)|On the rebirth of the Olympic Games|![](/en-IN/2021/04/202104051830Olympics125.jpg)|
 202104061830|AmboliFalls|Amboli Waterfalls in Maharashtra, India (© ePhotocorp/iStock/Getty Images Plus)|A memerising view of Amboli Waterfalls|![](/en-IN/2021/04/202104061830AmboliFalls.jpg)|
+202104071830|TetraoTetrix|Black grouse male calling at lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|I'm here! Take a look at me!|![](/en-IN/2021/04/202104071830TetraoTetrix.jpg)|
