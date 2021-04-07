@@ -7,3 +7,4 @@
 202104042300|SautduBrot|Saut du Brot stone bridge in the Areuse Gorge, Neuchâtel, Switzerland (© Andreas Gerth/eStock Photo)|Once upon a time there was a bridge…|![](/en-GB/2021/04/202104042300SautduBrot.jpg)|
 202104052300|Olympics125|The Parthenon temple in the Acropolis of Athens, Greece (© Lucky-photographer/Shutterstock)|Where the Olympic Games began|![](/en-GB/2021/04/202104052300Olympics125.jpg)|
 202104062300|HartlandPoint|Hartland Point Lighthouse and Lundy Island beneath a colourful sunset, North Devon (© Adam Burton/Alamy Stock Photo)|Deceptively calm waters|![](/en-GB/2021/04/202104062300HartlandPoint.jpg)|
+202104072300|TetraoTetrix|Black grouse male calling at lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|Look at me!|![](/en-GB/2021/04/202104072300TetraoTetrix.jpg)|
