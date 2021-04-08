@@ -8,3 +8,4 @@
 202104051600|Olympics125|雅典卫城的帕特农神庙，希腊 (© Lucky-photographer/Shutterstock)||![](/zh-CN/2021/04/202104051600Olympics125.jpg)|
 202104061600|WillowNewGrowth|早春里的柳枝，明尼苏达州 (© Jim Brandenburg/Minden Pictures)||![](/zh-CN/2021/04/202104061600WillowNewGrowth.jpg)|
 202104071600|TetraoTetrix|正在打鸣求偶的雄性黑琴鸡，芬兰库萨莫 (© Oliver Smart/Alamy)||![](/zh-CN/2021/04/202104071600TetraoTetrix.jpg)|
+202104081600|HovenweepDarkSky|Hovenweep国家纪念碑的方塔，犹他州 (© Brad McGinley Photography/Getty Images)||![](/zh-CN/2021/04/202104081600HovenweepDarkSky.jpg)|
