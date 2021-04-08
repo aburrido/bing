@@ -8,3 +8,4 @@
 202104052200|Olympics125|Le Parthénon sur l’Acropole d’Athènes, Grèce (© Lucky-photographer/Shutterstock)|Renaissance olympique|![](/fr-FR/2021/04/202104052200Olympics125.jpg)|
 202104062200|WillowNewGrowth|Branches de saule pleureur au début du printemps, Minnesota, États-Unis (© Jim Brandenburg/Minden Pictures)|Saule pleureur mais heureux|![](/fr-FR/2021/04/202104062200WillowNewGrowth.jpg)|
 202104072200|TetraoTetrix|Un coq des bouleaux appelant au rassemblement sur l’aire de parade, Kuusamo, Finlande (© Oliver Smart/Alamy)|Regardez-moi !|![](/fr-FR/2021/04/202104072200TetraoTetrix.jpg)|
+202104082200|HovenweepDarkSky|Le Square Tower dans le Hovenweep National Monument, Utah, États-Unis (© Brad McGinley Photography/Getty Images)|Sous le ciel de cristal|![](/fr-FR/2021/04/202104082200HovenweepDarkSky.jpg)|
