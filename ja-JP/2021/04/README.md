@@ -8,3 +8,4 @@
 202104051500|Olympics125|｢パルテノン神殿｣ギリシャ, アクロポリス (© Lucky-photographer/Shutterstock)|近代オリンピック 125 周年|![](/ja-JP/2021/04/202104051500Olympics125.jpg)|
 202104061500|WillowNewGrowth|｢ヤナギの若芽｣米国, ミネソタ州 (© Jim Brandenburg/Minden Pictures)|若葉茂るころ|![](/ja-JP/2021/04/202104061500WillowNewGrowth.jpg)|
 202104071500|TetraoTetrix|｢クロライチョウのオス｣フィンランド, クーサモ (© Oliver Smart/Alamy)|レックに集う春|![](/ja-JP/2021/04/202104071500TetraoTetrix.jpg)|
+202104081500|HovenweepDarkSky|｢ホーブンウィープ国定公園の塔｣米国, ユタ州 (© Brad McGinley Photography/Getty Images)|今週はダークスカイウィーク|![](/ja-JP/2021/04/202104081500HovenweepDarkSky.jpg)|
