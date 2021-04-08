@@ -8,3 +8,4 @@
 202104050700|SautduBrot|Saut de Brot stone bridge, Areuse Gorge, Switzerland (© Andreas Gerth/eStock Photo)|Info|![](/en-AU/2021/04/202104050700SautduBrot.jpg)|
 202104060700|Olympics125|Parthenon temple, Acropolis of Athens, Greece (© Lucky-photographer/Shutterstock)|Info|![](/en-AU/2021/04/202104060700Olympics125.jpg)|
 202104070700|Etretat|Étretat, Normandy, France (© StevanZZ/Alamy)|Info|![](/en-AU/2021/04/202104070700Etretat.jpg)|
+202104080700|TetraoTetrix|Black grouse male, Kuusamo, Finland (© Oliver Smart/Alamy)|Info|![](/en-AU/2021/04/202104080700TetraoTetrix.jpg)|

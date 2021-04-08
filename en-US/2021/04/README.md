@@ -8,3 +8,4 @@
 202104050700|SautduBrot|Saut du Brot stone bridge in the Areuse Gorge, Neuchâtel, Switzerland (© Andreas Gerth/eStock Photo)|Once upon a time there was a bridge…|![](/en-US/2021/04/202104050700SautduBrot.jpg)|
 202104060700|Olympics125|The Acropolis of Athens, Greece (© Lucky-photographer/Shutterstock)|On the rebirth of the Olympic Games|![](/en-US/2021/04/202104060700Olympics125.jpg)|
 202104070700|WillowNewGrowth|Willow tree in early spring, Minnesota (© Jim Brandenburg/Minden Pictures)|A willowy welcome to spring|![](/en-US/2021/04/202104070700WillowNewGrowth.jpg)|
+202104080700|TetraoTetrix|Black grouse male calling at a lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|I'm here! Take a look at me!|![](/en-US/2021/04/202104080700TetraoTetrix.jpg)|
