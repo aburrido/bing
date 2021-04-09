@@ -9,3 +9,4 @@
 202104061830|AmboliFalls|Amboli Waterfalls in Maharashtra, India (© ePhotocorp/iStock/Getty Images Plus)|A memerising view of Amboli Waterfalls|![](/en-IN/2021/04/202104061830AmboliFalls.jpg)|
 202104071830|TetraoTetrix|Black grouse male calling at lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|I'm here! Take a look at me!|![](/en-IN/2021/04/202104071830TetraoTetrix.jpg)|
 202104081830|HovenweepDarkSky|Square Tower Group in Hovenweep National Monument, Utah (© Brad McGinley Photography/Getty Images)|A timeless view of the night sky|![](/en-IN/2021/04/202104081830HovenweepDarkSky.jpg)|
+202104091830|SiblingBears|Grizzly bear cub siblings playing in Denali National Park, Alaska (© Ron Niebrugge/Alamy)|Bear cubs roughhouse on Siblings Day|![](/en-IN/2021/04/202104091830SiblingBears.jpg)|
