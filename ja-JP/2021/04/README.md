@@ -9,3 +9,4 @@
 202104061500|WillowNewGrowth|｢ヤナギの若芽｣米国, ミネソタ州 (© Jim Brandenburg/Minden Pictures)|若葉茂るころ|![](/ja-JP/2021/04/202104061500WillowNewGrowth.jpg)|
 202104071500|TetraoTetrix|｢クロライチョウのオス｣フィンランド, クーサモ (© Oliver Smart/Alamy)|レックに集う春|![](/ja-JP/2021/04/202104071500TetraoTetrix.jpg)|
 202104081500|HovenweepDarkSky|｢ホーブンウィープ国定公園の塔｣米国, ユタ州 (© Brad McGinley Photography/Getty Images)|今週はダークスカイウィーク|![](/ja-JP/2021/04/202104081500HovenweepDarkSky.jpg)|
+202104091500|SiblingBears|｢グリズリーベアの兄弟｣米国, アラスカ州 (© Ron Niebrugge/Alamy Stock Photo) 	"|今日は兄弟姉妹の日|![](/ja-JP/2021/04/202104091500SiblingBears.jpg)|
