@@ -8,3 +8,4 @@
 202104060400|Olympics125|The Parthenon temple in the Acropolis of Athens, Greece (© Lucky-photographer/Shutterstock)|On the rebirth of the Olympic Games|![](/en-CA/2021/04/202104060400Olympics125.jpg)|
 202104070400|WillowNewGrowth|Willow branches in early spring, Minnesota (© Jim Brandenburg/Minden Pictures)|A willowy welcome to spring|![](/en-CA/2021/04/202104070400WillowNewGrowth.jpg)|
 202104080400|TetraoTetrix|Black grouse male calling at lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|I'm here! Take a look at me!|![](/en-CA/2021/04/202104080400TetraoTetrix.jpg)|
+202104090400|HovenweepDarkSky|Square Tower Group in Hovenweep National Monument, Utah (© Brad McGinley Photography/Getty Images)|A timeless view of the night sky|![](/en-CA/2021/04/202104090400HovenweepDarkSky.jpg)|
