@@ -9,3 +9,4 @@
 202104062200|LlanberisSlate|Blick vom Dinorwic-Steinbruch auf den Berg Snowdon und den Llanberis-Pass, Snowdonia-Nationalpark, Wales, Großbritannien (© Alan Novelli/Alamy Stock Photo)|Eine in Stein gemeißelte Landschaft|![](/de-DE/2021/04/202104062200LlanberisSlate.jpg)|
 202104072200|TetraoTetrix|Birkhahn auf einem Balzplatz, Kuusamo, Finnland (© Oliver Smart/Alamy)|„Hier bin ich! Schaut mich an!“|![](/de-DE/2021/04/202104072200TetraoTetrix.jpg)|
 202104082200|HovenweepDarkSky|Square-Tower-Ruinen im Hovenweep National Monument, Utah, USA (© Brad McGinley Photography/Getty Images)|Ein zeitloser Blick in den Nachthimmel|![](/de-DE/2021/04/202104082200HovenweepDarkSky.jpg)|
+202104092200|SiblingBears|Junge Grizzlybären beim Spielen im Denali-Nationalpark, Alaska, USA (© Ron Niebrugge/Alamy Stock Photo)|„Pass auf, ich kann Karate!“|![](/de-DE/2021/04/202104092200SiblingBears.jpg)|
