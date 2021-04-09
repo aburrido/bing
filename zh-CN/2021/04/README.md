@@ -9,3 +9,4 @@
 202104061600|WillowNewGrowth|早春里的柳枝，明尼苏达州 (© Jim Brandenburg/Minden Pictures)||![](/zh-CN/2021/04/202104061600WillowNewGrowth.jpg)|
 202104071600|TetraoTetrix|正在打鸣求偶的雄性黑琴鸡，芬兰库萨莫 (© Oliver Smart/Alamy)||![](/zh-CN/2021/04/202104071600TetraoTetrix.jpg)|
 202104081600|HovenweepDarkSky|Hovenweep国家纪念碑的方塔，犹他州 (© Brad McGinley Photography/Getty Images)||![](/zh-CN/2021/04/202104081600HovenweepDarkSky.jpg)|
+202104091600|SiblingBears|在迪纳利国家公园中玩耍的灰熊幼崽，阿拉斯加  (© Ron Niebrugge/Alamy)||![](/zh-CN/2021/04/202104091600SiblingBears.jpg)|
