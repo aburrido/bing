@@ -10,3 +10,4 @@
 202104071500|TetraoTetrix|｢クロライチョウのオス｣フィンランド, クーサモ (© Oliver Smart/Alamy)|レックに集う春|![](/ja-JP/2021/04/202104071500TetraoTetrix.jpg)|
 202104081500|HovenweepDarkSky|｢ホーブンウィープ国定公園の塔｣米国, ユタ州 (© Brad McGinley Photography/Getty Images)|今週はダークスカイウィーク|![](/ja-JP/2021/04/202104081500HovenweepDarkSky.jpg)|
 202104091500|SiblingBears|｢グリズリーベアの兄弟｣米国, アラスカ州 (© Ron Niebrugge/Alamy Stock Photo) 	"|今日は兄弟姉妹の日|![](/ja-JP/2021/04/202104091500SiblingBears.jpg)|
+202104101500|LargestCave|｢ソフォンニャ＝ケバン国立公園のソンドン洞｣ベトナム (© David A Knight/shutterstock)|世界最大の洞窟|![](/ja-JP/2021/04/202104101500LargestCave.jpg)|
