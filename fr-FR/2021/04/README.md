@@ -10,3 +10,4 @@
 202104072200|TetraoTetrix|Un coq des bouleaux appelant au rassemblement sur l’aire de parade, Kuusamo, Finlande (© Oliver Smart/Alamy)|Regardez-moi !|![](/fr-FR/2021/04/202104072200TetraoTetrix.jpg)|
 202104082200|HovenweepDarkSky|Le Square Tower dans le Hovenweep National Monument, Utah, États-Unis (© Brad McGinley Photography/Getty Images)|Sous le ciel de cristal|![](/fr-FR/2021/04/202104082200HovenweepDarkSky.jpg)|
 202104092200|SiblingBears|Deux bébés grizzlys jouant dans le parc national et réserve du Denali, Alaska (© Ron Niebrugge/Alamy Stock Photo)|Jeu de main, jeu de vilain|![](/fr-FR/2021/04/202104092200SiblingBears.jpg)|
+202104102200|YoshinoyamaSpring|Mont Yoshino, Prefecture de Nara, Japon (© Sean Pavone/iStock/Getty Images Plus)|L’heure des cerisiers en fleur|![](/fr-FR/2021/04/202104102200YoshinoyamaSpring.jpg)|
