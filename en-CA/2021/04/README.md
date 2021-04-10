@@ -9,3 +9,4 @@
 202104070400|WillowNewGrowth|Willow branches in early spring, Minnesota (© Jim Brandenburg/Minden Pictures)|A willowy welcome to spring|![](/en-CA/2021/04/202104070400WillowNewGrowth.jpg)|
 202104080400|TetraoTetrix|Black grouse male calling at lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|I'm here! Take a look at me!|![](/en-CA/2021/04/202104080400TetraoTetrix.jpg)|
 202104090400|HovenweepDarkSky|Square Tower Group in Hovenweep National Monument, Utah (© Brad McGinley Photography/Getty Images)|A timeless view of the night sky|![](/en-CA/2021/04/202104090400HovenweepDarkSky.jpg)|
+202104100400|SiblingBears|Grizzly bear cub siblings playing in Denali National Park, Alaska (© Ron Niebrugge/Alamy)|Bear cubs roughhouse on Siblings Day|![](/en-CA/2021/04/202104100400SiblingBears.jpg)|
