@@ -10,3 +10,4 @@
 202104072300|TetraoTetrix|Black grouse male calling at lek site in Kuusamo, Finland (© Oliver Smart/Alamy)|Look at me!|![](/en-GB/2021/04/202104072300TetraoTetrix.jpg)|
 202104082300|ShetlandLamb|Shetland Sheep, a traditional, hardy breed of the Northern Isles in Scotland (© Martin Zwick/DanitaDelimont.com)|Life on the edge|![](/en-GB/2021/04/202104082300ShetlandLamb.jpg)|
 202104092300|SiblingBears|Grizzly bear cub siblings playing in Denali National Park, Alaska, USA (© Ron Niebrugge/Alamy)|Sibling rivalry|![](/en-GB/2021/04/202104092300SiblingBears.jpg)|
+202104102300|YoshinoyamaSpring|Mount Yoshino, Nara Prefecture, Japan (© Sean Pavone/iStock/Getty Images Plus)|The mountain of 30,000 sakura|![](/en-GB/2021/04/202104102300YoshinoyamaSpring.jpg)|
