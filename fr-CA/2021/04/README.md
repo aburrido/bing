@@ -10,3 +10,4 @@
 202104080400|TetraoTetrix|Tétras lyre mâle signalant sa présence sur un site de parade à Kuusamo en Finlande  (© Oliver Smart/Alamy)||![](/fr-CA/2021/04/202104080400TetraoTetrix.jpg)|
 202104090400|HovenweepDarkSky|Tours carrées dans le Monument National Hovenweep en Utah (© Brad McGinley Photography/Getty Images)||![](/fr-CA/2021/04/202104090400HovenweepDarkSky.jpg)|
 202104100400|SiblingBears|Des oursons grizzlis s’amusent dans le parc national de Denali en Alaska (© Ron Niebrugge/Alamy)||![](/fr-CA/2021/04/202104100400SiblingBears.jpg)|
+202104110400|BlossomsBC|Fleurs de cerisier dans le parc Queen Elizabeth, Vancouver, C.-B. (© Harris Hui/Getty Images)||![](/fr-CA/2021/04/202104110400BlossomsBC.jpg)|
