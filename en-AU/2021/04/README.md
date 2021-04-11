@@ -11,3 +11,4 @@
 202104080700|TetraoTetrix|Black grouse male, Kuusamo, Finland (© Oliver Smart/Alamy)|Info|![](/en-AU/2021/04/202104080700TetraoTetrix.jpg)|
 202104090700|HovenweepDarkSky|Hovenweep National Monument, Utah, USA (© Brad McGinley Photography/Getty Images)|Info|![](/en-AU/2021/04/202104090700HovenweepDarkSky.jpg)|
 202104100700|SiblingBears|Grizzly bear cubs in Denali National Park, Alaska, USA (© Ron Niebrugge/Alamy)|Info|![](/en-AU/2021/04/202104100700SiblingBears.jpg)|
+202104110700|YoshinoyamaSpring|Mount Yoshino, Nara Prefecture, Japan (© Sean Pavone/iStock/Getty Images Plus)|Info|![](/en-AU/2021/04/202104110700YoshinoyamaSpring.jpg)|
