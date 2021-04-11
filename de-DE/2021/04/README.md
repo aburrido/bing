@@ -11,3 +11,4 @@
 202104082200|HovenweepDarkSky|Square-Tower-Ruinen im Hovenweep National Monument, Utah, USA (© Brad McGinley Photography/Getty Images)|Ein zeitloser Blick in den Nachthimmel|![](/de-DE/2021/04/202104082200HovenweepDarkSky.jpg)|
 202104092200|SiblingBears|Junge Grizzlybären beim Spielen im Denali-Nationalpark, Alaska, USA (© Ron Niebrugge/Alamy Stock Photo)|„Pass auf, ich kann Karate!“|![](/de-DE/2021/04/202104092200SiblingBears.jpg)|
 202104102200|YoshinoyamaSpring|Yoshino-yama, Präfektur Nara, Japan (© Sean Pavone/iStock/Getty Images Plus)|Der Berg der 30.000 Sakura|![](/de-DE/2021/04/202104102200YoshinoyamaSpring.jpg)|
+202104112200|YurisNight|Die Erde von der Internationalen Raumstation aus fotografiert von Astronaut Jeff Williams (© Jeff Williams/NASA)|In der Umlaufbahn|![](/de-DE/2021/04/202104112200YurisNight.jpg)|
