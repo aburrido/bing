@@ -11,3 +11,4 @@
 202104081500|HovenweepDarkSky|｢ホーブンウィープ国定公園の塔｣米国, ユタ州 (© Brad McGinley Photography/Getty Images)|今週はダークスカイウィーク|![](/ja-JP/2021/04/202104081500HovenweepDarkSky.jpg)|
 202104091500|SiblingBears|｢グリズリーベアの兄弟｣米国, アラスカ州 (© Ron Niebrugge/Alamy Stock Photo) 	"|今日は兄弟姉妹の日|![](/ja-JP/2021/04/202104091500SiblingBears.jpg)|
 202104101500|LargestCave|｢ソフォンニャ＝ケバン国立公園のソンドン洞｣ベトナム (© David A Knight/shutterstock)|世界最大の洞窟|![](/ja-JP/2021/04/202104101500LargestCave.jpg)|
+202104111500|YurisNight|｢国際宇宙ステーションから見た地球｣ (© Jeff Williams/NASA)|今日はユーリズナイト|![](/ja-JP/2021/04/202104111500YurisNight.jpg)|
