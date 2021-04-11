@@ -11,3 +11,4 @@
 202104081600|HovenweepDarkSky|Hovenweep国家纪念碑的方塔，犹他州 (© Brad McGinley Photography/Getty Images)||![](/zh-CN/2021/04/202104081600HovenweepDarkSky.jpg)|
 202104091600|SiblingBears|在迪纳利国家公园中玩耍的灰熊幼崽，阿拉斯加  (© Ron Niebrugge/Alamy)||![](/zh-CN/2021/04/202104091600SiblingBears.jpg)|
 202104101600|YoshinoyamaSpring|吉野山，日本奈良 (© Sean Pavone/iStock/Getty Images Plus)||![](/zh-CN/2021/04/202104101600YoshinoyamaSpring.jpg)|
+202104111600|YurisNight|宇航员杰夫·威廉姆斯在国际空间站拍摄到的地球 (© Jeff Williams/NASA)||![](/zh-CN/2021/04/202104111600YurisNight.jpg)|
