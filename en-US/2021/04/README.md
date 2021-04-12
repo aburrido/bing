@@ -12,3 +12,4 @@
 202104090700|HovenweepDarkSky|Square Tower Group in Hovenweep National Monument, Utah (© Brad McGinley Photography/Getty Images)|A timeless view of the night sky|![](/en-US/2021/04/202104090700HovenweepDarkSky.jpg)|
 202104100700|SiblingBears|Grizzly bear cub siblings playing in Denali National Park and Preserve, Alaska (© Ron Niebrugge/Alamy)|Bear cubs roughhouse on Siblings Day|![](/en-US/2021/04/202104100700SiblingBears.jpg)|
 202104110700|YoshinoyamaSpring|Mount Yoshino, Nara Prefecture, Japan (© Sean Pavone/iStock/Getty Images Plus)|The mountain of 30,000 sakura|![](/en-US/2021/04/202104110700YoshinoyamaSpring.jpg)|
+202104120700|YurisNight|Earth viewed from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/NASA)|In orbit for Yuri's Night|![](/en-US/2021/04/202104120700YurisNight.jpg)|
