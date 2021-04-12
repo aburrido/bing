@@ -13,3 +13,4 @@
 202104102200|YoshinoyamaSpring|Mont Yoshino, Prefecture de Nara, Japon (© Sean Pavone/iStock/Getty Images Plus)|L’heure des cerisiers en fleur|![](/fr-FR/2021/04/202104102200YoshinoyamaSpring.jpg)|
 202104112200|FlowerTown|Rue du Petit-Fort et ses jardinières fleuries, Dinan, Côtes-d’Armor, Bretagne (© Scott Wilson/Alamy Stock Photo)|Le printemps aux balcons|![](/fr-FR/2021/04/202104112200FlowerTown.jpg)|
 ||||![](/fr-FR/2021/04/.jpg)|
+202104122200|WatPhraSiSanphet|Wat Phra Si Sanphet, parc historique d’Ayutthaya, Patrimoine Mondial de l’UNESCO, Ayutthaya, Thaïlande (© travelstock44/Alamy Stock Photo)|Vestiges d’un royaume déchu|![](/fr-FR/2021/04/202104122200WatPhraSiSanphet.jpg)|
