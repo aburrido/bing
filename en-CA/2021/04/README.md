@@ -12,3 +12,4 @@
 202104100400|SiblingBears|Grizzly bear cub siblings playing in Denali National Park, Alaska (© Ron Niebrugge/Alamy)|Bear cubs roughhouse on Siblings Day|![](/en-CA/2021/04/202104100400SiblingBears.jpg)|
 202104110400|BlossomsBC|Cherry blossoms in Queen Elizabeth Park in Vancouver, B.C. (© Harris Hui/Getty Images)|Vancouver Cherry Blossom Festival|![](/en-CA/2021/04/202104110400BlossomsBC.jpg)|
 202104120400|YurisNight|Earth from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/NASA)|In orbit for Yuri's Night|![](/en-CA/2021/04/202104120400YurisNight.jpg)|
+202104130400|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, UNESCO World Heritage Site, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-CA/2021/04/202104130400WatPhraSiSanphet.jpg)|

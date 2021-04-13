@@ -12,3 +12,4 @@
 202104100400|SiblingBears|Des oursons grizzlis s’amusent dans le parc national de Denali en Alaska (© Ron Niebrugge/Alamy)||![](/fr-CA/2021/04/202104100400SiblingBears.jpg)|
 202104110400|BlossomsBC|Fleurs de cerisier dans le parc Queen Elizabeth, Vancouver, C.-B. (© Harris Hui/Getty Images)||![](/fr-CA/2021/04/202104110400BlossomsBC.jpg)|
 202104120400|YurisNight|La Terre depuis la station spatiale internationale, photographiée par l'astronaute Jeff Williams (© Jeff Williams/NASA)||![](/fr-CA/2021/04/202104120400YurisNight.jpg)|
+202104130400|WatPhraSiSanphet|Wat Phra Si Sanphet, parc historique d'Ayutthaya, site du patrimoine mondial de l'UNESCO, Ayutthaya, Thaïlande (© travelstock44/Alamy)||![](/fr-CA/2021/04/202104130400WatPhraSiSanphet.jpg)|
