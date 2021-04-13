@@ -13,3 +13,4 @@
 202104100700|SiblingBears|Grizzly bear cubs in Denali National Park, Alaska, USA (© Ron Niebrugge/Alamy)|Info|![](/en-AU/2021/04/202104100700SiblingBears.jpg)|
 202104110700|YoshinoyamaSpring|Mount Yoshino, Nara Prefecture, Japan (© Sean Pavone/iStock/Getty Images Plus)|Info|![](/en-AU/2021/04/202104110700YoshinoyamaSpring.jpg)|
 202104120700|YurisNight|Earth from the International Space Station (© Jeff Williams/NASA)|Info|![](/en-AU/2021/04/202104120700YurisNight.jpg)|
+202104130700|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya, Thailand (© travelstock44/Alamy)|Info|![](/en-AU/2021/04/202104130700WatPhraSiSanphet.jpg)|
