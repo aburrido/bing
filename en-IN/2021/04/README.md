@@ -13,3 +13,4 @@
 202104101830|YoshinoyamaSpring|Mount Yoshino, Nara Prefecture, Japan (© Sean Pavone/iStock/Getty Images Plus)|The mountain of 30,000 sakura|![](/en-IN/2021/04/202104101830YoshinoyamaSpring.jpg)|
 202104111830|YurisNight|Earth from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/NASA)|In orbit for Yuri's Night|![](/en-IN/2021/04/202104111830YurisNight.jpg)|
 202104121830|GoldenTemple|Sunset at Golden Temple in Amritsar, India (© szefei/shutterstock)|The abode of God…|![](/en-IN/2021/04/202104121830GoldenTemple.jpg)|
+202104131830|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-IN/2021/04/202104131830CarrizoPlain.jpg)|
