@@ -13,3 +13,4 @@
 202104101600|YoshinoyamaSpring|吉野山，日本奈良 (© Sean Pavone/iStock/Getty Images Plus)||![](/zh-CN/2021/04/202104101600YoshinoyamaSpring.jpg)|
 202104111600|YurisNight|宇航员杰夫·威廉姆斯在国际空间站拍摄到的地球 (© Jeff Williams/NASA)||![](/zh-CN/2021/04/202104111600YurisNight.jpg)|
 202104121600|WatPhraSiSanphet|大城历史公园中的帕喜善佩寺，泰国大城府 (© travelstock44/Alamy)||![](/zh-CN/2021/04/202104121600WatPhraSiSanphet.jpg)|
+202104131600|CarrizoPlain|卡里佐平原国家纪念区的野花，加利福尼亚 (© Dennis Frates/Alamy)||![](/zh-CN/2021/04/202104131600CarrizoPlain.jpg)|
