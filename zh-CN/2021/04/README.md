@@ -14,3 +14,4 @@
 202104111600|YurisNight|宇航员杰夫·威廉姆斯在国际空间站拍摄到的地球 (© Jeff Williams/NASA)||![](/zh-CN/2021/04/202104111600YurisNight.jpg)|
 202104121600|WatPhraSiSanphet|大城历史公园中的帕喜善佩寺，泰国大城府 (© travelstock44/Alamy)||![](/zh-CN/2021/04/202104121600WatPhraSiSanphet.jpg)|
 202104131600|CarrizoPlain|卡里佐平原国家纪念区的野花，加利福尼亚 (© Dennis Frates/Alamy)||![](/zh-CN/2021/04/202104131600CarrizoPlain.jpg)|
+202104141600|AlbertaTrunks|亚伯拉罕湖中的树，加拿大艾伯塔 (© Coolbiere/Getty Images)||![](/zh-CN/2021/04/202104141600AlbertaTrunks.jpg)|
