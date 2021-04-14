@@ -14,3 +14,4 @@
 202104110700|YoshinoyamaSpring|Mount Yoshino, Nara Prefecture, Japan (© Sean Pavone/iStock/Getty Images Plus)|The mountain of 30,000 sakura|![](/en-US/2021/04/202104110700YoshinoyamaSpring.jpg)|
 202104120700|YurisNight|Earth viewed from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/NASA)|In orbit for Yuri's Night|![](/en-US/2021/04/202104120700YurisNight.jpg)|
 202104130700|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-US/2021/04/202104130700WatPhraSiSanphet.jpg)|
+202104140700|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-US/2021/04/202104140700CarrizoPlain.jpg)|
