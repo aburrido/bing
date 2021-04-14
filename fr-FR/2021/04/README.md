@@ -15,3 +15,4 @@
 ||||![](/fr-FR/2021/04/.jpg)|
 202104122200|WatPhraSiSanphet|Wat Phra Si Sanphet, parc historique d’Ayutthaya, Patrimoine Mondial de l’UNESCO, Ayutthaya, Thaïlande (© travelstock44/Alamy Stock Photo)|Vestiges d’un royaume déchu|![](/fr-FR/2021/04/202104122200WatPhraSiSanphet.jpg)|
 202104132200|CarrizoPlain|Fleurs sauvages dans le Carrizo Plain National Monument, Californie, États-Unis (© Dennis Frates/Alamy Stock Photo)|Bol d’air pur|![](/fr-FR/2021/04/202104132200CarrizoPlain.jpg)|
+202104142200|SaltLake|Les salins de Gruissan vu d’un drone, Gruissan, Aube (© Abstract Aerial Art/Getty Images)|Un air de Sénégal|![](/fr-FR/2021/04/202104142200SaltLake.jpg)|

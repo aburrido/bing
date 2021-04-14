@@ -14,3 +14,4 @@
 202104112200|YurisNight|Die Erde von der Internationalen Raumstation aus fotografiert von Astronaut Jeff Williams (© Jeff Williams/NASA)|In der Umlaufbahn|![](/de-DE/2021/04/202104112200YurisNight.jpg)|
 202104122200|WatPhraSiSanphet|Wat Phra Si Sanphet, Geschichtspark Ayutthaya, UNESCO-Weltkulturerbe, Ayutthaya, Thailand (© travelstock44/Alamy Stock Photo)|Ruinen eines königlichen Tempels|![](/de-DE/2021/04/202104122200WatPhraSiSanphet.jpg)|
 202104132200|LangeoogWasserturm|Wasserturm, Langeoog, Ostfriesische Inseln, Niedersachsen (© Frederik/Getty Images)|Moin Moin!|![](/de-DE/2021/04/202104132200LangeoogWasserturm.jpg)|
+202104142200|MontalbanoElicona|Montalbano Elicona, Messina, Sizilien, Italien (© Antonino Bartuccio/SOPA Collection/offset by shutterstock)|In Sizilien findet man allerorts Geschichte|![](/de-DE/2021/04/202104142200MontalbanoElicona.jpg)|
