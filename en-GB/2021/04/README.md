@@ -14,3 +14,4 @@
 202104112300|YurisNight|Earth from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/Nasa)|In orbit for Yuri's Night|![](/en-GB/2021/04/202104112300YurisNight.jpg)|
 202104122300|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, Unesco World Heritage Site, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-GB/2021/04/202104122300WatPhraSiSanphet.jpg)|
 202104132300|Reynisfjara|Basalt rock formations on Reynisfjara Beach, Iceland (© Cavan Images/Getty Images)|Towering over a black sand beach|![](/en-GB/2021/04/202104132300Reynisfjara.jpg)|
+202104142300|BrazilSandDunes|Lençóis Maranhenses National Park in Barreirinhas, Brazil (© WIN-Initiative/Getty Images)|White dunes, blue lagoons|![](/en-GB/2021/04/202104142300BrazilSandDunes.jpg)|
