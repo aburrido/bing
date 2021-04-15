@@ -15,3 +15,4 @@
 202104120700|YurisNight|Earth viewed from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/NASA)|In orbit for Yuri's Night|![](/en-US/2021/04/202104120700YurisNight.jpg)|
 202104130700|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-US/2021/04/202104130700WatPhraSiSanphet.jpg)|
 202104140700|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-US/2021/04/202104140700CarrizoPlain.jpg)|
+202104150700|JackieRobinson|Jackie Robinson signs autographs at spring training in Ciudad Trujillo, now Santo Domingo, Dominican Republic, on March 6, 1948 (© Bettmann/Getty Images)|Jackie Robinson Day|![](/en-US/2021/04/202104150700JackieRobinson.jpg)|
