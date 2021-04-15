@@ -15,3 +15,4 @@
 202104121600|WatPhraSiSanphet|大城历史公园中的帕喜善佩寺，泰国大城府 (© travelstock44/Alamy)||![](/zh-CN/2021/04/202104121600WatPhraSiSanphet.jpg)|
 202104131600|CarrizoPlain|卡里佐平原国家纪念区的野花，加利福尼亚 (© Dennis Frates/Alamy)||![](/zh-CN/2021/04/202104131600CarrizoPlain.jpg)|
 202104141600|AlbertaTrunks|亚伯拉罕湖中的树，加拿大艾伯塔 (© Coolbiere/Getty Images)||![](/zh-CN/2021/04/202104141600AlbertaTrunks.jpg)|
+202104151600|FlowerTown|Dinan镇的鹅卵石铺成的街道，法国布列塔尼 (© Scott Wilson/Alamy)||![](/zh-CN/2021/04/202104151600FlowerTown.jpg)|
