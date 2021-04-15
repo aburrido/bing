@@ -15,3 +15,4 @@
 202104121500|WatPhraSiSanphet|｢ワット・プラシーサンペット｣タイ, アユタヤ (© travelstock44/Alamy Stock Photo)|今日はソンクラーン|![](/ja-JP/2021/04/202104121500WatPhraSiSanphet.jpg)|
 202104131500|CarrizoPlain|｢カリゾ平原の野の花｣米国, カリフォルニア州 (© Dennis Frates/Alamy Stock Photo)|野の花|![](/ja-JP/2021/04/202104131500CarrizoPlain.jpg)|
 202104141500|AlbertaTrunks|｢アブラハム湖｣カナダ, アルバータ州 (© Coolbiere/Getty Images)|アイスバブルの聖地|![](/ja-JP/2021/04/202104141500AlbertaTrunks.jpg)|
+202104151500|DaliMuseum|｢ダリ劇場美術館｣スペイン, フィゲラス (© MISCELLANEOUSTOCK/Alamy Stock Photo)|シュルレアリスムの城館|![](/ja-JP/2021/04/202104151500DaliMuseum.jpg)|
