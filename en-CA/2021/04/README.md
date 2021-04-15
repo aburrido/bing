@@ -14,3 +14,4 @@
 202104120400|YurisNight|Earth from the International Space Station, photographed by astronaut Jeff Williams (© Jeff Williams/NASA)|In orbit for Yuri's Night|![](/en-CA/2021/04/202104120400YurisNight.jpg)|
 202104130400|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, UNESCO World Heritage Site, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-CA/2021/04/202104130400WatPhraSiSanphet.jpg)|
 202104140400|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-CA/2021/04/202104140400CarrizoPlain.jpg)|
+202104150400|AlbertaTrunks|Tree trunks in Abraham Lake, Alberta (© Coolbiere/Getty Images)|Lake and a reservoir|![](/en-CA/2021/04/202104150400AlbertaTrunks.jpg)|
