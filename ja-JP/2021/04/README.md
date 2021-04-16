@@ -16,3 +16,4 @@
 202104131500|CarrizoPlain|｢カリゾ平原の野の花｣米国, カリフォルニア州 (© Dennis Frates/Alamy Stock Photo)|野の花|![](/ja-JP/2021/04/202104131500CarrizoPlain.jpg)|
 202104141500|AlbertaTrunks|｢アブラハム湖｣カナダ, アルバータ州 (© Coolbiere/Getty Images)|アイスバブルの聖地|![](/ja-JP/2021/04/202104141500AlbertaTrunks.jpg)|
 202104151500|DaliMuseum|｢ダリ劇場美術館｣スペイン, フィゲラス (© MISCELLANEOUSTOCK/Alamy Stock Photo)|シュルレアリスムの城館|![](/ja-JP/2021/04/202104151500DaliMuseum.jpg)|
+202104161500|NewRiverGorge|｢ニュー川渓谷橋｣米国, ウェストバージニア州 (© EntropyWorkshop/iStock/Getty Images Plus)|今日から国立公園ウィーク|![](/ja-JP/2021/04/202104161500NewRiverGorge.jpg)|
