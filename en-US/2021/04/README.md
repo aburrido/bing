@@ -16,3 +16,4 @@
 202104130700|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-US/2021/04/202104130700WatPhraSiSanphet.jpg)|
 202104140700|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-US/2021/04/202104140700CarrizoPlain.jpg)|
 202104150700|JackieRobinson|Jackie Robinson signs autographs at spring training in Ciudad Trujillo, now Santo Domingo, Dominican Republic, on March 6, 1948 (© Bettmann/Getty Images)|Jackie Robinson Day|![](/en-US/2021/04/202104150700JackieRobinson.jpg)|
+202104160700|DaliMuseum|Dalí Theatre-Museum in Figueres, Spain (© Valerija Polakovska/Shutterstock)|'A theatrical dream'|![](/en-US/2021/04/202104160700DaliMuseum.jpg)|
