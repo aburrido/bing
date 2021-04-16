@@ -16,3 +16,4 @@
 202104131830|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-IN/2021/04/202104131830CarrizoPlain.jpg)|
 202104141830|WatPhraSiSanphet|Wat Phra Si Sanphet, Ayutthaya Historical Park, UNESCO World Heritage Site, Ayutthaya, Thailand (© travelstock44/Alamy)|Ruins of a royal temple|![](/en-IN/2021/04/202104141830WatPhraSiSanphet.jpg)|
 202104151830|DaliMuseum|Dalí Theatre-Museum in Figueres, Spain (© Valerija Polakovska/Shutterstock)|'A theatrical dream'|![](/en-IN/2021/04/202104151830DaliMuseum.jpg)|
+202104161830|NewRiverGorge|New River Gorge Bridge in the New River Gorge National Park and Preserve, West Virginia (© Entropy Workshop/iStock/Getty Images Plus)|A river runs through it|![](/en-IN/2021/04/202104161830NewRiverGorge.jpg)|
