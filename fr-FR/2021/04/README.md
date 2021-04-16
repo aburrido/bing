@@ -17,3 +17,4 @@
 202104132200|CarrizoPlain|Fleurs sauvages dans le Carrizo Plain National Monument, Californie, États-Unis (© Dennis Frates/Alamy Stock Photo)|Bol d’air pur|![](/fr-FR/2021/04/202104132200CarrizoPlain.jpg)|
 202104142200|SaltLake|Les salins de Gruissan vu d’un drone, Gruissan, Aube (© Abstract Aerial Art/Getty Images)|Un air de Sénégal|![](/fr-FR/2021/04/202104142200SaltLake.jpg)|
 202104152200|DaliMuseum|Le théâtre-musée de Dalí à Figueres, Espagne (© MISCELLANEOUSTOCK/Alamy Stock Photo)|Entrée d'un autre monde|![](/fr-FR/2021/04/202104152200DaliMuseum.jpg)|
+202104162200|NewRiverGorge|Le New River Gorge Bridge dans le parc national et réserve de New River Gorge, Virginie-Occidentale, États-Unis (© EntropyWorkshop/iStock/Getty Images Plus)|Grandeur américaine|![](/fr-FR/2021/04/202104162200NewRiverGorge.jpg)|

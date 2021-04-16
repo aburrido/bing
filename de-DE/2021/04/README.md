@@ -16,3 +16,4 @@
 202104132200|LangeoogWasserturm|Wasserturm, Langeoog, Ostfriesische Inseln, Niedersachsen (© Frederik/Getty Images)|Moin Moin!|![](/de-DE/2021/04/202104132200LangeoogWasserturm.jpg)|
 202104142200|MontalbanoElicona|Montalbano Elicona, Messina, Sizilien, Italien (© Antonino Bartuccio/SOPA Collection/offset by shutterstock)|In Sizilien findet man allerorts Geschichte|![](/de-DE/2021/04/202104142200MontalbanoElicona.jpg)|
 202104152200|DaliMuseum|Teatre-Museu Dalí in Figueres, Spanien (© Valerija Polakovska/Shutterstock)|„Ein Theatertraum“|![](/de-DE/2021/04/202104152200DaliMuseum.jpg)|
+202104162200|NCFireweed|Schmalblättrige Weidenröschen im North-Cascades-Nationalpark, Bundesstaat Washington, USA (© Danita Delimont/Getty Images)|Wildblumen-Blüte|![](/de-DE/2021/04/202104162200NCFireweed.jpg)|
