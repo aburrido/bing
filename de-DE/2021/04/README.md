@@ -17,3 +17,4 @@
 202104142200|MontalbanoElicona|Montalbano Elicona, Messina, Sizilien, Italien (© Antonino Bartuccio/SOPA Collection/offset by shutterstock)|In Sizilien findet man allerorts Geschichte|![](/de-DE/2021/04/202104142200MontalbanoElicona.jpg)|
 202104152200|DaliMuseum|Teatre-Museu Dalí in Figueres, Spanien (© Valerija Polakovska/Shutterstock)|„Ein Theatertraum“|![](/de-DE/2021/04/202104152200DaliMuseum.jpg)|
 202104162200|NCFireweed|Schmalblättrige Weidenröschen im North-Cascades-Nationalpark, Bundesstaat Washington, USA (© Danita Delimont/Getty Images)|Wildblumen-Blüte|![](/de-DE/2021/04/202104162200NCFireweed.jpg)|
+202104172200|WalhallaDonaustauf|Innenansicht der Walhalla mit den Karyatiden auf der Empore, Donaustauf, Bayern (© imageBROKER/Alamy Stock Photo)|Nordische Mythologie zum Museumstag|![](/de-DE/2021/04/202104172200WalhallaDonaustauf.jpg)|
