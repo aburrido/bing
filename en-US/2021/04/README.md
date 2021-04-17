@@ -17,3 +17,4 @@
 202104140700|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-US/2021/04/202104140700CarrizoPlain.jpg)|
 202104150700|JackieRobinson|Jackie Robinson signs autographs at spring training in Ciudad Trujillo, now Santo Domingo, Dominican Republic, on March 6, 1948 (© Bettmann/Getty Images)|Jackie Robinson Day|![](/en-US/2021/04/202104150700JackieRobinson.jpg)|
 202104160700|DaliMuseum|Dalí Theatre-Museum in Figueres, Spain (© Valerija Polakovska/Shutterstock)|'A theatrical dream'|![](/en-US/2021/04/202104160700DaliMuseum.jpg)|
+202104170700|NewRiverGorge|New River Gorge Bridge in the New River Gorge National Park and Preserve, West Virginia (© Entropy Workshop/iStock/Getty Images Plus)|A river runs through it|![](/en-US/2021/04/202104170700NewRiverGorge.jpg)|

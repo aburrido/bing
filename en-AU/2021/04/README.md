@@ -17,3 +17,4 @@
 202104140700|CarrizoPlain|Carrizo Plain National Monument, California, USA (© Dennis Frates/Alamy)|Info|![](/en-AU/2021/04/202104140700CarrizoPlain.jpg)|
 202104150700|AlbertaTrunks|Abraham Lake, Alberta, Canada (© Coolbiere/Getty Images)|Info|![](/en-AU/2021/04/202104150700AlbertaTrunks.jpg)|
 202104160700|FlowerTown|Dinan, Brittany, France (© Scott Wilson/Alamy)|Info|![](/en-AU/2021/04/202104160700FlowerTown.jpg)|
+202104170700|NewRiverGorge|New River Gorge Bridge, New River Gorge National Park and Preserve, West Virginia, USA (© Entropy Workshop/iStock/Getty Images Plus)|Info|![](/en-AU/2021/04/202104170700NewRiverGorge.jpg)|
