@@ -16,3 +16,4 @@
 202104140400|CarrizoPlain|Wildflowers in the Carrizo Plain National Monument, California (© Dennis Frates/Alamy)|Nothing plain about it|![](/en-CA/2021/04/202104140400CarrizoPlain.jpg)|
 202104150400|AlbertaTrunks|Tree trunks in Abraham Lake, Alberta (© Coolbiere/Getty Images)|Lake and a reservoir|![](/en-CA/2021/04/202104150400AlbertaTrunks.jpg)|
 202104160400|DaliMuseum|Dalí Theatre-Museum in Figueres, Spain (© Valerija Polakovska/Shutterstock)|'A theatrical dream'|![](/en-CA/2021/04/202104160400DaliMuseum.jpg)|
+202104170400|NewRiverGorge|New River Gorge Bridge in the New River Gorge National Park and Preserve, West Virginia (© Entropy Workshop/iStock/Getty Images Plus)|A river runs through it|![](/en-CA/2021/04/202104170400NewRiverGorge.jpg)|

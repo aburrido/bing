@@ -16,3 +16,4 @@
 202104140400|CarrizoPlain|Fleurs sauvages dans le Monument National de la Plaine de Carrizo, Californie (© Dennis Frates/Alamy)||![](/fr-CA/2021/04/202104140400CarrizoPlain.jpg)|
 202104150400|AlbertaTrunks|Troncs d'arbres dans le lac Abraham en Alberta (© Coolbiere/Getty Images)||![](/fr-CA/2021/04/202104150400AlbertaTrunks.jpg)|
 202104160400|FlowerTown|Une rue pavée dans la ville de Dinan, Bretagne, France (© Scott Wilson/Alamy)||![](/fr-CA/2021/04/202104160400FlowerTown.jpg)|
+202104170400|NewRiverGorge|Pont New River Gorge dans le parc national et réserve de New River Gorge, en Virginie-Occidentale (© Entropy Workshop/iStock/Getty Images Plus)||![](/fr-CA/2021/04/202104170400NewRiverGorge.jpg)|
