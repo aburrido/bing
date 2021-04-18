@@ -18,3 +18,4 @@
 202104152200|DaliMuseum|Teatre-Museu Dalí in Figueres, Spanien (© Valerija Polakovska/Shutterstock)|„Ein Theatertraum“|![](/de-DE/2021/04/202104152200DaliMuseum.jpg)|
 202104162200|NCFireweed|Schmalblättrige Weidenröschen im North-Cascades-Nationalpark, Bundesstaat Washington, USA (© Danita Delimont/Getty Images)|Wildblumen-Blüte|![](/de-DE/2021/04/202104162200NCFireweed.jpg)|
 202104172200|WalhallaDonaustauf|Innenansicht der Walhalla mit den Karyatiden auf der Empore, Donaustauf, Bayern (© imageBROKER/Alamy Stock Photo)|Nordische Mythologie zum Museumstag|![](/de-DE/2021/04/202104172200WalhallaDonaustauf.jpg)|
+202104182200|Mobula|Luftaufnahme eines riesigen Schwarms von Teufelsrochen, Golf von Kalifornien, Mexiko (© Mark Carwardine/Minden Pictures)|Teufelsrochen-Parade|![](/de-DE/2021/04/202104182200Mobula.jpg)|
