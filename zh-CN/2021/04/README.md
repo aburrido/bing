@@ -18,3 +18,4 @@
 202104151600|FlowerTown|Dinan镇的鹅卵石铺成的街道，法国布列塔尼 (© Scott Wilson/Alamy)||![](/zh-CN/2021/04/202104151600FlowerTown.jpg)|
 202104161600|NewRiverGorge|新河峡国家公园中的新河峡大桥，西弗吉尼亚州 (© Entropy Workshop/iStock/Getty Images Plus)||![](/zh-CN/2021/04/202104161600NewRiverGorge.jpg)|
 202104171600|MontalbanoElicona|蒙塔尔巴诺埃利科纳，意大利西西里岛 (© Antonino Bartuccio/SOPA Collection/Offset by Shutterstock)||![](/zh-CN/2021/04/202104171600MontalbanoElicona.jpg)|
+202104181600|Mobula|大群的芒基蝠鲼跃出水面，墨西哥加利福尼亚湾 (© Mark Carwardine/Minden Pictures)||![](/zh-CN/2021/04/202104181600Mobula.jpg)|
