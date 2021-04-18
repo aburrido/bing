@@ -18,3 +18,4 @@
 202104152300|DaliMuseum|Dalí Theatre-Museum in Figueres, Spain (© Valerija Polakovska/Shutterstock)|Dreaming of Dalí|![](/en-GB/2021/04/202104152300DaliMuseum.jpg)|
 202104162300|TheRoaches|View of the rocky gritstone edge of The Roaches looking over the patchwork landscape, Peak District, Staffordshire. (© George W Johnson/Getty Images)|The Peak District turns 70|![](/en-GB/2021/04/202104162300TheRoaches.jpg)|
 202104172300|NewRiverGorge|New River Gorge Bridge in the New River Gorge National Park and Preserve, West Virginia, USA (© EntropyWorkshop/iStock/Getty Images Plus)|A river runs through it|![](/en-GB/2021/04/202104172300NewRiverGorge.jpg)|
+202104182300|Mobula|Large school of Munk's pygmy devil rays from the air, Gulf of California, Mexico (© Mark Carwardine/Minden Pictures)|Rays on parade|![](/en-GB/2021/04/202104182300Mobula.jpg)|
