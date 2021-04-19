@@ -19,3 +19,4 @@
 202104161830|NewRiverGorge|New River Gorge Bridge in the New River Gorge National Park and Preserve, West Virginia (© Entropy Workshop/iStock/Getty Images Plus)|A river runs through it|![](/en-IN/2021/04/202104161830NewRiverGorge.jpg)|
 202104171830|MontalbanoElicona|Montalbano Elicona, Messina, Sicily, Italy (© Antonino Bartuccio/SOPA Collection/Offset by Shutterstock)|In Sicily, history is everywhere|![](/en-IN/2021/04/202104171830MontalbanoElicona.jpg)|
 202104181830|Mobula|Large school of Munk's pygmy devil rays from the air, Gulf of California, Mexico (© Mark Carwardine/Minden Pictures)|Rays on parade|![](/en-IN/2021/04/202104181830Mobula.jpg)|
+202104191830|Ceking|Tegalalang Rice Terraces, Ubud, Bali, Indonesia (© Michele Falzone/Alamy)|Terraced fields of green|![](/en-IN/2021/04/202104191830Ceking.jpg)|
