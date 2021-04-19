@@ -19,3 +19,4 @@
 202104161500|NewRiverGorge|｢ニュー川渓谷橋｣米国, ウェストバージニア州 (© EntropyWorkshop/iStock/Getty Images Plus)|今日から国立公園ウィーク|![](/ja-JP/2021/04/202104161500NewRiverGorge.jpg)|
 202104171500|MontalbanoElicona|｢モンタルバーノ・エリコーナ｣イタリア, シチリア州 (© Antonino Bartuccio/SOPA Collection/offset by shutterstock)|イタリアで最も美しい村のひとつ|![](/ja-JP/2021/04/202104171500MontalbanoElicona.jpg)|
 202104181500|Mobula|｢ムンクイトマキエイの群れ｣メキシコ, カリフォルニア湾 (© Mark Carwardine/Minden Pictures)|群れをなすとき|![](/ja-JP/2021/04/202104181500Mobula.jpg)|
+202104191500|Mokurenki|｢モクレン｣神奈川県, 鎌倉市 (© magicflute002/Getty Images)|今日は木蓮忌|![](/ja-JP/2021/04/202104191500Mokurenki.jpg)|
