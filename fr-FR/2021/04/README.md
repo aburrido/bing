@@ -20,3 +20,4 @@
 202104162200|NewRiverGorge|Le New River Gorge Bridge dans le parc national et réserve de New River Gorge, Virginie-Occidentale, États-Unis (© EntropyWorkshop/iStock/Getty Images Plus)|Grandeur américaine|![](/fr-FR/2021/04/202104162200NewRiverGorge.jpg)|
 202104172200|MontalbanoElicona|Montalbano Elicona, Messina, Sicily, Italy (© Antonino Bartuccio/SOPA Collection/offset by shutterstock)|Histoire de Sicile|![](/fr-FR/2021/04/202104172200MontalbanoElicona.jpg)|
 202104182200|Mobula|Nuée de raies de mobula dans les airs, Golfe de Californie, Mexique (© Mark Carwardine/Minden Pictures)|Comme un poisson dans l’air|![](/fr-FR/2021/04/202104182200Mobula.jpg)|
+202104192200|Ceking|Rizières en terrace de Tegallalang, Ubud, Bali, Indonesie (© Michele Falzone/Alamy Stock Photo)|Spiritualité indonésienne|![](/fr-FR/2021/04/202104192200Ceking.jpg)|
