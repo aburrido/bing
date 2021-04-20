@@ -20,3 +20,4 @@
 202104172200|WalhallaDonaustauf|Innenansicht der Walhalla mit den Karyatiden auf der Empore, Donaustauf, Bayern (© imageBROKER/Alamy Stock Photo)|Nordische Mythologie zum Museumstag|![](/de-DE/2021/04/202104172200WalhallaDonaustauf.jpg)|
 202104182200|Mobula|Luftaufnahme eines riesigen Schwarms von Teufelsrochen, Golf von Kalifornien, Mexiko (© Mark Carwardine/Minden Pictures)|Teufelsrochen-Parade|![](/de-DE/2021/04/202104182200Mobula.jpg)|
 202104192200|Ceking|Reisterrassen von Tegalalang, Ubud, Bali, Indonesien (© Michele Falzone/Alamy Stock Photo)|Grüne Aussichten auf Bali|![](/de-DE/2021/04/202104192200Ceking.jpg)|
+202104202200|SaoJorgeMadeira|Nordküste Madeiras bei Santana, Portugal (© Hemis/Alamy Stock Photo)|Portugals „Perle im Atlantik“|![](/de-DE/2021/04/202104202200SaoJorgeMadeira.jpg)|
