@@ -20,3 +20,4 @@
 202104170700|NewRiverGorge|New River Gorge Bridge, New River Gorge National Park and Preserve, West Virginia, USA (© Entropy Workshop/iStock/Getty Images Plus)|Info|![](/en-AU/2021/04/202104170700NewRiverGorge.jpg)|
 202104180700|MontalbanoElicona|Montalbano Elicona, Messina, Sicily, Italy (© Antonino Bartuccio/SOPA Collection/Offset by Shutterstock)|Info|![](/en-AU/2021/04/202104180700MontalbanoElicona.jpg)|
 202104190700|Mobula|Munk's pygmy devil rays, Gulf of California, Mexico (© Mark Carwardine/Minden Pictures)|Info|![](/en-AU/2021/04/202104190700Mobula.jpg)|
+202104200700|Ceking|Tegalalang Rice Terraces, Ubud, Bali, Indonesia (© Michele Falzone/Alamy)|Info|![](/en-AU/2021/04/202104200700Ceking.jpg)|
