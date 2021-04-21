@@ -21,3 +21,4 @@
 202104181830|Mobula|Large school of Munk's pygmy devil rays from the air, Gulf of California, Mexico (© Mark Carwardine/Minden Pictures)|Rays on parade|![](/en-IN/2021/04/202104181830Mobula.jpg)|
 202104191830|Ceking|Tegalalang Rice Terraces, Ubud, Bali, Indonesia (© Michele Falzone/Alamy)|Terraced fields of green|![](/en-IN/2021/04/202104191830Ceking.jpg)|
 202104201830|HazaraRamaTemple|Ancient ruins of Hazara Rama Temple in Hampi, Karnataka (© Dmytro Gilitukha/shutterstock)|A temple of a ‘thousand Rama’|![](/en-IN/2021/04/202104201830HazaraRamaTemple.jpg)|
+202104211830|MississippiRiver|Mississippi River on the border between Arkansas and Mississippi (© NASA)|Gazing down on planet Earth|![](/en-IN/2021/04/202104211830MississippiRiver.jpg)|
