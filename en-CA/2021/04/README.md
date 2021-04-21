@@ -20,3 +20,4 @@
 202104180400|MontalbanoElicona|Montalbano Elicona, Messina, Sicily, Italy (© Antonino Bartuccio/SOPA Collection/Offset by Shutterstock)|In Sicily, history is everywhere|![](/en-CA/2021/04/202104180400MontalbanoElicona.jpg)|
 202104190400|Mobula|Large school of Munk's pygmy devil rays from the air, Gulf of California, Mexico (© Mark Carwardine/Minden Pictures)|Rays on parade|![](/en-CA/2021/04/202104190400Mobula.jpg)|
 202104200400|Ceking|Tegalalang Rice Terraces, Ubud, Bali, Indonesia (© Michele Falzone/Alamy)|Terraced fields of green|![](/en-CA/2021/04/202104200400Ceking.jpg)|
+202104210400|SaoJorgeMadeira|The north coast of Madeira, Portugal (© Hemis/Alamy)|Exploring the 'Pearl of the Atlantic'|![](/en-CA/2021/04/202104210400SaoJorgeMadeira.jpg)|
