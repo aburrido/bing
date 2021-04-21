@@ -21,3 +21,4 @@
 202104182200|Mobula|Luftaufnahme eines riesigen Schwarms von Teufelsrochen, Golf von Kalifornien, Mexiko (© Mark Carwardine/Minden Pictures)|Teufelsrochen-Parade|![](/de-DE/2021/04/202104182200Mobula.jpg)|
 202104192200|Ceking|Reisterrassen von Tegalalang, Ubud, Bali, Indonesien (© Michele Falzone/Alamy Stock Photo)|Grüne Aussichten auf Bali|![](/de-DE/2021/04/202104192200Ceking.jpg)|
 202104202200|SaoJorgeMadeira|Nordküste Madeiras bei Santana, Portugal (© Hemis/Alamy Stock Photo)|Portugals „Perle im Atlantik“|![](/de-DE/2021/04/202104202200SaoJorgeMadeira.jpg)|
+202104212200|MississippiRiver|Der Mississippi an der Grenze zwischen den Bundesstaaten Arkansas und Mississippi, USA (© NASA)|Ein Blick hinab auf den Planeten Erde|![](/de-DE/2021/04/202104212200MississippiRiver.jpg)|

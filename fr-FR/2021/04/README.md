@@ -22,3 +22,4 @@
 202104182200|Mobula|Nuée de raies de mobula dans les airs, Golfe de Californie, Mexique (© Mark Carwardine/Minden Pictures)|Comme un poisson dans l’air|![](/fr-FR/2021/04/202104182200Mobula.jpg)|
 202104192200|Ceking|Rizières en terrace de Tegallalang, Ubud, Bali, Indonesie (© Michele Falzone/Alamy Stock Photo)|Spiritualité indonésienne|![](/fr-FR/2021/04/202104192200Ceking.jpg)|
 202104202200|SaoJorgeMadeira|La côte nord de Madère, Portugal (© Hemis/Alamy Stock Photo)|La Perle de l’Atlantique|![](/fr-FR/2021/04/202104202200SaoJorgeMadeira.jpg)|
+202104212200|MississippiRiver|Le Mississipi à la frontière entre l’Arkansas et le Mississippi, États-Unis (© NASA)|Le Jour de la Terre|![](/fr-FR/2021/04/202104212200MississippiRiver.jpg)|
