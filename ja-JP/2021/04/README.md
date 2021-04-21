@@ -21,3 +21,4 @@
 202104181500|Mobula|｢ムンクイトマキエイの群れ｣メキシコ, カリフォルニア湾 (© Mark Carwardine/Minden Pictures)|群れをなすとき|![](/ja-JP/2021/04/202104181500Mobula.jpg)|
 202104191500|Mokurenki|｢モクレン｣神奈川県, 鎌倉市 (© magicflute002/Getty Images)|今日は木蓮忌|![](/ja-JP/2021/04/202104191500Mokurenki.jpg)|
 202104201500|SaoJorgeMadeira|｢マデイラ島の北海岸｣ポルトガル, マデイラ (© Hemis/Alamy Stock Photo)|大西洋の真珠|![](/ja-JP/2021/04/202104201500SaoJorgeMadeira.jpg)|
+202104211500|MississippiRiver|｢ミシシッピ川｣米国 (© NASA)|今日はアースデイ|![](/ja-JP/2021/04/202104211500MississippiRiver.jpg)|
