@@ -23,3 +23,4 @@
 202104192200|Ceking|Rizières en terrace de Tegallalang, Ubud, Bali, Indonesie (© Michele Falzone/Alamy Stock Photo)|Spiritualité indonésienne|![](/fr-FR/2021/04/202104192200Ceking.jpg)|
 202104202200|SaoJorgeMadeira|La côte nord de Madère, Portugal (© Hemis/Alamy Stock Photo)|La Perle de l’Atlantique|![](/fr-FR/2021/04/202104202200SaoJorgeMadeira.jpg)|
 202104212200|MississippiRiver|Le Mississipi à la frontière entre l’Arkansas et le Mississippi, États-Unis (© NASA)|Le Jour de la Terre|![](/fr-FR/2021/04/202104212200MississippiRiver.jpg)|
+202104222200|BatlloJordi|La Casa Batlló à Barcelona, Catalogne, Espagne (© Marco Arduino/Sime/eStock Photo)|Dans la tête d’un génie|![](/fr-FR/2021/04/202104222200BatlloJordi.jpg)|
