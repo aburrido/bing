@@ -21,3 +21,4 @@
 202104190400|Mobula|Grand banc de raies diables pygmées de Munk vu du ciel, Golfe de Californie, Mexique (© Mark Carwardine/Minden Pictures)||![](/fr-CA/2021/04/202104190400Mobula.jpg)|
 202104200400|Ceking|Rizières en terrasses de Tegalalang, Ubud, Bali, Indonésie (© Michele Falzone/Alamy)||![](/fr-CA/2021/04/202104200400Ceking.jpg)|
 202104210400|SaoJorgeMadeira|La côte nord de Madère, Portugal (© Hemis/Alamy)||![](/fr-CA/2021/04/202104210400SaoJorgeMadeira.jpg)|
+202104220400|MississippiRiver|Le fleuve Mississippi, à la frontière entre l'Arkansas et le Mississippi (© NASA)||![](/fr-CA/2021/04/202104220400MississippiRiver.jpg)|
