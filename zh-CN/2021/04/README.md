@@ -23,3 +23,4 @@
 202104201600|SaoJorgeMadeira|马德拉岛的北海岸，葡萄牙 (© Hemis/Alamy)||![](/zh-CN/2021/04/202104201600SaoJorgeMadeira.jpg)|
 202104211600|MississippiRiver|位于阿肯色州和密西西比州交界处的密西西比河 (© NASA)||![](/zh-CN/2021/04/202104211600MississippiRiver.jpg)|
 202104221600|MossyCanyon|贝图瑟科伊德的Fairy Glen，英国威尔士 (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2021/04/202104221600MossyCanyon.jpg)|
+202104231600|ChollaGarden|约书亚树国家公园中的仙人掌花园，加利福尼亚 (© Bryan Jolley/Tandem Stills + Motion)||![](/zh-CN/2021/04/202104231600ChollaGarden.jpg)|
