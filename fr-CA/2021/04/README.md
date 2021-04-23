@@ -22,3 +22,4 @@
 202104200400|Ceking|Rizières en terrasses de Tegalalang, Ubud, Bali, Indonésie (© Michele Falzone/Alamy)||![](/fr-CA/2021/04/202104200400Ceking.jpg)|
 202104210400|SaoJorgeMadeira|La côte nord de Madère, Portugal (© Hemis/Alamy)||![](/fr-CA/2021/04/202104210400SaoJorgeMadeira.jpg)|
 202104220400|MississippiRiver|Le fleuve Mississippi, à la frontière entre l'Arkansas et le Mississippi (© NASA)||![](/fr-CA/2021/04/202104220400MississippiRiver.jpg)|
+202104230400|BanffMist|Brume s'élevant au-dessus de la forêt dans le parc national de Banff en Alberta (© Pgiam/Getty Images)||![](/fr-CA/2021/04/202104230400BanffMist.jpg)|

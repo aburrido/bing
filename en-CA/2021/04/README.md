@@ -22,3 +22,4 @@
 202104200400|Ceking|Tegalalang Rice Terraces, Ubud, Bali, Indonesia (© Michele Falzone/Alamy)|Terraced fields of green|![](/en-CA/2021/04/202104200400Ceking.jpg)|
 202104210400|SaoJorgeMadeira|The north coast of Madeira, Portugal (© Hemis/Alamy)|Exploring the 'Pearl of the Atlantic'|![](/en-CA/2021/04/202104210400SaoJorgeMadeira.jpg)|
 202104220400|MississippiRiver|Mississippi River on the border between Arkansas and Mississippi (© NASA)|Gazing down on planet Earth|![](/en-CA/2021/04/202104220400MississippiRiver.jpg)|
+202104230400|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|A house of grand scale(s)|![](/en-CA/2021/04/202104230400BatlloJordi.jpg)|
