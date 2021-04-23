@@ -23,3 +23,4 @@
 202104202300|SaoJorgeMadeira|The north coast of Madeira, Portugal (© Hemis/Alamy)|The Pearl of the Atlantic|![](/en-GB/2021/04/202104202300SaoJorgeMadeira.jpg)|
 202104212300|MississippiRiver|Mississippi River on the border between Arkansas and Mississippi, USA (© Nasa)|Gazing down on planet Earth|![](/en-GB/2021/04/202104212300MississippiRiver.jpg)|
 202104222300|StGeorgeTulip|Red and white tulips for St George’s Day (© Annie Eagle/Alamy Stock Photo)|St George’s Day|![](/en-GB/2021/04/202104222300StGeorgeTulip.jpg)|
+202104232300|ChollaGarden|The Cholla Cactus Garden in Joshua Tree National Park, California, USA (© Bryan Jolley/Tandem Stills + Motion)|A garden of prickly delights|![](/en-GB/2021/04/202104232300ChollaGarden.jpg)|
