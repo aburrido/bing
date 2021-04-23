@@ -23,3 +23,4 @@
 202104201500|SaoJorgeMadeira|｢マデイラ島の北海岸｣ポルトガル, マデイラ (© Hemis/Alamy Stock Photo)|大西洋の真珠|![](/ja-JP/2021/04/202104201500SaoJorgeMadeira.jpg)|
 202104211500|MississippiRiver|｢ミシシッピ川｣米国 (© NASA)|今日はアースデイ|![](/ja-JP/2021/04/202104211500MississippiRiver.jpg)|
 202104221500|BatlloJordi|｢カサ・バトリョ｣スペイン, バルセロナ (© Marco Arduino/Sime/eStock Photo)|今日はサン・ジョルディの日|![](/ja-JP/2021/04/202104221500BatlloJordi.jpg)|
+202104231500|ChollaGarden|｢チョラサボテンガーデン｣米国, カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)|国立公園ウィーク最終日|![](/ja-JP/2021/04/202104231500ChollaGarden.jpg)|
