@@ -23,3 +23,4 @@
 202104201830|HazaraRamaTemple|Ancient ruins of Hazara Rama Temple in Hampi, Karnataka (© Dmytro Gilitukha/shutterstock)|A temple of a ‘thousand Rama’|![](/en-IN/2021/04/202104201830HazaraRamaTemple.jpg)|
 202104211830|MississippiRiver|Mississippi River on the border between Arkansas and Mississippi (© NASA)|Gazing down on planet Earth|![](/en-IN/2021/04/202104211830MississippiRiver.jpg)|
 202104221830|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|A house of grand scale(s)|![](/en-IN/2021/04/202104221830BatlloJordi.jpg)|
+202104231830|ChollaGarden|The Cholla Cactus Garden in Joshua Tree National Park, California (© Bryan Jolley/Tandem Stills + Motion)|A garden of prickly delights|![](/en-IN/2021/04/202104231830ChollaGarden.jpg)|
