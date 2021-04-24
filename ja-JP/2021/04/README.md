@@ -24,3 +24,4 @@
 202104211500|MississippiRiver|｢ミシシッピ川｣米国 (© NASA)|今日はアースデイ|![](/ja-JP/2021/04/202104211500MississippiRiver.jpg)|
 202104221500|BatlloJordi|｢カサ・バトリョ｣スペイン, バルセロナ (© Marco Arduino/Sime/eStock Photo)|今日はサン・ジョルディの日|![](/ja-JP/2021/04/202104221500BatlloJordi.jpg)|
 202104231500|ChollaGarden|｢チョラサボテンガーデン｣米国, カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)|国立公園ウィーク最終日|![](/ja-JP/2021/04/202104231500ChollaGarden.jpg)|
+202104241500|AdelieDiving|｢アデリーペンギン｣南極大陸 (© Mike Hill/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/04/202104241500AdelieDiving.jpg)|
