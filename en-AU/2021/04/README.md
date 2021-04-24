@@ -24,3 +24,4 @@
 202104210700|SaoJorgeMadeira|Madeira, Portugal (© Hemis/Alamy)|Info|![](/en-AU/2021/04/202104210700SaoJorgeMadeira.jpg)|
 202104220700|MississippiRiver|Mississippi River on the border between Arkansas and Mississippi, USA (© NASA)|Info|![](/en-AU/2021/04/202104220700MississippiRiver.jpg)|
 202104230700|MossyCanyon|Fairy Glen, Betws-y-Coed, Wales, United Kingdom (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/04/202104230700MossyCanyon.jpg)|
+202104240700|ChollaGarden|Cholla Cactus Garden, Joshua Tree National Park, California, USA (© Bryan Jolley/Tandem Stills + Motion)|Info|![](/en-AU/2021/04/202104240700ChollaGarden.jpg)|
