@@ -24,3 +24,4 @@
 202104220400|MississippiRiver|Le fleuve Mississippi, à la frontière entre l'Arkansas et le Mississippi (© NASA)||![](/fr-CA/2021/04/202104220400MississippiRiver.jpg)|
 202104230400|BanffMist|Brume s'élevant au-dessus de la forêt dans le parc national de Banff en Alberta (© Pgiam/Getty Images)||![](/fr-CA/2021/04/202104230400BanffMist.jpg)|
 202104240400|ChollaGarden|Le jardin de cactus Cholla dans le parc national de Joshua Tree en Californie (© Bryan Jolley/Tandem Stills + Motion)||![](/fr-CA/2021/04/202104240400ChollaGarden.jpg)|
+202104250400|AdelieDiving|Manchots Adélie plongeant d'un iceberg en Antarctique (© Mike Hill/Getty Images)||![](/fr-CA/2021/04/202104250400AdelieDiving.jpg)|
