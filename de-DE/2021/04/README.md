@@ -25,3 +25,4 @@
 202104222200|BatlloJordi|Casa Batlló in Barcelona, Katalonien, Spanien (© Marco Arduino/Sime/eStock Photo)|Barcelonas „Drachenhaus“|![](/de-DE/2021/04/202104222200BatlloJordi.jpg)|
 202104232200|ChollaGarden|Cholla Cactus Garden im Joshua-Tree-Nationalpark, Kalifornien, USA (© Bryan Jolley/TANDEM Stills + Motion)|Ein Garten voller stachliger Reize|![](/de-DE/2021/04/202104232200ChollaGarden.jpg)|
 202104242200|AdelieDiving|Adeliepinguine beim Sprung von einem Eisberg, Antarktis (© Mike Hill/Getty Images)|Kunstspringen in der Antarktis|![](/de-DE/2021/04/202104242200AdelieDiving.jpg)|
+202104252200|Wensleydale|Wensleydale, Yorkshire-Dales-Nationalpark, North Yorkshire, England, Großbritannien (© Guy Edwardes/Minden Pictures)|Heimat eines berühmten Käses|![](/de-DE/2021/04/202104252200Wensleydale.jpg)|
