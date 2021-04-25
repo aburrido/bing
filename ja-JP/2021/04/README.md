@@ -25,3 +25,4 @@
 202104221500|BatlloJordi|｢カサ・バトリョ｣スペイン, バルセロナ (© Marco Arduino/Sime/eStock Photo)|今日はサン・ジョルディの日|![](/ja-JP/2021/04/202104221500BatlloJordi.jpg)|
 202104231500|ChollaGarden|｢チョラサボテンガーデン｣米国, カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)|国立公園ウィーク最終日|![](/ja-JP/2021/04/202104231500ChollaGarden.jpg)|
 202104241500|AdelieDiving|｢アデリーペンギン｣南極大陸 (© Mike Hill/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/04/202104241500AdelieDiving.jpg)|
+202104251500|Wensleydale|｢ウェンズリーデール｣英国, ノース・ヨークシャー (© Guy Edwardes/Minden Pictures)|緑の牧場|![](/ja-JP/2021/04/202104251500Wensleydale.jpg)|
