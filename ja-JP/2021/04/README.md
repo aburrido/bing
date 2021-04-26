@@ -26,3 +26,4 @@
 202104231500|ChollaGarden|｢チョラサボテンガーデン｣米国, カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)|国立公園ウィーク最終日|![](/ja-JP/2021/04/202104231500ChollaGarden.jpg)|
 202104241500|AdelieDiving|｢アデリーペンギン｣南極大陸 (© Mike Hill/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/04/202104241500AdelieDiving.jpg)|
 202104251500|Wensleydale|｢ウェンズリーデール｣英国, ノース・ヨークシャー (© Guy Edwardes/Minden Pictures)|緑の牧場|![](/ja-JP/2021/04/202104251500Wensleydale.jpg)|
+202104261500|KusamaPumpkin|｢草間弥生作のオブジェ｣香川県, 直島 (© WireStock/Alamy)|インターナショナルデザインデー|![](/ja-JP/2021/04/202104261500KusamaPumpkin.jpg)|
