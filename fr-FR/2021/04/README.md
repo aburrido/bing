@@ -27,3 +27,4 @@
 202104232200|ChollaGarden|Le Jardin de Cactus Cholla dans le parc national de Joshua Tree, Californie, États-Unis (© Bryan Jolley/TANDEM Stills + Motion)|On touche avec les yeux !|![](/fr-FR/2021/04/202104232200ChollaGarden.jpg)|
 202104242200|AdelieDiving|Manchots Adélie plongeant d’un iceberg en Antactique (© Mike Hill/Getty Images)|Chacun son tour !|![](/fr-FR/2021/04/202104242200AdelieDiving.jpg)|
 202104252200|Wensleydale|Wensleydale, parc national des Yorkshire Dales, Yorkshire du Nord, Angleterre (© Guy Edwardes/Minden Pictures)|Un nuage de lait ?|![](/fr-FR/2021/04/202104252200Wensleydale.jpg)|
+202104262200|KusamaPumpkin|Citrouille géante de l’artiste Yayoi Kusama sur Naoshima, Japon, Août 2018 (© WireStock/Alamy)|Juste une citrouille ?|![](/fr-FR/2021/04/202104262200KusamaPumpkin.jpg)|

@@ -26,3 +26,4 @@
 202104232200|ChollaGarden|Cholla Cactus Garden im Joshua-Tree-Nationalpark, Kalifornien, USA (© Bryan Jolley/TANDEM Stills + Motion)|Ein Garten voller stachliger Reize|![](/de-DE/2021/04/202104232200ChollaGarden.jpg)|
 202104242200|AdelieDiving|Adeliepinguine beim Sprung von einem Eisberg, Antarktis (© Mike Hill/Getty Images)|Kunstspringen in der Antarktis|![](/de-DE/2021/04/202104242200AdelieDiving.jpg)|
 202104252200|Wensleydale|Wensleydale, Yorkshire-Dales-Nationalpark, North Yorkshire, England, Großbritannien (© Guy Edwardes/Minden Pictures)|Heimat eines berühmten Käses|![](/de-DE/2021/04/202104252200Wensleydale.jpg)|
+202104262200|TigerTurtleDuisburg|Vollmond über der „Tiger and Turtle – Magic Mountain“-Landmarke im Angerpark, Duisburg, Nordrhein-Westfalen (© Bernd Mellmann/Alamy Stock Photo)|Vollmond im Looping|![](/de-DE/2021/04/202104262200TigerTurtleDuisburg.jpg)|
