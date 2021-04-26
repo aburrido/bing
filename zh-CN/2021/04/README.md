@@ -26,3 +26,4 @@
 202104231600|ChollaGarden|约书亚树国家公园中的仙人掌花园，加利福尼亚 (© Bryan Jolley/Tandem Stills + Motion)||![](/zh-CN/2021/04/202104231600ChollaGarden.jpg)|
 202104241600|AdelieDiving|从冰山跃入水中的阿德利企鹅，南极 (© Mike Hill/Getty Images)||![](/zh-CN/2021/04/202104241600AdelieDiving.jpg)|
 202104251600|Wensleydale|文斯利代尔，英格兰约克郡谷地国家公园 (© Guy Edwardes/Minden Pictures)||![](/zh-CN/2021/04/202104251600Wensleydale.jpg)|
+202104261600|PrairieCrocus|Sandilands省级森林中被白霜覆盖的番红花，加拿大曼尼托巴 (© Jaynes Gallery/Danita Delimont)||![](/zh-CN/2021/04/202104261600PrairieCrocus.jpg)|
