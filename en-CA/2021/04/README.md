@@ -25,3 +25,4 @@
 202104230400|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|A house of grand scale(s)|![](/en-CA/2021/04/202104230400BatlloJordi.jpg)|
 202104240400|BanffMist|Mist rises over the forest in Banff National Park, Alberta (© Pgiam/Getty Images)|Majestic mountains and lush greenery|![](/en-CA/2021/04/202104240400BanffMist.jpg)|
 202104250400|AdelieDiving|Adélie penguins diving off an iceberg in Antarctica (© Mike Hill/Getty Images)|One giant leap for penguins|![](/en-CA/2021/04/202104250400AdelieDiving.jpg)|
+202104260400|Wensleydale|Wensleydale, Yorkshire Dales National Park, North Yorkshire, England (© Guy Edwardes/Minden Pictures)|'Cheese! We'll go somewhere where there's cheese!'|![](/en-CA/2021/04/202104260400Wensleydale.jpg)|
