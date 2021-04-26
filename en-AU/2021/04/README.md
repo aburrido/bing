@@ -26,3 +26,4 @@
 202104230700|MossyCanyon|Fairy Glen, Betws-y-Coed, Wales, United Kingdom (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/04/202104230700MossyCanyon.jpg)|
 202104240700|ChollaGarden|Cholla Cactus Garden, Joshua Tree National Park, California, USA (© Bryan Jolley/Tandem Stills + Motion)|Info|![](/en-AU/2021/04/202104240700ChollaGarden.jpg)|
 202104250700|AdelieDiving|Adélie penguins, Antarctica (© Mike Hill/Getty Images)|Info|![](/en-AU/2021/04/202104250700AdelieDiving.jpg)|
+202104260700|Wensleydale|Wensleydale, Yorkshire Dales National Park, North Yorkshire, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2021/04/202104260700Wensleydale.jpg)|

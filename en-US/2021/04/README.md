@@ -26,3 +26,4 @@
 202104230700|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|A house of grand scale(s)|![](/en-US/2021/04/202104230700BatlloJordi.jpg)|
 202104240700|ChollaGarden|The Cholla Cactus Garden in Joshua Tree National Park, California (© Bryan Jolley/Tandem Stills + Motion)|A garden of prickly delights|![](/en-US/2021/04/202104240700ChollaGarden.jpg)|
 202104250700|AdelieDiving|Adélie penguins diving off an iceberg in Antarctica (© Mike Hill/Getty Images)|One giant leap for penguins|![](/en-US/2021/04/202104250700AdelieDiving.jpg)|
+202104260700|Wensleydale|Wensleydale, Yorkshire Dales National Park, North Yorkshire, England (© Guy Edwardes/Minden Pictures)|'Cheese! We'll go somewhere where there's cheese!'|![](/en-US/2021/04/202104260700Wensleydale.jpg)|
