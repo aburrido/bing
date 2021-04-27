@@ -28,3 +28,4 @@
 202104242200|AdelieDiving|Manchots Adélie plongeant d’un iceberg en Antactique (© Mike Hill/Getty Images)|Chacun son tour !|![](/fr-FR/2021/04/202104242200AdelieDiving.jpg)|
 202104252200|Wensleydale|Wensleydale, parc national des Yorkshire Dales, Yorkshire du Nord, Angleterre (© Guy Edwardes/Minden Pictures)|Un nuage de lait ?|![](/fr-FR/2021/04/202104252200Wensleydale.jpg)|
 202104262200|KusamaPumpkin|Citrouille géante de l’artiste Yayoi Kusama sur Naoshima, Japon, Août 2018 (© WireStock/Alamy)|Juste une citrouille ?|![](/fr-FR/2021/04/202104262200KusamaPumpkin.jpg)|
+202104272200|GannetsSaltee|Fous de Bassan sur la Great Saltee Island, Irlande (© Danny Green/Minden Pictures)|L’île aux oiseaux|![](/fr-FR/2021/04/202104272200GannetsSaltee.jpg)|

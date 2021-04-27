@@ -27,3 +27,4 @@
 202104242200|AdelieDiving|Adeliepinguine beim Sprung von einem Eisberg, Antarktis (© Mike Hill/Getty Images)|Kunstspringen in der Antarktis|![](/de-DE/2021/04/202104242200AdelieDiving.jpg)|
 202104252200|Wensleydale|Wensleydale, Yorkshire-Dales-Nationalpark, North Yorkshire, England, Großbritannien (© Guy Edwardes/Minden Pictures)|Heimat eines berühmten Käses|![](/de-DE/2021/04/202104252200Wensleydale.jpg)|
 202104262200|TigerTurtleDuisburg|Vollmond über der „Tiger and Turtle – Magic Mountain“-Landmarke im Angerpark, Duisburg, Nordrhein-Westfalen (© Bernd Mellmann/Alamy Stock Photo)|Vollmond im Looping|![](/de-DE/2021/04/202104262200TigerTurtleDuisburg.jpg)|
+202104272200|GannetsSaltee|Basstölpel auf Great Saltee Island, Irland (© Danny Green/Minden Pictures)|Rückkehr ins Nest|![](/de-DE/2021/04/202104272200GannetsSaltee.jpg)|
