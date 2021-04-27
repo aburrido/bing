@@ -27,3 +27,4 @@
 202104241500|AdelieDiving|｢アデリーペンギン｣南極大陸 (© Mike Hill/Getty Images)|今日はペンギンの日|![](/ja-JP/2021/04/202104241500AdelieDiving.jpg)|
 202104251500|Wensleydale|｢ウェンズリーデール｣英国, ノース・ヨークシャー (© Guy Edwardes/Minden Pictures)|緑の牧場|![](/ja-JP/2021/04/202104251500Wensleydale.jpg)|
 202104261500|KusamaPumpkin|｢草間弥生作のオブジェ｣香川県, 直島 (© WireStock/Alamy)|インターナショナルデザインデー|![](/ja-JP/2021/04/202104261500KusamaPumpkin.jpg)|
+202104271500|GannetsSaltee|｢シロカツオドリ｣アイルランド, グレートサルティー島 (© Danny Green/Minden Pictures)|北の海鳥の島|![](/ja-JP/2021/04/202104271500GannetsSaltee.jpg)|
