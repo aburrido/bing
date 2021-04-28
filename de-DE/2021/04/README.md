@@ -28,3 +28,4 @@
 202104252200|Wensleydale|Wensleydale, Yorkshire-Dales-Nationalpark, North Yorkshire, England, Großbritannien (© Guy Edwardes/Minden Pictures)|Heimat eines berühmten Käses|![](/de-DE/2021/04/202104252200Wensleydale.jpg)|
 202104262200|TigerTurtleDuisburg|Vollmond über der „Tiger and Turtle – Magic Mountain“-Landmarke im Angerpark, Duisburg, Nordrhein-Westfalen (© Bernd Mellmann/Alamy Stock Photo)|Vollmond im Looping|![](/de-DE/2021/04/202104262200TigerTurtleDuisburg.jpg)|
 202104272200|GannetsSaltee|Basstölpel auf Great Saltee Island, Irland (© Danny Green/Minden Pictures)|Rückkehr ins Nest|![](/de-DE/2021/04/202104272200GannetsSaltee.jpg)|
+202104282200|Mockhorn|Luftaufnahme von Prielen im Sumpfgebiet der Mockhorn Island State Wildlife Management Area, Virginia, USA (© Shane Gross/Minden Pictures)|Wann kommt die Flut?|![](/de-DE/2021/04/202104282200Mockhorn.jpg)|
