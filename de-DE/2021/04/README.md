@@ -29,3 +29,4 @@
 202104262200|TigerTurtleDuisburg|Vollmond über der „Tiger and Turtle – Magic Mountain“-Landmarke im Angerpark, Duisburg, Nordrhein-Westfalen (© Bernd Mellmann/Alamy Stock Photo)|Vollmond im Looping|![](/de-DE/2021/04/202104262200TigerTurtleDuisburg.jpg)|
 202104272200|GannetsSaltee|Basstölpel auf Great Saltee Island, Irland (© Danny Green/Minden Pictures)|Rückkehr ins Nest|![](/de-DE/2021/04/202104272200GannetsSaltee.jpg)|
 202104282200|Mockhorn|Luftaufnahme von Prielen im Sumpfgebiet der Mockhorn Island State Wildlife Management Area, Virginia, USA (© Shane Gross/Minden Pictures)|Wann kommt die Flut?|![](/de-DE/2021/04/202104282200Mockhorn.jpg)|
+202104292200|SpiritHarlem|Das Wandgemälde „The Spirit of Harlem” von Louis Delsarte in Harlem, New York City, USA (© Pietro Scozzari/agefotostock)|„The Spirit of Harlem” von Louis Delsarte|![](/de-DE/2021/04/202104292200SpiritHarlem.jpg)|

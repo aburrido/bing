@@ -30,3 +30,4 @@
 202104262200|KusamaPumpkin|Citrouille géante de l’artiste Yayoi Kusama sur Naoshima, Japon, Août 2018 (© WireStock/Alamy)|Juste une citrouille ?|![](/fr-FR/2021/04/202104262200KusamaPumpkin.jpg)|
 202104272200|GannetsSaltee|Fous de Bassan sur la Great Saltee Island, Irlande (© Danny Green/Minden Pictures)|L’île aux oiseaux|![](/fr-FR/2021/04/202104272200GannetsSaltee.jpg)|
 202104282200|DanceDay|Répétition du Lac des Cygnes par le Ballet national Tchèque à Prague, République Tchèque, le 25 mars 2019 (© Martin Divisek/EPA-EFE/Shutterstock)|Alors, on danse ?|![](/fr-FR/2021/04/202104282200DanceDay.jpg)|
+202104292200|SpiritHarlem|Fresque de Louis Delsarte à Harlem 'The Spirit of Harlem', New York, États-Unis (© Pietro Scozzari/agefotostock)|L'âme de Harlem|![](/fr-FR/2021/04/202104292200SpiritHarlem.jpg)|
