@@ -30,3 +30,4 @@
 202104271500|GannetsSaltee|｢シロカツオドリ｣アイルランド, グレートサルティー島 (© Danny Green/Minden Pictures)|北の海鳥の島|![](/ja-JP/2021/04/202104271500GannetsSaltee.jpg)|
 202104281500|Mockhorn|｢モクホーン島州野生動物管理地域｣米国, バージニア州 (© Shane Gross/Minden Pictures)|引き潮の三角州|![](/ja-JP/2021/04/202104281500Mockhorn.jpg)|
 202104291500|SpiritHarlem|｢ハーレムのルイス・デルサートの壁画｣米国, ニューヨーク州 (© Pietro Scozzari/agefotostock)|今日は国際ジャズデー|![](/ja-JP/2021/04/202104291500SpiritHarlem.jpg)|
+202104301500|TeaFarmUji|｢宇治の茶畑｣京都府, 宇治市 (© Tuul and Bruno Morandi/Alamy Stock Photo)|今日は八十八夜|![](/ja-JP/2021/04/202104301500TeaFarmUji.jpg)|
