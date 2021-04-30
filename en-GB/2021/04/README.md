@@ -30,3 +30,4 @@
 202104272300|GannetsSaltee|Northern gannets on Great Saltee Island, Ireland (© Danny Green/Minden Pictures)|Coming home to roost|![](/en-GB/2021/04/202104272300GannetsSaltee.jpg)|
 202104282300|Mockhorn|Aerial view of tidal channels in marshland of the Mockhorn Island State Wildlife Management Area, Virginia, USA (© Shane Gross/Minden Pictures)|Tidal tendrils|![](/en-GB/2021/04/202104282300Mockhorn.jpg)|
 202104292300|SpiritHarlem|The Spirit of Harlem mural by Louis Delsarte in Harlem, New York, USA (© Pietro Scozzari/agefotostock)|International Jazz Day|![](/en-GB/2021/04/202104292300SpiritHarlem.jpg)|
+202104302300|GGTeaGarden|Cherry blossoms in bloom at the Japanese Tea Garden in Golden Gate Park, San Francisco, USA (© luisascanio/iStock/Getty Images)|Cherry blossoms in bloom|![](/en-GB/2021/04/202104302300GGTeaGarden.jpg)|
