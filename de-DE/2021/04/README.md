@@ -30,3 +30,4 @@
 202104272200|GannetsSaltee|Basstölpel auf Great Saltee Island, Irland (© Danny Green/Minden Pictures)|Rückkehr ins Nest|![](/de-DE/2021/04/202104272200GannetsSaltee.jpg)|
 202104282200|Mockhorn|Luftaufnahme von Prielen im Sumpfgebiet der Mockhorn Island State Wildlife Management Area, Virginia, USA (© Shane Gross/Minden Pictures)|Wann kommt die Flut?|![](/de-DE/2021/04/202104282200Mockhorn.jpg)|
 202104292200|SpiritHarlem|Das Wandgemälde „The Spirit of Harlem” von Louis Delsarte in Harlem, New York City, USA (© Pietro Scozzari/agefotostock)|„The Spirit of Harlem” von Louis Delsarte|![](/de-DE/2021/04/202104292200SpiritHarlem.jpg)|
+202104302200|GGTeaGarden|Blühende Kirschblüten im Japanischen Teegarten im Golden Gate Park, San Francisco, Kalifornien, USA (© luisascanio/iStock/Getty Images)|Ein Hauch von Japan|![](/de-DE/2021/04/202104302200GGTeaGarden.jpg)|
