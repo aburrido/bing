@@ -30,3 +30,4 @@
 202104271600|GannetsSaltee|大萨尔提岛上的北方塘鹅，爱尔兰 (© Danny Green/Minden Pictures)||![](/zh-CN/2021/04/202104271600GannetsSaltee.jpg)|
 202104281600|Mockhorn|鸟瞰Mockhorn岛野生动植物管理区沼泽地内的潮汐通道，弗吉尼亚 (© Shane Gross/Minden Pictures)||![](/zh-CN/2021/04/202104281600Mockhorn.jpg)|
 202104291600|MontStMich|处于美轮美奂的光影中的圣米歇尔山 (© Mathieu Rivrin/Getty Images)||![](/zh-CN/2021/04/202104291600MontStMich.jpg)|
+202104301600|GGTeaGarden|金门公园中日本茶园里盛开的樱花，加州旧金山  (© luisascanio/iStock/Getty Images)||![](/zh-CN/2021/04/202104301600GGTeaGarden.jpg)|
