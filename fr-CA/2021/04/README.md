@@ -29,3 +29,4 @@
 202104270400|PrairieCrocus|Crocus des prairies dans la forêt provinciale de Sandilands au Manitoba (© Jaynes Gallery/Danita Delimont)||![](/fr-CA/2021/04/202104270400PrairieCrocus.jpg)|
 202104280400|GannetsSaltee|Fous de Bassan sur l'île Great Saltee en Irlande (© Danny Green/Minden Pictures)||![](/fr-CA/2021/04/202104280400GannetsSaltee.jpg)|
 202104290400|Mockhorn|Vue aérienne des chenaux de marée dans les marais de la Mockhorn Island State Wildlife Management Area en Virginie (© Shane Gross/Minden Pictures)||![](/fr-CA/2021/04/202104290400Mockhorn.jpg)|
+202104300400|MossyCanyon|Rivière dans un canyon recouvert de mousse, Betws-y-Coed, Pays de Galles, Royaume-Uni (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2021/04/202104300400MossyCanyon.jpg)|

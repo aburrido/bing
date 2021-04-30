@@ -29,3 +29,4 @@
 202104270400|KusamaPumpkin|Yayoi Kusama's 'Pumpkin' artwork on Naoshima Island, Japan, in August 2018 (© WireStock/Alamy)|'Design for Each and All'|![](/en-CA/2021/04/202104270400KusamaPumpkin.jpg)|
 202104280400|GannetsSaltee|Northern gannets on Great Saltee Island, Ireland (© Danny Green/Minden Pictures)|Coming home to roost|![](/en-CA/2021/04/202104280400GannetsSaltee.jpg)|
 202104290400|PrairieCrocus|Prairie crocus in Sandilands Provincial Forest, Manitoba, Canada (© Jaynes Gallery/Danita Delimont)|Official flower of Manitoba|![](/en-CA/2021/04/202104290400PrairieCrocus.jpg)|
+202104300400|SpiritHarlem|'The Spirit of Harlem' mural by Louis Delsarte in Harlem, New York City (© Pietro Scozzari/agefotostock)|'The Spirit of Harlem' by Louis Delsarte|![](/en-CA/2021/04/202104300400SpiritHarlem.jpg)|
