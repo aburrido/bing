@@ -30,3 +30,4 @@
 202104270700|KusamaPumpkin|Yayoi Kusama's 'Pumpkin' artwork on Naoshima Island, Japan, in August 2018 (© Wirestock/Alamy)|'Design for Each and All'|![](/en-US/2021/04/202104270700KusamaPumpkin.jpg)|
 202104280700|GannetsSaltee|Northern gannets on Great Saltee Island, Ireland (© Danny Green/Minden Pictures)|Coming home to roost|![](/en-US/2021/04/202104280700GannetsSaltee.jpg)|
 202104290700|Mockhorn|Aerial view of tidal channels in marshland of the Mockhorn Island State Wildlife Management Area, Virginia (© Shane Gross/Minden Pictures)|When does the tide come in?|![](/en-US/2021/04/202104290700Mockhorn.jpg)|
+202104300700|SpiritHarlem|'The Spirit of Harlem' mural by Louis Delsarte in Harlem, New York City (© Pietro Scozzari/agefotostock)|'The Spirit of Harlem' by Louis Delsarte|![](/en-US/2021/04/202104300700SpiritHarlem.jpg)|
