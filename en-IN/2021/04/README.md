@@ -30,3 +30,4 @@
 202104271830|GannetsSaltee|Northern gannets on Great Saltee Island, Ireland (© Danny Green/Minden Pictures)|Coming home to roost|![](/en-IN/2021/04/202104271830GannetsSaltee.jpg)|
 202104281830|Mockhorn|Aerial view of tidal channels in marshland of the Mockhorn Island State Wildlife Management Area, Virginia (© Shane Gross/Minden Pictures)|When does the tide come in?|![](/en-IN/2021/04/202104281830Mockhorn.jpg)|
 202104291830|SpiritHarlem|'The Spirit of Harlem' mural by Louis Delsarte in Harlem, New York City (© Pietro Scozzari/agefotostock)|'The Spirit of Harlem' by Louis Delsarte|![](/en-IN/2021/04/202104291830SpiritHarlem.jpg)|
+202104301830|ThosegharWaterfalls|Thoseghar Waterfalls in Maharashtra, India (© Sonali Kumar/iStock/Getty Images Plus)|The roaring waterfalls…|![](/en-IN/2021/04/202104301830ThosegharWaterfalls.jpg)|
