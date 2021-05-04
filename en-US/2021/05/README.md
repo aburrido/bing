@@ -5,3 +5,4 @@
 202105020700|LaughingZebras|Burchell's zebra stallions, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Happy World Laughter Day|![](/en-US/2021/05/202105020700LaughingZebras.jpg)|
 202105030700|TeacherHeart|Poster for Teacher Appreciation Week by 12-year-old Caroline Holt, 7th-grade student at the Bush School, Seattle, Washington (© Caroline Holt/Eugenia Chang)|It's Teacher Appreciation Week|![](/en-US/2021/05/202105030700TeacherHeart.jpg)|
 ||||![](/en-US/2021/05/.jpg)|
+202105040700|StarWarsSeal|Grey seal hitching itself over the beach at Donna Nook, North Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-US/2021/05/202105040700StarWarsSeal.jpg)|
