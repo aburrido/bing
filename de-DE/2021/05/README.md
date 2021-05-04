@@ -4,3 +4,4 @@
 202105012200|LaughingZebras|Steppenzebra, Rietvlei Nature Reserve, Südafrika (© Richard Du Toit/Minden Pictures)|Fröhlicher Weltlachtag|![](/de-DE/2021/05/202105012200LaughingZebras.jpg)|
 202105022200|InselMainauAerial|Luftbild der Insel Mainau im Bodensee, Baden-Württemberg (© Amazing Aerial Agency/Offset by Shutterstock)|Willkommen auf der „Blumeninsel“!|![](/de-DE/2021/05/202105022200InselMainauAerial.jpg)|
 202105032200|StarWarsSeal|Kegelrobbe am Strand von Donna Nook, North Lincolnshire, England, Großbritannien (© Frederic Desmette/Minden Pictures)|Heute ist Star-Wars-Tag!|![](/de-DE/2021/05/202105032200StarWarsSeal.jpg)|
+202105042200|Cholula|Die Pyramide von Cholula, Puebla, Mexiko (© mauritius images GmbH/Alamy)|Der Entstehungsort des Cinco de Mayo|![](/de-DE/2021/05/202105042200Cholula.jpg)|
