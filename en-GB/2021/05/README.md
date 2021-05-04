@@ -4,3 +4,4 @@
 202105012300|LaughingZebras|Burchell's zebra stallions, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|It's World Laughter Day!|![](/en-GB/2021/05/202105012300LaughingZebras.jpg)|
 202105022300|MossyCanyon|Fairy Glen, Betws-y-coed, Conwy (© Robert Harding World Imagery/Offset by Shutterstock)|Carving through Conwy|![](/en-GB/2021/05/202105022300MossyCanyon.jpg)|
 202105032300|StarWarsSeal|Grey seal hitching over a beach in Donna Nook, North Lincolnshire (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-GB/2021/05/202105032300StarWarsSeal.jpg)|
+202105042300|Cholula|The Great Pyramid of Cholula, in Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|What’s hidden beneath this church?|![](/en-GB/2021/05/202105042300Cholula.jpg)|
