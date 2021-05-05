@@ -5,3 +5,4 @@
 202105030400|InselMainauAerial|Vue aérienne de l'île de Mainau sur le lac de Constance, Allemagne (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/05/202105030400InselMainauAerial.jpg)|
 ||||![](/fr-CA/2021/05/.jpg)|
 202105040400|StarWarsSeal|Phoque gris se déplaçant sur une plage à Donna Nook, North Lincolnshire, Angleterre (© Frederic Desmette/Minden Pictures)||![](/fr-CA/2021/05/202105040400StarWarsSeal.jpg)|
+202105050400|Cholula|La grande pyramide de Cholula à Cholula, Puebla, Mexique (© mauritius images GmbH/Alamy)||![](/fr-CA/2021/05/202105050400Cholula.jpg)|
