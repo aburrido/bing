@@ -6,3 +6,4 @@
 202105030700|TeacherHeart|Poster for Teacher Appreciation Week by 12-year-old Caroline Holt, 7th-grade student at the Bush School, Seattle, Washington (© Caroline Holt/Eugenia Chang)|It's Teacher Appreciation Week|![](/en-US/2021/05/202105030700TeacherHeart.jpg)|
 ||||![](/en-US/2021/05/.jpg)|
 202105040700|StarWarsSeal|Grey seal hitching itself over the beach at Donna Nook, North Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-US/2021/05/202105040700StarWarsSeal.jpg)|
+202105050700|Cholula|The Great Pyramid of Cholula, in Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|The birthplace of Cinco de Mayo|![](/en-US/2021/05/202105050700Cholula.jpg)|

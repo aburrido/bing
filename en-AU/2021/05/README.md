@@ -5,3 +5,4 @@
 202105020700|LaughingZebras|Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Info|![](/en-AU/2021/05/202105020700LaughingZebras.jpg)|
 202105030700|InselMainauAerial|Mainau, Lake Constance, Germany (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/05/202105030700InselMainauAerial.jpg)|
 202105040700|StarWarsSeal|Grey seal in Donna Nook, Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Info|![](/en-AU/2021/05/202105040700StarWarsSeal.jpg)|
+202105050700|Cholula|The Great Pyramid of Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|Info|![](/en-AU/2021/05/202105050700Cholula.jpg)|
