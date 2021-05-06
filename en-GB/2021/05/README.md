@@ -6,3 +6,4 @@
 202105032300|StarWarsSeal|Grey seal hitching over a beach in Donna Nook, North Lincolnshire (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-GB/2021/05/202105032300StarWarsSeal.jpg)|
 202105042300|Cholula|The Great Pyramid of Cholula, in Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|What’s hidden beneath this church?|![](/en-GB/2021/05/202105042300Cholula.jpg)|
 202105052300|ThosegharWaterfalls|Thoseghar Waterfalls in Maharashtra, India (© Sonali Kumar/iStock/Getty Images Plus)|Thundering through the forest|![](/en-GB/2021/05/202105052300ThosegharWaterfalls.jpg)|
+202105062300|MaineWetland|Norcross Brook and wetlands, Maine, USA (© Aaron Black-Schmidt/Tandem Stills + Motion)|Deep in the wetlands|![](/en-GB/2021/05/202105062300MaineWetland.jpg)|
