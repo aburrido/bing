@@ -6,3 +6,4 @@
 202105032200|StarWarsSeal|Kegelrobbe am Strand von Donna Nook, North Lincolnshire, England, Großbritannien (© Frederic Desmette/Minden Pictures)|Heute ist Star-Wars-Tag!|![](/de-DE/2021/05/202105032200StarWarsSeal.jpg)|
 202105042200|Cholula|Die Pyramide von Cholula, Puebla, Mexiko (© mauritius images GmbH/Alamy)|Der Entstehungsort des Cinco de Mayo|![](/de-DE/2021/05/202105042200Cholula.jpg)|
 202105052200|ThosegharWaterfalls|Thoseghar-Wasserfälle bei Satara, Maharashtra, Indien (© Sonali Kumar/iStock/Getty Images Plus)|Es grünt so grün…|![](/de-DE/2021/05/202105052200ThosegharWaterfalls.jpg)|
+202105062200|Guatape|Luftbild von El Peñón de Guatapé, Antioquia, Kolumbien (© Amazing Aerial Agency/Offset by Shutterstock)|Ein grandioser Monolith|![](/de-DE/2021/05/202105062200Guatape.jpg)|
