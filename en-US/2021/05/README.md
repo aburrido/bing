@@ -7,3 +7,4 @@
 ||||![](/en-US/2021/05/.jpg)|
 202105040700|StarWarsSeal|Grey seal hitching itself over the beach at Donna Nook, North Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-US/2021/05/202105040700StarWarsSeal.jpg)|
 202105050700|Cholula|The Great Pyramid of Cholula, in Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|The birthplace of Cinco de Mayo|![](/en-US/2021/05/202105050700Cholula.jpg)|
+202105060700|NurseMask|'Now & Forever,' a mural by Tristan Eaton honoring health care workers, May 11, 2020, in New York City (© Timothy A. Clary/AFP via Getty Images)|Why you should thank a nurse today|![](/en-US/2021/05/202105060700NurseMask.jpg)|
