@@ -5,3 +5,4 @@
 202105030400|InselMainauAerial|Aerial view of the island of Mainau on Lake Constance, Germany (© Amazing Aerial Agency/Offset by Shutterstock)|The island of flowers|![](/en-CA/2021/05/202105030400InselMainauAerial.jpg)|
 202105040400|StarWarsSeal|Grey seal hitching over a beach in Donna Nook, North Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-CA/2021/05/202105040400StarWarsSeal.jpg)|
 202105050400|Cholula|The Great Pyramid of Cholula, in Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|The birthplace of Cinco de Mayo|![](/en-CA/2021/05/202105050400Cholula.jpg)|
+202105060400|ThosegharWaterfalls|Thoseghar Waterfalls in Maharashtra, India (© Sonali Kumar/iStock/Getty Images Plus)|The roaring waterfalls…|![](/en-CA/2021/05/202105060400ThosegharWaterfalls.jpg)|

@@ -6,3 +6,4 @@
 ||||![](/fr-CA/2021/05/.jpg)|
 202105040400|StarWarsSeal|Phoque gris se déplaçant sur une plage à Donna Nook, North Lincolnshire, Angleterre (© Frederic Desmette/Minden Pictures)||![](/fr-CA/2021/05/202105040400StarWarsSeal.jpg)|
 202105050400|Cholula|La grande pyramide de Cholula à Cholula, Puebla, Mexique (© mauritius images GmbH/Alamy)||![](/fr-CA/2021/05/202105050400Cholula.jpg)|
+202105060400|ThosegharWaterfalls|Chutes Thoseghar à Maharashtra en Inde (© Sonali Kumar/iStock/Getty Images Plus)||![](/fr-CA/2021/05/202105060400ThosegharWaterfalls.jpg)|
