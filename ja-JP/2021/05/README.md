@@ -6,3 +6,4 @@
 202105031500|StarWarsSeal|｢ドナヌックのハイイロアザラシ｣英国, ノースリンカーンシャー (© Frederic Desmette/Minden Pictures)|今日はスター・ウォーズの日|![](/ja-JP/2021/05/202105031500StarWarsSeal.jpg)|
 202105041500|Cholula|｢トラチウアルテペトル｣メキシコ, プエブラ州 (© mauritius images GmbH/Alamy)|今日はシンコ・デ・マヨ|![](/ja-JP/2021/05/202105041500Cholula.jpg)|
 202105051500|Kamikouchi|｢上高地｣長野県 (© sadao/Shutterstock)|残雪と新緑の競演|![](/ja-JP/2021/05/202105051500Kamikouchi.jpg)|
+202105061500|MaineWetland|｢ムースヘッド湖そばの湿地｣米国, メイン州 (© Aaron Black-Schmidt/Tandem Stills + Motion)|今月は全米湿地月間|![](/ja-JP/2021/05/202105061500MaineWetland.jpg)|
