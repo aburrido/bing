@@ -6,3 +6,4 @@
 202105031830|StarWarsSeal|Grey seal hitching over a beach in Donna Nook, North Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Happy Star Wars Day!|![](/en-IN/2021/05/202105031830StarWarsSeal.jpg)|
 202105041830|Cholula|The Great Pyramid of Cholula, in Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|The birthplace of Cinco de Mayo|![](/en-IN/2021/05/202105041830Cholula.jpg)|
 202105051830|Reynisfjara|The basalt rock formations of Reynisdrangar on Reynisfjara Beach, Iceland (© Cavan Images/Getty Images)|Rising up from the black sand like rock gods|![](/en-IN/2021/05/202105051830Reynisfjara.jpg)|
+202105061830|MaineWetland|Norcross Brook and wetlands near Moosehead Lake in Piscataquis County, Maine (© Aaron Black-Schmidt/Tandem Stills + Motion)|Deep in the North Woods wetlands|![](/en-IN/2021/05/202105061830MaineWetland.jpg)|
