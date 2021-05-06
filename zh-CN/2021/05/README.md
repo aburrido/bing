@@ -6,3 +6,4 @@
 202105031600|StarWarsSeal|正爬上唐娜·诺克沙滩的灰海豹，英格兰北林肯郡 (© Frederic Desmette/Minden Pictures)||![](/zh-CN/2021/05/202105031600StarWarsSeal.jpg)|
 202105041600|Cholula|乔鲁拉大金字塔，墨西哥乔鲁拉 (© mauritius images GmbH/Alamy)||![](/zh-CN/2021/05/202105041600Cholula.jpg)|
 202105051600|ThosegharWaterfalls|托塞加尔瀑布，印度马哈拉施特拉邦 (© Sonali Kumar/iStock/Getty Images Plus)||![](/zh-CN/2021/05/202105051600ThosegharWaterfalls.jpg)|
+202105061600|MaineWetland|穆斯黑德湖附近的Norcross Brook河与湿地，缅因州皮斯卡特奎斯 (© Aaron Black-Schmidt/Tandem Stills + Motion)||![](/zh-CN/2021/05/202105061600MaineWetland.jpg)|
