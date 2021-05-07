@@ -7,3 +7,4 @@
 202105040700|StarWarsSeal|Grey seal in Donna Nook, Lincolnshire, England (© Frederic Desmette/Minden Pictures)|Info|![](/en-AU/2021/05/202105040700StarWarsSeal.jpg)|
 202105050700|Cholula|The Great Pyramid of Cholula, Puebla, Mexico (© mauritius images GmbH/Alamy)|Info|![](/en-AU/2021/05/202105050700Cholula.jpg)|
 202105060700|ThosegharWaterfalls|Thoseghar waterfalls in Maharashtra, India (© Sonali Kumar/iStock/Getty Images Plus)|Info|![](/en-AU/2021/05/202105060700ThosegharWaterfalls.jpg)|
+202105070700|MaineWetland|Wetlands near Moosehead Lake in Maine, USA (© Aaron Black-Schmidt/Tandem Stills + Motion)|Info|![](/en-AU/2021/05/202105070700MaineWetland.jpg)|
