@@ -8,3 +8,4 @@
 202105052200|ThosegharWaterfalls|Thoseghar-Wasserfälle bei Satara, Maharashtra, Indien (© Sonali Kumar/iStock/Getty Images Plus)|Es grünt so grün…|![](/de-DE/2021/05/202105052200ThosegharWaterfalls.jpg)|
 202105062200|Guatape|Luftbild von El Peñón de Guatapé, Antioquia, Kolumbien (© Amazing Aerial Agency/Offset by Shutterstock)|Ein grandioser Monolith|![](/de-DE/2021/05/202105062200Guatape.jpg)|
 202105072200|LimosaLimosa|Uferschnepfen, Niederlande (© Edward van Altena/Minden Pictures)|Weltzugvogeltag|![](/de-DE/2021/05/202105072200LimosaLimosa.jpg)|
+202105082200|OtterMom|Seeotterweibchen mit Nachwuchs, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)|Alles Gute zum Muttertag!|![](/de-DE/2021/05/202105082200OtterMom.jpg)|
