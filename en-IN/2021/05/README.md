@@ -8,3 +8,4 @@
 202105051830|Reynisfjara|The basalt rock formations of Reynisdrangar on Reynisfjara Beach, Iceland (© Cavan Images/Getty Images)|Rising up from the black sand like rock gods|![](/en-IN/2021/05/202105051830Reynisfjara.jpg)|
 202105061830|MaineWetland|Norcross Brook and wetlands near Moosehead Lake in Piscataquis County, Maine (© Aaron Black-Schmidt/Tandem Stills + Motion)|Deep in the North Woods wetlands|![](/en-IN/2021/05/202105061830MaineWetland.jpg)|
 202105071830|LimosaLimosa|Black-tailed godwits, Netherlands (© Edward van Altena/Minden Pictures)|World Migratory Bird Day|![](/en-IN/2021/05/202105071830LimosaLimosa.jpg)|
+202105081830|OtterMom|Sea otter mother and newborn pup, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)|Happy Mother's Day!|![](/en-IN/2021/05/202105081830OtterMom.jpg)|
