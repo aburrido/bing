@@ -8,3 +8,4 @@
 202105050400|Cholula|La grande pyramide de Cholula à Cholula, Puebla, Mexique (© mauritius images GmbH/Alamy)||![](/fr-CA/2021/05/202105050400Cholula.jpg)|
 202105060400|ThosegharWaterfalls|Chutes Thoseghar à Maharashtra en Inde (© Sonali Kumar/iStock/Getty Images Plus)||![](/fr-CA/2021/05/202105060400ThosegharWaterfalls.jpg)|
 202105070400|TamihiBC|Ruisseau Little Tamihi près de Chilliwack, C.-B. (© Jason Wilde/TANDEM Stills + Motion)||![](/fr-CA/2021/05/202105070400TamihiBC.jpg)|
+202105080400|LimosaLimosa|Barges à queue noire, Pays-Bas (© Edward van Altena/Minden Pictures)||![](/fr-CA/2021/05/202105080400LimosaLimosa.jpg)|
