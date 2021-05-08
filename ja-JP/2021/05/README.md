@@ -8,3 +8,4 @@
 202105051500|Kamikouchi|｢上高地｣長野県 (© sadao/Shutterstock)|残雪と新緑の競演|![](/ja-JP/2021/05/202105051500Kamikouchi.jpg)|
 202105061500|MaineWetland|｢ムースヘッド湖そばの湿地｣米国, メイン州 (© Aaron Black-Schmidt/Tandem Stills + Motion)|今月は全米湿地月間|![](/ja-JP/2021/05/202105061500MaineWetland.jpg)|
 202105071500|LimosaLimosa|｢オグロシギ｣オランダ (© Edward van Altena/Minden Pictures)|今日は渡り鳥の日|![](/ja-JP/2021/05/202105071500LimosaLimosa.jpg)|
+202105081500|OtterMom|｢ラッコの親子｣米国, カリフォルニア州 (© Suzi Eszterhas/Minden Pictures)|今日は母の日|![](/ja-JP/2021/05/202105081500OtterMom.jpg)|
