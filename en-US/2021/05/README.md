@@ -10,3 +10,4 @@
 202105060700|NurseMask|'Now & Forever,' a mural by Tristan Eaton honoring health care workers, May 11, 2020, in New York City (© Timothy A. Clary/AFP via Getty Images)|Why you should thank a nurse today|![](/en-US/2021/05/202105060700NurseMask.jpg)|
 202105070700|MaineWetland|Norcross Brook and wetlands near Moosehead Lake in Piscataquis County, Maine (© Aaron Black-Schmidt/Tandem Stills + Motion)|Deep in the North Woods wetlands|![](/en-US/2021/05/202105070700MaineWetland.jpg)|
 202105080700|LimosaLimosa|Black-tailed godwits, Netherlands (© Edward van Altena/Minden Pictures)|World Migratory Bird Day|![](/en-US/2021/05/202105080700LimosaLimosa.jpg)|
+202105090700|OtterMom|Sea otter mother and newborn pup, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)|Happy Mother's Day!|![](/en-US/2021/05/202105090700OtterMom.jpg)|
