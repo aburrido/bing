@@ -9,3 +9,4 @@
 202105061830|MaineWetland|Norcross Brook and wetlands near Moosehead Lake in Piscataquis County, Maine (© Aaron Black-Schmidt/Tandem Stills + Motion)|Deep in the North Woods wetlands|![](/en-IN/2021/05/202105061830MaineWetland.jpg)|
 202105071830|LimosaLimosa|Black-tailed godwits, Netherlands (© Edward van Altena/Minden Pictures)|World Migratory Bird Day|![](/en-IN/2021/05/202105071830LimosaLimosa.jpg)|
 202105081830|OtterMom|Sea otter mother and newborn pup, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)|Happy Mother's Day!|![](/en-IN/2021/05/202105081830OtterMom.jpg)|
+202105091830|AmerFort|Sattais Kacheri at Amer Fort in Jaipur, India (© YURY TARANIK/Shutterstock)|Sattais Kacheri in Amer Fort|![](/en-IN/2021/05/202105091830AmerFort.jpg)|
