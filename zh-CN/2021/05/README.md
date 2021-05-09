@@ -9,3 +9,4 @@
 202105061600|MaineWetland|穆斯黑德湖附近的Norcross Brook河与湿地，缅因州皮斯卡特奎斯 (© Aaron Black-Schmidt/Tandem Stills + Motion)||![](/zh-CN/2021/05/202105061600MaineWetland.jpg)|
 202105071600|LimosaLimosa|黑尾塍鹬，荷兰 (© Edward van Altena/Minden Pictures)||![](/zh-CN/2021/05/202105071600LimosaLimosa.jpg)|
 202105081600|OtterMom|海獭妈妈和新生的幼崽，加利福尼亚州蒙特雷湾 (© Suzi Eszterhas/Minden Pictures)||![](/zh-CN/2021/05/202105081600OtterMom.jpg)|
+202105091600|TulpenMiesbach|米斯巴赫的郁金香田，德国巴伐利亚州 (© Rüdiger Hess/geo-select FotoArt)||![](/zh-CN/2021/05/202105091600TulpenMiesbach.jpg)|
