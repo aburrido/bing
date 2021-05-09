@@ -9,3 +9,4 @@
 202105062200|Guatape|Luftbild von El Peñón de Guatapé, Antioquia, Kolumbien (© Amazing Aerial Agency/Offset by Shutterstock)|Ein grandioser Monolith|![](/de-DE/2021/05/202105062200Guatape.jpg)|
 202105072200|LimosaLimosa|Uferschnepfen, Niederlande (© Edward van Altena/Minden Pictures)|Weltzugvogeltag|![](/de-DE/2021/05/202105072200LimosaLimosa.jpg)|
 202105082200|OtterMom|Seeotterweibchen mit Nachwuchs, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)|Alles Gute zum Muttertag!|![](/de-DE/2021/05/202105082200OtterMom.jpg)|
+202105092200|TulpenMiesbach|Tulpenfelder bei Miesbach, Bayern (© Rüdiger Hess/geo-select FotoArt)|Aus der Insektenperspektive|![](/de-DE/2021/05/202105092200TulpenMiesbach.jpg)|
