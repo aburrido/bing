@@ -9,3 +9,4 @@
 202105070400|TamihiBC|Tamihi Creek near Chilliwack, B.C. (© Jason Wilde/TANDEM Stills + Motion)|A scenic recreation site|![](/en-CA/2021/05/202105070400TamihiBC.jpg)|
 202105080400|LimosaLimosa|Black-tailed godwits, Netherlands (© Edward van Altena/Minden Pictures)|World Migratory Bird Day|![](/en-CA/2021/05/202105080400LimosaLimosa.jpg)|
 202105090400|OtterMom|Sea otter mother and newborn pup, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)|Happy Mother's Day!|![](/en-CA/2021/05/202105090400OtterMom.jpg)|
+202105100400|FrillyTulip|A pink fringed tulip in Ottawa (© colimachon/Getty Images)|A soft, frilly tulip|![](/en-CA/2021/05/202105100400FrillyTulip.jpg)|
