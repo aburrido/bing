@@ -11,3 +11,4 @@
 202105070700|MaineWetland|Norcross Brook and wetlands near Moosehead Lake in Piscataquis County, Maine (© Aaron Black-Schmidt/Tandem Stills + Motion)|Deep in the North Woods wetlands|![](/en-US/2021/05/202105070700MaineWetland.jpg)|
 202105080700|LimosaLimosa|Black-tailed godwits, Netherlands (© Edward van Altena/Minden Pictures)|World Migratory Bird Day|![](/en-US/2021/05/202105080700LimosaLimosa.jpg)|
 202105090700|OtterMom|Sea otter mother and newborn pup, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)|Happy Mother's Day!|![](/en-US/2021/05/202105090700OtterMom.jpg)|
+202105100700|Hokulea|The Hōkūle'a, a traditional Hawaiian voyaging canoe, departs for a 3-year voyage from Honolulu, Hawaii, on May 17, 2014 (© Reuters/Alamy)|An ancient sailing tradition takes to the water|![](/en-US/2021/05/202105100700Hokulea.jpg)|
