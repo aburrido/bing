@@ -11,3 +11,4 @@
 202105082200|MontStMich|Le Mont Saint Michel dans une lumière fantastique (© Mathieu Rivrin/Getty Images)|Mont des Merveilles|![](/fr-FR/2021/05/202105082200MontStMich.jpg)|
 202105092200|TulpenMiesbach|Champ de tulipes à  Miesbach, Bavière, Allemagne (© Rüdiger Hess/geo-select FotoArt)|Messagers du printemps|![](/fr-FR/2021/05/202105092200TulpenMiesbach.jpg)|
 202105102200|GrinnellGlacier|Lac Grinnell, Parc national de Glacier, Montana, États-Unis (© Pung/Shutterstock)|Le joyau du continent|![](/fr-FR/2021/05/202105102200GrinnellGlacier.jpg)|
+202105112200|LimerickDay|Vue sur le quartier historique de Limerick, Irlande (© Piotr Machowczyk/Shutterstock)|Balade irlandaise|![](/fr-FR/2021/05/202105112200LimerickDay.jpg)|

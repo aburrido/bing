@@ -11,3 +11,4 @@
 202105082200|OtterMom|Seeotterweibchen mit Nachwuchs, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)|Alles Gute zum Muttertag!|![](/de-DE/2021/05/202105082200OtterMom.jpg)|
 202105092200|TulpenMiesbach|Tulpenfelder bei Miesbach, Bayern (© Rüdiger Hess/geo-select FotoArt)|Aus der Insektenperspektive|![](/de-DE/2021/05/202105092200TulpenMiesbach.jpg)|
 202105102200|GrinnellGlacier|Grinnell Lake, Glacier-Nationalpark, Montana, USA (© Pung/Shutterstock)|„Krone des Kontinents“|![](/de-DE/2021/05/202105102200GrinnellGlacier.jpg)|
+202105112200|LimerickDay|Blick über den Shannon in Limerick, County Limerick, Irland (© Piotr Machowczyk/Shutterstock)|Eine Stadt wie ein Gedicht|![](/de-DE/2021/05/202105112200LimerickDay.jpg)|
