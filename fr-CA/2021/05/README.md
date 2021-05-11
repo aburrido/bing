@@ -11,3 +11,4 @@
 202105080400|LimosaLimosa|Barges à queue noire, Pays-Bas (© Edward van Altena/Minden Pictures)||![](/fr-CA/2021/05/202105080400LimosaLimosa.jpg)|
 202105090400|OtterMom|Maman loutre de mer et son dernier-né, baie de Monterey, Californie (© Suzi Eszterhas/Minden Pictures)||![](/fr-CA/2021/05/202105090400OtterMom.jpg)|
 202105100400|TulpenMiesbach|Champ de tulipes à Miesbach, Bavière, Allemagne (© Rüdiger Hess/geo-select FotoArt)||![](/fr-CA/2021/05/202105100400TulpenMiesbach.jpg)|
+202105110400|GrinnellGlacier|Lac Grinnell, Parc national de Glacier, Montana (© Pung/Shutterstock)||![](/fr-CA/2021/05/202105110400GrinnellGlacier.jpg)|
