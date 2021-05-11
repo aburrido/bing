@@ -11,3 +11,4 @@
 202105082300|ButtermereSunset|Sunset over Buttermere, Lake District, Cumbria (© Stewart Smith/Alamy)|Celebrating 70 years of the Lakes|![](/en-GB/2021/05/202105082300ButtermereSunset.jpg)|
 202105092300|InselMainauAerial|Aerial view of Mainau island on Lake Constance, Germany (© Amazing Aerial Agency/Offset by Shutterstock)|The flower island of Lake Constance|![](/en-GB/2021/05/202105092300InselMainauAerial.jpg)|
 202105102300|GrinnellGlacier|Grinnell Lake, Glacier National Park, Montana, USA (© Pung/Shutterstock)|Big skies and glacial lakes|![](/en-GB/2021/05/202105102300GrinnellGlacier.jpg)|
+202105112300|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|Rhyme time in Limerick|![](/en-GB/2021/05/202105112300LimerickDay.jpg)|
