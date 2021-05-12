@@ -12,3 +12,4 @@
 202105091600|TulpenMiesbach|米斯巴赫的郁金香田，德国巴伐利亚州 (© Rüdiger Hess/geo-select FotoArt)||![](/zh-CN/2021/05/202105091600TulpenMiesbach.jpg)|
 202105101600|GrinnellGlacier|格林内尔湖，蒙大拿州冰川国家公园 (© Pung/Shutterstock)||![](/zh-CN/2021/05/202105101600GrinnellGlacier.jpg)|
 202105111600|LimerickDay|香浓河对岸的景色，爱尔兰利默里克 (© Piotr Machowczyk/Shutterstock)||![](/zh-CN/2021/05/202105111600LimerickDay.jpg)|
+202105121600|ShikisaiBiei|美瑛町的四季彩之丘，日本 (© Tanya Jones/Shutterstock)||![](/zh-CN/2021/05/202105121600ShikisaiBiei.jpg)|
