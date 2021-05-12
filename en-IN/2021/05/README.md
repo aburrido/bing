@@ -12,3 +12,4 @@
 202105091830|AmerFort|Sattais Kacheri at Amer Fort in Jaipur, India (© YURY TARANIK/Shutterstock)|Sattais Kacheri in Amer Fort|![](/en-IN/2021/05/202105091830AmerFort.jpg)|
 202105101830|GrinnellGlacier|Grinnell Lake, Glacier National Park, Montana (© Pung/Shutterstock)|'The Crown of the Continent'|![](/en-IN/2021/05/202105101830GrinnellGlacier.jpg)|
 202105111830|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|A visit to Limerick on Limerick Day|![](/en-IN/2021/05/202105111830LimerickDay.jpg)|
+202105121830|ShikisaiBiei|Shikisai no Oka flower gardens in Biei, Japan (© Tanya Jones/Shutterstock)|Hues of Hokkaido|![](/en-IN/2021/05/202105121830ShikisaiBiei.jpg)|
