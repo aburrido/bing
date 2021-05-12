@@ -12,3 +12,4 @@
 202105090700|OtterMom|Sea otter mother and pup, Monterey Bay, California, USA (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2021/05/202105090700OtterMom.jpg)|
 202105100700|TulpenMiesbach|Tulip field in Miesbach, Bavaria, Germany (© Rüdiger Hess/geo-select FotoArt)|Info|![](/en-AU/2021/05/202105100700TulpenMiesbach.jpg)|
 202105110700|GrinnellGlacier|Grinnell Lake, Glacier National Park, Montana, USA (© Pung/Shutterstock)|Info|![](/en-AU/2021/05/202105110700GrinnellGlacier.jpg)|
+202105120700|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|Info|![](/en-AU/2021/05/202105120700LimerickDay.jpg)|
