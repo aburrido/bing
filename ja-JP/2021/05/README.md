@@ -12,3 +12,4 @@
 202105091500|Buncho|｢田んぼの文鳥｣タイ, バンコク (© PanuRuangjan/Getty Images)|今週は愛鳥週間|![](/ja-JP/2021/05/202105091500Buncho.jpg)|
 202105101500|GrinnellGlacier|｢グレイシャー国立公園のグリネル氷河｣米国, モンタナ州 (© Pung/Shutterstock)|グレイシャー国立公園創設記念日|![](/ja-JP/2021/05/202105101500GrinnellGlacier.jpg)|
 202105111500|LimerickDay|｢リムリックのシャノン川｣アイルランド (© Piotr Machowczyk/Shutterstock)|今日はリムリックの日|![](/ja-JP/2021/05/202105111500LimerickDay.jpg)|
+202105121500|ShikisaiBiei|｢四季彩の丘｣北海道, 美瑛町 (© Tanya Jones/Shutterstock)|色とりどりの花のじゅうたん|![](/ja-JP/2021/05/202105121500ShikisaiBiei.jpg)|
