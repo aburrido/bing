@@ -13,3 +13,4 @@
 202105100400|TulpenMiesbach|Champ de tulipes à Miesbach, Bavière, Allemagne (© Rüdiger Hess/geo-select FotoArt)||![](/fr-CA/2021/05/202105100400TulpenMiesbach.jpg)|
 202105110400|GrinnellGlacier|Lac Grinnell, Parc national de Glacier, Montana (© Pung/Shutterstock)||![](/fr-CA/2021/05/202105110400GrinnellGlacier.jpg)|
 202105120400|LimerickDay|Vue sur le fleuve Shannon à Limerick, comté de Limerick, Irlande (© Piotr Machowczyk/Shutterstock)||![](/fr-CA/2021/05/202105120400LimerickDay.jpg)|
+202105130400|ShikisaiBiei|Les champs de fleurs Shikisai no Oka à Biei au Japon (© Tanya Jones/Shutterstock)||![](/fr-CA/2021/05/202105130400ShikisaiBiei.jpg)|
