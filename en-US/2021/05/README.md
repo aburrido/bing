@@ -14,3 +14,4 @@
 202105100700|Hokulea|The Hōkūle'a, a traditional Hawaiian voyaging canoe, departs for a 3-year voyage from Honolulu, Hawaii, on May 17, 2014 (© Reuters/Alamy)|An ancient sailing tradition takes to the water|![](/en-US/2021/05/202105100700Hokulea.jpg)|
 202105110700|GrinnellGlacier|Grinnell Lake, Glacier National Park, Montana (© Pung/Shutterstock)|'The Crown of the Continent'|![](/en-US/2021/05/202105110700GrinnellGlacier.jpg)|
 202105120700|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|A visit to Limerick on Limerick Day|![](/en-US/2021/05/202105120700LimerickDay.jpg)|
+202105130700|ShikisaiBiei|Shikisai no Oka flower gardens in Biei, Japan (© Tanya Jones/Shutterstock)|Hues of Hokkaido|![](/en-US/2021/05/202105130700ShikisaiBiei.jpg)|
