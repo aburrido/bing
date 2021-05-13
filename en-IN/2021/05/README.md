@@ -13,3 +13,4 @@
 202105101830|GrinnellGlacier|Grinnell Lake, Glacier National Park, Montana (© Pung/Shutterstock)|'The Crown of the Continent'|![](/en-IN/2021/05/202105101830GrinnellGlacier.jpg)|
 202105111830|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|A visit to Limerick on Limerick Day|![](/en-IN/2021/05/202105111830LimerickDay.jpg)|
 202105121830|ShikisaiBiei|Shikisai no Oka flower gardens in Biei, Japan (© Tanya Jones/Shutterstock)|Hues of Hokkaido|![](/en-IN/2021/05/202105121830ShikisaiBiei.jpg)|
+202105131830|AltaFloresta|Amazon rainforest with fog in the morning near Alta Floresta, Mato Grosso, Brazil (© Pulsar Imagens/Alamy)|A misty morning in Brazil|![](/en-IN/2021/05/202105131830AltaFloresta.jpg)|
