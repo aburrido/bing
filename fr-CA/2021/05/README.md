@@ -14,3 +14,4 @@
 202105110400|GrinnellGlacier|Lac Grinnell, Parc national de Glacier, Montana (© Pung/Shutterstock)||![](/fr-CA/2021/05/202105110400GrinnellGlacier.jpg)|
 202105120400|LimerickDay|Vue sur le fleuve Shannon à Limerick, comté de Limerick, Irlande (© Piotr Machowczyk/Shutterstock)||![](/fr-CA/2021/05/202105120400LimerickDay.jpg)|
 202105130400|ShikisaiBiei|Les champs de fleurs Shikisai no Oka à Biei au Japon (© Tanya Jones/Shutterstock)||![](/fr-CA/2021/05/202105130400ShikisaiBiei.jpg)|
+202105140400|AltaFloresta|Forêt amazonienne sous le brouillard matinal près d’Alta Floresta, Mato Grosso, Brésil (© Pulsar Imagens/Alamy)||![](/fr-CA/2021/05/202105140400AltaFloresta.jpg)|
