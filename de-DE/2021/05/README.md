@@ -14,3 +14,4 @@
 202105112200|LimerickDay|Blick über den Shannon in Limerick, County Limerick, Irland (© Piotr Machowczyk/Shutterstock)|Eine Stadt wie ein Gedicht|![](/de-DE/2021/05/202105112200LimerickDay.jpg)|
 202105122200|ShikisaiBiei|Der Blumengarten Shikisai no Oka in Biei, Japan (© Tanya Jones/Shutterstock)|Blühendes Hokkaido|![](/de-DE/2021/05/202105122200ShikisaiBiei.jpg)|
 202105132200|AltaFloresta|Amazonas-Regenwald im Morgennebel nahe Alta Floresta, Mato Grosso, Brasilien (© Pulsar Imagens/Alamy)|Ein nebliger Morgen in Brasilien|![](/de-DE/2021/05/202105132200AltaFloresta.jpg)|
+202105142200|ParanalStars|Teleskope und Sternspuren am Paranal-Observatorium, Atacamawüste, Chile (© Matteo Omied/Alamy)|Wolkenlos mit Aussicht auf Lichtschwerter|![](/de-DE/2021/05/202105142200ParanalStars.jpg)|

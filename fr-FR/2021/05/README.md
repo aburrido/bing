@@ -14,3 +14,4 @@
 202105112200|LimerickDay|Vue sur le quartier historique de Limerick, Irlande (© Piotr Machowczyk/Shutterstock)|Balade irlandaise|![](/fr-FR/2021/05/202105112200LimerickDay.jpg)|
 202105122200|ShikisaiBiei|Les jardins de Shikisai no Oka près de Biei, Japon (© Tanya Jones/Shutterstock)|Le printemps, c’est ici|![](/fr-FR/2021/05/202105122200ShikisaiBiei.jpg)|
 202105132200|AltaFloresta|La forêt amazonienne dans la brume matinale près d’Alta Floresta, Mato Grosso, Brésil (© Pulsar Imagens/Alamy)|L’heure des choix|![](/fr-FR/2021/05/202105132200AltaFloresta.jpg)|
+202105142200|ParanalStars|Télescopes et traînées d’étoiles à l’Observatoire du Cerro Paranal, Désert d’Atacama, Chili (© Matteo Omied/Alamy)|Pluie d’étoiles|![](/fr-FR/2021/05/202105142200ParanalStars.jpg)|
