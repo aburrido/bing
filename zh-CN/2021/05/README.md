@@ -14,3 +14,4 @@
 202105111600|LimerickDay|香浓河对岸的景色，爱尔兰利默里克 (© Piotr Machowczyk/Shutterstock)||![](/zh-CN/2021/05/202105111600LimerickDay.jpg)|
 202105121600|ShikisaiBiei|美瑛町的四季彩之丘，日本 (© Tanya Jones/Shutterstock)||![](/zh-CN/2021/05/202105121600ShikisaiBiei.jpg)|
 202105131600|AltaFloresta|上弗洛雷斯塔附近晨雾中亚马逊雨林，巴西马托格罗索 (© Pulsar Imagens/Alamy)||![](/zh-CN/2021/05/202105131600AltaFloresta.jpg)|
+202105141600|ParanalStars|帕瑞纳天文台的望远镜和星迹，智利阿塔卡马沙漠 (© Matteo Omied/Alamy)||![](/zh-CN/2021/05/202105141600ParanalStars.jpg)|
