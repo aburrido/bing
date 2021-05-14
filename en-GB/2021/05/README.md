@@ -14,3 +14,4 @@
 202105112300|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|Rhyme time in Limerick|![](/en-GB/2021/05/202105112300LimerickDay.jpg)|
 202105122300|ShikisaiBiei|Shikisai no Oka flower gardens in Biei, Japan (© Tanya Jones/Shutterstock)|Hues of Hokkaido|![](/en-GB/2021/05/202105122300ShikisaiBiei.jpg)|
 202105132300|LewisStacks|Jagged coastal sea stacks at Mangersta, Isle of Lewis, Outer Hebrides (© Cody Duncan/Cavan Images)|Stacks of time|![](/en-GB/2021/05/202105132300LewisStacks.jpg)|
+202105142300|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Blazing trails across the night sky|![](/en-GB/2021/05/202105142300ParanalStars.jpg)|
