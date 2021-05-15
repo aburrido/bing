@@ -15,3 +15,4 @@
 202105121830|ShikisaiBiei|Shikisai no Oka flower gardens in Biei, Japan (© Tanya Jones/Shutterstock)|Hues of Hokkaido|![](/en-IN/2021/05/202105121830ShikisaiBiei.jpg)|
 202105131830|AltaFloresta|Amazon rainforest with fog in the morning near Alta Floresta, Mato Grosso, Brazil (© Pulsar Imagens/Alamy)|A misty morning in Brazil|![](/en-IN/2021/05/202105131830AltaFloresta.jpg)|
 202105141830|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Happy Astronomy Day!|![](/en-IN/2021/05/202105141830ParanalStars.jpg)|
+202105151830|Guatape|Aerial view of El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|A magnificent monolith|![](/en-IN/2021/05/202105151830Guatape.jpg)|
