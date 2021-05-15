@@ -15,3 +15,4 @@
 202105120700|LimerickDay|A view across the River Shannon in Limerick, County Limerick, Ireland (© Piotr Machowczyk/Shutterstock)|Info|![](/en-AU/2021/05/202105120700LimerickDay.jpg)|
 202105130700|ShikisaiBiei|Shikisai no Oka flower gardens in Biei, Japan (© Tanya Jones/Shutterstock)|Info|![](/en-AU/2021/05/202105130700ShikisaiBiei.jpg)|
 202105140700|ButtermereSunset|Buttermere, Lake District, England (© Stewart Smith/Alamy)|Info|![](/en-AU/2021/05/202105140700ButtermereSunset.jpg)|
+202105150700|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Info|![](/en-AU/2021/05/202105150700ParanalStars.jpg)|
