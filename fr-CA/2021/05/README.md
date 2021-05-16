@@ -16,3 +16,4 @@
 202105130400|ShikisaiBiei|Les champs de fleurs Shikisai no Oka à Biei au Japon (© Tanya Jones/Shutterstock)||![](/fr-CA/2021/05/202105130400ShikisaiBiei.jpg)|
 202105140400|AltaFloresta|Forêt amazonienne sous le brouillard matinal près d’Alta Floresta, Mato Grosso, Brésil (© Pulsar Imagens/Alamy)||![](/fr-CA/2021/05/202105140400AltaFloresta.jpg)|
 202105150400|ParanalStars|Télescopes et filés d'étoiles à l'Observatoire de Paranal, désert d'Atacama, Chili (© Matteo Omied/Alamy)||![](/fr-CA/2021/05/202105150400ParanalStars.jpg)|
+202105160400|Guatape|Vue aérienne du Peñón de Guatapé, Guatapé, Antioquia, Colombie (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/05/202105160400Guatape.jpg)|
