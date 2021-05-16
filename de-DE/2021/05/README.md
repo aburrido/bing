@@ -16,3 +16,4 @@
 202105132200|AltaFloresta|Amazonas-Regenwald im Morgennebel nahe Alta Floresta, Mato Grosso, Brasilien (© Pulsar Imagens/Alamy)|Ein nebliger Morgen in Brasilien|![](/de-DE/2021/05/202105132200AltaFloresta.jpg)|
 202105142200|ParanalStars|Teleskope und Sternspuren am Paranal-Observatorium, Atacamawüste, Chile (© Matteo Omied/Alamy)|Wolkenlos mit Aussicht auf Lichtschwerter|![](/de-DE/2021/05/202105142200ParanalStars.jpg)|
 202105152200|MMKFrankfurt|Museum für Moderne Kunst, Frankfurt am Main, Hessen (© Dieter Leistner/Gallery Stock)|Heute ist Museumstag!|![](/de-DE/2021/05/202105152200MMKFrankfurt.jpg)|
+202105162200|Alesund|Ålesund, Norwegen (© AWL Images/Offset by Shutterstock)|Frohen Syttende Mai!|![](/de-DE/2021/05/202105162200Alesund.jpg)|
