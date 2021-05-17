@@ -17,3 +17,4 @@
 202105141830|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Happy Astronomy Day!|![](/en-IN/2021/05/202105141830ParanalStars.jpg)|
 202105151830|Guatape|Aerial view of El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|A magnificent monolith|![](/en-IN/2021/05/202105151830Guatape.jpg)|
 202105161830|GwaliorFort|Gwalior Fort in Madhya Pradesh, India (© f9photos/iStock/Getty Images Plus)|The pearl amongst fortresses in India|![](/en-IN/2021/05/202105161830GwaliorFort.jpg)|
+202105171830|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spain (© Wim Wiskerke/Alamy)|International Museum Day|![](/en-IN/2021/05/202105171830PompidouMalaga.jpg)|
