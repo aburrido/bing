@@ -18,3 +18,4 @@
 202105140700|AltaFloresta|Amazon rainforest with morning fog near Alta Floresta, Mato Grosso, Brazil (© Pulsar Imagens/Alamy)|A misty morning in Brazil|![](/en-US/2021/05/202105140700AltaFloresta.jpg)|
 202105150700|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Happy Astronomy Day!|![](/en-US/2021/05/202105150700ParanalStars.jpg)|
 202105160700|Guatape|Aerial view of El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|A magnificent monolith|![](/en-US/2021/05/202105160700Guatape.jpg)|
+202105170700|Alesund|Ålesund, Norway (© AWL Images/Offset by Shutterstock)|Happy Syttende Mai!|![](/en-US/2021/05/202105170700Alesund.jpg)|
