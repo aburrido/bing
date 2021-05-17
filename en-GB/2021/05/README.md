@@ -17,3 +17,4 @@
 202105142300|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Blazing trails across the night sky|![](/en-GB/2021/05/202105142300ParanalStars.jpg)|
 202105152300|Guatape|Aerial view of El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|A magnificent monolith|![](/en-GB/2021/05/202105152300Guatape.jpg)|
 202105162300|Alesund|Ålesund, Norway (© AWL Images/Offset by Shutterstock)|Happy Syttende Mai!|![](/en-GB/2021/05/202105162300Alesund.jpg)|
+202105172300|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spain (© Wim Wiskerke/Alamy)|What's beneath this cube?|![](/en-GB/2021/05/202105172300PompidouMalaga.jpg)|
