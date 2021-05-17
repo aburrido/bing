@@ -17,3 +17,4 @@
 202105141500|Aoimatsuri|｢葵祭の日の下鴨神社｣京都府 (© Buddhika Weerasinghe/Getty Images)|今日は葵祭|![](/ja-JP/2021/05/202105141500Aoimatsuri.jpg)|
 202105151500|Guatape|｢グアタペの岩｣コロンビア, アンティオキア県 (© Amazing Aerial Agency/Offset by Shutterstock)|740 段の奇岩|![](/ja-JP/2021/05/202105151500Guatape.jpg)|
 202105161500|Alesund|｢オーレスン｣ノルウェー (© AWL Images/Offset by Shutterstock)|今日はノルウェー憲法記念日|![](/ja-JP/2021/05/202105161500Alesund.jpg)|
+202105171500|PompidouMalaga|｢ポンピドゥーセンター・マラガ｣スペイン, マラガ (© Wim Wiskerke/Alamy)|今日は国際博物館の日|![](/ja-JP/2021/05/202105171500PompidouMalaga.jpg)|
