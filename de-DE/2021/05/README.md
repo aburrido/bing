@@ -17,3 +17,4 @@
 202105142200|ParanalStars|Teleskope und Sternspuren am Paranal-Observatorium, Atacamawüste, Chile (© Matteo Omied/Alamy)|Wolkenlos mit Aussicht auf Lichtschwerter|![](/de-DE/2021/05/202105142200ParanalStars.jpg)|
 202105152200|MMKFrankfurt|Museum für Moderne Kunst, Frankfurt am Main, Hessen (© Dieter Leistner/Gallery Stock)|Heute ist Museumstag!|![](/de-DE/2021/05/202105152200MMKFrankfurt.jpg)|
 202105162200|Alesund|Ålesund, Norwegen (© AWL Images/Offset by Shutterstock)|Frohen Syttende Mai!|![](/de-DE/2021/05/202105162200Alesund.jpg)|
+202105172200|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spanien (© Wim Wiskerke/Alamy)|Ist heute schon wieder Museumstag?|![](/de-DE/2021/05/202105172200PompidouMalaga.jpg)|

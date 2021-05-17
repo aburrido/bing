@@ -17,3 +17,4 @@
 202105142200|ParanalStars|Télescopes et traînées d’étoiles à l’Observatoire du Cerro Paranal, Désert d’Atacama, Chili (© Matteo Omied/Alamy)|Pluie d’étoiles|![](/fr-FR/2021/05/202105142200ParanalStars.jpg)|
 202105152200|Guatape|El Peñón de Guatapé, Guatapé, Antioquia, Colombie (© Amazing Aerial Agency/Offset by Shutterstock)|Escalade en escalier|![](/fr-FR/2021/05/202105152200Guatape.jpg)|
 202105162200|PrideDay|Drapeau arc-en-ciel dans une rue du Marais, Paris (© MisterStock/Shutterstock)|L’amour tout court|![](/fr-FR/2021/05/202105162200PrideDay.jpg)|
+202105172200|PompidouMalaga|Centre Pompidou Málaga à Málaga, Espagne (© Wim Wiskerke/Alamy)|Art underground|![](/fr-FR/2021/05/202105172200PompidouMalaga.jpg)|
