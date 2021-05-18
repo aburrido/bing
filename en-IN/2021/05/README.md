@@ -18,3 +18,4 @@
 202105151830|Guatape|Aerial view of El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|A magnificent monolith|![](/en-IN/2021/05/202105151830Guatape.jpg)|
 202105161830|GwaliorFort|Gwalior Fort in Madhya Pradesh, India (© f9photos/iStock/Getty Images Plus)|The pearl amongst fortresses in India|![](/en-IN/2021/05/202105161830GwaliorFort.jpg)|
 202105171830|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spain (© Wim Wiskerke/Alamy)|International Museum Day|![](/en-IN/2021/05/202105171830PompidouMalaga.jpg)|
+202105181830|RoanRhododendron|Fallen rhododendron petals line a trail on Grassy Ridge Bald, Pisgah National Forest, North Carolina (© aheflin/Getty Images Plus)|A path lain with petals|![](/en-IN/2021/05/202105181830RoanRhododendron.jpg)|
