@@ -18,3 +18,4 @@
 202105150700|ParanalStars|Telescopes and star trails at Paranal Observatory, Atacama Desert, Chile (© Matteo Omied/Alamy)|Info|![](/en-AU/2021/05/202105150700ParanalStars.jpg)|
 202105160700|Guatape|El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/05/202105160700Guatape.jpg)|
 202105170700|Alesund|Ålesund, Norway (© AWL Images/Offset by Shutterstock)|Info|![](/en-AU/2021/05/202105170700Alesund.jpg)|
+202105180700|GreatHornbill|Great hornbill in West Bengal, India (© Debapratim Saha/Minden Pictures)|Info|![](/en-AU/2021/05/202105180700GreatHornbill.jpg)|
