@@ -18,3 +18,4 @@
 202105152200|MMKFrankfurt|Museum für Moderne Kunst, Frankfurt am Main, Hessen (© Dieter Leistner/Gallery Stock)|Heute ist Museumstag!|![](/de-DE/2021/05/202105152200MMKFrankfurt.jpg)|
 202105162200|Alesund|Ålesund, Norwegen (© AWL Images/Offset by Shutterstock)|Frohen Syttende Mai!|![](/de-DE/2021/05/202105162200Alesund.jpg)|
 202105172200|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spanien (© Wim Wiskerke/Alamy)|Ist heute schon wieder Museumstag?|![](/de-DE/2021/05/202105172200PompidouMalaga.jpg)|
+202105182200|RoanRhododendron|Rhododendron-Blüten auf einem Pfad am Grassy Ridge Bald, Pisgah National Forest, North Carolina, USA (© aheflin/Getty Images Plus)|Wohin führt dieser Pfad?|![](/de-DE/2021/05/202105182200RoanRhododendron.jpg)|
