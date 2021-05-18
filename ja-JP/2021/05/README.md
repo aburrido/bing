@@ -18,3 +18,4 @@
 202105151500|Guatape|｢グアタペの岩｣コロンビア, アンティオキア県 (© Amazing Aerial Agency/Offset by Shutterstock)|740 段の奇岩|![](/ja-JP/2021/05/202105151500Guatape.jpg)|
 202105161500|Alesund|｢オーレスン｣ノルウェー (© AWL Images/Offset by Shutterstock)|今日はノルウェー憲法記念日|![](/ja-JP/2021/05/202105161500Alesund.jpg)|
 202105171500|PompidouMalaga|｢ポンピドゥーセンター・マラガ｣スペイン, マラガ (© Wim Wiskerke/Alamy)|今日は国際博物館の日|![](/ja-JP/2021/05/202105171500PompidouMalaga.jpg)|
+202105181500|RoanRhododendron|｢ピスガ国立森林公園｣米国, ノースカロライナ州 (© aheflin/Getty Images Plus)|シャクナゲの小道|![](/ja-JP/2021/05/202105181500RoanRhododendron.jpg)|
