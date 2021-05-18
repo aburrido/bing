@@ -18,3 +18,4 @@
 202105151600|Guatape|鸟瞰瓜塔佩巨岩，哥伦比亚瓜塔佩 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/05/202105151600Guatape.jpg)|
 202105161600|Alesund|奥勒松，挪威 (© AWL Images/Offset by Shutterstock)||![](/zh-CN/2021/05/202105161600Alesund.jpg)|
 202105171600|GreatHornbill|西孟加拉邦的双角犀鸟，印度 (© Debapratim Saha/Minden Pictures)||![](/zh-CN/2021/05/202105171600GreatHornbill.jpg)|
+202105181600|RoanRhododendron|飘落的杜鹃花瓣铺在Grassy Ridge Bald山的小径上，北卡罗莱纳州皮斯加国家森林 (© aheflin/Getty Images Plus)||![](/zh-CN/2021/05/202105181600RoanRhododendron.jpg)|
