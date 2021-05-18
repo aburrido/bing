@@ -18,3 +18,4 @@
 202105150400|ParanalStars|Télescopes et filés d'étoiles à l'Observatoire de Paranal, désert d'Atacama, Chili (© Matteo Omied/Alamy)||![](/fr-CA/2021/05/202105150400ParanalStars.jpg)|
 202105160400|Guatape|Vue aérienne du Peñón de Guatapé, Guatapé, Antioquia, Colombie (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/05/202105160400Guatape.jpg)|
 202105170400|Alesund|Ålesund, Norvège (© AWL Images/Offset by Shutterstock)||![](/fr-CA/2021/05/202105170400Alesund.jpg)|
+202105180400|FrillyTulip|Une tulipe frangée rose à Ottawa (© colimachon/Getty Images)||![](/fr-CA/2021/05/202105180400FrillyTulip.jpg)|
