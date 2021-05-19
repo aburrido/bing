@@ -19,3 +19,4 @@
 202105161830|GwaliorFort|Gwalior Fort in Madhya Pradesh, India (© f9photos/iStock/Getty Images Plus)|The pearl amongst fortresses in India|![](/en-IN/2021/05/202105161830GwaliorFort.jpg)|
 202105171830|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spain (© Wim Wiskerke/Alamy)|International Museum Day|![](/en-IN/2021/05/202105171830PompidouMalaga.jpg)|
 202105181830|RoanRhododendron|Fallen rhododendron petals line a trail on Grassy Ridge Bald, Pisgah National Forest, North Carolina (© aheflin/Getty Images Plus)|A path lain with petals|![](/en-IN/2021/05/202105181830RoanRhododendron.jpg)|
+202105191830|BeeLotus|A bee dives into an East Indian lotus flower at Kenilworth Park and Aquatic Gardens in Washington, DC (© Linda Davidson/The Washington Post via Getty Images)|Happy Bee Day to you|![](/en-IN/2021/05/202105191830BeeLotus.jpg)|
