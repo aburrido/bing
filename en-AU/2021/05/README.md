@@ -19,3 +19,4 @@
 202105160700|Guatape|El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/05/202105160700Guatape.jpg)|
 202105170700|Alesund|Ålesund, Norway (© AWL Images/Offset by Shutterstock)|Info|![](/en-AU/2021/05/202105170700Alesund.jpg)|
 202105180700|GreatHornbill|Great hornbill in West Bengal, India (© Debapratim Saha/Minden Pictures)|Info|![](/en-AU/2021/05/202105180700GreatHornbill.jpg)|
+202105190700|BanffMist|Banff National Park, Alberta, Canada (© Pgiam/Getty Images)|Info|![](/en-AU/2021/05/202105190700BanffMist.jpg)|

@@ -20,3 +20,4 @@
 202105160700|Guatape|Aerial view of El Peñón de Guatapé, Guatapé, Antioquia, Colombia (© Amazing Aerial Agency/Offset by Shutterstock)|A magnificent monolith|![](/en-US/2021/05/202105160700Guatape.jpg)|
 202105170700|Alesund|Ålesund, Norway (© AWL Images/Offset by Shutterstock)|Happy Syttende Mai!|![](/en-US/2021/05/202105170700Alesund.jpg)|
 202105180700|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spain (© Wim Wiskerke/Alamy)|International Museum Day|![](/en-US/2021/05/202105180700PompidouMalaga.jpg)|
+202105190700|RoanRhododendron|Fallen rhododendron petals line a trail through Pisgah National Forest, North Carolina (© aheflin/Getty Images Plus)|A path lain with petals|![](/en-US/2021/05/202105190700RoanRhododendron.jpg)|
