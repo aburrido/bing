@@ -19,3 +19,4 @@
 202105162200|PrideDay|Drapeau arc-en-ciel dans une rue du Marais, Paris (© MisterStock/Shutterstock)|L’amour tout court|![](/fr-FR/2021/05/202105162200PrideDay.jpg)|
 202105172200|PompidouMalaga|Centre Pompidou Málaga à Málaga, Espagne (© Wim Wiskerke/Alamy)|Art underground|![](/fr-FR/2021/05/202105172200PompidouMalaga.jpg)|
 202105182200|RoanRhododendron|Pétales de rhododendrons tombés sur un sentier menant à Grassy Ridge Bald, Forêt nationale de Pisgah, Caroline du Nord, États-Unis (© aheflin/Getty Images Plus)|Paradis fleuri|![](/fr-FR/2021/05/202105182200RoanRhododendron.jpg)|
+202105192200|BeeLotus|Une abeille se plonge dans un lotus indien, dans le  Kenilworth Park and Aquatic Gardens à Washington, États-Unis (© Linda Davidson/The Washington Post via Getty Images)|Sa majesté des abeilles|![](/fr-FR/2021/05/202105192200BeeLotus.jpg)|
