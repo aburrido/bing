@@ -19,3 +19,4 @@
 202105160400|Guatape|Vue aérienne du Peñón de Guatapé, Guatapé, Antioquia, Colombie (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/05/202105160400Guatape.jpg)|
 202105170400|Alesund|Ålesund, Norvège (© AWL Images/Offset by Shutterstock)||![](/fr-CA/2021/05/202105170400Alesund.jpg)|
 202105180400|FrillyTulip|Une tulipe frangée rose à Ottawa (© colimachon/Getty Images)||![](/fr-CA/2021/05/202105180400FrillyTulip.jpg)|
+202105190400|RoanRhododendron|Des pétales de rhododendrons au sol bordent un sentier sur Grassy Ridge Bald, forêt nationale de Pisgah, Caroline du Nord (© aheflin/Getty Images Plus)||![](/fr-CA/2021/05/202105190400RoanRhododendron.jpg)|
