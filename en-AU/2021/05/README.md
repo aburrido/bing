@@ -20,3 +20,4 @@
 202105170700|Alesund|Ålesund, Norway (© AWL Images/Offset by Shutterstock)|Info|![](/en-AU/2021/05/202105170700Alesund.jpg)|
 202105180700|GreatHornbill|Great hornbill in West Bengal, India (© Debapratim Saha/Minden Pictures)|Info|![](/en-AU/2021/05/202105180700GreatHornbill.jpg)|
 202105190700|BanffMist|Banff National Park, Alberta, Canada (© Pgiam/Getty Images)|Info|![](/en-AU/2021/05/202105190700BanffMist.jpg)|
+202105200700|HartlandPoint|Hartland Point Lighthouse, Devon, England (© Adam Burton/Alamy Stock Photo)|Info|![](/en-AU/2021/05/202105200700HartlandPoint.jpg)|
