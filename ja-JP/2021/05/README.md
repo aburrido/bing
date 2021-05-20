@@ -21,3 +21,4 @@
 202105181500|RoanRhododendron|｢ピスガ国立森林公園｣米国, ノースカロライナ州 (© aheflin/Getty Images Plus)|シャクナゲの小道|![](/ja-JP/2021/05/202105181500RoanRhododendron.jpg)|
 ||||![](/ja-JP/2021/05/.jpg)|
 202105191500|BeeLotus|｢ハスの花とミツバチ｣米国, ワシントンD.C. (© aheflin/Getty Images Plus)|今日は世界ミツバチの日|![](/ja-JP/2021/05/202105191500BeeLotus.jpg)|
+202105201500|CapePerpetua|｢トールの井戸｣米国, オレゴン州 (© Cavan Images/Offset by Shutterstock)|大海原の巨大な穴|![](/ja-JP/2021/05/202105201500CapePerpetua.jpg)|
