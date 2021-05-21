@@ -22,3 +22,4 @@
 202105180700|PompidouMalaga|Centre Pompidou Málaga in Málaga, Spain (© Wim Wiskerke/Alamy)|International Museum Day|![](/en-US/2021/05/202105180700PompidouMalaga.jpg)|
 202105190700|RoanRhododendron|Fallen rhododendron petals line a trail through Pisgah National Forest, North Carolina (© aheflin/Getty Images Plus)|A path lain with petals|![](/en-US/2021/05/202105190700RoanRhododendron.jpg)|
 202105200700|BeeLotus|A bee dives into a lotus flower at Kenilworth Park and Aquatic Gardens in Washington, DC (© Linda Davidson/The Washington Post via Getty Images)|Happy Bee Day to you|![](/en-US/2021/05/202105200700BeeLotus.jpg)|
+202105210700|WhoopingCranes|Whooping cranes taking off during spring migration in South Dakota (© Gerrit Vyn/Minden Pictures)|Whoopin' it up!|![](/en-US/2021/05/202105210700WhoopingCranes.jpg)|
