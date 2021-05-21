@@ -21,3 +21,4 @@
 202105182200|RoanRhododendron|Rhododendron-Blüten auf einem Pfad am Grassy Ridge Bald, Pisgah National Forest, North Carolina, USA (© aheflin/Getty Images Plus)|Wohin führt dieser Pfad?|![](/de-DE/2021/05/202105182200RoanRhododendron.jpg)|
 202105192200|BeeLotus|Eine Biene im Anflug auf die Blüte einer Indischen Lotosblume, Kenilworth Park and Aquatic Gardens in Washington, DC, USA (© Linda Davidson/The Washington Post via Getty Images)|Heute ist Weltbienentag!|![](/de-DE/2021/05/202105192200BeeLotus.jpg)|
 202105202200|CapeofTossa|Historische Altstadt und Festung von Tossa de Mar, Katalonien, Spanien (© dleiva/Alamy)|Das „blaue Paradies“ an der Costa Brava|![](/de-DE/2021/05/202105202200CapeofTossa.jpg)|
+202105212200|CubicHouse|Kubushäuser in Rotterdam, Niederlande (© Don Mennig/Alamy)|Finale in Rotterdam|![](/de-DE/2021/05/202105212200CubicHouse.jpg)|

@@ -21,3 +21,4 @@
 202105182200|RoanRhododendron|Pétales de rhododendrons tombés sur un sentier menant à Grassy Ridge Bald, Forêt nationale de Pisgah, Caroline du Nord, États-Unis (© aheflin/Getty Images Plus)|Paradis fleuri|![](/fr-FR/2021/05/202105182200RoanRhododendron.jpg)|
 202105192200|BeeLotus|Une abeille se plonge dans un lotus indien, dans le  Kenilworth Park and Aquatic Gardens à Washington, États-Unis (© Linda Davidson/The Washington Post via Getty Images)|Sa majesté des abeilles|![](/fr-FR/2021/05/202105192200BeeLotus.jpg)|
 202105202200|WhoopingCranes|Grues blanches s’envolant pour la migration de printemps, Dakota du Sud, États-Unis (© Gerrit Vyn/Minden Pictures)|Envol printanier|![](/fr-FR/2021/05/202105202200WhoopingCranes.jpg)|
+202105212200|CubicHouse|Maisons cubes à Rotterdam créées par l’architecte Piet Blom (© Don Mennig/Alamy Stock Photo)|En direct de Rotterdam….|![](/fr-FR/2021/05/202105212200CubicHouse.jpg)|
