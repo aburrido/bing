@@ -21,3 +21,4 @@
 202105180400|FrillyTulip|Une tulipe frangée rose à Ottawa (© colimachon/Getty Images)||![](/fr-CA/2021/05/202105180400FrillyTulip.jpg)|
 202105190400|RoanRhododendron|Des pétales de rhododendrons au sol bordent un sentier sur Grassy Ridge Bald, forêt nationale de Pisgah, Caroline du Nord (© aheflin/Getty Images Plus)||![](/fr-CA/2021/05/202105190400RoanRhododendron.jpg)|
 202105200400|GreatHornbill|Calao bicorne au Bengale-Occidental en Inde (© Debapratim Saha/Minden Pictures)||![](/fr-CA/2021/05/202105200400GreatHornbill.jpg)|
+202105210400|WhoopingCranes|Grues blanches prenant leur envol lors de la migration de printemps dans le Dakota du Sud (© Gerrit Vyn/Minden Pictures)||![](/fr-CA/2021/05/202105210400WhoopingCranes.jpg)|
