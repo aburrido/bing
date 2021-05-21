@@ -21,3 +21,4 @@
 202105182300|RoanRhododendron|Fallen rhododendron petals line a trail on Grassy Ridge Bald, Pisgah National Forest, North Carolina, USA (© aheflin/Getty Images Plus)|Follow the petal-strewn path|![](/en-GB/2021/05/202105182300RoanRhododendron.jpg)|
 202105192300|BeeLotus|A bee dives into an East Indian lotus flower at Kenilworth Park and Aquatic Gardens in Washington DC, USA (© Linda Davidson/The Washington Post via Getty Images)|In the pink on World Bee Day|![](/en-GB/2021/05/202105192300BeeLotus.jpg)|
 202105202300|WhoopingCranes|Whooping cranes taking off during spring migration in South Dakota, USA (© Gerrit Vyn/Minden Pictures)|Whoopin' it up!|![](/en-GB/2021/05/202105202300WhoopingCranes.jpg)|
+202105212300|CubicHouse|Cube houses in Rotterdam, the Netherlands (© Don Mennig/Alamy)|Live from Rotterdam|![](/en-GB/2021/05/202105212300CubicHouse.jpg)|
