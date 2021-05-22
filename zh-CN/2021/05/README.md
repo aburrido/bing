@@ -22,3 +22,4 @@
 202105191600|ButtermereSunset|巴特米尔湖上的落日 ，英格兰湖区 (© Stewart Smith/Alamy)||![](/zh-CN/2021/05/202105191600ButtermereSunset.jpg)|
 202105201600|WhoopingCranes|春季迁徙时正准备起飞的美洲鹤，南达科他州 (© Gerrit Vyn/Minden Pictures)||![](/zh-CN/2021/05/202105201600WhoopingCranes.jpg)|
 202105211600|CapeofTossa|由中世纪的城墙包围着的市镇，西班牙滨海托萨 (© dleiva/Alamy)||![](/zh-CN/2021/05/202105211600CapeofTossa.jpg)|
+202105221600|RoseRoom|纽约公共图书馆总部翻新后的玫瑰主阅览室，纽约市 (© Sascha Kilmer/Getty Images)||![](/zh-CN/2021/05/202105221600RoseRoom.jpg)|
