@@ -21,3 +21,4 @@
 202105190400|RoanRhododendron|Fallen rhododendron petals line a trail on Grassy Ridge Bald, Pisgah National Forest, North Carolina (© aheflin/Getty Images Plus)|A path lain with petals|![](/en-CA/2021/05/202105190400RoanRhododendron.jpg)|
 202105200400|BeeLotus|A bee dives into an East Indian lotus flower at Kenilworth Park and Aquatic Gardens in Washington, DC (© Linda Davidson/The Washington Post via Getty Images)|Happy Bee Day to you|![](/en-CA/2021/05/202105200400BeeLotus.jpg)|
 202105210400|WhoopingCranes|Whooping cranes taking off during spring migration in South Dakota (© Gerrit Vyn/Minden Pictures)|Whoopin' it up!|![](/en-CA/2021/05/202105210400WhoopingCranes.jpg)|
+202105220400|CapeofTossa|The medieval walled town in Tossa de Mar, Catalonia, Spain (© dleiva/Alamy)|Blue paradise on the Costa Brava|![](/en-CA/2021/05/202105220400CapeofTossa.jpg)|
