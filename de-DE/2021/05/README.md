@@ -23,3 +23,4 @@
 202105202200|CapeofTossa|Historische Altstadt und Festung von Tossa de Mar, Katalonien, Spanien (© dleiva/Alamy)|Das „blaue Paradies“ an der Costa Brava|![](/de-DE/2021/05/202105202200CapeofTossa.jpg)|
 202105212200|CubicHouse|Kubushäuser in Rotterdam, Niederlande (© Don Mennig/Alamy)|Finale in Rotterdam|![](/de-DE/2021/05/202105212200CubicHouse.jpg)|
 202105222200|RoseRoom|Der restaurierte Rose Main Reading Room in der New York Public Library, New York City, USA (© Sascha Kilmer/Getty Images)|So viele Bücher, so wenig Zeit|![](/de-DE/2021/05/202105222200RoseRoom.jpg)|
+202105232200|CercisSiliquastrum|Judasbaum mit Tulpen und Atlantischen Hasenglöckchen, Deutschland (© blickwinkel/Alamy Stock Photo)|Ein Traum in Purpur-Rosa|![](/de-DE/2021/05/202105232200CercisSiliquastrum.jpg)|
