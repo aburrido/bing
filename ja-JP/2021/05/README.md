@@ -24,3 +24,4 @@
 202105201500|CapePerpetua|｢トールの井戸｣米国, オレゴン州 (© Cavan Images/Offset by Shutterstock)|大海原の巨大な穴|![](/ja-JP/2021/05/202105201500CapePerpetua.jpg)|
 202105211500|CapeofTossa|｢トッサ デ マールの要塞｣スペイン, カタルーニャ (© dleiva/Alamy)|中世の要塞を臨むビーチリゾート|![](/ja-JP/2021/05/202105211500CapeofTossa.jpg)|
 202105221500|RoseRoom|｢ニューヨーク公共図書館ローズルーム｣米国, ニューヨーク市 (© Sascha Kilmer/Getty Images)|ニューヨーク公共図書館設立記念日|![](/ja-JP/2021/05/202105221500RoseRoom.jpg)|
+202105231500|Ceking|｢テガララン・ライステラス｣インドネシア, バリ (© Michele Falzone/Alamy Stock Photo)|南の島の棚田|![](/ja-JP/2021/05/202105231500Ceking.jpg)|
