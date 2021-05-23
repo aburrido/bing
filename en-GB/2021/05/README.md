@@ -23,3 +23,4 @@
 202105202300|WhoopingCranes|Whooping cranes taking off during spring migration in South Dakota, USA (© Gerrit Vyn/Minden Pictures)|Whoopin' it up!|![](/en-GB/2021/05/202105202300WhoopingCranes.jpg)|
 202105212300|CubicHouse|Cube houses in Rotterdam, the Netherlands (© Don Mennig/Alamy)|Live from Rotterdam|![](/en-GB/2021/05/202105212300CubicHouse.jpg)|
 202105222300|CapeofTossa|The medieval walled town in Tossa de Mar, Catalonia, Spain (© dleiva/Alamy)|Blue paradise on the Costa Brava|![](/en-GB/2021/05/202105222300CapeofTossa.jpg)|
+202105232300|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-GB/2021/05/202105232300AarhusInfinite.jpg)|
