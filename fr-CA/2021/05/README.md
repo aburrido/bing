@@ -23,3 +23,4 @@
 202105200400|GreatHornbill|Calao bicorne au Bengale-Occidental en Inde (© Debapratim Saha/Minden Pictures)||![](/fr-CA/2021/05/202105200400GreatHornbill.jpg)|
 202105210400|WhoopingCranes|Grues blanches prenant leur envol lors de la migration de printemps dans le Dakota du Sud (© Gerrit Vyn/Minden Pictures)||![](/fr-CA/2021/05/202105210400WhoopingCranes.jpg)|
 202105220400|CapeofTossa|La ville médiévale fortifiée de Tossa de Mar en Catalogne, Espagne (© dleiva/Alamy)||![](/fr-CA/2021/05/202105220400CapeofTossa.jpg)|
+202105230400|RoseRoom|La salle de lecture principale Rose rénovée dans l’édifice principal de la New York Public Library à New York (© Sascha Kilmer/Getty Images)||![](/fr-CA/2021/05/202105230400RoseRoom.jpg)|
