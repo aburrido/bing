@@ -23,3 +23,4 @@
 202105210400|WhoopingCranes|Whooping cranes taking off during spring migration in South Dakota (© Gerrit Vyn/Minden Pictures)|Whoopin' it up!|![](/en-CA/2021/05/202105210400WhoopingCranes.jpg)|
 202105220400|CapeofTossa|The medieval walled town in Tossa de Mar, Catalonia, Spain (© dleiva/Alamy)|Blue paradise on the Costa Brava|![](/en-CA/2021/05/202105220400CapeofTossa.jpg)|
 202105230400|RoseRoom|The renovated Rose Main Reading Room inside the New York Public Library Main Branch, New York City (© Sascha Kilmer/Getty Images)|So many books, so little time|![](/en-CA/2021/05/202105230400RoseRoom.jpg)|
+202105240400|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-CA/2021/05/202105240400AarhusInfinite.jpg)|
