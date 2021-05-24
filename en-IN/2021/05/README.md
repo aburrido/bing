@@ -24,3 +24,4 @@
 202105211830|CapeofTossa|The medieval walled town in Tossa de Mar, Catalonia, Spain (© dleiva/Alamy)|Blue paradise on the Costa Brava|![](/en-IN/2021/05/202105211830CapeofTossa.jpg)|
 202105221830|RoseRoom|The renovated Rose Main Reading Room inside the New York Public Library Main Branch, New York City (© Sascha Kilmer/Getty Images)|So many books, so little time|![](/en-IN/2021/05/202105221830RoseRoom.jpg)|
 202105231830|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-IN/2021/05/202105231830AarhusInfinite.jpg)|
+202105241830|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|An improbable tribute for Towel Day|![](/en-IN/2021/05/202105241830TowelDay.jpg)|
