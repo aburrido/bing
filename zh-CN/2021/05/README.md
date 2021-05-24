@@ -24,3 +24,4 @@
 202105211600|CapeofTossa|由中世纪的城墙包围着的市镇，西班牙滨海托萨 (© dleiva/Alamy)||![](/zh-CN/2021/05/202105211600CapeofTossa.jpg)|
 202105221600|RoseRoom|纽约公共图书馆总部翻新后的玫瑰主阅览室，纽约市 (© Sascha Kilmer/Getty Images)||![](/zh-CN/2021/05/202105221600RoseRoom.jpg)|
 202105231600|AarhusInfinite|由丹麦建筑师Niels Povlsgaard和JohanGjødes设计的无限桥，丹麦奥胡斯 (© Kosmaj/Shutterstock)||![](/zh-CN/2021/05/202105231600AarhusInfinite.jpg)|
+202105241600|TowelDay|在多米尼加罗索海岸附近的抹香鲸，加勒比海 (© Tony Wu/Minden Pictures)||![](/zh-CN/2021/05/202105241600TowelDay.jpg)|
