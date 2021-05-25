@@ -25,3 +25,4 @@
 202105222300|CapeofTossa|The medieval walled town in Tossa de Mar, Catalonia, Spain (© dleiva/Alamy)|Blue paradise on the Costa Brava|![](/en-GB/2021/05/202105222300CapeofTossa.jpg)|
 202105232300|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-GB/2021/05/202105232300AarhusInfinite.jpg)|
 202105242300|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|An improbable tribute for Towel Day|![](/en-GB/2021/05/202105242300TowelDay.jpg)|
+202105252300|MontalbanoElicona|Montalbano Elicona, Messina, Sicily, Italy (© Antonino Bartuccio/SOPA Collection/Offset by Shutterstock)|In Sicily, history is everywhere|![](/en-GB/2021/05/202105252300MontalbanoElicona.jpg)|
