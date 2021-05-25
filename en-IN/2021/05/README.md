@@ -25,3 +25,4 @@
 202105221830|RoseRoom|The renovated Rose Main Reading Room inside the New York Public Library Main Branch, New York City (© Sascha Kilmer/Getty Images)|So many books, so little time|![](/en-IN/2021/05/202105221830RoseRoom.jpg)|
 202105231830|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-IN/2021/05/202105231830AarhusInfinite.jpg)|
 202105241830|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|An improbable tribute for Towel Day|![](/en-IN/2021/05/202105241830TowelDay.jpg)|
+202105251830|BodhiTree|Bodhi Tree in Bodh Gaya, India (© Rosita So Image/Getty Images)|The tree of awakening|![](/en-IN/2021/05/202105251830BodhiTree.jpg)|
