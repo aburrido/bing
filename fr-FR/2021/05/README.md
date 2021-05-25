@@ -25,3 +25,4 @@
 202105222200|RoseRoom|La salle Rose du bâtiment principal de la New York Public Library, New York, États-Unis (© Sascha Kilmer/Getty Images)|Temple de culture…|![](/fr-FR/2021/05/202105222200RoseRoom.jpg)|
 202105232200|AarhusInfinite|Le pont infini, créé par les architectes danois Niels Povlsgaard et Johan Gjødes, Aarhus, Danemark (© Kosmaj/Shutterstock)|Un pont sans fin|![](/fr-FR/2021/05/202105232200AarhusInfinite.jpg)|
 202105242200|TowelDay|Grand cachalot au large de la côte de Roseau, Dominique, Mer des Caraïbes (© Tony Wu/Minden Pictures)|Hommage (improbable) pour la Journée mondiale de la serviette|![](/fr-FR/2021/05/202105242200TowelDay.jpg)|
+202105252200|TearDropEclipse|L’éclipse lunaire totale du 4 avril 2015 prise à Monument Valley, Utah, États-Unis (© Alan Dyer/Alamy)|La nuit de la lune de sang|![](/fr-FR/2021/05/202105252200TearDropEclipse.jpg)|
