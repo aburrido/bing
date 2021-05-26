@@ -26,3 +26,4 @@
 202105231830|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-IN/2021/05/202105231830AarhusInfinite.jpg)|
 202105241830|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|An improbable tribute for Towel Day|![](/en-IN/2021/05/202105241830TowelDay.jpg)|
 202105251830|BodhiTree|Bodhi Tree in Bodh Gaya, India (© Rosita So Image/Getty Images)|The tree of awakening|![](/en-IN/2021/05/202105251830BodhiTree.jpg)|
+202105261830|ICanHearIt|'I Can Hear It,' an installation by artist Ivars Drulle on the beach by the villages of Middelkerke and Westende, Belgium (© Arterra Picture Library/Alamy)|Listening to the sea|![](/en-IN/2021/05/202105261830ICanHearIt.jpg)|
