@@ -25,3 +25,4 @@
 202105230400|RoseRoom|The renovated Rose Main Reading Room inside the New York Public Library Main Branch, New York City (© Sascha Kilmer/Getty Images)|So many books, so little time|![](/en-CA/2021/05/202105230400RoseRoom.jpg)|
 202105240400|AarhusInfinite|The Infinite Bridge, designed by Danish architects Niels Povlsgaard and Johan Gjødes, in Aarhus, Denmark (© Kosmaj/Shutterstock)|A bridge come full circle|![](/en-CA/2021/05/202105240400AarhusInfinite.jpg)|
 202105250400|HopewellNB|Geological site of Hopewell Rocks in New Brunswick (© YAY Media AS/Alamy)|The highest tides in the world|![](/en-CA/2021/05/202105250400HopewellNB.jpg)|
+202105260400|TearDropEclipse|The total lunar eclipse of April 4, 2015, taken from near Tear Drop Arch, in western Monument Valley, Utah (© Alan Dyer/Alamy)|Behold the blood moon|![](/en-CA/2021/05/202105260400TearDropEclipse.jpg)|
