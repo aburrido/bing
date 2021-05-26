@@ -26,3 +26,4 @@
 202105230700|RoseRoom|The Rose Main Reading Room, New York Public Library, USA (© Sascha Kilmer/Getty Images)|Info|![](/en-AU/2021/05/202105230700RoseRoom.jpg)|
 202105240700|AarhusInfinite|The Infinite Bridge, Aarhus, Denmark (© Kosmaj/Shutterstock)|Info|![](/en-AU/2021/05/202105240700AarhusInfinite.jpg)|
 202105250700|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|Info|![](/en-AU/2021/05/202105250700TowelDay.jpg)|
+202105260700|TearDropEclipse|The total lunar eclipse of 4 April 2015, Monument Valley, Utah, USA (© Alan Dyer/Alamy)|Info|![](/en-AU/2021/05/202105260700TearDropEclipse.jpg)|
