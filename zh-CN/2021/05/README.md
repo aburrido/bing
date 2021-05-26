@@ -26,3 +26,4 @@
 202105231600|AarhusInfinite|由丹麦建筑师Niels Povlsgaard和JohanGjødes设计的无限桥，丹麦奥胡斯 (© Kosmaj/Shutterstock)||![](/zh-CN/2021/05/202105231600AarhusInfinite.jpg)|
 202105241600|TowelDay|在多米尼加罗索海岸附近的抹香鲸，加勒比海 (© Tony Wu/Minden Pictures)||![](/zh-CN/2021/05/202105241600TowelDay.jpg)|
 202105251600|TearDropEclipse|2015年4月4日摄于Tear Drop Arch附近的月全食，犹他州纪念碑谷 (© Alan Dyer/Alamy)||![](/zh-CN/2021/05/202105251600TearDropEclipse.jpg)|
+202105261600|VarandhaGhat|马哈拉施特拉邦的Varandha Ghat，印度 (© AmitRane1975/iStock/Getty Images Plus)||![](/zh-CN/2021/05/202105261600VarandhaGhat.jpg)|
