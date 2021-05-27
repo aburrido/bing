@@ -27,3 +27,4 @@
 202105242300|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|An improbable tribute for Towel Day|![](/en-GB/2021/05/202105242300TowelDay.jpg)|
 202105252300|MontalbanoElicona|Montalbano Elicona, Messina, Sicily, Italy (© Antonino Bartuccio/SOPA Collection/Offset by Shutterstock)|In Sicily, history is everywhere|![](/en-GB/2021/05/202105252300MontalbanoElicona.jpg)|
 202105262300|PineMartenLarch|Pine Marten (Martes martes) on larch branch, Perthshire (© Mark Hamblin/Minden Pictures)|Out of the woods?|![](/en-GB/2021/05/202105262300PineMartenLarch.jpg)|
+202105272300|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the bird world|![](/en-GB/2021/05/202105272300CowbirdsEgg.jpg)|
