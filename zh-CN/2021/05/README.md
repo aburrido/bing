@@ -27,3 +27,4 @@
 202105241600|TowelDay|在多米尼加罗索海岸附近的抹香鲸，加勒比海 (© Tony Wu/Minden Pictures)||![](/zh-CN/2021/05/202105241600TowelDay.jpg)|
 202105251600|TearDropEclipse|2015年4月4日摄于Tear Drop Arch附近的月全食，犹他州纪念碑谷 (© Alan Dyer/Alamy)||![](/zh-CN/2021/05/202105251600TearDropEclipse.jpg)|
 202105261600|VarandhaGhat|马哈拉施特拉邦的Varandha Ghat，印度 (© AmitRane1975/iStock/Getty Images Plus)||![](/zh-CN/2021/05/202105261600VarandhaGhat.jpg)|
+202105271600|CowbirdsEgg|装有褐头牛鹂的蛋的旅鸫巢 (© Edward Kinsman/Science Photo Library)||![](/zh-CN/2021/05/202105271600CowbirdsEgg.jpg)|
