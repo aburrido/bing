@@ -28,3 +28,4 @@
 202105250700|TowelDay|Sperm whale off the coast of Roseau, Dominica, in the Caribbean Sea (© Tony Wu/Minden Pictures)|Info|![](/en-AU/2021/05/202105250700TowelDay.jpg)|
 202105260700|TearDropEclipse|The total lunar eclipse of 4 April 2015, Monument Valley, Utah, USA (© Alan Dyer/Alamy)|Info|![](/en-AU/2021/05/202105260700TearDropEclipse.jpg)|
 ||||![](/en-AU/2021/05/.jpg)|
+202105270700|VarandhaGhat|View from Varandha Ghat in the Western Ghats, Maharashtra, India (© AmitRane1975/iStock/Getty Images Plus)|Info|![](/en-AU/2021/05/202105270700VarandhaGhat.jpg)|
