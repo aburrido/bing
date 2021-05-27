@@ -27,3 +27,4 @@
 202105240400|AarhusInfinite|Le pont infini, conçu par les architectes danois Niels Povlsgaard et Johan Gjødes, à Aarhus au Danemark (© Kosmaj/Shutterstock)||![](/fr-CA/2021/05/202105240400AarhusInfinite.jpg)|
 202105250400|TowelDay|Grand cachalot au large des côtes de Roseau en Dominique dans la mer des Caraïbes (© Tony Wu/Minden Pictures)||![](/fr-CA/2021/05/202105250400TowelDay.jpg)|
 202105260400|TearDropEclipse|L'éclipse lunaire totale du 4 avril 2015, prise près de Tear Drop Arch, dans l'ouest de Monument Valley en Utah (© Alan Dyer/Alamy)||![](/fr-CA/2021/05/202105260400TearDropEclipse.jpg)|
+202105270400|HopewellNB|Site géologique des rochers de Hopewell Rocks au Nouveau-Brunswick (© YAY Media AS/Alamy)||![](/fr-CA/2021/05/202105270400HopewellNB.jpg)|
