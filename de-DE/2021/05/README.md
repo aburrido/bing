@@ -27,3 +27,4 @@
 202105242200|TowelDay|Ein Pottwal vor der Küste von Roseau, Dominica, im Karibischen Meer (© Tony Wu/Minden Pictures)|Eine Hommage an den „Handtuch-Tag“|![](/de-DE/2021/05/202105242200TowelDay.jpg)|
 202105252200|JouxFog|Château de Joux, Bourgogne-Franche-Comté, Frankreich (© Ivoha/Alamy Stock Photo)|Französische Festungsbaukunst|![](/de-DE/2021/05/202105252200JouxFog.jpg)|
 202105262200|ICanHearIt|Installation „I Can Hear It“ des Künstlers Ivars Drulle am Strand zwischen Middelkerke und Westende, Belgien (© Arterra Picture Library/Alamy)|Dem Meeresrauschen lauschen|![](/de-DE/2021/05/202105262200ICanHearIt.jpg)|
+202105272200|AarhusInfinite|Die Skulptur „Den Uendelige Bro“ („Die unendliche Brücke“) in Aarhus, Dänemark. Entworfen von den dänischen Architekten Niels Povlsgaard and Johan Gjødes (© Kosmaj/Shutterstock)|Hier geht’s rund!|![](/de-DE/2021/05/202105272200AarhusInfinite.jpg)|
