@@ -28,3 +28,4 @@
 202105241500|TowelDay|｢ロゾー沖のマッコウクジラ｣ドミニカ, カリブ海 (© Tony Wu/Minden Pictures)|今日はタオルの日|![](/ja-JP/2021/05/202105241500TowelDay.jpg)|
 202105251500|TearDropEclipse|The total lunar eclipse of April 4, 2015, taken from near Tear D｢モニュメントバレー西部ティアドロップアーチ近くからの皆既月食｣米国, ユタ州 (© Alan Dyer/Alamy)rop Arch, in western Monument Valley, Utah (© Alan Dyer/Alamy)|今夜はスーパーブラッドムーン|![](/ja-JP/2021/05/202105251500TearDropEclipse.jpg)|
 202105261500|AthabascaCave|｢アサバスカ氷河｣カナダ, アルバータ州 (© Paul Zizka/Aurora Photos)|カナディアンロッキーのオーロラ|![](/ja-JP/2021/05/202105261500AthabascaCave.jpg)|
+202105271500|CowbirdsEgg|｢コマドリの巣のコウウチョウの卵｣米国, ニューヨーク州 (© Alan Dyer/Alamy)|生き物の進化の最前線|![](/ja-JP/2021/05/202105271500CowbirdsEgg.jpg)|
