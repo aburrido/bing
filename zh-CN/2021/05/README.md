@@ -28,3 +28,4 @@
 202105251600|TearDropEclipse|2015年4月4日摄于Tear Drop Arch附近的月全食，犹他州纪念碑谷 (© Alan Dyer/Alamy)||![](/zh-CN/2021/05/202105251600TearDropEclipse.jpg)|
 202105261600|VarandhaGhat|马哈拉施特拉邦的Varandha Ghat，印度 (© AmitRane1975/iStock/Getty Images Plus)||![](/zh-CN/2021/05/202105261600VarandhaGhat.jpg)|
 202105271600|CowbirdsEgg|装有褐头牛鹂的蛋的旅鸫巢 (© Edward Kinsman/Science Photo Library)||![](/zh-CN/2021/05/202105271600CowbirdsEgg.jpg)|
+202105281600|RedAlley|武侯祠内红墙和竹林掩映下的小巷，中国成都 (© Eastimages/Getty Images)||![](/zh-CN/2021/05/202105281600RedAlley.jpg)|
