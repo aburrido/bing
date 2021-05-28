@@ -27,3 +27,4 @@
 202105250400|HopewellNB|Geological site of Hopewell Rocks in New Brunswick (© YAY Media AS/Alamy)|The highest tides in the world|![](/en-CA/2021/05/202105250400HopewellNB.jpg)|
 202105260400|TearDropEclipse|The total lunar eclipse of April 4, 2015, taken from near Tear Drop Arch, in western Monument Valley, Utah (© Alan Dyer/Alamy)|Behold the blood moon|![](/en-CA/2021/05/202105260400TearDropEclipse.jpg)|
 202105270400|ICanHearIt|'I Can Hear It,' an installation by artist Ivars Drulle on the beach by the villages of Middelkerke and Westende, Belgium (© Arterra Picture Library/Alamy)|Listening to the sea|![](/en-CA/2021/05/202105270400ICanHearIt.jpg)|
+202105280400|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the avian world|![](/en-CA/2021/05/202105280400CowbirdsEgg.jpg)|
