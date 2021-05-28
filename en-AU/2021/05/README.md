@@ -29,3 +29,4 @@
 202105260700|TearDropEclipse|The total lunar eclipse of 4 April 2015, Monument Valley, Utah, USA (© Alan Dyer/Alamy)|Info|![](/en-AU/2021/05/202105260700TearDropEclipse.jpg)|
 ||||![](/en-AU/2021/05/.jpg)|
 202105270700|VarandhaGhat|View from Varandha Ghat in the Western Ghats, Maharashtra, India (© AmitRane1975/iStock/Getty Images Plus)|Info|![](/en-AU/2021/05/202105270700VarandhaGhat.jpg)|
+202105280700|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Info|![](/en-AU/2021/05/202105280700CowbirdsEgg.jpg)|
