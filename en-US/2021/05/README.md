@@ -30,3 +30,4 @@
 202105260700|TearDropEclipse|The total lunar eclipse of April 4, 2015, photographed over Monument Valley, Utah (© Alan Dyer/Alamy)|Behold the blood moon|![](/en-US/2021/05/202105260700TearDropEclipse.jpg)|
 202105270700|ICanHearIt|'I Can Hear It,' an installation by artist Ivars Drulle on the beach by the villages of Middelkerke and Westende, Belgium (© Arterra Picture Library/Alamy)|Listening to the sea|![](/en-US/2021/05/202105270700ICanHearIt.jpg)|
 202105280700|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the avian world|![](/en-US/2021/05/202105280700CowbirdsEgg.jpg)|
+202105290700|RedAlley|Alley and bamboo grove in Wuhou Temple, Chengdu, Sichuan province, China (© Eastimages/Getty Images)|A path into history|![](/en-US/2021/05/202105290700RedAlley.jpg)|
