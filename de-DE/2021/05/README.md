@@ -29,3 +29,4 @@
 202105262200|ICanHearIt|Installation „I Can Hear It“ des Künstlers Ivars Drulle am Strand zwischen Middelkerke und Westende, Belgien (© Arterra Picture Library/Alamy)|Dem Meeresrauschen lauschen|![](/de-DE/2021/05/202105262200ICanHearIt.jpg)|
 202105272200|AarhusInfinite|Die Skulptur „Den Uendelige Bro“ („Die unendliche Brücke“) in Aarhus, Dänemark. Entworfen von den dänischen Architekten Niels Povlsgaard and Johan Gjødes (© Kosmaj/Shutterstock)|Hier geht’s rund!|![](/de-DE/2021/05/202105272200AarhusInfinite.jpg)|
 202105282200|RedAlley|Ein von roten Wänden gesäumter Pfad in einem Bambushain, Wuhou-Tempel, Chengdu, Provinz Sichuan, China (© Eastimages/Getty Images)|Ein Pfad in die Geschichte|![](/de-DE/2021/05/202105282200RedAlley.jpg)|
+202105292200|SeaDog|Kalifornischer Seelöwe in einem Tangwald in der Nähe der Kanalinseln von Kalifornien, USA (© Nature Picture Library/Alamy)|Versteckspiel im Tangwald|![](/de-DE/2021/05/202105292200SeaDog.jpg)|

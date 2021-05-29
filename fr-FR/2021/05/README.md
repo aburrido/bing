@@ -29,3 +29,4 @@
 202105262200|ICanHearIt|“Je l’entends”, une installation de l’artiste Ivars Drulle sur la plage près des villages de Middelkerke de Westende, Belgique (© Arterra Picture Library/Alamy)|De l’art dans l’eau|![](/fr-FR/2021/05/202105262200ICanHearIt.jpg)|
 202105272200|CowbirdsEgg|Trois œufs de rossignol bleu et un œuf de vacher à tête brune (© Edward Kinsman/Science Photo Library)|Trouvez l’intrus|![](/fr-FR/2021/05/202105272200CowbirdsEgg.jpg)|
 202105282200|RedAlley|Allée aux murs rouges et bosquets de bambous dans le temple du marquis de Wu, Chengdu, Sichuan, Chine (© Eastimages/Getty Images)|Allée vers l’Histoire|![](/fr-FR/2021/05/202105282200RedAlley.jpg)|
+202105292200|OtterMom|Maman loutre de mer et son nouveau-né, baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|Joyeuse fête à toutes les mamans|![](/fr-FR/2021/05/202105292200OtterMom.jpg)|
