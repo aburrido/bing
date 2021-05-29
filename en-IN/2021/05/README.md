@@ -29,3 +29,4 @@
 202105261830|ICanHearIt|'I Can Hear It,' an installation by artist Ivars Drulle on the beach by the villages of Middelkerke and Westende, Belgium (© Arterra Picture Library/Alamy)|Listening to the sea|![](/en-IN/2021/05/202105261830ICanHearIt.jpg)|
 202105271830|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the avian world|![](/en-IN/2021/05/202105271830CowbirdsEgg.jpg)|
 202105281830|RedAlley|Alley with red walls and bamboo grove in Wuhou Temple, Chengdu, Sichuan province, China (© Eastimages/Getty Images)|A path into history|![](/en-IN/2021/05/202105281830RedAlley.jpg)|
+202105291830|SeaDog|California sea lion in a forest of giant kelp near the Channel Islands of California (© Nature Picture Library/Alamy)|Who's hiding in the kelp?|![](/en-IN/2021/05/202105291830SeaDog.jpg)|
