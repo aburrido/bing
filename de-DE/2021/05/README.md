@@ -30,3 +30,4 @@
 202105272200|AarhusInfinite|Die Skulptur „Den Uendelige Bro“ („Die unendliche Brücke“) in Aarhus, Dänemark. Entworfen von den dänischen Architekten Niels Povlsgaard and Johan Gjødes (© Kosmaj/Shutterstock)|Hier geht’s rund!|![](/de-DE/2021/05/202105272200AarhusInfinite.jpg)|
 202105282200|RedAlley|Ein von roten Wänden gesäumter Pfad in einem Bambushain, Wuhou-Tempel, Chengdu, Provinz Sichuan, China (© Eastimages/Getty Images)|Ein Pfad in die Geschichte|![](/de-DE/2021/05/202105282200RedAlley.jpg)|
 202105292200|SeaDog|Kalifornischer Seelöwe in einem Tangwald in der Nähe der Kanalinseln von Kalifornien, USA (© Nature Picture Library/Alamy)|Versteckspiel im Tangwald|![](/de-DE/2021/05/202105292200SeaDog.jpg)|
+202105302200|PoellatWasserfall|Wasserfall in der Pöllatschlucht nahe Schloss Neuschwanstein, Hohenschwangau, Bayern (© Gary Whitton/Alamy)|Wasserfall des „donnernden Bachs“|![](/de-DE/2021/05/202105302200PoellatWasserfall.jpg)|
