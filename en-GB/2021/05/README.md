@@ -30,3 +30,4 @@
 202105272300|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the bird world|![](/en-GB/2021/05/202105272300CowbirdsEgg.jpg)|
 202105282300|AltaFloresta|Amazon rainforest with fog in the morning near Alta Floresta, Mato Grosso, Brazil (© Pulsar Imagens/Alamy)|Mists over the Amazon|![](/en-GB/2021/05/202105282300AltaFloresta.jpg)|
 202105292300|SeaDog|California sea lion in a forest of giant kelp near the Channel Islands of California, USA (© Nature Picture Library/Alamy)|Who's hiding in the kelp?|![](/en-GB/2021/05/202105292300SeaDog.jpg)|
+202105302300|EastbournePier|View along the beach to Eastbourne Pier, Eastbourne, East Sussex. (© Robert Harding World Imagery/Offset by Shutterstock)|Peace at the pier|![](/en-GB/2021/05/202105302300EastbournePier.jpg)|
