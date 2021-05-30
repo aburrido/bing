@@ -31,3 +31,4 @@
 202105271500|CowbirdsEgg|｢コマドリの巣のコウウチョウの卵｣米国, ニューヨーク州 (© Alan Dyer/Alamy)|生き物の進化の最前線|![](/ja-JP/2021/05/202105271500CowbirdsEgg.jpg)|
 202105281500|FukumakiFirefly|｢福万来ホタル乃国｣鳥取県, 日南町 (© Yukihiro Fukuda/NPL/Minden Pictures)|ここはホタル乃国|![](/ja-JP/2021/05/202105281500FukumakiFirefly.jpg)|
 202105291500|Gnomesville|｢ノームズヴィル｣オーストラリア, ウェリントン・ミル (© Amanda Hughes/Alamy)|ノームたちのワンダーランド|![](/ja-JP/2021/05/202105291500Gnomesville.jpg)|
+202105301500|KingsWalkway|｢エル・カミニート・デル・レイ｣スペイン, マラガ (© Ken Welsh/Alamy)|王の小道|![](/ja-JP/2021/05/202105301500KingsWalkway.jpg)|
