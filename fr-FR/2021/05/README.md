@@ -31,3 +31,4 @@
 202105282200|RedAlley|Allée aux murs rouges et bosquets de bambous dans le temple du marquis de Wu, Chengdu, Sichuan, Chine (© Eastimages/Getty Images)|Allée vers l’Histoire|![](/fr-FR/2021/05/202105282200RedAlley.jpg)|
 202105292200|OtterMom|Maman loutre de mer et son nouveau-né, baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|Joyeuse fête à toutes les mamans|![](/fr-FR/2021/05/202105292200OtterMom.jpg)|
 202105302200|SeaDog|Otarie de Californie dans une forêt de Varech près des Channel Islands de Californie, États-Unis (© Nature Picture Library/Alamy)|Qui va là ?|![](/fr-FR/2021/05/202105302200SeaDog.jpg)|
+202105312200|PoetrysCave|Vue aérienne de la Grotta della Poesia (Grotte de la Poésie) près de Roca, Lecce, Italie (© Amazing Aerial Agency/Offset by Shutterstock)|Grotte poétique|![](/fr-FR/2021/05/202105312200PoetrysCave.jpg)|
