@@ -31,3 +31,4 @@
 202105281830|RedAlley|Alley with red walls and bamboo grove in Wuhou Temple, Chengdu, Sichuan province, China (© Eastimages/Getty Images)|A path into history|![](/en-IN/2021/05/202105281830RedAlley.jpg)|
 202105291830|SeaDog|California sea lion in a forest of giant kelp near the Channel Islands of California (© Nature Picture Library/Alamy)|Who's hiding in the kelp?|![](/en-IN/2021/05/202105291830SeaDog.jpg)|
 202105301830|VarandhaGhat|Varandha Ghat in Maharashtra, India (© AmitRane1975/iStock/Getty Images Plus)|50 shades of green…|![](/en-IN/2021/05/202105301830VarandhaGhat.jpg)|
+202105311830|PoetrysCave|Aerial view of the Grotta della Poesia (Poetry's Cave) near Roca, Lecce, Italy (© Amazing Aerial Agency/Offset by Shutterstock)|Pretty poetic for a pit|![](/en-IN/2021/05/202105311830PoetrysCave.jpg)|
