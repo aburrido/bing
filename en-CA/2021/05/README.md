@@ -30,3 +30,4 @@
 202105280400|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the avian world|![](/en-CA/2021/05/202105280400CowbirdsEgg.jpg)|
 202105290400|RedAlley|Alley with red walls and bamboo grove in Wuhou Temple, Chengdu, Sichuan province, China (© Eastimages/Getty Images)|A path into history|![](/en-CA/2021/05/202105290400RedAlley.jpg)|
 202105300400|SeaDog|California sea lion in a forest of giant kelp near the Channel Islands of California (© Nature Picture Library/Alamy)|Who's hiding in the kelp?|![](/en-CA/2021/05/202105300400SeaDog.jpg)|
+202105310400|YukonEagles|A pair of adult bald eagles (Haliaeetus leucocephalus) with chick at Yukon River, Yukon (© Mark Newman/Minden Pictures)|Canada's largest bird of prey|![](/en-CA/2021/05/202105310400YukonEagles.jpg)|

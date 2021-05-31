@@ -31,3 +31,4 @@
 202105280400|CowbirdsEgg|Nid de rouge-gorge avec un œuf de vacher à tête brune (© Edward Kinsman/Science Photo Library)||![](/fr-CA/2021/05/202105280400CowbirdsEgg.jpg)|
 202105290400|RedAlley|Allée aux murs rouges et boisé de bambous dans le temple de Wuhou à Chengdu, dans la province du Sichuan en Chine (© Eastimages/Getty Images)||![](/fr-CA/2021/05/202105290400RedAlley.jpg)|
 202105300400|SeaDog|Otarie de Californie dans une forêt de varechs géants près des îles Channel en Californie (© Nature Picture Library/Alamy)||![](/fr-CA/2021/05/202105300400SeaDog.jpg)|
+202105310400|YukonEagles|Un couple de pygargues à tête blanche adultes (Haliaeetus leucocephalus) avec un oisillon à Yukon River au Yukon (© Mark Newman/Minden Pictures)||![](/fr-CA/2021/05/202105310400YukonEagles.jpg)|
