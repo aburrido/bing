@@ -32,3 +32,4 @@
 202105280700|CowbirdsEgg|Robin's nest with a brown-headed cowbird egg (© Edward Kinsman/Science Photo Library)|Freeloaders of the avian world|![](/en-US/2021/05/202105280700CowbirdsEgg.jpg)|
 202105290700|RedAlley|Alley and bamboo grove in Wuhou Temple, Chengdu, Sichuan province, China (© Eastimages/Getty Images)|A path into history|![](/en-US/2021/05/202105290700RedAlley.jpg)|
 202105300700|SeaDog|California sea lion in a forest of giant kelp near the Channel Islands of California (© Nature Picture Library/Alamy)|Who's hiding in the kelp?|![](/en-US/2021/05/202105300700SeaDog.jpg)|
+202105310700|WomensMemorial|Military Women's Memorial, located at the gateway to Arlington National Cemetery, Virginia (© Brycia James/Getty Images)|Here we honor the women who've served|![](/en-US/2021/05/202105310700WomensMemorial.jpg)|
