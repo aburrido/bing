@@ -4,3 +4,4 @@
 202106010700|PoetrysCave|Grotta della Poesia in Roca, near Lecce, Italy (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/06/202106010700PoetrysCave.jpg)|
 202106020700|EstoshaSpringbok|Springboks near a waterhole in Etosha National Park, Namibia (© Charlie Summers/Minden Pictures)|Info|![](/en-AU/2021/06/202106020700EstoshaSpringbok.jpg)|
 202106030700|SocaCycles|Cyclists on a wooden bridge over the river Soča, Triglav National Park, Slovenia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/06/202106030700SocaCycles.jpg)|
+202106040700|Pilat|The Dune of Pilat, Arcachon Bay, France (© aluxum/iStock/Getty Images Plus)|Info|![](/en-AU/2021/06/202106040700Pilat.jpg)|
