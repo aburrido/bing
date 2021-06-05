@@ -5,3 +5,4 @@
 202106022300|SocaCycles|Aerial view of cyclists on a wooden suspension bridge over the river Soča in Slovenia (© Amazing Aerial Agency/Offset by Shutterstock)|Get on your bike and ride|![](/en-GB/2021/06/202106022300SocaCycles.jpg)|
 202106032300|PortuairkBay|Aerial shot of waves lapping up onto rocks in Portuairk Bay, Ardnamurchan, Lochaber (© Cavan Images/Offset by Shutterstock)|The wild West Highlands|![](/en-GB/2021/06/202106032300PortuairkBay.jpg)|
 202106042300|ToucanRainforest|Black-mandibled toucan in the rainforest canopy of La Selva Biological Station in Costa Rica (© Greg Basco/Minden Pictures)|A bird's eye view on World Environment Day|![](/en-GB/2021/06/202106042300ToucanRainforest.jpg)|
+202106052300|ArromanchesLesBains|Mulberry Harbour in Arromanches-les-Bains, Normandy, France (© agefotostock/Alamy)|On this shore, history was made|![](/en-GB/2021/06/202106052300ArromanchesLesBains.jpg)|
