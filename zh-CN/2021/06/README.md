@@ -5,3 +5,4 @@
 202106021600|SocaCycles|斯洛文尼亚索奇河上的木制吊桥上骑自行车的人的鸟瞰图 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/06/202106021600SocaCycles.jpg)|
 202106031600|Pilat|法国西南部阿卡雄湾的皮拉沙丘 (© aluxum/iStock/Getty Images Plus)||![](/zh-CN/2021/06/202106031600Pilat.jpg)|
 202106041600|ToucanRainforest|La Selva生物站热带雨林树冠上的黑嘴巨嘴鸟，哥斯达黎加 (© Greg Basco/Minden Pictures)||![](/zh-CN/2021/06/202106041600ToucanRainforest.jpg)|
+202106051600|ArromanchesLesBains|阿罗芒什莱班的桑树港，法国诺曼底 (© agefotostock/Alamy)||![](/zh-CN/2021/06/202106051600ArromanchesLesBains.jpg)|
