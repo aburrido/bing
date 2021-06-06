@@ -6,3 +6,4 @@
 202106031500|Pineshoot|｢兼六園の手向けの松｣金沢市 (© Korkusung/Shutterstock)|日本三大庭園の 1 つ|![](/ja-JP/2021/06/202106031500Pineshoot.jpg)|
 202106041500|ToucanRainforest|｢ラ・セルバ生物ステーションのオオハシ｣コスタリカ, サンペドロ （© Greg Basco/Minden Pictures）|今日は環境の日|![](/ja-JP/2021/06/202106041500ToucanRainforest.jpg)|
 202106051500|ArromanchesLesBains|｢アロマンシュ＝レ＝バンのマルベリー・ハーバー跡｣フランス, ノルマンディー （© agefotostock/Alamy）|今日はD-デイ|![](/ja-JP/2021/06/202106051500ArromanchesLesBains.jpg)|
+202106061500|BuntingBird|｢ヒマワリに止まるルリノジコ｣米国 （© William Krumpelman/Getty Images）|長い旅をする青い鳥|![](/ja-JP/2021/06/202106061500BuntingBird.jpg)|
