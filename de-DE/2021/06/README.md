@@ -6,3 +6,4 @@
 202106032200|Pilat|Die Dune du Pilat bei Arcachon, Frankreich (© aluxum/iStock/Getty Images Plus)|Gegen Wind und Gezeiten|![](/de-DE/2021/06/202106032200Pilat.jpg)|
 202106042200|ToucanRainforest|Schwarzschnabeltukan im Blätterdach des Regenwalds, La Selva Biological Station, Costa Rica (© Greg Basco/Minden Pictures)|Vogelperspektive am Weltumwelttag|![](/de-DE/2021/06/202106042200ToucanRainforest.jpg)|
 202106052200|ArromanchesLesBains|Überreste der Mulberry-Häfen von der Landung der Alliierten (D-Day) bei Arromanches les Bains, Normandie, Frankreich (© agefotostock/Alamy)|An diesem Strand wurde Geschichte geschrieben|![](/de-DE/2021/06/202106052200ArromanchesLesBains.jpg)|
+202106062200|WeissstorchNest|Weißstorch mit Küken im Nest, Deutschland (© Konrad Wothe/Minden Pictures)|Frühstück ist fertig|![](/de-DE/2021/06/202106062200WeissstorchNest.jpg)|
