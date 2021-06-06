@@ -6,3 +6,4 @@
 202106030700|SocaCycles|Cyclists on a wooden suspension bridge over the Soča River in Slovenia (© Amazing Aerial Agency/Offset by Shutterstock)|Get on your bike and ride|![](/en-US/2021/06/202106030700SocaCycles.jpg)|
 202106040700|EasternIsland|Eastern Island and Spit Island, Midway Atoll (© Ian Shive/Tandem Stills + Motion)|Islands that turned the tide|![](/en-US/2021/06/202106040700EasternIsland.jpg)|
 202106050700|ToucanRainforest|Black-mandibled toucan in the rainforest canopy of La Selva Biological Station in Costa Rica (© Greg Basco/Minden Pictures)|Bird's-eye view on World Environment Day|![](/en-US/2021/06/202106050700ToucanRainforest.jpg)|
+202106060700|ArromanchesLesBains|Mulberry harbour at Arromanches-les-Bains, Normandy, France (© agefotostock/Alamy)|On this shore, history was made|![](/en-US/2021/06/202106060700ArromanchesLesBains.jpg)|
