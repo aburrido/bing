@@ -7,3 +7,4 @@
 202106040700|Pilat|The Dune of Pilat, Arcachon Bay, France (© aluxum/iStock/Getty Images Plus)|Info|![](/en-AU/2021/06/202106040700Pilat.jpg)|
 202106050700|ToucanRainforest|La Selva Biological Station, Costa Rica (© Greg Basco/Minden Pictures)|Info|![](/en-AU/2021/06/202106050700ToucanRainforest.jpg)|
 202106060700|LewisStacks|Sea stacks on the Isle of Lewis, Outer Hebrides, Scotland (© Cody Duncan/Cavan Images)|Info|![](/en-AU/2021/06/202106060700LewisStacks.jpg)|
+202106070700|BuntingBird|An indigo bunting on a sunflower (© William Krumpelman/Getty Images)|Info|![](/en-AU/2021/06/202106070700BuntingBird.jpg)|
