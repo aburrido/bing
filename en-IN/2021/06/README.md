@@ -7,3 +7,4 @@
 202106041830|ToucanRainforest|Black-mandibled toucan in the rainforest canopy of La Selva Biological Station in Costa Rica (© Greg Basco/Minden Pictures)|Bird’s-eye view on World Environment Day|![](/en-IN/2021/06/202106041830ToucanRainforest.jpg)|
 202106051830|ArromanchesLesBains|Mulberry Harbour in Arromanches-les-Bains, Normandy, France (© agefotostock/Alamy)|On this shore, history was made|![](/en-IN/2021/06/202106051830ArromanchesLesBains.jpg)|
 202106061830|BuntingBird|An indigo bunting on a sunflower (© William Krumpelman/Getty Images)|Indigo bunting at its best|![](/en-IN/2021/06/202106061830BuntingBird.jpg)|
+202106071830|CortezJacks|Thousands of jack fish swimming together at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for our oceans|![](/en-IN/2021/06/202106071830CortezJacks.jpg)|
