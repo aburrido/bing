@@ -6,3 +6,4 @@
 202106040400|Pilat|La Grande Dune du Pilat dans la baie d’Arcachon, sud-ouest de la France (© aluxum/iStock/Getty Images Plus)||![](/fr-CA/2021/06/202106040400Pilat.jpg)|
 202106050400|ToucanRainforest|La canopée de la forêt tropicale de la station biologique de La Selva, au Costa Rica (© Greg Basco/Minden Pictures)||![](/fr-CA/2021/06/202106050400ToucanRainforest.jpg)|
 202106060400|ArromanchesLesBains|Le port de Mulberry à Arromanches-les-Bains en Normandie, France (© agefotostock/Alamy)||![](/fr-CA/2021/06/202106060400ArromanchesLesBains.jpg)|
+202106070400|BuntingBird|Un passerin indigo sur un tournesol (© William Krumpelman/Getty Images)||![](/fr-CA/2021/06/202106070400BuntingBird.jpg)|
