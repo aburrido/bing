@@ -7,3 +7,4 @@
 202106041500|ToucanRainforest|｢ラ・セルバ生物ステーションのオオハシ｣コスタリカ, サンペドロ （© Greg Basco/Minden Pictures）|今日は環境の日|![](/ja-JP/2021/06/202106041500ToucanRainforest.jpg)|
 202106051500|ArromanchesLesBains|｢アロマンシュ＝レ＝バンのマルベリー・ハーバー跡｣フランス, ノルマンディー （© agefotostock/Alamy）|今日はD-デイ|![](/ja-JP/2021/06/202106051500ArromanchesLesBains.jpg)|
 202106061500|BuntingBird|｢ヒマワリに止まるルリノジコ｣米国 （© William Krumpelman/Getty Images）|長い旅をする青い鳥|![](/ja-JP/2021/06/202106061500BuntingBird.jpg)|
+202106071500|CortezJacks|｢カボプルモ国立公園のアジの群れ｣メキシコ, バハ・カリフォルニア州 （© Christian Vizl/Tandem Stills + Motion）|今日は世界海洋デー|![](/ja-JP/2021/06/202106071500CortezJacks.jpg)|
