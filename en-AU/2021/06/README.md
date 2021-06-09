@@ -9,3 +9,4 @@
 202106060700|LewisStacks|Sea stacks on the Isle of Lewis, Outer Hebrides, Scotland (© Cody Duncan/Cavan Images)|Info|![](/en-AU/2021/06/202106060700LewisStacks.jpg)|
 202106070700|BuntingBird|An indigo bunting on a sunflower (© William Krumpelman/Getty Images)|Info|![](/en-AU/2021/06/202106070700BuntingBird.jpg)|
 202106080700|CortezJacks|Jack fish at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|Info|![](/en-AU/2021/06/202106080700CortezJacks.jpg)|
+202106090700|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|Info|![](/en-AU/2021/06/202106090700ForteNossa.jpg)|

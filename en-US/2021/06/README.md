@@ -9,3 +9,4 @@
 202106060700|ArromanchesLesBains|Mulberry harbour at Arromanches-les-Bains, Normandy, France (© agefotostock/Alamy)|On this shore, history was made|![](/en-US/2021/06/202106060700ArromanchesLesBains.jpg)|
 202106070700|BuntingBird|An indigo bunting on a sunflower (© William Krumpelman/Getty Images)|Dressed to impress|![](/en-US/2021/06/202106070700BuntingBird.jpg)|
 202106080700|CortezJacks|Thousands of jack fish swimming together at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for our oceans|![](/en-US/2021/06/202106080700CortezJacks.jpg)|
+202106090700|AnnularEclipse|Annular eclipse over New Mexico, May 20, 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-US/2021/06/202106090700AnnularEclipse.jpg)|
