@@ -8,3 +8,4 @@
 202106060400|ArromanchesLesBains|Mulberry Harbour in Arromanches-les-Bains, Normandy, France (© agefotostock/Alamy)|On this shore, history was made|![](/en-CA/2021/06/202106060400ArromanchesLesBains.jpg)|
 202106070400|BuntingBird|An indigo bunting on a sunflower (© William Krumpelman/Getty Images)|Dressed to impress|![](/en-CA/2021/06/202106070400BuntingBird.jpg)|
 202106080400|CortezJacks|Thousands of jack fish swimming together at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for our oceans|![](/en-CA/2021/06/202106080400CortezJacks.jpg)|
+202106090400|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|A Portuguese fort takes a star turn|![](/en-CA/2021/06/202106090400ForteNossa.jpg)|

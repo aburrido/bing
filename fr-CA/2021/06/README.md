@@ -8,3 +8,4 @@
 202106060400|ArromanchesLesBains|Le port de Mulberry à Arromanches-les-Bains en Normandie, France (© agefotostock/Alamy)||![](/fr-CA/2021/06/202106060400ArromanchesLesBains.jpg)|
 202106070400|BuntingBird|Un passerin indigo sur un tournesol (© William Krumpelman/Getty Images)||![](/fr-CA/2021/06/202106070400BuntingBird.jpg)|
 202106080400|CortezJacks|Des milliers de carangues nageant ensemble dans le parc national de Cabo Pulmo, mer de Cortez, Basse-Californie, Mexique (© Christian Vizl/Tandem Stills + Motion)||![](/fr-CA/2021/06/202106080400CortezJacks.jpg)|
+202106090400|ForteNossa|Le fort de Nossa Senhora da Graça près d'Elvas au Portugal  (© Luis Pina Photography/Shutterstock)||![](/fr-CA/2021/06/202106090400ForteNossa.jpg)|
