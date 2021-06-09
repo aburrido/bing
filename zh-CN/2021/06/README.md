@@ -9,3 +9,4 @@
 202106061600|BuntingBird|向日葵上的靛蓝彩旗鸟 (© William Krumpelman/Getty Images)||![](/zh-CN/2021/06/202106061600BuntingBird.jpg)|
 202106071600|CortezJacks|加利福尼亚湾中数千条杰克鱼成群游动，墨西哥普尔莫角国家公园 (© Christian Vizl/Tandem Stills + Motion)||![](/zh-CN/2021/06/202106071600CortezJacks.jpg)|
 202106081600|ForteNossa|埃尔瓦什附近的格拉萨圣母堡，葡萄牙 (© Luis Pina Photography/Shutterstock)||![](/zh-CN/2021/06/202106081600ForteNossa.jpg)|
+202106091600|AnnularEclipse|2012年5月20日新墨西哥上空的日环食 (© ssucsy/Getty Images)||![](/zh-CN/2021/06/202106091600AnnularEclipse.jpg)|
