@@ -10,3 +10,4 @@
 202106071830|CortezJacks|Thousands of jack fish swimming together at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for our oceans|![](/en-IN/2021/06/202106071830CortezJacks.jpg)|
 202106081830|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|A Portuguese fort takes a star turn|![](/en-IN/2021/06/202106081830ForteNossa.jpg)|
 202106091830|AnnularEclipse|Annular eclipse over New Mexico, May 20, 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-IN/2021/06/202106091830AnnularEclipse.jpg)|
+202106101830|XicXelvona|Xic Xelvona village in South Goa, India (© Brandon van Son/TANDEM Stills + Motion)|India’s capital of coastal cool|![](/en-IN/2021/06/202106101830XicXelvona.jpg)|
