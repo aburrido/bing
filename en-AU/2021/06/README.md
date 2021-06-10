@@ -10,3 +10,4 @@
 202106070700|BuntingBird|An indigo bunting on a sunflower (© William Krumpelman/Getty Images)|Info|![](/en-AU/2021/06/202106070700BuntingBird.jpg)|
 202106080700|CortezJacks|Jack fish at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|Info|![](/en-AU/2021/06/202106080700CortezJacks.jpg)|
 202106090700|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|Info|![](/en-AU/2021/06/202106090700ForteNossa.jpg)|
+202106100700|AnnularEclipse|Annular eclipse over New Mexico, USA, 20 May 2012 (© ssucsy/Getty Images)|Info|![](/en-AU/2021/06/202106100700AnnularEclipse.jpg)|
