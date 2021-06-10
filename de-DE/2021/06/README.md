@@ -10,3 +10,4 @@
 202106072200|CortezJacks|Ein Schwarm Großaugen-Stachelmakrelen im Nationalpark Cabo Pulmo, Golf von Kalifornien, Baja California, Mexiko (© Christian Vizl/Tandem Stills + Motion)|Ein Tag für unsere Ozeane|![](/de-DE/2021/06/202106072200CortezJacks.jpg)|
 202106082200|ForteNossa|Die Festung Nossa Senhora da Graça in der Nähe von Elvas, Portugal (© Luis Pina Photography/Shutterstock)|Von der Ruine zum Weltkulturerbe|![](/de-DE/2021/06/202106082200ForteNossa.jpg)|
 202106092200|FinlandBrownBear|Braunbärjunges in der Taiga, Finnland (© Jules Cox/Minden Pictures)|Bärenbeobachtung in der finnischen Taiga|![](/de-DE/2021/06/202106092200FinlandBrownBear.jpg)|
+202106102200|GlenEtive|Kleiner Loch im Glen Etive, Schottland, Vereinigtes Königreich (© Oliver Hellowell/Minden Pictures)|Eine Insel in den Highlands|![](/de-DE/2021/06/202106102200GlenEtive.jpg)|

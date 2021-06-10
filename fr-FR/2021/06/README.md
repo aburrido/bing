@@ -10,3 +10,4 @@
 202106072200|CortezJacks|Milliers de Carangues noires dans le parc national Cabo Pulmo, Golfe de Californie, Baja Californie, Mexique (© Christian Vizl/Tandem Stills + Motion)|Pour Bob l’Éponge, Némo et Arielle|![](/fr-FR/2021/06/202106072200CortezJacks.jpg)|
 202106082200|ForteNossa|Fort de Nossa Senhora da Graça près d’Elvas, Portugal (© Luis Pina Photography/Shutterstock)|Une étoile pour la victoire|![](/fr-FR/2021/06/202106082200ForteNossa.jpg)|
 202106092200|AnnularEclipse|Éclipse annulaire au-dessus du Nouveau Mexique, États-Unis, 20 mai 2012 (© ssucsy/Getty Images)|Anneau de feu|![](/fr-FR/2021/06/202106092200AnnularEclipse.jpg)|
+202106102200|GlenEtive|Petit loch et bruyère en fleur à Glen Etive, Écosse (© Oliver Hellowell/Minden Pictures)|Une virée dans les Highlands|![](/fr-FR/2021/06/202106102200GlenEtive.jpg)|
