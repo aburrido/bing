@@ -11,3 +11,4 @@
 202106080700|CortezJacks|Thousands of jack fish swimming together at Cabo Pulmo National Park, Sea of Cortez, Baja California, Mexico (© Christian Vizl/Tandem Stills + Motion)|A day for our oceans|![](/en-US/2021/06/202106080700CortezJacks.jpg)|
 202106090700|AnnularEclipse|Annular eclipse over New Mexico, May 20, 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-US/2021/06/202106090700AnnularEclipse.jpg)|
 202106100700|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|A Portuguese fort takes a star turn|![](/en-US/2021/06/202106100700ForteNossa.jpg)|
+202106110700|GlenEtive|Small loch in Glen Etive, Scotland (© Oliver Hellowell/Minden Pictures)|An island in the Highlands|![](/en-US/2021/06/202106110700GlenEtive.jpg)|
