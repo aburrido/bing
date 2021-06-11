@@ -11,3 +11,4 @@
 202106082300|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|A fort takes a star turn|![](/en-GB/2021/06/202106082300ForteNossa.jpg)|
 202106092300|AnnularEclipse|Annular eclipse over New Mexico, USA, on 20 May 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-GB/2021/06/202106092300AnnularEclipse.jpg)|
 202106102300|PoellatWasserfall|Waterfall at Pöllat Gorge near Neuschwanstein Castle, Bavaria, Germany (© Gary Whitton/Alamy)|Thundering through Bavaria|![](/en-GB/2021/06/202106102300PoellatWasserfall.jpg)|
+202106112300|BBNPGrande|View of the Rio Grande River in Big Bend National Park, Texas, USA (© Ian Shive/Tandem Stills + Motion)|Everything's bigger in Texas|![](/en-GB/2021/06/202106112300BBNPGrande.jpg)|
