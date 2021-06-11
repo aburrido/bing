@@ -11,3 +11,4 @@
 202106081600|ForteNossa|埃尔瓦什附近的格拉萨圣母堡，葡萄牙 (© Luis Pina Photography/Shutterstock)||![](/zh-CN/2021/06/202106081600ForteNossa.jpg)|
 202106091600|AnnularEclipse|2012年5月20日新墨西哥上空的日环食 (© ssucsy/Getty Images)||![](/zh-CN/2021/06/202106091600AnnularEclipse.jpg)|
 202106101600|GlenEtive|格伦·埃蒂夫盛开着石南花的小湖，苏格兰 (© Oliver Hellowell/Minden Pictures)||![](/zh-CN/2021/06/202106101600GlenEtive.jpg)|
+202106111600|BBNPGrande|大弯国家公园中里奥格兰德河的景色，德克萨斯州 (© Ian Shive/Tandem Stills + Motion)||![](/zh-CN/2021/06/202106111600BBNPGrande.jpg)|
