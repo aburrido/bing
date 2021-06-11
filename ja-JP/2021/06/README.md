@@ -11,3 +11,4 @@
 202106081500|ForteNossa|｢エルヴァス近くのノッサ・セニョーラ・ダ・グラサ砦｣ポルトガル （© Luis Pina Photography/Shutterstock）|難攻不落の砦|![](/ja-JP/2021/06/202106081500ForteNossa.jpg)|
 202106091500|Pilat|｢アルカション湾のピラ砂丘｣フランス （© aluxum/iStock/Getty Images Plus）|欧州最大の砂丘|![](/ja-JP/2021/06/202106091500Pilat.jpg)|
 202106101500|GlenEtive|｢グレン・エティブのエティブ湖｣スコットランド  （© Oliver Hellowell/Minden Pictures）|伝説の湖|![](/ja-JP/2021/06/202106101500GlenEtive.jpg)|
+202106111500|BBNPGrande|｢ビッグベンド国立公園のリオグランデ川｣米国, テキサス州 （© Ian Shive/Tandem Stills + Motion）|ビッグベンド国立公園設立記念日|![](/ja-JP/2021/06/202106111500BBNPGrande.jpg)|
