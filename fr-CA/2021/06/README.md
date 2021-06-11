@@ -10,3 +10,4 @@
 202106080400|CortezJacks|Des milliers de carangues nageant ensemble dans le parc national de Cabo Pulmo, mer de Cortez, Basse-Californie, Mexique (© Christian Vizl/Tandem Stills + Motion)||![](/fr-CA/2021/06/202106080400CortezJacks.jpg)|
 202106090400|ForteNossa|Le fort de Nossa Senhora da Graça près d'Elvas au Portugal  (© Luis Pina Photography/Shutterstock)||![](/fr-CA/2021/06/202106090400ForteNossa.jpg)|
 202106100400|AnnularEclipse|L’éclipse annulaire du 20 mai 2012 au-dessus du Nouveau-Mexique (© ssucsy/Getty Images)||![](/fr-CA/2021/06/202106100400AnnularEclipse.jpg)|
+202106110400|GlenEtive|Petit loch avec bruyère fleurie à Glen Etive en Écosse (© Oliver Hellowell/Minden Pictures)||![](/fr-CA/2021/06/202106110400GlenEtive.jpg)|

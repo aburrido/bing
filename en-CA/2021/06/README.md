@@ -11,3 +11,4 @@
 202106090400|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|A Portuguese fort takes a star turn|![](/en-CA/2021/06/202106090400ForteNossa.jpg)|
 ||||![](/en-CA/2021/06/.jpg)|
 202106100400|AnnularEclipse|Annular eclipse over New Mexico, May 20, 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-CA/2021/06/202106100400AnnularEclipse.jpg)|
+202106110400|GlenEtive|Small loch in Glen Etive, Scotland (© Oliver Hellowell/Minden Pictures)|An island in the Highlands|![](/en-CA/2021/06/202106110400GlenEtive.jpg)|
