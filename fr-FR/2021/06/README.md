@@ -11,3 +11,4 @@
 202106082200|ForteNossa|Fort de Nossa Senhora da Graça près d’Elvas, Portugal (© Luis Pina Photography/Shutterstock)|Une étoile pour la victoire|![](/fr-FR/2021/06/202106082200ForteNossa.jpg)|
 202106092200|AnnularEclipse|Éclipse annulaire au-dessus du Nouveau Mexique, États-Unis, 20 mai 2012 (© ssucsy/Getty Images)|Anneau de feu|![](/fr-FR/2021/06/202106092200AnnularEclipse.jpg)|
 202106102200|GlenEtive|Petit loch et bruyère en fleur à Glen Etive, Écosse (© Oliver Hellowell/Minden Pictures)|Une virée dans les Highlands|![](/fr-FR/2021/06/202106102200GlenEtive.jpg)|
+202106112200|BBNPGrande|Vue sur le Rio Grande dans le parc national de Big Bend, Texas, États-Unis (© Ian Shive/Tandem Stills + Motion)|Grandeur texane|![](/fr-FR/2021/06/202106112200BBNPGrande.jpg)|
