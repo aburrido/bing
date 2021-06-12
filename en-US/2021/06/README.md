@@ -13,3 +13,4 @@
 202106100700|ForteNossa|Nossa Senhora da Graça Fort near Elvas, Portugal (© Luis Pina Photography/Shutterstock)|A Portuguese fort takes a star turn|![](/en-US/2021/06/202106100700ForteNossa.jpg)|
 202106110700|GlenEtive|Small loch in Glen Etive, Scotland (© Oliver Hellowell/Minden Pictures)|An island in the Highlands|![](/en-US/2021/06/202106110700GlenEtive.jpg)|
 ||||![](/en-US/2021/06/.jpg)|
+202106120700|BBNPGrande|View of the Rio Grande in Big Bend National Park, Texas (© Ian Shive/Tandem Stills + Motion)|In Texas, even the riverbend is big|![](/en-US/2021/06/202106120700BBNPGrande.jpg)|
