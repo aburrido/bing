@@ -12,3 +12,4 @@
 202106091830|AnnularEclipse|Annular eclipse over New Mexico, May 20, 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-IN/2021/06/202106091830AnnularEclipse.jpg)|
 202106101830|XicXelvona|Xic Xelvona village in South Goa, India (© Brandon van Son/TANDEM Stills + Motion)|India’s capital of coastal cool|![](/en-IN/2021/06/202106101830XicXelvona.jpg)|
 202106111830|BBNPGrande|View of the Rio Grande River in Big Bend National Park, Texas (© Ian Shive/Tandem Stills + Motion)|In Texas, even the riverbend is big|![](/en-IN/2021/06/202106111830BBNPGrande.jpg)|
+202106121830|FinlandBrownBear|Eurasian brown bear cub in the taiga forest, Finland (© Jules Cox/Minden Pictures)|Bear watching in the Finnish forest|![](/en-IN/2021/06/202106121830FinlandBrownBear.jpg)|
