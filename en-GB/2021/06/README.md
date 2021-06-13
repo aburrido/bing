@@ -13,3 +13,4 @@
 202106102300|PoellatWasserfall|Waterfall at Pöllat Gorge near Neuschwanstein Castle, Bavaria, Germany (© Gary Whitton/Alamy)|Thundering through Bavaria|![](/en-GB/2021/06/202106102300PoellatWasserfall.jpg)|
 202106112300|BBNPGrande|View of the Rio Grande River in Big Bend National Park, Texas, USA (© Ian Shive/Tandem Stills + Motion)|Everything's bigger in Texas|![](/en-GB/2021/06/202106112300BBNPGrande.jpg)|
 202106122300|FinlandBrownBear|Eurasian brown bear cub in the taiga forest, Finland (© Jules Cox/Minden Pictures)|Bear-watching in the Finnish forest|![](/en-GB/2021/06/202106122300FinlandBrownBear.jpg)|
+202106132300|LavenderBlooms|Lavender fields at lavender farm, Islip, Chipping Norton, Oxfordshire (© Peter Greenway/EyeEm/Getty Images)|The scent of summer|![](/en-GB/2021/06/202106132300LavenderBlooms.jpg)|
