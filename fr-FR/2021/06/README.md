@@ -13,3 +13,4 @@
 202106102200|GlenEtive|Petit loch et bruyère en fleur à Glen Etive, Écosse (© Oliver Hellowell/Minden Pictures)|Une virée dans les Highlands|![](/fr-FR/2021/06/202106102200GlenEtive.jpg)|
 202106112200|BBNPGrande|Vue sur le Rio Grande dans le parc national de Big Bend, Texas, États-Unis (© Ian Shive/Tandem Stills + Motion)|Grandeur texane|![](/fr-FR/2021/06/202106112200BBNPGrande.jpg)|
 202106122200|FinlandBrownBear|Ours brun dans la taïga, Finlande (© Jules Cox/Minden Pictures)|L’heure des ours|![](/fr-FR/2021/06/202106122200FinlandBrownBear.jpg)|
+202106132200|SpiritMaligne|Île de l’Esprit sur le lac Maligne, parc national de Jasper, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|Le paradis des photographes|![](/fr-FR/2021/06/202106132200SpiritMaligne.jpg)|
