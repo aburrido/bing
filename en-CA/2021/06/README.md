@@ -13,3 +13,4 @@
 202106100400|AnnularEclipse|Annular eclipse over New Mexico, May 20, 2012 (© ssucsy/Getty Images)|Ring of fire|![](/en-CA/2021/06/202106100400AnnularEclipse.jpg)|
 202106110400|GlenEtive|Small loch in Glen Etive, Scotland (© Oliver Hellowell/Minden Pictures)|An island in the Highlands|![](/en-CA/2021/06/202106110400GlenEtive.jpg)|
 202106120400|BBNPGrande|View of the Rio Grande River in Big Bend National Park, Texas (© Ian Shive/Tandem Stills + Motion)|In Texas, even the riverbend is big|![](/en-CA/2021/06/202106120400BBNPGrande.jpg)|
+202106130400|BearCub|A black bear cub in a tree (© Richard Wright/DanitaDelimont.com)|Peek-a-boo!|![](/en-CA/2021/06/202106130400BearCub.jpg)|

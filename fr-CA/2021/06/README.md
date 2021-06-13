@@ -12,3 +12,4 @@
 202106100400|AnnularEclipse|L’éclipse annulaire du 20 mai 2012 au-dessus du Nouveau-Mexique (© ssucsy/Getty Images)||![](/fr-CA/2021/06/202106100400AnnularEclipse.jpg)|
 202106110400|GlenEtive|Petit loch avec bruyère fleurie à Glen Etive en Écosse (© Oliver Hellowell/Minden Pictures)||![](/fr-CA/2021/06/202106110400GlenEtive.jpg)|
 202106120400|BBNPGrande|Vue du fleuve Rio Grande dans le parc national de Big Bend au Texas (© Ian Shive/Tandem Stills + Motion)||![](/fr-CA/2021/06/202106120400BBNPGrande.jpg)|
+202106130400|BearCub|Un ourson noir dans un arbre (© Richard Wright/DanitaDelimont.com)||![](/fr-CA/2021/06/202106130400BearCub.jpg)|
