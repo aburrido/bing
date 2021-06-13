@@ -13,3 +13,4 @@
 202106101500|GlenEtive|｢グレン・エティブのエティブ湖｣スコットランド  （© Oliver Hellowell/Minden Pictures）|伝説の湖|![](/ja-JP/2021/06/202106101500GlenEtive.jpg)|
 202106111500|BBNPGrande|｢ビッグベンド国立公園のリオグランデ川｣米国, テキサス州 （© Ian Shive/Tandem Stills + Motion）|ビッグベンド国立公園設立記念日|![](/ja-JP/2021/06/202106111500BBNPGrande.jpg)|
 202106121500|Hayabusa2|｢はやぶさ 2 から切り離されたカプセル落下の瞬間｣オーストラリア, ウーメラ (© MORGAN SETTE/Getty Images)|小惑星探査機はやぶさの日|![](/ja-JP/2021/06/202106121500Hayabusa2.jpg)|
+||||![](/ja-JP/2021/06/.jpg)|
