@@ -13,3 +13,4 @@
 202106100700|AnnularEclipse|Annular eclipse over New Mexico, USA, 20 May 2012 (© ssucsy/Getty Images)|Info|![](/en-AU/2021/06/202106100700AnnularEclipse.jpg)|
 202106110700|GlenEtive|Small loch in Glen Etive, Scotland (© Oliver Hellowell/Minden Pictures)|Info|![](/en-AU/2021/06/202106110700GlenEtive.jpg)|
 202106120700|BBNPGrande|Rio Grande river, Big Bend National Park, Texas, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2021/06/202106120700BBNPGrande.jpg)|
+202106130700|FinlandBrownBear|Eurasian brown bear cub, Finland (© Jules Cox/Minden Pictures)|Info|![](/en-AU/2021/06/202106130700FinlandBrownBear.jpg)|
