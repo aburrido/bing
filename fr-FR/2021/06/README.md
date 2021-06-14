@@ -14,3 +14,4 @@
 202106112200|BBNPGrande|Vue sur le Rio Grande dans le parc national de Big Bend, Texas, États-Unis (© Ian Shive/Tandem Stills + Motion)|Grandeur texane|![](/fr-FR/2021/06/202106112200BBNPGrande.jpg)|
 202106122200|FinlandBrownBear|Ours brun dans la taïga, Finlande (© Jules Cox/Minden Pictures)|L’heure des ours|![](/fr-FR/2021/06/202106122200FinlandBrownBear.jpg)|
 202106132200|SpiritMaligne|Île de l’Esprit sur le lac Maligne, parc national de Jasper, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|Le paradis des photographes|![](/fr-FR/2021/06/202106132200SpiritMaligne.jpg)|
+202106142200|LakePinatubo|Vue aérienne du lac Pinatubo, Porac, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Êtes-vous plus vieux que ce lac ?|![](/fr-FR/2021/06/202106142200LakePinatubo.jpg)|

@@ -14,3 +14,4 @@
 202106112200|BBNPGrande|Blick auf den Rio Grande im Big-Bend-Nationalpark, Texas, USA (© Ian Shive/Tandem Stills + Motion)|In Texas ist sogar die Flusskurve riesig|![](/de-DE/2021/06/202106112200BBNPGrande.jpg)|
 202106122200|GartentagSonnenblume|Sommerwiese mit Sonnenblumen, Deutschland (© DEEPOL by plainpicture/Thomas Jäger)|Blumige Aussichten|![](/de-DE/2021/06/202106122200GartentagSonnenblume.jpg)|
 202106132200|SpiritMaligne|Spirit Island im Maligne Lake, Jasper-Nationalpark, Alberta, Kanada (© Jeff Penner/EyeEm/Getty Images)|Ein Paradies für Fotografen|![](/de-DE/2021/06/202106132200SpiritMaligne.jpg)|
+202106142200|LakePinatubo|Luftaufnahme des Kratersees im Vulkan Pinatubo, Porac, Philippinen (© Amazing Aerial Agency/Offset by Shutterstock)|Sind Sie älter als dieser See?|![](/de-DE/2021/06/202106142200LakePinatubo.jpg)|
