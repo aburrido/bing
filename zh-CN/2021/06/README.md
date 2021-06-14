@@ -14,3 +14,4 @@
 202106111600|BBNPGrande|大弯国家公园中里奥格兰德河的景色，德克萨斯州 (© Ian Shive/Tandem Stills + Motion)||![](/zh-CN/2021/06/202106111600BBNPGrande.jpg)|
 202106121600|FinlandBrownBear|北方针叶林中的欧洲棕熊幼崽，芬兰 (© Jules Cox/Minden Pictures)||![](/zh-CN/2021/06/202106121600FinlandBrownBear.jpg)|
 202106131600|DragonBoatFestival2021|【端午安康】 （ © 	Shutterstock ）||![](/zh-CN/2021/06/202106131600DragonBoatFestival2021.jpg)|
+202106141600|LakePinatubo|鸟瞰皮纳图博火山湖和山脉，菲律宾波拉克 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/06/202106141600LakePinatubo.jpg)|
