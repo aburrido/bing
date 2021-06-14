@@ -14,3 +14,4 @@
 202106110400|GlenEtive|Small loch in Glen Etive, Scotland (© Oliver Hellowell/Minden Pictures)|An island in the Highlands|![](/en-CA/2021/06/202106110400GlenEtive.jpg)|
 202106120400|BBNPGrande|View of the Rio Grande River in Big Bend National Park, Texas (© Ian Shive/Tandem Stills + Motion)|In Texas, even the riverbend is big|![](/en-CA/2021/06/202106120400BBNPGrande.jpg)|
 202106130400|BearCub|A black bear cub in a tree (© Richard Wright/DanitaDelimont.com)|Peek-a-boo!|![](/en-CA/2021/06/202106130400BearCub.jpg)|
+202106140400|SpiritMaligne|Spirit Island in Maligne Lake, Jasper National Park, Alberta (© Jeff Penner/EyeEm/Getty Images)|A photographer’s paradise|![](/en-CA/2021/06/202106140400SpiritMaligne.jpg)|
