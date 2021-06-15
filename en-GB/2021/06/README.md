@@ -15,3 +15,4 @@
 202106122300|FinlandBrownBear|Eurasian brown bear cub in the taiga forest, Finland (© Jules Cox/Minden Pictures)|Bear-watching in the Finnish forest|![](/en-GB/2021/06/202106122300FinlandBrownBear.jpg)|
 202106132300|LavenderBlooms|Lavender fields at lavender farm, Islip, Chipping Norton, Oxfordshire (© Peter Greenway/EyeEm/Getty Images)|The scent of summer|![](/en-GB/2021/06/202106132300LavenderBlooms.jpg)|
 202106142300|LakePinatubo|Aerial view of volcanic Lake Pinatubo and mountains, Porac, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Are you older than this lake?|![](/en-GB/2021/06/202106142300LakePinatubo.jpg)|
+202106152300|GBRTurtle|Green sea turtle diving, Great Barrier Reef, Queensland, Australia (© imageBROKER/Alamy)|Wave your flippers in the air…|![](/en-GB/2021/06/202106152300GBRTurtle.jpg)|
