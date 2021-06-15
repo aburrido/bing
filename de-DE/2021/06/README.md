@@ -15,3 +15,4 @@
 202106122200|GartentagSonnenblume|Sommerwiese mit Sonnenblumen, Deutschland (© DEEPOL by plainpicture/Thomas Jäger)|Blumige Aussichten|![](/de-DE/2021/06/202106122200GartentagSonnenblume.jpg)|
 202106132200|SpiritMaligne|Spirit Island im Maligne Lake, Jasper-Nationalpark, Alberta, Kanada (© Jeff Penner/EyeEm/Getty Images)|Ein Paradies für Fotografen|![](/de-DE/2021/06/202106132200SpiritMaligne.jpg)|
 202106142200|LakePinatubo|Luftaufnahme des Kratersees im Vulkan Pinatubo, Porac, Philippinen (© Amazing Aerial Agency/Offset by Shutterstock)|Sind Sie älter als dieser See?|![](/de-DE/2021/06/202106142200LakePinatubo.jpg)|
+202106152200|GBRTurtle|Grüne Meeresschildkröte, Great Barrier Reef, Queensland, Australien (© imageBROKER/Alamy)|„Gleitflug“ durch das Meer|![](/de-DE/2021/06/202106152200GBRTurtle.jpg)|

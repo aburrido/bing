@@ -15,3 +15,4 @@
 202106122200|FinlandBrownBear|Ours brun dans la taïga, Finlande (© Jules Cox/Minden Pictures)|L’heure des ours|![](/fr-FR/2021/06/202106122200FinlandBrownBear.jpg)|
 202106132200|SpiritMaligne|Île de l’Esprit sur le lac Maligne, parc national de Jasper, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|Le paradis des photographes|![](/fr-FR/2021/06/202106132200SpiritMaligne.jpg)|
 202106142200|LakePinatubo|Vue aérienne du lac Pinatubo, Porac, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Êtes-vous plus vieux que ce lac ?|![](/fr-FR/2021/06/202106142200LakePinatubo.jpg)|
+202106152200|GBRTurtle|Tortue verte près de la Grande barrière de corail, Queensland, Australie (© imageBROKER/Alamy)|Tortue volante ?|![](/fr-FR/2021/06/202106152200GBRTurtle.jpg)|
