@@ -15,3 +15,4 @@
 202106120700|BBNPGrande|Rio Grande river, Big Bend National Park, Texas, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2021/06/202106120700BBNPGrande.jpg)|
 202106130700|FinlandBrownBear|Eurasian brown bear cub, Finland (© Jules Cox/Minden Pictures)|Info|![](/en-AU/2021/06/202106130700FinlandBrownBear.jpg)|
 202106140700|SpiritMaligne|Spirit Island, Maligne Lake, Jasper National Park, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|Info|![](/en-AU/2021/06/202106140700SpiritMaligne.jpg)|
+202106150700|LakePinatubo|Lake Pinatubo, Zambales, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/06/202106150700LakePinatubo.jpg)|
