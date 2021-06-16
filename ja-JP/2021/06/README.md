@@ -17,3 +17,4 @@
 202106131500|SpiritMaligne|｢マリーンレイクに浮かぶスピリットアイランド｣カナダ, アルバータ州 （© Jeff Penner/EyeEm/Getty Images）|カナディアン・ロッキーの氷河湖|![](/ja-JP/2021/06/202106131500SpiritMaligne.jpg)|
 202106141500|LakePinatubo|｢ピナトゥボ山とクレーター湖｣フィリピン, ポラック （© Amazing Aerial Agency/Offset by Shutterstock）|大噴火が作った湖|![](/ja-JP/2021/06/202106141500LakePinatubo.jpg)|
 202106151500|GBRTurtle|｢アオウミガメ｣オーストラリア, グレートバリアリーフ （© imageBROKER/Alamy）|絶滅危惧種のウミガメ|![](/ja-JP/2021/06/202106151500GBRTurtle.jpg)|
+202106161500|BrightEye|｢ナパリコーストのブライトアイケーブ｣ハワイ, カウアイ島 （© jimkruger/Getty Images）|緑の断崖絶壁の洞窟|![](/ja-JP/2021/06/202106161500BrightEye.jpg)|
