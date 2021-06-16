@@ -15,3 +15,4 @@
 202106130400|BearCub|Un ourson noir dans un arbre (© Richard Wright/DanitaDelimont.com)||![](/fr-CA/2021/06/202106130400BearCub.jpg)|
 202106140400|SpiritMaligne|L’île Spirit dans le lac Maligne, parc national Jasper, Alberta (© Jeff Penner/EyeEm/Getty Images)||![](/fr-CA/2021/06/202106140400SpiritMaligne.jpg)|
 202106150400|LakePinatubo|Vue aérienne du lac volcanique Pinatubo et des montagnes, Porac, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/06/202106150400LakePinatubo.jpg)|
+202106160400|GBRTurtle|Plongée des tortues de mer vertes, Grande Barrière de Corail, Queensland, Australie (© imageBROKER/Alamy)||![](/fr-CA/2021/06/202106160400GBRTurtle.jpg)|
