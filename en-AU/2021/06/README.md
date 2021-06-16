@@ -16,3 +16,4 @@
 202106130700|FinlandBrownBear|Eurasian brown bear cub, Finland (© Jules Cox/Minden Pictures)|Info|![](/en-AU/2021/06/202106130700FinlandBrownBear.jpg)|
 202106140700|SpiritMaligne|Spirit Island, Maligne Lake, Jasper National Park, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|Info|![](/en-AU/2021/06/202106140700SpiritMaligne.jpg)|
 202106150700|LakePinatubo|Lake Pinatubo, Zambales, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/06/202106150700LakePinatubo.jpg)|
+202106160700|TamihiBC|Tamihi Creek, British Columbia, Canada (© Jason Wilde/TANDEM Stills + Motion)|Info|![](/en-AU/2021/06/202106160700TamihiBC.jpg)|

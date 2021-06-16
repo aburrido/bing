@@ -17,3 +17,4 @@
 202106130700|FinlandBrownBear|Eurasian brown bear cub in the taiga forest, Finland (© Jules Cox/Minden Pictures)|Bear watching in the Finnish forest|![](/en-US/2021/06/202106130700FinlandBrownBear.jpg)|
 202106140700|LargestFlag|The George Washington Bridge displays the American flag in honor of Flag Day, June 14, 2016, Fort Lee, New Jersey (© Robert D. Barnes/Getty Images)|A Flag Day tradition|![](/en-US/2021/06/202106140700LargestFlag.jpg)|
 202106150700|LakePinatubo|Aerial view of volcanic Lake Pinatubo and mountains, Luzon, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Are you older than this lake?|![](/en-US/2021/06/202106150700LakePinatubo.jpg)|
+202106160700|GBRTurtle|Green sea turtle diving, Great Barrier Reef, Queensland, Australia (© imageBROKER/Alamy)|Put your flippers in the air…|![](/en-US/2021/06/202106160700GBRTurtle.jpg)|
