@@ -17,3 +17,4 @@
 202106142200|LakePinatubo|Vue aérienne du lac Pinatubo, Porac, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Êtes-vous plus vieux que ce lac ?|![](/fr-FR/2021/06/202106142200LakePinatubo.jpg)|
 202106152200|GBRTurtle|Tortue verte près de la Grande barrière de corail, Queensland, Australie (© imageBROKER/Alamy)|Tortue volante ?|![](/fr-FR/2021/06/202106152200GBRTurtle.jpg)|
 202106162200|BrightEye|Grote Bright Eye  sur la côte Nā Pali, Kauai, Hawaï (© jimkruger/Getty Images)|Hawaï autrement|![](/fr-FR/2021/06/202106162200BrightEye.jpg)|
+202106172200|ReussRiver|Vue aérienne du Kapellbrücke traversant la rivière Reuss à Lucerne, Suisse (© Neleman Initiative/Gallery Stock)|Traversée artistique|![](/fr-FR/2021/06/202106172200ReussRiver.jpg)|

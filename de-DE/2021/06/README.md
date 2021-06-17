@@ -17,3 +17,4 @@
 202106142200|LakePinatubo|Luftaufnahme des Kratersees im Vulkan Pinatubo, Porac, Philippinen (© Amazing Aerial Agency/Offset by Shutterstock)|Sind Sie älter als dieser See?|![](/de-DE/2021/06/202106142200LakePinatubo.jpg)|
 202106152200|GBRTurtle|Grüne Meeresschildkröte, Great Barrier Reef, Queensland, Australien (© imageBROKER/Alamy)|„Gleitflug“ durch das Meer|![](/de-DE/2021/06/202106152200GBRTurtle.jpg)|
 202106162200|BrightEye|Meereshöhle „Bright Eye“, Nā Pali Coast, Kauai, Hawaii, USA (© jimkruger/Getty Images)|Ein weiterer Tag im Paradies|![](/de-DE/2021/06/202106162200BrightEye.jpg)|
+202106172200|ReussRiver|Luftbildaufnahme der Kapellbrücke über die Reuss, Luzern, Schweiz (© Neleman Initiative/Gallery Stock)|Stadt der Brücken in der Zentralschweiz|![](/de-DE/2021/06/202106172200ReussRiver.jpg)|
