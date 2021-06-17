@@ -17,3 +17,4 @@
 202106141600|LakePinatubo|鸟瞰皮纳图博火山湖和山脉，菲律宾波拉克 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/06/202106141600LakePinatubo.jpg)|
 202106151600|GBRTurtle|正在潜水的绿蠵龟，澳大利亚大堡礁 (© imageBROKER/Alamy)||![](/zh-CN/2021/06/202106151600GBRTurtle.jpg)|
 202106161600|BrightEye|Nā pali海岸上的Bright Eye海蚀洞，夏威夷考艾岛 (© jimkruger/Getty Images)||![](/zh-CN/2021/06/202106161600BrightEye.jpg)|
+202106171600|ReussRiver|Aerial view of Chapel Bridge over the river Reuss in Lucerne, Switzerland (© Neleman Initiative/Gallery Stock)||![](/zh-CN/2021/06/202106171600ReussRiver.jpg)|
