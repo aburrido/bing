@@ -17,3 +17,4 @@
 202106140400|SpiritMaligne|Spirit Island in Maligne Lake, Jasper National Park, Alberta (© Jeff Penner/EyeEm/Getty Images)|A photographer’s paradise|![](/en-CA/2021/06/202106140400SpiritMaligne.jpg)|
 202106150400|LakePinatubo|Aerial view of volcanic Lake Pinatubo and mountains, Porac, Philippines (© Amazing Aerial Agency/Offset by Shutterstock)|Are you older than this lake?|![](/en-CA/2021/06/202106150400LakePinatubo.jpg)|
 202106160400|GBRTurtle|Green sea turtle diving, Great Barrier Reef, Queensland, Australia (© imageBROKER/Alamy)|Put your flippers in the air…|![](/en-CA/2021/06/202106160400GBRTurtle.jpg)|
+202106170400|BrightEye|Bright Eye sea cave on the Nā Pali Coast, Kauai, Hawaii (© jimkruger/Getty Images)|Just another day in paradise|![](/en-CA/2021/06/202106170400BrightEye.jpg)|
