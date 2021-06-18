@@ -18,3 +18,4 @@
 202106152200|GBRTurtle|Tortue verte près de la Grande barrière de corail, Queensland, Australie (© imageBROKER/Alamy)|Tortue volante ?|![](/fr-FR/2021/06/202106152200GBRTurtle.jpg)|
 202106162200|BrightEye|Grote Bright Eye  sur la côte Nā Pali, Kauai, Hawaï (© jimkruger/Getty Images)|Hawaï autrement|![](/fr-FR/2021/06/202106162200BrightEye.jpg)|
 202106172200|ReussRiver|Vue aérienne du Kapellbrücke traversant la rivière Reuss à Lucerne, Suisse (© Neleman Initiative/Gallery Stock)|Traversée artistique|![](/fr-FR/2021/06/202106172200ReussRiver.jpg)|
+202106182200|BurleighHeads|Surfeurs à Burleigh Heads, Gold Coast, Australie (© Vicki Smith/Getty Images)|Pour les rois de la glisse|![](/fr-FR/2021/06/202106182200BurleighHeads.jpg)|
