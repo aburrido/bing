@@ -19,3 +19,4 @@
 202106151500|GBRTurtle|｢アオウミガメ｣オーストラリア, グレートバリアリーフ （© imageBROKER/Alamy）|絶滅危惧種のウミガメ|![](/ja-JP/2021/06/202106151500GBRTurtle.jpg)|
 202106161500|BrightEye|｢ナパリコーストのブライトアイケーブ｣ハワイ, カウアイ島 （© jimkruger/Getty Images）|緑の断崖絶壁の洞窟|![](/ja-JP/2021/06/202106161500BrightEye.jpg)|
 202106171500|ReussRiver|｢ロイス川のカペル橋｣スイス, ルツェルン (© Neleman Initiative/Gallery Stock)|最古の木造橋|![](/ja-JP/2021/06/202106171500ReussRiver.jpg)|
+202106181500|BurleighHeads|｢バーレーヘッズのサーファーたち｣オーストラリア, ゴールドコースト (© Vicki Smith/Getty Images)|今日は国際サーフィンデー|![](/ja-JP/2021/06/202106181500BurleighHeads.jpg)|
