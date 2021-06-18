@@ -18,3 +18,4 @@
 202106152300|GBRTurtle|Green sea turtle diving, Great Barrier Reef, Queensland, Australia (© imageBROKER/Alamy)|Wave your flippers in the air…|![](/en-GB/2021/06/202106152300GBRTurtle.jpg)|
 202106162300|BrightEye|Bright Eye sea cave on the Nā Pali Coast, Kauai, Hawaii, USA (© jimkruger/Getty Images)|Just another day in paradise|![](/en-GB/2021/06/202106162300BrightEye.jpg)|
 202106172300|ReussRiver|Aerial view of Chapel Bridge over the river Reuss in Lucerne, Switzerland (© Neleman Initiative/Gallery Stock)|A city of bridges|![](/en-GB/2021/06/202106172300ReussRiver.jpg)|
+202106182300|BurleighHeads|People surfing at Burleigh Heads, Gold Coast, Australia (© Vicki Smith/Getty Images)|Surf's up, Down Under|![](/en-GB/2021/06/202106182300BurleighHeads.jpg)|
