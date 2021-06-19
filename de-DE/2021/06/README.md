@@ -19,3 +19,4 @@
 202106162200|BrightEye|Meereshöhle „Bright Eye“, Nā Pali Coast, Kauai, Hawaii, USA (© jimkruger/Getty Images)|Ein weiterer Tag im Paradies|![](/de-DE/2021/06/202106162200BrightEye.jpg)|
 202106172200|ReussRiver|Luftbildaufnahme der Kapellbrücke über die Reuss, Luzern, Schweiz (© Neleman Initiative/Gallery Stock)|Stadt der Brücken in der Zentralschweiz|![](/de-DE/2021/06/202106172200ReussRiver.jpg)|
 202106182200|BurleighHeads|Surfer bei Burleigh Heads, Gold Coast, Australien (© Vicki Smith/Getty Images)|Surfspaß Down Under|![](/de-DE/2021/06/202106182200BurleighHeads.jpg)|
+202106192200|FatherEagle|Weißkopfseeadler und Küken in ihrem Nest in der Nähe des Yukon River, Yukon Territorium, Kanada (© Mark Newman/Minden Pictures)|Comeback eines Wappenvogels|![](/de-DE/2021/06/202106192200FatherEagle.jpg)|
