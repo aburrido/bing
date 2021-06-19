@@ -18,3 +18,4 @@
 202106160400|GBRTurtle|Plongée des tortues de mer vertes, Grande Barrière de Corail, Queensland, Australie (© imageBROKER/Alamy)||![](/fr-CA/2021/06/202106160400GBRTurtle.jpg)|
 202106170400|BrightEye|Grotte marine Bright Eye sur la côte Nā Pali, Kauai, Hawaii (© jimkruger/Getty Images)||![](/fr-CA/2021/06/202106170400BrightEye.jpg)|
 202106180400|ReussRiver|Vue aérienne du pont de la Chapelle sur la rivière Reuss à Lucerne, en Suisse (© Neleman Initiative/Gallery Stock)||![](/fr-CA/2021/06/202106180400ReussRiver.jpg)|
+202106190400|BurleighHeads|Des gens font du surf à Burleigh Heads, Gold Coast, Australie (© Vicki Smith/Getty Images)||![](/fr-CA/2021/06/202106190400BurleighHeads.jpg)|
