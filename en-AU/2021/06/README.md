@@ -19,3 +19,4 @@
 202106160700|TamihiBC|Tamihi Creek, British Columbia, Canada (© Jason Wilde/TANDEM Stills + Motion)|Info|![](/en-AU/2021/06/202106160700TamihiBC.jpg)|
 202106170700|BrightEye|Bright Eye sea cave, Nā Pali Coast, Kauai, Hawaii, USA (© jimkruger/Getty Images)|Info|![](/en-AU/2021/06/202106170700BrightEye.jpg)|
 202106180700|ReussRiver|Chapel Bridge over the river Reuss in Lucerne, Switzerland (© Neleman Initiative/Gallery Stock)|Info|![](/en-AU/2021/06/202106180700ReussRiver.jpg)|
+202106190700|GreaterFlamingosIndia|Greater flamingos, India (© Amresh Mishra/500px/Getty Images)|Info|![](/en-AU/2021/06/202106190700GreaterFlamingosIndia.jpg)|
