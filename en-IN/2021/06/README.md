@@ -20,3 +20,4 @@
 202106171830|ReussRiver|Aerial view of Chapel Bridge over the river Reuss in Lucerne, Switzerland (© Neleman Initiative/Gallery Stock)|A Swiss city of bridges|![](/en-IN/2021/06/202106171830ReussRiver.jpg)|
 202106181830|BurleighHeads|People surfing at Burleigh Heads, Gold Coast, Australia (© Vicki Smith/Getty Images)|It's International Surfing Day!|![](/en-IN/2021/06/202106181830BurleighHeads.jpg)|
 202106191830|FatherEagle|Bald eagle pair with a chick in their nest near the Yukon River, Yukon, Canada (© Mark Newman/Minden Pictures)|Happy Father's Day|![](/en-IN/2021/06/202106191830FatherEagle.jpg)|
+202106201830|TheBeatlesAshram|The Beatles Ashram in Rishikesh, India (© Alexander Chizhenok/Shutterstock)|International Day of Yoga|![](/en-IN/2021/06/202106201830TheBeatlesAshram.jpg)|
