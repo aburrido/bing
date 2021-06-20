@@ -20,3 +20,4 @@
 202106172300|ReussRiver|Aerial view of Chapel Bridge over the river Reuss in Lucerne, Switzerland (© Neleman Initiative/Gallery Stock)|A city of bridges|![](/en-GB/2021/06/202106172300ReussRiver.jpg)|
 202106182300|BurleighHeads|People surfing at Burleigh Heads, Gold Coast, Australia (© Vicki Smith/Getty Images)|Surf's up, Down Under|![](/en-GB/2021/06/202106182300BurleighHeads.jpg)|
 202106192300|FatherEagle|Bald eagle pair with a chick in their nest near the Yukon River, Yukon, Canada (© Mark Newman/Minden Pictures)|Happy Father's Day|![](/en-GB/2021/06/202106192300FatherEagle.jpg)|
+202106202300|RothschildGiraffe|Rothschild's giraffe in Lake Nakuru National Park, Kenya (© Theo Allofs/Minden Pictures)|The tallest animal on the longest day|![](/en-GB/2021/06/202106202300RothschildGiraffe.jpg)|
