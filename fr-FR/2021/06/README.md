@@ -20,3 +20,4 @@
 202106172200|ReussRiver|Vue aérienne du Kapellbrücke traversant la rivière Reuss à Lucerne, Suisse (© Neleman Initiative/Gallery Stock)|Traversée artistique|![](/fr-FR/2021/06/202106172200ReussRiver.jpg)|
 202106182200|BurleighHeads|Surfeurs à Burleigh Heads, Gold Coast, Australie (© Vicki Smith/Getty Images)|Pour les rois de la glisse|![](/fr-FR/2021/06/202106182200BurleighHeads.jpg)|
 202106192200|FathersDay|Deux petits manchots Empereurs, Antarctique (© Jan Vermeer/Minden Pictures)|Bonne fête Papa !|![](/fr-FR/2021/06/202106192200FathersDay.jpg)|
+202106202200|MusicDay|Plan rapproché d'un cor d'harmonie (© Bill Oxford/iStock/Getty Images Plus)|On fête l'été et la musique !|![](/fr-FR/2021/06/202106202200MusicDay.jpg)|
