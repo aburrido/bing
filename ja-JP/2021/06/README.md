@@ -21,3 +21,4 @@
 202106171500|ReussRiver|｢ロイス川のカペル橋｣スイス, ルツェルン (© Neleman Initiative/Gallery Stock)|最古の木造橋|![](/ja-JP/2021/06/202106171500ReussRiver.jpg)|
 202106181500|BurleighHeads|｢バーレーヘッズのサーファーたち｣オーストラリア, ゴールドコースト (© Vicki Smith/Getty Images)|今日は国際サーフィンデー|![](/ja-JP/2021/06/202106181500BurleighHeads.jpg)|
 202106191500|FatherEagle|｢ユーコン川そばの巣のハクトウワシ｣カナダ, ユーコン州 (© Mark Newman/Minen Pictures)|今日はイーグルデー|![](/ja-JP/2021/06/202106191500FatherEagle.jpg)|
+202106201500|RothschildGiraffe|｢ナクル湖国立公園のロスチャイルドキリン｣ケニヤ (© Theo Allofs/Minden Pictures)|今日は世界キリンの日|![](/ja-JP/2021/06/202106201500RothschildGiraffe.jpg)|
