@@ -21,3 +21,4 @@
 202106181600|BurleighHeads|在伯利角冲浪的人们，澳大利亚黄金海岸 (© Vicki Smith/Getty Images)||![](/zh-CN/2021/06/202106181600BurleighHeads.jpg)|
 202106191600|FatherEagle|育空河附近巢穴中的一对白头海雕和雏鹰，加拿大育空 (© Mark Newman/Minden Pictures)||![](/zh-CN/2021/06/202106191600FatherEagle.jpg)|
 202106201600|RothschildGiraffe|纳库鲁湖国家公园中的罗氏长颈鹿，肯尼亚 (© Theo Allofs/Minden Pictures)||![](/zh-CN/2021/06/202106201600RothschildGiraffe.jpg)|
+||||![](/zh-CN/2021/06/.jpg)|
