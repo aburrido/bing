@@ -22,3 +22,4 @@
 202106192200|FatherEagle|Weißkopfseeadler und Küken in ihrem Nest in der Nähe des Yukon River, Yukon Territorium, Kanada (© Mark Newman/Minden Pictures)|Comeback eines Wappenvogels|![](/de-DE/2021/06/202106192200FatherEagle.jpg)|
 202106202200|RothschildGiraffe|Rothschild-Giraffe im Lake-Nakuru-Nationalpark, Kenia (© Theo Allofs/Minden Pictures)|Das höchste Landtier am längsten Tag des Jahres|![](/de-DE/2021/06/202106202200RothschildGiraffe.jpg)|
 202106212200|SouthCoast|Der Wasserfall Seljalandsfoss an der Südküste Islands im Schein der Mitternachtssonne (© Tom Mackie/plainpicture)|Im Land der Mitternachtssonne|![](/de-DE/2021/06/202106212200SouthCoast.jpg)|
+202106222200|Nichinan|Leuchtkäfer in einem Wald bei Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Willkommen in der Wald-Disco!|![](/de-DE/2021/06/202106222200Nichinan.jpg)|

@@ -22,3 +22,4 @@
 202106192200|FathersDay|Deux petits manchots Empereurs, Antarctique (© Jan Vermeer/Minden Pictures)|Bonne fête Papa !|![](/fr-FR/2021/06/202106192200FathersDay.jpg)|
 202106202200|MusicDay|Plan rapproché d'un cor d'harmonie (© Bill Oxford/iStock/Getty Images Plus)|On fête l'été et la musique !|![](/fr-FR/2021/06/202106202200MusicDay.jpg)|
 202106212200|SouthCoast|Le soleil de minuit derrière la cascade Seljalandsfoss près de la côte sud de l’Islande (© Tom Mackie/plainpicture)|Terre du soleil de minuit|![](/fr-FR/2021/06/202106212200SouthCoast.jpg)|
+202106222200|Nichinan|Lucioles à Nichinan, Tottori, Japon (© north-tail/Getty Images Plus)|Au bal des lucioles|![](/fr-FR/2021/06/202106222200Nichinan.jpg)|
