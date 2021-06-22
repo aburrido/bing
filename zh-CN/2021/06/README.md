@@ -23,3 +23,4 @@
 202106201600|RothschildGiraffe|纳库鲁湖国家公园中的罗氏长颈鹿，肯尼亚 (© Theo Allofs/Minden Pictures)||![](/zh-CN/2021/06/202106201600RothschildGiraffe.jpg)|
 ||||![](/zh-CN/2021/06/.jpg)|
 202106211600|SouthCoast|塞里雅兰瀑布后的午夜太阳，冰岛南海岸附近 (© Tom Mackie/plainpicture)||![](/zh-CN/2021/06/202106211600SouthCoast.jpg)|
+202106221600|Nichinan|日南市的萤火虫，日本鸟取县 (© north-tail/Getty Images Plus)||![](/zh-CN/2021/06/202106221600Nichinan.jpg)|
