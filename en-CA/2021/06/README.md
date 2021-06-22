@@ -22,3 +22,4 @@
 202106190400|BurleighHeads|People surfing at Burleigh Heads, Gold Coast, Australia (© Vicki Smith/Getty Images)|Surf's up—Down Under|![](/en-CA/2021/06/202106190400BurleighHeads.jpg)|
 202106200400|IbexUtah|A father and a calf Ibex looking into the distance in Utah (© Erwin Sparreboom/Shutterstock)|Happy Father's Day|![](/en-CA/2021/06/202106200400IbexUtah.jpg)|
 202106210400|TheWitnessBlanket|The Witness Blanket at the Canadian Museum of Human Rights, Winnipeg (© Aaron Cohen/Carey Newman/Canadian Museum for Human Rights)|The Witness Blanket|![](/en-CA/2021/06/202106210400TheWitnessBlanket.jpg)|
+202106220400|SouthCoast|View of the midnight sun behind Seljalandsfoss waterfall near the south coast of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-CA/2021/06/202106220400SouthCoast.jpg)|

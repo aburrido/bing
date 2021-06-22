@@ -21,3 +21,4 @@
 202106190400|BurleighHeads|Des gens font du surf à Burleigh Heads, Gold Coast, Australie (© Vicki Smith/Getty Images)||![](/fr-CA/2021/06/202106190400BurleighHeads.jpg)|
 202106200400|IbexUtah|AUn papa bouquetin et son veau regardent au loin dans l'Utah (© Erwin Sparreboom/Shutterstock)||![](/fr-CA/2021/06/202106200400IbexUtah.jpg)|
 202106210400|RothschildGiraffe|Girafe de Rothschild dans le parc national du lac Nakuru au Kenya (© Theo Allofs/Minden Pictures)||![](/fr-CA/2021/06/202106210400RothschildGiraffe.jpg)|
+202106220400|SouthCoast|Vue du soleil de minuit derrière les chutes de Seljalandsfoss, près de la côte sud de l'Islande (© Tom Mackie/plainpicture)||![](/fr-CA/2021/06/202106220400SouthCoast.jpg)|
