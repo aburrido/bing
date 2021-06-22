@@ -22,3 +22,4 @@
 202106190700|GreaterFlamingosIndia|Greater flamingos, India (© Amresh Mishra/500px/Getty Images)|Info|![](/en-AU/2021/06/202106190700GreaterFlamingosIndia.jpg)|
 202106200700|LavenderBlooms|Lavender fields, Oxfordshire, England (© Peter Greenway/EyeEm/Getty Images)|Info|![](/en-AU/2021/06/202106200700LavenderBlooms.jpg)|
 202106210700|RothschildGiraffe|Rothschild's giraffe, Lake Nakuru National Park, Kenya (© Theo Allofs/Minden Pictures)|Info|![](/en-AU/2021/06/202106210700RothschildGiraffe.jpg)|
+202106220700|SouthCoast|Seljalandsfoss waterfall, Iceland (© Tom Mackie/plainpicture)|Info|![](/en-AU/2021/06/202106220700SouthCoast.jpg)|
