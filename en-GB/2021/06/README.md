@@ -22,3 +22,4 @@
 202106192300|FatherEagle|Bald eagle pair with a chick in their nest near the Yukon River, Yukon, Canada (© Mark Newman/Minden Pictures)|Happy Father's Day|![](/en-GB/2021/06/202106192300FatherEagle.jpg)|
 202106202300|RothschildGiraffe|Rothschild's giraffe in Lake Nakuru National Park, Kenya (© Theo Allofs/Minden Pictures)|The tallest animal on the longest day|![](/en-GB/2021/06/202106202300RothschildGiraffe.jpg)|
 202106212300|WindrushDay|Reading the news aboard the Empire Windrush on arrival at Tilbury, Essex on 22 June 1948 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)|Windrush Day|![](/en-GB/2021/06/202106212300WindrushDay.jpg)|
+202106222300|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|A firefly frolic|![](/en-GB/2021/06/202106222300Nichinan.jpg)|
