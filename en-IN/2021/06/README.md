@@ -22,3 +22,4 @@
 202106191830|FatherEagle|Bald eagle pair with a chick in their nest near the Yukon River, Yukon, Canada (© Mark Newman/Minden Pictures)|Happy Father's Day|![](/en-IN/2021/06/202106191830FatherEagle.jpg)|
 202106201830|TheBeatlesAshram|The Beatles Ashram in Rishikesh, India (© Alexander Chizhenok/Shutterstock)|International Day of Yoga|![](/en-IN/2021/06/202106201830TheBeatlesAshram.jpg)|
 202106211830|SouthCoast|View of the midnight sun behind Seljalandsfoss waterfall near the south coast of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-IN/2021/06/202106211830SouthCoast.jpg)|
+202106221830|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Land of the midnight sun|![](/en-IN/2021/06/202106221830Nichinan.jpg)|
