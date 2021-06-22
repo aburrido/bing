@@ -23,3 +23,4 @@
 202106191500|FatherEagle|｢ユーコン川そばの巣のハクトウワシ｣カナダ, ユーコン州 (© Mark Newman/Minen Pictures)|今日はイーグルデー|![](/ja-JP/2021/06/202106191500FatherEagle.jpg)|
 202106201500|RothschildGiraffe|｢ナクル湖国立公園のロスチャイルドキリン｣ケニヤ (© Theo Allofs/Minden Pictures)|今日は世界キリンの日|![](/ja-JP/2021/06/202106201500RothschildGiraffe.jpg)|
 202106211500|SouthCoast|｢セリャラントスフォスの真夜中の太陽｣アイスランド, サウスコースト (© Tom Mackie/plainpicture)|白夜の季節|![](/ja-JP/2021/06/202106211500SouthCoast.jpg)|
+202106221500|Nichinan|｢福万来ホタル乃国のホタル｣鳥取県, 日南町 (© north-tail/Getty Images Plus)|ホタル乃国|![](/ja-JP/2021/06/202106221500Nichinan.jpg)|
