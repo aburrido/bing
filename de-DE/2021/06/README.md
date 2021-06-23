@@ -23,3 +23,4 @@
 202106202200|RothschildGiraffe|Rothschild-Giraffe im Lake-Nakuru-Nationalpark, Kenia (© Theo Allofs/Minden Pictures)|Das höchste Landtier am längsten Tag des Jahres|![](/de-DE/2021/06/202106202200RothschildGiraffe.jpg)|
 202106212200|SouthCoast|Der Wasserfall Seljalandsfoss an der Südküste Islands im Schein der Mitternachtssonne (© Tom Mackie/plainpicture)|Im Land der Mitternachtssonne|![](/de-DE/2021/06/202106212200SouthCoast.jpg)|
 202106222200|Nichinan|Leuchtkäfer in einem Wald bei Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Willkommen in der Wald-Disco!|![](/de-DE/2021/06/202106222200Nichinan.jpg)|
+202106232200|Rhododendron|Rhododendren im Waldpark Semper bei Lietzow auf Rügen, Mecklenburg-Vorpommern (© Sandra Bartocha/Minden Pictures)|Blütenpracht auf Rügen|![](/de-DE/2021/06/202106232200Rhododendron.jpg)|
