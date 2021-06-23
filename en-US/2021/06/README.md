@@ -24,3 +24,4 @@
 202106200700|FatherEagle|Bald eagle pair with a chick in their nest near the Yukon River, Yukon, Canada (© Mark Newman/Minden Pictures)|Happy Father's Day|![](/en-US/2021/06/202106200700FatherEagle.jpg)|
 202106210700|RothschildGiraffe|Rothschild's giraffe in Lake Nakuru National Park, Kenya (© Theo Allofs/Minden Pictures)|The tallest animal in the world on the longest day of the year|![](/en-US/2021/06/202106210700RothschildGiraffe.jpg)|
 202106220700|SouthCoast|Seljalandsfoss waterfall in the South Region of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-US/2021/06/202106220700SouthCoast.jpg)|
+202106230700|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Light show in the forest|![](/en-US/2021/06/202106230700Nichinan.jpg)|
