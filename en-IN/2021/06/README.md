@@ -23,3 +23,4 @@
 202106201830|TheBeatlesAshram|The Beatles Ashram in Rishikesh, India (© Alexander Chizhenok/Shutterstock)|International Day of Yoga|![](/en-IN/2021/06/202106201830TheBeatlesAshram.jpg)|
 202106211830|SouthCoast|View of the midnight sun behind Seljalandsfoss waterfall near the south coast of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-IN/2021/06/202106211830SouthCoast.jpg)|
 202106221830|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Land of the midnight sun|![](/en-IN/2021/06/202106221830Nichinan.jpg)|
+202106231830|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|A firefly frolic|![](/en-IN/2021/06/202106231830DenaliCaribou.jpg)|
