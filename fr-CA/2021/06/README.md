@@ -23,3 +23,4 @@
 202106210400|RothschildGiraffe|Girafe de Rothschild dans le parc national du lac Nakuru au Kenya (© Theo Allofs/Minden Pictures)||![](/fr-CA/2021/06/202106210400RothschildGiraffe.jpg)|
 202106220400|SouthCoast|Vue du soleil de minuit derrière les chutes de Seljalandsfoss, près de la côte sud de l'Islande (© Tom Mackie/plainpicture)||![](/fr-CA/2021/06/202106220400SouthCoast.jpg)|
 202106230400|Nichinan|Lucioles à Nichinan, Tottori, Japon (© north-tail/Getty Images Plus)||![](/fr-CA/2021/06/202106230400Nichinan.jpg)|
+202106240400|DenaliCaribou|Caribous dans le parc national et la réserve de Denali en Alaska (© Design Pics/Danita Delimont)||![](/fr-CA/2021/06/202106240400DenaliCaribou.jpg)|
