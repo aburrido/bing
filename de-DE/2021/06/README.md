@@ -24,3 +24,4 @@
 202106212200|SouthCoast|Der Wasserfall Seljalandsfoss an der Südküste Islands im Schein der Mitternachtssonne (© Tom Mackie/plainpicture)|Im Land der Mitternachtssonne|![](/de-DE/2021/06/202106212200SouthCoast.jpg)|
 202106222200|Nichinan|Leuchtkäfer in einem Wald bei Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Willkommen in der Wald-Disco!|![](/de-DE/2021/06/202106222200Nichinan.jpg)|
 202106232200|Rhododendron|Rhododendren im Waldpark Semper bei Lietzow auf Rügen, Mecklenburg-Vorpommern (© Sandra Bartocha/Minden Pictures)|Blütenpracht auf Rügen|![](/de-DE/2021/06/202106232200Rhododendron.jpg)|
+202106242200|Heliodoxa|Rotstern-Brillantkolibri und Biene, Kolumbien (© Jiri Hrebicek/Alamy)|Vögel und Bienen – Warum sind sie so wichtig?|![](/de-DE/2021/06/202106242200Heliodoxa.jpg)|

@@ -24,3 +24,4 @@
 202106212200|SouthCoast|Le soleil de minuit derrière la cascade Seljalandsfoss près de la côte sud de l’Islande (© Tom Mackie/plainpicture)|Terre du soleil de minuit|![](/fr-FR/2021/06/202106212200SouthCoast.jpg)|
 202106222200|Nichinan|Lucioles à Nichinan, Tottori, Japon (© north-tail/Getty Images Plus)|Au bal des lucioles|![](/fr-FR/2021/06/202106222200Nichinan.jpg)|
 202106232200|DenaliCaribou|Rennes dans le parc national et réserve du Denali, Alaska (© Design Pics/Danita Delimont)|Un kilomètre à pied, ça use, ça use|![](/fr-FR/2021/06/202106232200DenaliCaribou.jpg)|
+202106242200|Heliodoxa|Colibri Brillant impératrice contre abeille, Colombie (© Jiri Hrebicek/Alamy)|Deux espèces, même combat|![](/fr-FR/2021/06/202106242200Heliodoxa.jpg)|
