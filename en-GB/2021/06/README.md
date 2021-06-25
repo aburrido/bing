@@ -25,3 +25,4 @@
 202106222300|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|A firefly frolic|![](/en-GB/2021/06/202106222300Nichinan.jpg)|
 202106232300|Pilat|The Dune of Pilat in Arcachon Bay, south-west France (© aluxum/iStock/Getty Images Plus)|A moving mountain of sand|![](/en-GB/2021/06/202106232300Pilat.jpg)|
 202106242300|SouthCoast|View of the midnight sun behind Seljalandsfoss waterfall near the south coast of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-GB/2021/06/202106242300SouthCoast.jpg)|
+202106252300|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-GB/2021/06/202106252300Shilinxia.jpg)|
