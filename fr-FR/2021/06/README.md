@@ -25,3 +25,4 @@
 202106222200|Nichinan|Lucioles à Nichinan, Tottori, Japon (© north-tail/Getty Images Plus)|Au bal des lucioles|![](/fr-FR/2021/06/202106222200Nichinan.jpg)|
 202106232200|DenaliCaribou|Rennes dans le parc national et réserve du Denali, Alaska (© Design Pics/Danita Delimont)|Un kilomètre à pied, ça use, ça use|![](/fr-FR/2021/06/202106232200DenaliCaribou.jpg)|
 202106242200|Heliodoxa|Colibri Brillant impératrice contre abeille, Colombie (© Jiri Hrebicek/Alamy)|Deux espèces, même combat|![](/fr-FR/2021/06/202106242200Heliodoxa.jpg)|
+202106252200|Shilinxia|Plateforme d’observation vitrée dans la Shilinxia Scenic Area, District de Pinggu, Pékin, Chine (© STR/AFP via Getty Images)|Marcher sur l’air|![](/fr-FR/2021/06/202106252200Shilinxia.jpg)|
