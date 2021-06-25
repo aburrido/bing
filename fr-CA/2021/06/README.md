@@ -24,3 +24,4 @@
 202106220400|SouthCoast|Vue du soleil de minuit derrière les chutes de Seljalandsfoss, près de la côte sud de l'Islande (© Tom Mackie/plainpicture)||![](/fr-CA/2021/06/202106220400SouthCoast.jpg)|
 202106230400|Nichinan|Lucioles à Nichinan, Tottori, Japon (© north-tail/Getty Images Plus)||![](/fr-CA/2021/06/202106230400Nichinan.jpg)|
 202106240400|DenaliCaribou|Caribous dans le parc national et la réserve de Denali en Alaska (© Design Pics/Danita Delimont)||![](/fr-CA/2021/06/202106240400DenaliCaribou.jpg)|
+202106250400|Heliodoxa|Colibri brillant impératrice en compagnie d’une abeille en Colombie (© Jiri Hrebicek/Alamy)||![](/fr-CA/2021/06/202106250400Heliodoxa.jpg)|

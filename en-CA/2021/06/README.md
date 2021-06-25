@@ -25,3 +25,4 @@
 202106220400|SouthCoast|View of the midnight sun behind Seljalandsfoss waterfall near the south coast of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-CA/2021/06/202106220400SouthCoast.jpg)|
 202106230400|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|A firefly frolic|![](/en-CA/2021/06/202106230400Nichinan.jpg)|
 202106240400|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|The call of the wild in Alaska|![](/en-CA/2021/06/202106240400DenaliCaribou.jpg)|
+202106250400|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds, bees, and why they're so important|![](/en-CA/2021/06/202106250400Heliodoxa.jpg)|
