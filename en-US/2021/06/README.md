@@ -26,3 +26,4 @@
 202106220700|SouthCoast|Seljalandsfoss waterfall in the South Region of Iceland (© Tom Mackie/plainpicture)|Land of the midnight sun|![](/en-US/2021/06/202106220700SouthCoast.jpg)|
 202106230700|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Light show in the forest|![](/en-US/2021/06/202106230700Nichinan.jpg)|
 202106240700|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|The call of the wild in Alaska|![](/en-US/2021/06/202106240700DenaliCaribou.jpg)|
+202106250700|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds and bees, and why they're so important|![](/en-US/2021/06/202106250700Heliodoxa.jpg)|
