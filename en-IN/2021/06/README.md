@@ -25,3 +25,4 @@
 202106221830|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Land of the midnight sun|![](/en-IN/2021/06/202106221830Nichinan.jpg)|
 202106231830|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|A firefly frolic|![](/en-IN/2021/06/202106231830DenaliCaribou.jpg)|
 202106241830|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds, bees, and why they're so important|![](/en-IN/2021/06/202106241830Heliodoxa.jpg)|
+202106251830|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-IN/2021/06/202106251830Shilinxia.jpg)|
