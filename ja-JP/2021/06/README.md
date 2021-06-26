@@ -27,3 +27,4 @@
 202106231500|DenaliCaribou|｢デナリ国立公園のカリブー｣米国, アラスカ州 (© Design Pics/Danita Delimont)|野生のカリブー|![](/ja-JP/2021/06/202106231500DenaliCaribou.jpg)|
 202106241500|Heliodoxa|｢ハチドリとハチ｣コロンピア (© Jiri Hrebicek/Alamy)|今週はポリネーターウィーク|![](/ja-JP/2021/06/202106241500Heliodoxa.jpg)|
 202106251500|Shilinxia|｢石林峡のガラスの展望台｣中国, 北京, 平谷区 (© STR/AFP via Getty Images)|ガラスの展望台|![](/ja-JP/2021/06/202106251500Shilinxia.jpg)|
+202106261500|SemucChampey|｢セムクチャンペイ国立公園｣グアテマラ (© Joel Sharpe/Getty Images)|神秘の階段湖|![](/ja-JP/2021/06/202106261500SemucChampey.jpg)|
