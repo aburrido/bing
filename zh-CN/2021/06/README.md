@@ -27,3 +27,4 @@
 202106231600|DenaliCaribou|德纳利国家公园和自然保护区的驯鹿，阿拉斯加 (© Design Pics/Danita Delimont)||![](/zh-CN/2021/06/202106231600DenaliCaribou.jpg)|
 202106241600|Heliodoxa|皇辉蜂鸟和蜜蜂，哥伦比亚 (© Jiri Hrebicek/Alamy)||![](/zh-CN/2021/06/202106241600Heliodoxa.jpg)|
 202106251600|Kamikouchi|Kamikōchi, Nagano Prefecture, Japan (© sadao/Shutterstock)||![](/zh-CN/2021/06/202106251600Kamikouchi.jpg)|
+202106261600|GreaterFlamingosIndia|大型火烈鸟迁徙到淡水区，印度 (© Amresh Mishra/500px/Getty Images)||![](/zh-CN/2021/06/202106261600GreaterFlamingosIndia.jpg)|
