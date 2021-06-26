@@ -27,3 +27,4 @@
 202106230700|Nichinan|Fireflies in Nichinan, Tottori, Japan (© north-tail/Getty Images Plus)|Light show in the forest|![](/en-US/2021/06/202106230700Nichinan.jpg)|
 202106240700|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|The call of the wild in Alaska|![](/en-US/2021/06/202106240700DenaliCaribou.jpg)|
 202106250700|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds and bees, and why they're so important|![](/en-US/2021/06/202106250700Heliodoxa.jpg)|
+202106260700|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-US/2021/06/202106260700Shilinxia.jpg)|

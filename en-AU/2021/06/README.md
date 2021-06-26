@@ -26,3 +26,4 @@
 202106230700|Nichinan|Fireflies in Nichinan, Tottori Prefecture, Japan (© north-tail/Getty Images Plus)|Info|![](/en-AU/2021/06/202106230700Nichinan.jpg)|
 202106240700|DenaliCaribou|Barren-ground caribou in Denali National Park and Preserve, Alaska, USA (© Design Pics/Danita Delimont)|Info|![](/en-AU/2021/06/202106240700DenaliCaribou.jpg)|
 202106250700|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Info|![](/en-AU/2021/06/202106250700Heliodoxa.jpg)|
+202106260700|PortuairkBay|Portuairk, Ardnamurchan peninsula, Scottish Highlands (© Cavan Images/Offset by Shutterstock)|Info|![](/en-AU/2021/06/202106260700PortuairkBay.jpg)|
