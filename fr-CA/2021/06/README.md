@@ -26,3 +26,4 @@
 202106240400|DenaliCaribou|Caribous dans le parc national et la réserve de Denali en Alaska (© Design Pics/Danita Delimont)||![](/fr-CA/2021/06/202106240400DenaliCaribou.jpg)|
 202106250400|Heliodoxa|Colibri brillant impératrice en compagnie d’une abeille en Colombie (© Jiri Hrebicek/Alamy)||![](/fr-CA/2021/06/202106250400Heliodoxa.jpg)|
 202106260400|LavenderBlooms|Champs de lavande dans une lavanderaie, Oxfordshire, Angleterre (© Peter Greenway/EyeEm/Getty Images)||![](/fr-CA/2021/06/202106260400LavenderBlooms.jpg)|
+202106270400|RainbowBalloons|Ballons aux couleurs de l’arc-en-ciel pour le Jour de la Fierté (© lazyllama/Shutterstock)||![](/fr-CA/2021/06/202106270400RainbowBalloons.jpg)|

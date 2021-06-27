@@ -27,3 +27,4 @@
 202106240400|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|The call of the wild in Alaska|![](/en-CA/2021/06/202106240400DenaliCaribou.jpg)|
 202106250400|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds, bees, and why they're so important|![](/en-CA/2021/06/202106250400Heliodoxa.jpg)|
 202106260400|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-CA/2021/06/202106260400Shilinxia.jpg)|
+202106270400|RainbowBalloons|Rainbow balloons for Pride Day (© lazyllama/Shutterstock)|Celebrating the LGBTQI+ community|![](/en-CA/2021/06/202106270400RainbowBalloons.jpg)|
