@@ -27,3 +27,4 @@
 202106242200|Heliodoxa|Rotstern-Brillantkolibri und Biene, Kolumbien (© Jiri Hrebicek/Alamy)|Vögel und Bienen – Warum sind sie so wichtig?|![](/de-DE/2021/06/202106242200Heliodoxa.jpg)|
 202106252200|Shilinxia|Gläserne Aussichtsplattform in der Shilinxia Scenic Area, Pinggu, Peking, Volksrepublik China (© STR/AFP via Getty Images)|Spektakuläre Aussichten – nach unten!|![](/de-DE/2021/06/202106252200Shilinxia.jpg)|
 202106262200|KoeBoegenDuesseldorf|Büro- und Gewerbegebäude, Kö-Bogen nach Entwürfen von Architekt Daniel Libeskind, Düsseldorf, Nordrhein-Westfalen (© imageBROKER/Alamy Stock Photo)|Tag der Architektur|![](/de-DE/2021/06/202106262200KoeBoegenDuesseldorf.jpg)|
+202106272200|RegenbogenBadLangensalza|Regenbogen in der Nähe von Bad Langensalza, Thüringen (© AP Photo/Jens Meyer)|Regenbogen am Christopher Street Day|![](/de-DE/2021/06/202106272200RegenbogenBadLangensalza.jpg)|
