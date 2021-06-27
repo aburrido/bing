@@ -28,3 +28,4 @@
 202106240700|DenaliCaribou|Caribou in Denali National Park and Preserve, Alaska (© Design Pics/Danita Delimont)|The call of the wild in Alaska|![](/en-US/2021/06/202106240700DenaliCaribou.jpg)|
 202106250700|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds and bees, and why they're so important|![](/en-US/2021/06/202106250700Heliodoxa.jpg)|
 202106260700|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-US/2021/06/202106260700Shilinxia.jpg)|
+202106270700|LCPAPride|Lincoln Center for the Performing Arts lit in Pride colors on June 18, 2020 in New York City (© Alexi Rosenfeld/Getty Images)|Bathing in the light of Pride|![](/en-US/2021/06/202106270700LCPAPride.jpg)|
