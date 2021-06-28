@@ -28,3 +28,4 @@
 202106252300|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-GB/2021/06/202106252300Shilinxia.jpg)|
 202106262300|RainbowBalloons|Rainbow balloons for Pride Month (© lazyllama/Shutterstock)|Summer of Pride|![](/en-GB/2021/06/202106262300RainbowBalloons.jpg)|
 202106272300|WimbledonBoards|Order of Play boards on Centre Court at the All England Lawn Tennis Club, Wimbledon, London (© AELTC/Bob Martin via USA TODAY Sports)|Wimbledon’s return|![](/en-GB/2021/06/202106272300WimbledonBoards.jpg)|
+202106282300|RocksSeychelles|Rocks on Anse Source d'Argent beach, La Digue Island, Seychelles (© Roland Gerth/eStock Photo)|An island hopper's paradise|![](/en-GB/2021/06/202106282300RocksSeychelles.jpg)|
