@@ -29,3 +29,4 @@
 202106260700|PortuairkBay|Portuairk, Ardnamurchan peninsula, Scottish Highlands (© Cavan Images/Offset by Shutterstock)|Info|![](/en-AU/2021/06/202106260700PortuairkBay.jpg)|
 202106270700|Kamikouchi|Kamikōchi, Nagano Prefecture, Japan (© sadao/Shutterstock)|Info|![](/en-AU/2021/06/202106270700Kamikouchi.jpg)|
 ||||![](/en-AU/2021/06/.jpg)|
+202106280700|Cittadella|Cittadella, Gozo, Malta (© Davide Seddio/Getty Images)|Info|![](/en-AU/2021/06/202106280700Cittadella.jpg)|
