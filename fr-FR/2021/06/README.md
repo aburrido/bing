@@ -28,3 +28,4 @@
 202106252200|Shilinxia|Plateforme d’observation vitrée dans la Shilinxia Scenic Area, District de Pinggu, Pékin, Chine (© STR/AFP via Getty Images)|Marcher sur l’air|![](/fr-FR/2021/06/202106252200Shilinxia.jpg)|
 202106262200|RothschildGiraffe|Une girafe de Rothschild dans le parc national du lac Nakuru, Kenya (© Theo Allofs/Minden Pictures)|Sophie dans la vraie vie|![](/fr-FR/2021/06/202106262200RothschildGiraffe.jpg)|
 202106272200|Cittadella|Citadelle sur l’île de Gozo, Malte (© Davide Seddio/Getty Images)|Célébration de la culture maltaise|![](/fr-FR/2021/06/202106272200Cittadella.jpg)|
+202106282200|RocksSeychelles|Rochers sur la plage Anse Source d'Argent, île de La Digue, Seychelles (© Roland Gerth/eStock Photo)|N’oubliez pas la serviette !|![](/fr-FR/2021/06/202106282200RocksSeychelles.jpg)|
