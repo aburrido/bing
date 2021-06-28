@@ -28,3 +28,4 @@
 202106251830|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-IN/2021/06/202106251830Shilinxia.jpg)|
 202106261830|Rhododendron|Common rhododendrons in Semper Forest Park, Ruegen, Germany (© Sandra Bartocha/Minden Pictures)|All hail the 'king of shrubs'|![](/en-IN/2021/06/202106261830Rhododendron.jpg)|
 202106271830|RainbowBalloons|Rainbow balloons for Pride Day (© lazyllama/Shutterstock)|Time to celebrate the LGBTQI+ pride|![](/en-IN/2021/06/202106271830RainbowBalloons.jpg)|
+202106281830|RocksSeychelles|Rocks on Anse Source d'Argent beach, La Digue Island, Seychelles (© Roland Gerth/eStock Photo)|An island hopper's paradise|![](/en-IN/2021/06/202106281830RocksSeychelles.jpg)|
