@@ -27,3 +27,4 @@
 202106250400|Heliodoxa|Colibri brillant impératrice en compagnie d’une abeille en Colombie (© Jiri Hrebicek/Alamy)||![](/fr-CA/2021/06/202106250400Heliodoxa.jpg)|
 202106260400|LavenderBlooms|Champs de lavande dans une lavanderaie, Oxfordshire, Angleterre (© Peter Greenway/EyeEm/Getty Images)||![](/fr-CA/2021/06/202106260400LavenderBlooms.jpg)|
 202106270400|RainbowBalloons|Ballons aux couleurs de l’arc-en-ciel pour le Jour de la Fierté (© lazyllama/Shutterstock)||![](/fr-CA/2021/06/202106270400RainbowBalloons.jpg)|
+202106280400|Cittadella|La Cittadella sur de l'île de Gozo, Malte (© Davide Seddio/Getty Images)||![](/fr-CA/2021/06/202106280400Cittadella.jpg)|

@@ -28,3 +28,4 @@
 202106250400|Heliodoxa|Empress brilliant hummingbird and a bee in Colombia (© Jiri Hrebicek/Alamy)|Birds, bees, and why they're so important|![](/en-CA/2021/06/202106250400Heliodoxa.jpg)|
 202106260400|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-CA/2021/06/202106260400Shilinxia.jpg)|
 202106270400|RainbowBalloons|Rainbow balloons for Pride Day (© lazyllama/Shutterstock)|Celebrating the LGBTQI+ community|![](/en-CA/2021/06/202106270400RainbowBalloons.jpg)|
+202106280400|Cittadella|Cittadella on the island of Gozo, Malta (© Davide Seddio/Getty Images)|A celebration of Maltese culture|![](/en-CA/2021/06/202106280400Cittadella.jpg)|
