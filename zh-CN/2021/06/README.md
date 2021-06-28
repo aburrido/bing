@@ -29,3 +29,4 @@
 202106251600|Kamikouchi|Kamikōchi, Nagano Prefecture, Japan (© sadao/Shutterstock)||![](/zh-CN/2021/06/202106251600Kamikouchi.jpg)|
 202106261600|GreaterFlamingosIndia|大型火烈鸟迁徙到淡水区，印度 (© Amresh Mishra/500px/Getty Images)||![](/zh-CN/2021/06/202106261600GreaterFlamingosIndia.jpg)|
 202106271600|Cittadella|戈佐岛上的Cittadella城堡,马耳他 (© Davide Seddio/Getty Images)||![](/zh-CN/2021/06/202106271600Cittadella.jpg)|
+202106281600|RocksSeychelles|拉迪格岛德阿让海滩上的岩石，塞舌尔 (© Roland Gerth/eStock Photo)||![](/zh-CN/2021/06/202106281600RocksSeychelles.jpg)|
