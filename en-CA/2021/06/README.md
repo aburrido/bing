@@ -29,3 +29,4 @@
 202106260400|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-CA/2021/06/202106260400Shilinxia.jpg)|
 202106270400|RainbowBalloons|Rainbow balloons for Pride Day (© lazyllama/Shutterstock)|Celebrating the LGBTQI+ community|![](/en-CA/2021/06/202106270400RainbowBalloons.jpg)|
 202106280400|Cittadella|Cittadella on the island of Gozo, Malta (© Davide Seddio/Getty Images)|A celebration of Maltese culture|![](/en-CA/2021/06/202106280400Cittadella.jpg)|
+202106290400|RocksSeychelles|Rocks on Anse Source d'Argent beach, La Digue Island, Seychelles (© Roland Gerth/eStock Photo)|An island hopper's paradise|![](/en-CA/2021/06/202106290400RocksSeychelles.jpg)|
