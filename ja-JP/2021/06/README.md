@@ -30,3 +30,4 @@
 202106261500|SemucChampey|｢セムクチャンペイ国立公園｣グアテマラ (© Joel Sharpe/Getty Images)|神秘の階段湖|![](/ja-JP/2021/06/202106261500SemucChampey.jpg)|
 202106271500|RainbowBalloons|｢プライドデーのレインボーカラーの風船｣ (© lazyllama/Shutterstock)|今日は国際プライドデー|![](/ja-JP/2021/06/202106271500RainbowBalloons.jpg)|
 202106281500|RocksSeychelles|｢アンス ソース ダルジャン｣セーシェル, ラ・ディーグ島 (© Roland Gerth/eStock Photo)|セーシェル独立記念日|![](/ja-JP/2021/06/202106281500RocksSeychelles.jpg)|
+202106291500|Manicouagan|｢マニクアガンクレーター｣カナダ, ケベック州 (© Universal History Archive/Universal Images Group via Getty Images)|今日は小惑星の日|![](/ja-JP/2021/06/202106291500Manicouagan.jpg)|
