@@ -29,3 +29,4 @@
 202106262200|KoeBoegenDuesseldorf|Büro- und Gewerbegebäude, Kö-Bogen nach Entwürfen von Architekt Daniel Libeskind, Düsseldorf, Nordrhein-Westfalen (© imageBROKER/Alamy Stock Photo)|Tag der Architektur|![](/de-DE/2021/06/202106262200KoeBoegenDuesseldorf.jpg)|
 202106272200|RegenbogenBadLangensalza|Regenbogen in der Nähe von Bad Langensalza, Thüringen (© AP Photo/Jens Meyer)|Regenbogen am Christopher Street Day|![](/de-DE/2021/06/202106272200RegenbogenBadLangensalza.jpg)|
 202106282200|RocksSeychelles|Felsen am Strand von Anse Source d'Argent, La Digue, Seychellen (© Roland Gerth/eStock Photo)|Ein Paradies für Inselhüpfer|![](/de-DE/2021/06/202106282200RocksSeychelles.jpg)|
+202106292200|Manicouagan|Manicouagan-Stausee in der Provinz Québec, Kanada (© Universal History Archive/Universal Images Group via Getty Images)|Einschlag vor 214 Millionen Jahren|![](/de-DE/2021/06/202106292200Manicouagan.jpg)|

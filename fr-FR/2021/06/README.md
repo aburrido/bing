@@ -29,3 +29,4 @@
 202106262200|RothschildGiraffe|Une girafe de Rothschild dans le parc national du lac Nakuru, Kenya (© Theo Allofs/Minden Pictures)|Sophie dans la vraie vie|![](/fr-FR/2021/06/202106262200RothschildGiraffe.jpg)|
 202106272200|Cittadella|Citadelle sur l’île de Gozo, Malte (© Davide Seddio/Getty Images)|Célébration de la culture maltaise|![](/fr-FR/2021/06/202106272200Cittadella.jpg)|
 202106282200|RocksSeychelles|Rochers sur la plage Anse Source d'Argent, île de La Digue, Seychelles (© Roland Gerth/eStock Photo)|N’oubliez pas la serviette !|![](/fr-FR/2021/06/202106282200RocksSeychelles.jpg)|
+202106292200|Manicouagan|Le réservoir Manicouagan, Québec, Canada (© Universal History Archive/Universal Images Group via Getty Images)|Bonjour là-haut|![](/fr-FR/2021/06/202106292200Manicouagan.jpg)|
