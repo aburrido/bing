@@ -30,3 +30,4 @@
 202106260700|Shilinxia|Glass sightseeing platform in Shilinxia Scenic Area, Pinggu District of Beijing, China (© STR/AFP via Getty Images)|Spectacular views below!|![](/en-US/2021/06/202106260700Shilinxia.jpg)|
 202106270700|LCPAPride|Lincoln Center for the Performing Arts lit in Pride colors on June 18, 2020 in New York City (© Alexi Rosenfeld/Getty Images)|Bathing in the light of Pride|![](/en-US/2021/06/202106270700LCPAPride.jpg)|
 202106280700|Cittadella|The Cittadella on the island of Gozo, Malta (© Davide Seddio/Getty Images)|A medieval celebration in the Mediterranean|![](/en-US/2021/06/202106280700Cittadella.jpg)|
+202106290700|RocksSeychelles|Rocks on Anse Source d'Argent beach, La Digue Island, Seychelles (© Roland Gerth/eStock Photo)|An island hopper's paradise|![](/en-US/2021/06/202106290700RocksSeychelles.jpg)|

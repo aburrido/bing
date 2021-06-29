@@ -30,3 +30,4 @@
 202106270700|Kamikouchi|Kamikōchi, Nagano Prefecture, Japan (© sadao/Shutterstock)|Info|![](/en-AU/2021/06/202106270700Kamikouchi.jpg)|
 ||||![](/en-AU/2021/06/.jpg)|
 202106280700|Cittadella|Cittadella, Gozo, Malta (© Davide Seddio/Getty Images)|Info|![](/en-AU/2021/06/202106280700Cittadella.jpg)|
+202106290700|RocksSeychelles|Anse Source d'Argent, La Digue, Seychelles (© Roland Gerth/eStock Photo)|Info|![](/en-AU/2021/06/202106290700RocksSeychelles.jpg)|
