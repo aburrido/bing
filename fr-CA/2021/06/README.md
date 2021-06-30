@@ -29,3 +29,4 @@
 202106270400|RainbowBalloons|Ballons aux couleurs de l’arc-en-ciel pour le Jour de la Fierté (© lazyllama/Shutterstock)||![](/fr-CA/2021/06/202106270400RainbowBalloons.jpg)|
 202106280400|Cittadella|La Cittadella sur de l'île de Gozo, Malte (© Davide Seddio/Getty Images)||![](/fr-CA/2021/06/202106280400Cittadella.jpg)|
 202106290400|RocksSeychelles|Rochers sur la plage de l'Anse Source d'Argent, île de La Digue, Seychelles (© Roland Gerth/eStock Photo)||![](/fr-CA/2021/06/202106290400RocksSeychelles.jpg)|
+202106300400|PortuairkBay|Baie de Portuairk, péninsule d'Ardnamurchan, Highlands d’Écosse (© Cavan Images/Offset by Shutterstock)||![](/fr-CA/2021/06/202106300400PortuairkBay.jpg)|
