@@ -31,3 +31,4 @@
 ||||![](/en-AU/2021/06/.jpg)|
 202106280700|Cittadella|Cittadella, Gozo, Malta (© Davide Seddio/Getty Images)|Info|![](/en-AU/2021/06/202106280700Cittadella.jpg)|
 202106290700|RocksSeychelles|Anse Source d'Argent, La Digue, Seychelles (© Roland Gerth/eStock Photo)|Info|![](/en-AU/2021/06/202106290700RocksSeychelles.jpg)|
+202106300700|BlossomsBC|Cherry blossoms, Queen Elizabeth Park, Vancouver, Canada (© Harris Hui/Getty Images)|Info|![](/en-AU/2021/06/202106300700BlossomsBC.jpg)|
