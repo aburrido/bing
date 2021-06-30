@@ -30,3 +30,4 @@
 202106272300|WimbledonBoards|Order of Play boards on Centre Court at the All England Lawn Tennis Club, Wimbledon, London (© AELTC/Bob Martin via USA TODAY Sports)|Wimbledon’s return|![](/en-GB/2021/06/202106272300WimbledonBoards.jpg)|
 202106282300|RocksSeychelles|Rocks on Anse Source d'Argent beach, La Digue Island, Seychelles (© Roland Gerth/eStock Photo)|An island hopper's paradise|![](/en-GB/2021/06/202106282300RocksSeychelles.jpg)|
 202106292300|Manicouagan|Manicouagan Crater in Québec, Canada (© Universal History Archive/Universal Images Group via Getty Images)|An impactful day|![](/en-GB/2021/06/202106292300Manicouagan.jpg)|
+202106302300|GlenEtive|Small loch in Glen Etive, Highlands (© Oliver Hellowell/Minden Pictures)|An island in the Highlands|![](/en-GB/2021/06/202106302300GlenEtive.jpg)|
