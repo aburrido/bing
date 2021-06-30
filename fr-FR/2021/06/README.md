@@ -30,3 +30,4 @@
 202106272200|Cittadella|Citadelle sur l’île de Gozo, Malte (© Davide Seddio/Getty Images)|Célébration de la culture maltaise|![](/fr-FR/2021/06/202106272200Cittadella.jpg)|
 202106282200|RocksSeychelles|Rochers sur la plage Anse Source d'Argent, île de La Digue, Seychelles (© Roland Gerth/eStock Photo)|N’oubliez pas la serviette !|![](/fr-FR/2021/06/202106282200RocksSeychelles.jpg)|
 202106292200|Manicouagan|Le réservoir Manicouagan, Québec, Canada (© Universal History Archive/Universal Images Group via Getty Images)|Bonjour là-haut|![](/fr-FR/2021/06/202106292200Manicouagan.jpg)|
+202106302200|HangingCanoes|“Passage migratoire”, une installation artistique signée Giorgia Volpe dans le Vieux-Québec, Québec, Canada (© Lucbouch/Getty Images)|Ô Canada !|![](/fr-FR/2021/06/202106302200HangingCanoes.jpg)|

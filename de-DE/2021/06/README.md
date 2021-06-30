@@ -31,3 +31,4 @@
 202106282200|RocksSeychelles|Felsen am Strand von Anse Source d'Argent, La Digue, Seychellen (© Roland Gerth/eStock Photo)|Ein Paradies für Inselhüpfer|![](/de-DE/2021/06/202106282200RocksSeychelles.jpg)|
 202106292200|Manicouagan|Manicouagan-Stausee in der Provinz Québec, Kanada (© Universal History Archive/Universal Images Group via Getty Images)|Einschlag vor 214 Millionen Jahren|![](/de-DE/2021/06/202106292200Manicouagan.jpg)|
 ||||![](/de-DE/2021/06/.jpg)|
+202106302200|Cittadella|Cittadella auf Gozo, Malta (© Davide Seddio/Getty Images)|Willkommen auf Gozo!|![](/de-DE/2021/06/202106302200Cittadella.jpg)|
