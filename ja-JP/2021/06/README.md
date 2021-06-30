@@ -31,3 +31,4 @@
 202106271500|RainbowBalloons|｢プライドデーのレインボーカラーの風船｣ (© lazyllama/Shutterstock)|今日は国際プライドデー|![](/ja-JP/2021/06/202106271500RainbowBalloons.jpg)|
 202106281500|RocksSeychelles|｢アンス ソース ダルジャン｣セーシェル, ラ・ディーグ島 (© Roland Gerth/eStock Photo)|セーシェル独立記念日|![](/ja-JP/2021/06/202106281500RocksSeychelles.jpg)|
 202106291500|Manicouagan|｢マニクアガンクレーター｣カナダ, ケベック州 (© Universal History Archive/Universal Images Group via Getty Images)|今日は小惑星の日|![](/ja-JP/2021/06/202106291500Manicouagan.jpg)|
+202106301500|HangingCanoes|｢ケベック旧市街のアートインスタレーション｣カナダ, ケベック州 (© Lucbouch/Getty Images)|今日はカナダの日|![](/ja-JP/2021/06/202106301500HangingCanoes.jpg)|
