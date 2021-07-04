@@ -4,3 +4,4 @@
 202107020400|ShyFive|Un suricate en Namibie (© Danita Delimont/Offset by Shutterstock)||![](/fr-CA/2021/07/202107020400ShyFive.jpg)|
 ||||![](/fr-CA/2021/07/.jpg)|
 202107030400|WakatobiNP|Parc national marin de Wakatobi, Indonésie (© Fabio Lamanna/Alamy)||![](/fr-CA/2021/07/202107030400WakatobiNP.jpg)|
+202107040400|LakeSchreckseeBY|Lac Schrecksee dans les Alpes d'Allgäu, Bavière, Allemagne (© Andreas Hagspiel/EyeEm/Getty Images)||![](/fr-CA/2021/07/202107040400LakeSchreckseeBY.jpg)|
