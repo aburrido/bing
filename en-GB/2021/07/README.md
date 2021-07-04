@@ -4,3 +4,4 @@
 202107012300|ShyFive|A meerkat in Namibia (© Danita Delimont/Offset by Shutterstock)|On the lookout|![](/en-GB/2021/07/202107012300ShyFive.jpg)|
 202107022300|WakatobiNP|Wakatobi National Park, Indonesia (© Fabio Lamanna/Alamy)|An underwater nirvana|![](/en-GB/2021/07/202107022300WakatobiNP.jpg)|
 202107032300|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Why, aloe there|![](/en-GB/2021/07/202107032300SpiralAloe.jpg)|
+202107042300|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|The green mountains of Cabo Verde|![](/en-GB/2021/07/202107042300SerraMalagueta.jpg)|
