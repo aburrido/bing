@@ -4,3 +4,4 @@
 202107010700|TheRoaches|The Roaches, Peak District, England (© George W Johnson/Getty Images)|Info|![](/en-AU/2021/07/202107010700TheRoaches.jpg)|
 202107020700|ShyFive|A meerkat in Namibia (© Danita Delimont/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107020700ShyFive.jpg)|
 202107030700|WakatobiNP|Wakatobi National Park, Indonesia (© Fabio Lamanna/Alamy)|Info|![](/en-AU/2021/07/202107030700WakatobiNP.jpg)|
+202107040700|LakeSchreckseeBY|Lake Schrecksee, Allgäu Alps, Bavaria, Germany (© Andreas Hagspiel/EyeEm/Getty Images)|Info|![](/en-AU/2021/07/202107040700LakeSchreckseeBY.jpg)|
