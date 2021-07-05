@@ -5,3 +5,4 @@
 202107021500|WakatobiNP|Wakatobi National Park, Indonesia (© Fabio Lamanna/Alamy)|コーラルトライアングルのど真ん中|![](/ja-JP/2021/07/202107021500WakatobiNP.jpg)|
 202107031500|LakeSchreckseeBY|｢アルゴイ・アルプスのシュレック湖｣ドイツ, バイエルン州 (© Andreas Hagspiel/EyeEm/Getty Images)|エメラルドの高山湖|![](/ja-JP/2021/07/202107031500LakeSchreckseeBY.jpg)|
 202107041500|SerraMalagueta|｢サンティアゴ島のマラゲタ山｣カーボベルデ (© Samuel Borges Photography/Shutterstock)|カーボベルデ共和国建国記念日|![](/ja-JP/2021/07/202107041500SerraMalagueta.jpg)|
+202107051500|TawnyFrogmouth|｢ガマグチヨタカのヒナ｣オーストラリア (© SnapRapid/Offset by Shutterstock)|最もインスタ映えする鳥|![](/ja-JP/2021/07/202107051500TawnyFrogmouth.jpg)|
