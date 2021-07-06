@@ -5,3 +5,4 @@
 202107030400|WakatobiNP|Wakatobi National Park, Indonesia (© Fabio Lamanna/Alamy)|Diving into the 'underwater nirvana'|![](/en-CA/2021/07/202107030400WakatobiNP.jpg)|
 202107040400|HangingCanoes|'Passage migratoire' ('Migratory Passage'), an art installation by Giorgia Volpe in Old Québec City, Québec, Canada (© Lucbouch/Getty Images)|Celebrating migrations through art|![](/en-CA/2021/07/202107040400HangingCanoes.jpg)|
 202107050400|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|How green is my valley|![](/en-CA/2021/07/202107050400SerraMalagueta.jpg)|
+202107060400|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-CA/2021/07/202107060400TawnyFrogmouth.jpg)|
