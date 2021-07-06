@@ -6,3 +6,4 @@
 202107031600|LakeSchreckseeBY|阿尔高阿尔卑斯山脉的Schrecksee湖，德国巴伐利亚 (© Andreas Hagspiel/EyeEm/Getty Images)||![](/zh-CN/2021/07/202107031600LakeSchreckseeBY.jpg)|
 202107041600|SerraMalagueta|Serra da Malagueta山脉，佛得角圣地亚哥岛 (© Samuel Borges Photography/Shutterstock)||![](/zh-CN/2021/07/202107041600SerraMalagueta.jpg)|
 202107051600|TawnyFrogmouth|茶色蟆口鸱雏鸟，澳大利亚 (© SnapRapid/Offset by Shutterstock)||![](/zh-CN/2021/07/202107051600TawnyFrogmouth.jpg)|
+202107061600|LakeUrmia|乌鲁米耶湖中的岩层，伊朗 (© Ali/Adobe Stock)||![](/zh-CN/2021/07/202107061600LakeUrmia.jpg)|
