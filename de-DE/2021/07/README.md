@@ -6,3 +6,4 @@
 202107032200|LakeSchreckseeBY|Schrecksee, Allgäuer Alpen, Bayern (© Andreas Hagspiel/EyeEm/Getty Images)|Malerischer See in den Allgäuer Hochalpen|![](/de-DE/2021/07/202107032200LakeSchreckseeBY.jpg)|
 202107042200|SerraMalagueta|Naturpark Serra da Malagueta auf der Insel Santiago, Kap Verde (© Samuel Borges Photography/Shutterstock)|Grüne Insel im Zentralatlantik|![](/de-DE/2021/07/202107042200SerraMalagueta.jpg)|
 202107052200|TawnyFrogmouth|Eulenschwalm-Junges, Australien (© SnapRapid/Offset by Shutterstock)|Der instagramtauglichste Vogel?|![](/de-DE/2021/07/202107052200TawnyFrogmouth.jpg)|
+202107062200|LakeUrmia|Felsformation Kazem Dashi am Ufer des Urmiasees, Iran (© Ali/Adobe Stock)|Comeback eines Sees|![](/de-DE/2021/07/202107062200LakeUrmia.jpg)|

@@ -6,3 +6,4 @@
 202107032200|LakeSchreckseeBY|Lac Schrecksee dans les Alpes d’Allgäu, Bavière, Allemagne (© Andreas Hagspiel/EyeEm/Getty Images)|Lac glacé mais bien mérité|![](/fr-FR/2021/07/202107032200LakeSchreckseeBY.jpg)|
 202107042200|SerraMalagueta|Serra Malagueta sur l’île de Santiago, Cap-Vert (© Samuel Borges Photography/Shutterstock)|Coulée verte|![](/fr-FR/2021/07/202107042200SerraMalagueta.jpg)|
 202107052200|OceanView|Vue sur la Méditerranée au-dessus d’une palissade, Cannes (© Anthony Lanneretonne/Offset by Shutterstock)|Un temps pour tout|![](/fr-FR/2021/07/202107052200OceanView.jpg)|
+202107062200|LakeUrmia|Formation rocheuse Kazem Dashi, Lac d’Ourmia, Iran (© Ali/Adobe Stock)|Grand retour|![](/fr-FR/2021/07/202107062200LakeUrmia.jpg)|
