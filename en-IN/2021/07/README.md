@@ -6,3 +6,4 @@
 202107031830|GreaterFlamingosIndia|Greater flamingos migrate to fresh water in India (© Amresh Mishra/500px/Getty Images)|Greater flamingos arrived in India|![](/en-IN/2021/07/202107031830GreaterFlamingosIndia.jpg)|
 202107041830|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|Independence Day in Cabo Verde|![](/en-IN/2021/07/202107041830SerraMalagueta.jpg)|
 202107051830|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-IN/2021/07/202107051830TawnyFrogmouth.jpg)|
+202107061830|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-IN/2021/07/202107061830LakeUrmia.jpg)|
