@@ -6,3 +6,4 @@
 202107030700|WakatobiNP|Wakatobi National Park, Indonesia (© Fabio Lamanna/Alamy)|Info|![](/en-AU/2021/07/202107030700WakatobiNP.jpg)|
 202107040700|LakeSchreckseeBY|Lake Schrecksee, Allgäu Alps, Bavaria, Germany (© Andreas Hagspiel/EyeEm/Getty Images)|Info|![](/en-AU/2021/07/202107040700LakeSchreckseeBY.jpg)|
 202107050700|SerraMalagueta|Serra da Malagueta mountains, Santiago island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|Info|![](/en-AU/2021/07/202107050700SerraMalagueta.jpg)|
+202107060700|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107060700TawnyFrogmouth.jpg)|
