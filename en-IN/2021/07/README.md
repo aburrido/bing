@@ -7,3 +7,4 @@
 202107041830|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|Independence Day in Cabo Verde|![](/en-IN/2021/07/202107041830SerraMalagueta.jpg)|
 202107051830|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-IN/2021/07/202107051830TawnyFrogmouth.jpg)|
 202107061830|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-IN/2021/07/202107061830LakeUrmia.jpg)|
+202107071830|AppalachianTrail|The Appalachian Trail in Stokes State Forest, New Jersey (© Frank DeBonis/Getty Images)|A storied trail marks a century|![](/en-IN/2021/07/202107071830AppalachianTrail.jpg)|
