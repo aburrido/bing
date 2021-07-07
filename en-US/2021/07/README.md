@@ -7,3 +7,4 @@
 202107040700|SFFireworks|Fireworks in San Francisco, California (© tampatra/Getty Images)|Happy Independence Day!|![](/en-US/2021/07/202107040700SFFireworks.jpg)|
 202107050700|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|How green is my valley|![](/en-US/2021/07/202107050700SerraMalagueta.jpg)|
 202107060700|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-US/2021/07/202107060700TawnyFrogmouth.jpg)|
+202107070700|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-US/2021/07/202107070700LakeUrmia.jpg)|
