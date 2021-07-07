@@ -7,3 +7,4 @@
 202107041600|SerraMalagueta|Serra da Malagueta山脉，佛得角圣地亚哥岛 (© Samuel Borges Photography/Shutterstock)||![](/zh-CN/2021/07/202107041600SerraMalagueta.jpg)|
 202107051600|TawnyFrogmouth|茶色蟆口鸱雏鸟，澳大利亚 (© SnapRapid/Offset by Shutterstock)||![](/zh-CN/2021/07/202107051600TawnyFrogmouth.jpg)|
 202107061600|LakeUrmia|乌鲁米耶湖中的岩层，伊朗 (© Ali/Adobe Stock)||![](/zh-CN/2021/07/202107061600LakeUrmia.jpg)|
+202107071600|AppalachianTrail|阿巴拉契亚国家步道,新泽西州斯托克斯州立森林 (© Frank DeBonis/Getty Images)||![](/zh-CN/2021/07/202107071600AppalachianTrail.jpg)|
