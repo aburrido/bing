@@ -8,3 +8,4 @@
 202107052200|TawnyFrogmouth|Eulenschwalm-Junges, Australien (© SnapRapid/Offset by Shutterstock)|Der instagramtauglichste Vogel?|![](/de-DE/2021/07/202107052200TawnyFrogmouth.jpg)|
 202107062200|LakeUrmia|Felsformation Kazem Dashi am Ufer des Urmiasees, Iran (© Ali/Adobe Stock)|Comeback eines Sees|![](/de-DE/2021/07/202107062200LakeUrmia.jpg)|
 202107072200|AppalachianTrail|Der Appalachian Trail im Stokes State Forest, New Jersey, USA (© Frank DeBonis/Getty Images)|Ein berühmter Wanderweg wird 100|![](/de-DE/2021/07/202107072200AppalachianTrail.jpg)|
+202107082200|Ortygia|Die kleine Insel Ortygia, Syrakus, Sizilien, Italien (© DaLiu/Shutterstock)|Antikes Zentrum im Mittelmeer|![](/de-DE/2021/07/202107082200Ortygia.jpg)|

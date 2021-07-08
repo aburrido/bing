@@ -8,3 +8,4 @@
 202107052200|OceanView|Vue sur la Méditerranée au-dessus d’une palissade, Cannes (© Anthony Lanneretonne/Offset by Shutterstock)|Un temps pour tout|![](/fr-FR/2021/07/202107052200OceanView.jpg)|
 202107062200|LakeUrmia|Formation rocheuse Kazem Dashi, Lac d’Ourmia, Iran (© Ali/Adobe Stock)|Grand retour|![](/fr-FR/2021/07/202107062200LakeUrmia.jpg)|
 202107072200|TawnyFrogmouth|Oisillon Podarge gris, Australie (© SnapRapid/Offset by Shutterstock)|Oiseau star|![](/fr-FR/2021/07/202107072200TawnyFrogmouth.jpg)|
+202107082200|Ortygia|Ortygie, une petite île au large de Syracuse, Sicile, Italie (© DaLiu/Shutterstock)|L’île des dieux|![](/fr-FR/2021/07/202107082200Ortygia.jpg)|
