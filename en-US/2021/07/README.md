@@ -8,3 +8,4 @@
 202107050700|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|How green is my valley|![](/en-US/2021/07/202107050700SerraMalagueta.jpg)|
 202107060700|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-US/2021/07/202107060700TawnyFrogmouth.jpg)|
 202107070700|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-US/2021/07/202107070700LakeUrmia.jpg)|
+202107080700|AppalachianTrail|The Appalachian Trail in Stokes State Forest, New Jersey (© Frank DeBonis/Getty Images)|A storied trail marks a century|![](/en-US/2021/07/202107080700AppalachianTrail.jpg)|
