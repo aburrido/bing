@@ -8,3 +8,4 @@
 202107050400|SerraMalagueta|Le massif montagneux Serra Malagueta sur l'île de Santiago, Cap-Vert (© Samuel Borges Photography/Shutterstock)||![](/fr-CA/2021/07/202107050400SerraMalagueta.jpg)|
 202107060400|TawnyFrogmouth|Un jeune podarge gris, Australie (© SnapRapid/Offset by Shutterstock)||![](/fr-CA/2021/07/202107060400TawnyFrogmouth.jpg)|
 202107070400|LakeUrmia|Kazem Dashi, une formation rocheuse sur le lac d'Ourmia, Iran (© Ali/Adobe Stock)||![](/fr-CA/2021/07/202107070400LakeUrmia.jpg)|
+202107080400|AppalachianTrail|Sentier des Appalaches dans la forêt d'État de Stokes, New Jersey (© Frank DeBonis/Getty Images)||![](/fr-CA/2021/07/202107080400AppalachianTrail.jpg)|

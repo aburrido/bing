@@ -7,3 +7,4 @@
 202107050400|SerraMalagueta|Serra da Malagueta mountains on Santiago Island, Cabo Verde (© Samuel Borges Photography/Shutterstock)|How green is my valley|![](/en-CA/2021/07/202107050400SerraMalagueta.jpg)|
 202107060400|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-CA/2021/07/202107060400TawnyFrogmouth.jpg)|
 202107070400|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-CA/2021/07/202107070400LakeUrmia.jpg)|
+202107080400|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|A centre of antiquity on the Mediterranean|![](/en-CA/2021/07/202107080400Ortygia.jpg)|
