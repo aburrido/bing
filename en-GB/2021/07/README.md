@@ -9,3 +9,4 @@
 202107062300|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Turning the tide|![](/en-GB/2021/07/202107062300LakeUrmia.jpg)|
 202107072300|AppalachianTrail|The Appalachian Trail in Stokes State Forest, New Jersey, USA  (© Frank DeBonis/Getty Images)|The Appalachian Trail turns 100|![](/en-GB/2021/07/202107072300AppalachianTrail.jpg)|
 202107082300|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|The ancient heart of Syracuse|![](/en-GB/2021/07/202107082300Ortygia.jpg)|
+202107092300|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Dark skies and heavenly views|![](/en-GB/2021/07/202107092300MonfragueNationalPark.jpg)|
