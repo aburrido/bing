@@ -9,3 +9,4 @@
 202107060700|TawnyFrogmouth|Tawny frogmouth chick, Australia (© SnapRapid/Offset by Shutterstock)|The most Instagrammable bird?|![](/en-US/2021/07/202107060700TawnyFrogmouth.jpg)|
 202107070700|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-US/2021/07/202107070700LakeUrmia.jpg)|
 202107080700|AppalachianTrail|The Appalachian Trail in Stokes State Forest, New Jersey (© Frank DeBonis/Getty Images)|A storied trail marks a century|![](/en-US/2021/07/202107080700AppalachianTrail.jpg)|
+202107090700|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|A center of antiquity on the Mediterranean|![](/en-US/2021/07/202107090700Ortygia.jpg)|
