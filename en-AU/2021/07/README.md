@@ -10,3 +10,4 @@
 202107070700|LakeUrmia|Kazem Dashi, Lake Urmia, Iran (© Ali/Adobe Stock)|Info|![](/en-AU/2021/07/202107070700LakeUrmia.jpg)|
 202107080700|AppalachianTrail|Appalachian Trail, Stokes State Forest, New Jersey, USA (© Frank DeBonis/Getty Images)|Info|![](/en-AU/2021/07/202107080700AppalachianTrail.jpg)|
 202107090700|Ortygia|Island of Ortygia, Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|Info|![](/en-AU/2021/07/202107090700Ortygia.jpg)|
+202107100700|MonfragueNationalPark|Milky Way over the Tagus river, Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Info|![](/en-AU/2021/07/202107100700MonfragueNationalPark.jpg)|
