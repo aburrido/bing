@@ -10,3 +10,4 @@
 202107072300|AppalachianTrail|The Appalachian Trail in Stokes State Forest, New Jersey, USA  (© Frank DeBonis/Getty Images)|The Appalachian Trail turns 100|![](/en-GB/2021/07/202107072300AppalachianTrail.jpg)|
 202107082300|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|The ancient heart of Syracuse|![](/en-GB/2021/07/202107082300Ortygia.jpg)|
 202107092300|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Dark skies and heavenly views|![](/en-GB/2021/07/202107092300MonfragueNationalPark.jpg)|
+202107102300|WembleyEuro|Wembley Stadium at sunset, London (© Charles Bowman/Alamy)|The final countdown|![](/en-GB/2021/07/202107102300WembleyEuro.jpg)|
