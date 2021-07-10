@@ -10,3 +10,4 @@
 202107071500|AppalachianTrail|｢ストークス州立森林公園のアパラチアントレイル｣米国, ニュージャージー州 (© SnapRapid/Offset by Shutterstock)|アパラチアントレイル 100 周年|![](/ja-JP/2021/07/202107071500AppalachianTrail.jpg)|
 202107081500|Ortygia|｢シラクサのオルティージャ島｣イタリア, シチリア (© DaLiu/Shutterstock)|ウズラという名の島|![](/ja-JP/2021/07/202107081500Ortygia.jpg)|
 202107091500|MonfragueNationalPark|｢モンフラグエ国立公園タホ川の天の川｣スペイン (© Miguel Angel Muñoz Ruiz/Cavan Images)|スペインの国立公園|![](/ja-JP/2021/07/202107091500MonfragueNationalPark.jpg)|
+202107101500|SpiralAloe|｢渦巻き状のアロエ｣米国 (© David Madison/Getty Images)|人気の多肉植物|![](/ja-JP/2021/07/202107101500SpiralAloe.jpg)|
