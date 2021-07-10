@@ -9,3 +9,4 @@
 202107070400|LakeUrmia|Kazem Dashi rock formation in Lake Urmia, Iran (© Ali/Adobe Stock)|Back on the rise|![](/en-CA/2021/07/202107070400LakeUrmia.jpg)|
 202107080400|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|A centre of antiquity on the Mediterranean|![](/en-CA/2021/07/202107080400Ortygia.jpg)|
 202107090400|CalgaryCowboy|A cowboy tends to horses in a barn at the Calgary Stampede on July 10, 2011 in Calgary (© Mario Tama/Getty Images)|A rodeo, a festival, and an exhibition|![](/en-CA/2021/07/202107090400CalgaryCowboy.jpg)|
+202107100400|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Celestial Spain|![](/en-CA/2021/07/202107100400MonfragueNationalPark.jpg)|
