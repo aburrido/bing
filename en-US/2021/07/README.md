@@ -11,3 +11,4 @@
 202107080700|AppalachianTrail|The Appalachian Trail in Stokes State Forest, New Jersey (© Frank DeBonis/Getty Images)|A storied trail marks a century|![](/en-US/2021/07/202107080700AppalachianTrail.jpg)|
 202107090700|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|A center of antiquity on the Mediterranean|![](/en-US/2021/07/202107090700Ortygia.jpg)|
 202107100700|MonfragueNationalPark|Milky Way over the Tagus River in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Celestial Spain|![](/en-US/2021/07/202107100700MonfragueNationalPark.jpg)|
+202107110700|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Why, aloe there|![](/en-US/2021/07/202107110700SpiralAloe.jpg)|
