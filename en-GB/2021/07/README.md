@@ -11,3 +11,4 @@
 202107082300|Ortygia|Ortygia, a small island off the coast of Syracuse, Sicily, Italy (© DaLiu/Shutterstock)|The ancient heart of Syracuse|![](/en-GB/2021/07/202107082300Ortygia.jpg)|
 202107092300|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Dark skies and heavenly views|![](/en-GB/2021/07/202107092300MonfragueNationalPark.jpg)|
 202107102300|WembleyEuro|Wembley Stadium at sunset, London (© Charles Bowman/Alamy)|The final countdown|![](/en-GB/2021/07/202107102300WembleyEuro.jpg)|
+202107112300|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Above the spray|![](/en-GB/2021/07/202107112300LighthouseWave.jpg)|
