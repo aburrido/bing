@@ -11,3 +11,4 @@
 202107080400|AppalachianTrail|Sentier des Appalaches dans la forêt d'État de Stokes, New Jersey (© Frank DeBonis/Getty Images)||![](/fr-CA/2021/07/202107080400AppalachianTrail.jpg)|
 202107090400|Ortygia|Ortygie, une petite île au large de Syracuse, Sicile, Italie (© DaLiu/Shutterstock)||![](/fr-CA/2021/07/202107090400Ortygia.jpg)|
 202107100400|MonfragueNationalPark|Voie Lactée surplombant le fleuve Tage au cœur du Parc national de Monfragüe, Espagne (© Miguel Angel Muñoz Ruiz/Cavan Images)||![](/fr-CA/2021/07/202107100400MonfragueNationalPark.jpg)|
+202107110400|SpiralAloe|Aloès spirale (© David Madison/Getty Images)||![](/fr-CA/2021/07/202107110400SpiralAloe.jpg)|
