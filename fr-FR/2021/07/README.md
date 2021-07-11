@@ -11,3 +11,4 @@
 202107082200|Ortygia|Ortygie, une petite île au large de Syracuse, Sicile, Italie (© DaLiu/Shutterstock)|L’île des dieux|![](/fr-FR/2021/07/202107082200Ortygia.jpg)|
 202107092200|MonfragueNationalPark|Voie lactée au-dessus du Tage dans le parc national de Monfragüe, Espagne (© Miguel Angel Muñoz Ruiz/Cavan Images)|Espagne céleste|![](/fr-FR/2021/07/202107092200MonfragueNationalPark.jpg)|
 202107102200|SpiralAloe|Aloe spirale (© David Madison/Getty Images)|Nature en spirale|![](/fr-FR/2021/07/202107102200SpiralAloe.jpg)|
+202107112200|LighthouseWave|Vagues s’écrasant sur le phare de Felgueiras, Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Bien arrivé|![](/fr-FR/2021/07/202107112200LighthouseWave.jpg)|

@@ -11,3 +11,4 @@
 202107082200|Ortygia|Die kleine Insel Ortygia, Syrakus, Sizilien, Italien (© DaLiu/Shutterstock)|Antikes Zentrum im Mittelmeer|![](/de-DE/2021/07/202107082200Ortygia.jpg)|
 202107092200|MonfragueNationalPark|Die Milchstraße über dem Fluss Tagus im Nationalpark Monfragüe, Spanien (© Miguel Angel Muñoz Ruiz/Cavan Images)|Grandiose Aussichten – am Tag und in der Nacht|![](/de-DE/2021/07/202107092200MonfragueNationalPark.jpg)|
 202107102200|SpiralAloe|Spiralaloe (© David Madison/Getty Images)|Ihr Name lautet „Vielblättrige“|![](/de-DE/2021/07/202107102200SpiralAloe.jpg)|
+202107112200|LighthouseWave|Brandung am Farolim de Felgueiras, einem Leuchtturm in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Ein hoher Leuchtturm und eine Meeresbrise|![](/de-DE/2021/07/202107112200LighthouseWave.jpg)|
