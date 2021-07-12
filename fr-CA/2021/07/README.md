@@ -12,3 +12,4 @@
 202107090400|Ortygia|Ortygie, une petite île au large de Syracuse, Sicile, Italie (© DaLiu/Shutterstock)||![](/fr-CA/2021/07/202107090400Ortygia.jpg)|
 202107100400|MonfragueNationalPark|Voie Lactée surplombant le fleuve Tage au cœur du Parc national de Monfragüe, Espagne (© Miguel Angel Muñoz Ruiz/Cavan Images)||![](/fr-CA/2021/07/202107100400MonfragueNationalPark.jpg)|
 202107110400|SpiralAloe|Aloès spirale (© David Madison/Getty Images)||![](/fr-CA/2021/07/202107110400SpiralAloe.jpg)|
+202107120400|LighthouseWave|Vagues s'écrasant contre le phare de Felgueiras à Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)||![](/fr-CA/2021/07/202107120400LighthouseWave.jpg)|

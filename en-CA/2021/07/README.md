@@ -11,3 +11,4 @@
 202107090400|CalgaryCowboy|A cowboy tends to horses in a barn at the Calgary Stampede on July 10, 2011 in Calgary (© Mario Tama/Getty Images)|A rodeo, a festival, and an exhibition|![](/en-CA/2021/07/202107090400CalgaryCowboy.jpg)|
 202107100400|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Celestial Spain|![](/en-CA/2021/07/202107100400MonfragueNationalPark.jpg)|
 202107110400|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Why, aloe there|![](/en-CA/2021/07/202107110400SpiralAloe.jpg)|
+202107120400|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|A lofty lighthouse and a little ocean spray|![](/en-CA/2021/07/202107120400LighthouseWave.jpg)|
