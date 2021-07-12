@@ -12,3 +12,4 @@
 202107092300|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Dark skies and heavenly views|![](/en-GB/2021/07/202107092300MonfragueNationalPark.jpg)|
 202107102300|WembleyEuro|Wembley Stadium at sunset, London (© Charles Bowman/Alamy)|The final countdown|![](/en-GB/2021/07/202107102300WembleyEuro.jpg)|
 202107112300|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Above the spray|![](/en-GB/2021/07/202107112300LighthouseWave.jpg)|
+202107122300|KingfisherBranch|Kingfisher (Alcedo atthis) near Wychbold, Worcestershire (© David Pike/Minden Pictures)|Riverside royalty|![](/en-GB/2021/07/202107122300KingfisherBranch.jpg)|
