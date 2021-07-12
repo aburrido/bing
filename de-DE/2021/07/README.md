@@ -12,3 +12,4 @@
 202107092200|MonfragueNationalPark|Die Milchstraße über dem Fluss Tagus im Nationalpark Monfragüe, Spanien (© Miguel Angel Muñoz Ruiz/Cavan Images)|Grandiose Aussichten – am Tag und in der Nacht|![](/de-DE/2021/07/202107092200MonfragueNationalPark.jpg)|
 202107102200|SpiralAloe|Spiralaloe (© David Madison/Getty Images)|Ihr Name lautet „Vielblättrige“|![](/de-DE/2021/07/202107102200SpiralAloe.jpg)|
 202107112200|LighthouseWave|Brandung am Farolim de Felgueiras, einem Leuchtturm in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Ein hoher Leuchtturm und eine Meeresbrise|![](/de-DE/2021/07/202107112200LighthouseWave.jpg)|
+202107122200|BlaukehlchenRaps|Blaukehlchen in einem Rapsfeld (© Zwilling330/Getty Images)|Kleine Pause im großen Feld|![](/de-DE/2021/07/202107122200BlaukehlchenRaps.jpg)|
