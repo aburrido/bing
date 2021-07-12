@@ -12,3 +12,4 @@
 202107091830|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Beautiful sights, day or night|![](/en-IN/2021/07/202107091830MonfragueNationalPark.jpg)|
 202107101830|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Why, aloe there|![](/en-IN/2021/07/202107101830SpiralAloe.jpg)|
 202107111830|KonarkSunTemple|A stone wheel engraved in the walls of the Konarak Sun Temple in Orissa, India (© JeremyRichards/Getty Images)|Celebrating Ratha Yatra|![](/en-IN/2021/07/202107111830KonarkSunTemple.jpg)|
+202107121830|MooseVelvet|Moose crossing a pond below Mount Moran, Grand Teton National Park, Wyoming (© Jim Stamates/Minden Pictures)|Through an artist's eyes|![](/en-IN/2021/07/202107121830MooseVelvet.jpg)|
