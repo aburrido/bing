@@ -12,3 +12,4 @@
 202107091600|MonfragueNationalPark|塔霍河上空的银河，西班牙蒙弗拉圭国家公园 (© Miguel Angel Muñoz Ruiz/Cavan Images)||![](/zh-CN/2021/07/202107091600MonfragueNationalPark.jpg)|
 202107101600|SpiralAloe|螺旋状芦荟 (© David Madison/Getty Images)||![](/zh-CN/2021/07/202107101600SpiralAloe.jpg)|
 202107111600|LighthouseWave|海浪撞击费尔盖拉什灯塔，葡萄牙波尔图 (© Stephan Zirwes/Offset by Shutterstock)||![](/zh-CN/2021/07/202107111600LighthouseWave.jpg)|
+202107121600|MooseVelvet|驼鹿穿过莫兰山下的池塘，怀俄明州大提顿国家公园 (© Jim Stamates/Minden Pictures)||![](/zh-CN/2021/07/202107121600MooseVelvet.jpg)|
