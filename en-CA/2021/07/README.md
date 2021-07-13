@@ -12,3 +12,4 @@
 202107100400|MonfragueNationalPark|Milky Way over the Tagus river in Monfragüe National Park, Spain (© Miguel Angel Muñoz Ruiz/Cavan Images)|Celestial Spain|![](/en-CA/2021/07/202107100400MonfragueNationalPark.jpg)|
 202107110400|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Why, aloe there|![](/en-CA/2021/07/202107110400SpiralAloe.jpg)|
 202107120400|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|A lofty lighthouse and a little ocean spray|![](/en-CA/2021/07/202107120400LighthouseWave.jpg)|
+202107130400|MooseVelvet|Moose crossing a pond below Mount Moran, Grand Teton National Park, Wyoming (© Jim Stamates/Minden Pictures)|Through an artist's eyes|![](/en-CA/2021/07/202107130400MooseVelvet.jpg)|
