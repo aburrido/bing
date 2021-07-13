@@ -13,3 +13,4 @@
 202107101500|SpiralAloe|｢渦巻き状のアロエ｣米国 (© David Madison/Getty Images)|人気の多肉植物|![](/ja-JP/2021/07/202107101500SpiralAloe.jpg)|
 202107111500|LighthouseWave|｢ポルトのフェルゲイラス灯台｣ポルトガル (© Stephan Zirwes/Offset by Shutterstock)|ポルトのランドマーク|![](/ja-JP/2021/07/202107111500LighthouseWave.jpg)|
 202107121500|MooseVelvet|｢グランドティトン国立公園のモラン山山麓の池を渡るヘラジカ｣米国, ワイオミング州 (© Jim Stamates/Minden Pictures)|イエローストーン国立公園のお隣さん|![](/ja-JP/2021/07/202107121500MooseVelvet.jpg)|
+202107131500|SharkAwareness|｢タヒチ沖のブラックチップリーフシャーク｣ポリネシア (© Paul Mckenzie/Minden Pictures)|今日はサメ啓発デー|![](/ja-JP/2021/07/202107131500SharkAwareness.jpg)|
