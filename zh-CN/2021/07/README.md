@@ -13,3 +13,4 @@
 202107101600|SpiralAloe|螺旋状芦荟 (© David Madison/Getty Images)||![](/zh-CN/2021/07/202107101600SpiralAloe.jpg)|
 202107111600|LighthouseWave|海浪撞击费尔盖拉什灯塔，葡萄牙波尔图 (© Stephan Zirwes/Offset by Shutterstock)||![](/zh-CN/2021/07/202107111600LighthouseWave.jpg)|
 202107121600|MooseVelvet|驼鹿穿过莫兰山下的池塘，怀俄明州大提顿国家公园 (© Jim Stamates/Minden Pictures)||![](/zh-CN/2021/07/202107121600MooseVelvet.jpg)|
+202107131600|SharkAwareness|大溪地海岸附近的乌翅真鲨，法属波利尼西亚 (© Paul Mckenzie/Minden Pictures)||![](/zh-CN/2021/07/202107131600SharkAwareness.jpg)|
