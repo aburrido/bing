@@ -14,3 +14,4 @@
 202107110700|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Info|![](/en-AU/2021/07/202107110700SpiralAloe.jpg)|
 202107120700|LighthouseWave|Lighthouse of Felgueiras, Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107120700LighthouseWave.jpg)|
 202107130700|OceanView|Mediterranean Sea from Cannes, France (© Anthony Lanneretonne/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107130700OceanView.jpg)|
+202107130700|FrillyTulip|Pink fringed tulip, Ottawa, Canada (© colimachon/Getty Images)|Info|![](/en-AU/2021/07/202107130700FrillyTulip.jpg)|
