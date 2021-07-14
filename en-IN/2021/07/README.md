@@ -14,3 +14,4 @@
 202107111830|KonarkSunTemple|A stone wheel engraved in the walls of the Konarak Sun Temple in Orissa, India (© JeremyRichards/Getty Images)|Celebrating Ratha Yatra|![](/en-IN/2021/07/202107111830KonarkSunTemple.jpg)|
 202107121830|MooseVelvet|Moose crossing a pond below Mount Moran, Grand Teton National Park, Wyoming (© Jim Stamates/Minden Pictures)|Through an artist's eyes|![](/en-IN/2021/07/202107121830MooseVelvet.jpg)|
 202107131830|SharkAwareness|Blacktip reef sharks off the coast of Tahiti, French Polynesia (© Paul Mckenzie/Minden Pictures)|A different view of sharks|![](/en-IN/2021/07/202107131830SharkAwareness.jpg)|
+202107141830|NgoDong|Boats float by rice fields on the Ngo Dong River in Ninh Binh province, Vietnam (© Jeremy Woodhouse/Getty Images)|A river runs through rice fields|![](/en-IN/2021/07/202107141830NgoDong.jpg)|
