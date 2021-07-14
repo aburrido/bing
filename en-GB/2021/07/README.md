@@ -14,3 +14,4 @@
 202107112300|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|Above the spray|![](/en-GB/2021/07/202107112300LighthouseWave.jpg)|
 202107122300|KingfisherBranch|Kingfisher (Alcedo atthis) near Wychbold, Worcestershire (© David Pike/Minden Pictures)|Riverside royalty|![](/en-GB/2021/07/202107122300KingfisherBranch.jpg)|
 202107132300|SharkAwareness|Blacktip reef sharks off the coast of Tahiti, French Polynesia (© Paul Mckenzie/Minden Pictures)|A different view of sharks|![](/en-GB/2021/07/202107132300SharkAwareness.jpg)|
+202107142300|NgoDong|Boats float by rice fields on the Ngo Dong River in Ninh Binh province, Vietnam (© Jeremy Woodhouse/Getty Images)|Paddling through paddy fields|![](/en-GB/2021/07/202107142300NgoDong.jpg)|
