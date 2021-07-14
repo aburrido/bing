@@ -14,3 +14,4 @@
 202107110400|SpiralAloe|Aloès spirale (© David Madison/Getty Images)||![](/fr-CA/2021/07/202107110400SpiralAloe.jpg)|
 202107120400|LighthouseWave|Vagues s'écrasant contre le phare de Felgueiras à Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)||![](/fr-CA/2021/07/202107120400LighthouseWave.jpg)|
 202107130400|MooseVelvet|Orignal traversant un étang au pied du Mont Moran, Parc national de Grand Teton, Wyoming (© Jim Stamates/Minden Pictures)||![](/fr-CA/2021/07/202107130400MooseVelvet.jpg)|
+202107140400|SharkAwareness|Requins à pointes noires au large de Tahiti, Polynésie française (© Paul Mckenzie/Minden Pictures)||![](/fr-CA/2021/07/202107140400SharkAwareness.jpg)|

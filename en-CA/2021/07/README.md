@@ -13,3 +13,4 @@
 202107110400|SpiralAloe|Spiral aloe (© David Madison/Getty Images)|Why, aloe there|![](/en-CA/2021/07/202107110400SpiralAloe.jpg)|
 202107120400|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|A lofty lighthouse and a little ocean spray|![](/en-CA/2021/07/202107120400LighthouseWave.jpg)|
 202107130400|MooseVelvet|Moose crossing a pond below Mount Moran, Grand Teton National Park, Wyoming (© Jim Stamates/Minden Pictures)|Through an artist's eyes|![](/en-CA/2021/07/202107130400MooseVelvet.jpg)|
+202107140400|SharkAwareness|Blacktip reef sharks off the coast of Tahiti, French Polynesia (© Paul Mckenzie/Minden Pictures)|A different view of sharks|![](/en-CA/2021/07/202107140400SharkAwareness.jpg)|
