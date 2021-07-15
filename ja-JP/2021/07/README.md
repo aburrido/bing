@@ -15,3 +15,4 @@
 202107121500|MooseVelvet|｢グランドティトン国立公園のモラン山山麓の池を渡るヘラジカ｣米国, ワイオミング州 (© Jim Stamates/Minden Pictures)|イエローストーン国立公園のお隣さん|![](/ja-JP/2021/07/202107121500MooseVelvet.jpg)|
 202107131500|SharkAwareness|｢タヒチ沖のブラックチップリーフシャーク｣ポリネシア (© Paul Mckenzie/Minden Pictures)|今日はサメ啓発デー|![](/ja-JP/2021/07/202107131500SharkAwareness.jpg)|
 202107141500|NgoDong|｢チャンアンの水田を行くボートツアー｣ベトナム (© Jeremy Woodhouse/Getty Images)|東南アジア初の複合遺産|![](/ja-JP/2021/07/202107141500NgoDong.jpg)|
+202107151500|MontChoisy|｢モンショワジーのビーチ｣モーリシャス (© Robert Harding World Imagery/Offset by Shutterstock)|熱帯の楽園|![](/ja-JP/2021/07/202107151500MontChoisy.jpg)|
