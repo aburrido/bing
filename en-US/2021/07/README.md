@@ -15,3 +15,4 @@
 202107120700|LighthouseWave|Wave crashing on Farolim de Felgueiras, a lighthouse in Porto, Portugal (© Stephan Zirwes/Offset by Shutterstock)|A lofty lighthouse and a little ocean spray|![](/en-US/2021/07/202107120700LighthouseWave.jpg)|
 202107130700|MooseVelvet|Moose crossing a pond below Mount Moran, Grand Teton National Park, Wyoming (© Jim Stamates/Minden Pictures)|Through an artist's eyes|![](/en-US/2021/07/202107130700MooseVelvet.jpg)|
 202107140700|SharkAwareness|Blacktip reef sharks off the coast of Tahiti, French Polynesia (© Paul Mckenzie/Minden Pictures)|A different view of sharks|![](/en-US/2021/07/202107140700SharkAwareness.jpg)|
+202107150700|NgoDong|Boats float by rice fields on the Ngo Dong River in Ninh Bình province, Vietnam (© Jeremy Woodhouse/Getty Images)|A river runs through rice fields|![](/en-US/2021/07/202107150700NgoDong.jpg)|
