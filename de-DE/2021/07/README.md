@@ -15,3 +15,4 @@
 202107122200|BlaukehlchenRaps|Blaukehlchen in einem Rapsfeld (© Zwilling330/Getty Images)|Kleine Pause im großen Feld|![](/de-DE/2021/07/202107122200BlaukehlchenRaps.jpg)|
 202107132200|SharkAwareness|Schwarzspitzen-Riffhaie vor der Küste von Tahiti, Französisch-Polynesien (© Paul Mckenzie/Minden Pictures)|Eine andere Sicht auf Haie|![](/de-DE/2021/07/202107132200SharkAwareness.jpg)|
 202107142200|NgoDong|Boote treiben an Reisfeldern auf dem Ngo Dong-Fluss in der Provinz Ninh Binh, Vietnam (© Jeremy Woodhouse/Getty Images)|Ein Fluss fließt durch Reisfelder|![](/de-DE/2021/07/202107142200NgoDong.jpg)|
+202107152200|SwordFern|Ausschnitt eines Straußenfarns im Frühjahr, Bundesstaat Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Definitiv einzigartig|![](/de-DE/2021/07/202107152200SwordFern.jpg)|
