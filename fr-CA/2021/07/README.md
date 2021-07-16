@@ -16,3 +16,4 @@
 202107130400|MooseVelvet|Orignal traversant un étang au pied du Mont Moran, Parc national de Grand Teton, Wyoming (© Jim Stamates/Minden Pictures)||![](/fr-CA/2021/07/202107130400MooseVelvet.jpg)|
 202107140400|SharkAwareness|Requins à pointes noires au large de Tahiti, Polynésie française (© Paul Mckenzie/Minden Pictures)||![](/fr-CA/2021/07/202107140400SharkAwareness.jpg)|
 202107150400|NgoDong|Bateaux flottant le long des rizières qui bordent la rivière Ngo Dong, Province de Ninh Bình, Vietnam (© Jeremy Woodhouse/Getty Images)||![](/fr-CA/2021/07/202107150400NgoDong.jpg)|
+202107160400|MontChoisy|La plage de Mont Choisy, Île Maurice (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2021/07/202107160400MontChoisy.jpg)|
