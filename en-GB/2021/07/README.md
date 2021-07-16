@@ -17,3 +17,4 @@
 202107142300|NgoDong|Boats float by rice fields on the Ngo Dong River in Ninh Binh province, Vietnam (© Jeremy Woodhouse/Getty Images)|Paddling through paddy fields|![](/en-GB/2021/07/202107142300NgoDong.jpg)|
 ||||![](/en-GB/2021/07/.jpg)|
 202107152300|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Whatever floats your boat|![](/en-GB/2021/07/202107152300MontChoisy.jpg)|
+202107162300|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Pretty, pretty…butterfly?|![](/en-GB/2021/07/202107162300LoepaOberthuri.jpg)|
