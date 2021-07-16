@@ -17,3 +17,4 @@
 202107130700|FrillyTulip|Pink fringed tulip, Ottawa, Canada (© colimachon/Getty Images)|Info|![](/en-AU/2021/07/202107130700FrillyTulip.jpg)|
 202107140700|BlaukehlchenRaps|A bluethroat singing in a field (© Zwilling330/iStock/Getty Images Plus)|Info|![](/en-AU/2021/07/202107140700BlaukehlchenRaps.jpg)|
 202107150700|NgoDong|Ngo Dong river, Ninh Binh province, Vietnam (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2021/07/202107150700NgoDong.jpg)|
+202107160700|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107160700MontChoisy.jpg)|
