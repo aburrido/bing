@@ -16,3 +16,4 @@
 202107131500|SharkAwareness|｢タヒチ沖のブラックチップリーフシャーク｣ポリネシア (© Paul Mckenzie/Minden Pictures)|今日はサメ啓発デー|![](/ja-JP/2021/07/202107131500SharkAwareness.jpg)|
 202107141500|NgoDong|｢チャンアンの水田を行くボートツアー｣ベトナム (© Jeremy Woodhouse/Getty Images)|東南アジア初の複合遺産|![](/ja-JP/2021/07/202107141500NgoDong.jpg)|
 202107151500|MontChoisy|｢モンショワジーのビーチ｣モーリシャス (© Robert Harding World Imagery/Offset by Shutterstock)|熱帯の楽園|![](/ja-JP/2021/07/202107151500MontChoisy.jpg)|
+202107161500|EvergladesShowers|｢エバーグレーズ国立公園｣米国, フロリダ州 (© Tetra Images/Getty Images)|野生動物の宝庫|![](/ja-JP/2021/07/202107161500EvergladesShowers.jpg)|
