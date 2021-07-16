@@ -16,3 +16,4 @@
 202107132200|July14|La Patrouille de France survolant l’Arc de Triomphe lors des célébrations du 14 juillet 2020 (© REUTERS/Gonzalo Fuentes)|Du bleu, du blanc et du rouge|![](/fr-FR/2021/07/202107132200July14.jpg)|
 202107142200|NgoDong|Barques naviguant entre les rizières sur la rivière Ngo Dong, Province de Ninh Binh, Vietnam (© Jeremy Woodhouse/Getty Images)|Rivière entre rizières|![](/fr-FR/2021/07/202107142200NgoDong.jpg)|
 202107152200|MontChoisy|Mont Choisy Beach, plage de l’île Maurice (© Robert Harding World Imagery/Offset by Shutterstock)|La force de Maurice|![](/fr-FR/2021/07/202107152200MontChoisy.jpg)|
+202107162200|BruceMunroUluru|'Field of Light' par Bruce Munro à Uluru, Australie (© Sheralee Stoll/Alamy)|Champ de Lumière|![](/fr-FR/2021/07/202107162200BruceMunroUluru.jpg)|
