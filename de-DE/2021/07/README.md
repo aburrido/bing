@@ -17,3 +17,4 @@
 202107142200|NgoDong|Boote treiben an Reisfeldern auf dem Ngo Dong-Fluss in der Provinz Ninh Binh, Vietnam (© Jeremy Woodhouse/Getty Images)|Ein Fluss fließt durch Reisfelder|![](/de-DE/2021/07/202107142200NgoDong.jpg)|
 202107152200|SwordFern|Ausschnitt eines Straußenfarns im Frühjahr, Bundesstaat Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Definitiv einzigartig|![](/de-DE/2021/07/202107152200SwordFern.jpg)|
 202107162200|LoepaOberthuri|Ein Exemplar der Nachtfalter-Art Loepa oberthuri (© Robert Thompson/Minden Pictures)|Tagfalter oder Nachtfalter?|![](/de-DE/2021/07/202107162200LoepaOberthuri.jpg)|
+202107172200|LouvreRiders|Teilnehmer der Tour de France 2020 vor der Glaspyramide im Innenhof des Louvre in Paris, Frankreich (© Martin Bureau/AFP via Getty Images)|Das große Finale der Tour|![](/de-DE/2021/07/202107172200LouvreRiders.jpg)|

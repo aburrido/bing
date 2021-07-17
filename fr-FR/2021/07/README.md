@@ -17,3 +17,4 @@
 202107142200|NgoDong|Barques naviguant entre les rizières sur la rivière Ngo Dong, Province de Ninh Binh, Vietnam (© Jeremy Woodhouse/Getty Images)|Rivière entre rizières|![](/fr-FR/2021/07/202107142200NgoDong.jpg)|
 202107152200|MontChoisy|Mont Choisy Beach, plage de l’île Maurice (© Robert Harding World Imagery/Offset by Shutterstock)|La force de Maurice|![](/fr-FR/2021/07/202107152200MontChoisy.jpg)|
 202107162200|BruceMunroUluru|'Field of Light' par Bruce Munro à Uluru, Australie (© Sheralee Stoll/Alamy)|Champ de Lumière|![](/fr-FR/2021/07/202107162200BruceMunroUluru.jpg)|
+202107172200|LouvreRiders|Coureurs du Tour de France devant la pyramide du Louvre lors de la course de 2020 (© Martin Bureau/AFP via Getty Images)|Apothéose|![](/fr-FR/2021/07/202107172200LouvreRiders.jpg)|
