@@ -17,3 +17,4 @@
 202107141600|NgoDong|Ngo Dong河两岸的稻田美景，越南宁平省 (© Jeremy Woodhouse/Getty Images)||![](/zh-CN/2021/07/202107141600NgoDong.jpg)|
 202107151600|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2021/07/202107151600MontChoisy.jpg)|
 202107161600|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)||![](/zh-CN/2021/07/202107161600LoepaOberthuri.jpg)|
+202107171600|ZinnowitzSeebruecke|Zinnowitz pier on Usedom island in the Baltic Sea, Germany (© Frank Günther/Getty Images)||![](/zh-CN/2021/07/202107171600ZinnowitzSeebruecke.jpg)|
