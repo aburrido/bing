@@ -17,3 +17,4 @@
 202107140700|SharkAwareness|Blacktip reef sharks off the coast of Tahiti, French Polynesia (© Paul Mckenzie/Minden Pictures)|A different view of sharks|![](/en-US/2021/07/202107140700SharkAwareness.jpg)|
 202107150700|NgoDong|Boats float by rice fields on the Ngo Dong River in Ninh Bình province, Vietnam (© Jeremy Woodhouse/Getty Images)|A river runs through rice fields|![](/en-US/2021/07/202107150700NgoDong.jpg)|
 202107160700|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Whatever floats your boat|![](/en-US/2021/07/202107160700MontChoisy.jpg)|
+202107170700|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Pretty, pretty…butterfly?|![](/en-US/2021/07/202107170700LoepaOberthuri.jpg)|

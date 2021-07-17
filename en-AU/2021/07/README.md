@@ -18,3 +18,4 @@
 202107140700|BlaukehlchenRaps|A bluethroat singing in a field (© Zwilling330/iStock/Getty Images Plus)|Info|![](/en-AU/2021/07/202107140700BlaukehlchenRaps.jpg)|
 202107150700|NgoDong|Ngo Dong river, Ninh Binh province, Vietnam (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2021/07/202107150700NgoDong.jpg)|
 202107160700|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107160700MontChoisy.jpg)|
+202107170700|LoepaOberthuri|Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Info|![](/en-AU/2021/07/202107170700LoepaOberthuri.jpg)|
