@@ -17,3 +17,4 @@
 202107150400|NgoDong|Boats float by rice fields on the Ngo Dong River in Ninh Binh province, Vietnam (© Jeremy Woodhouse/Getty Images)|A river runs through rice fields|![](/en-CA/2021/07/202107150400NgoDong.jpg)|
 202107160400|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Whatever floats your boat|![](/en-CA/2021/07/202107160400MontChoisy.jpg)|
 202107170400|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Pretty, pretty…butterfly?|![](/en-CA/2021/07/202107170400LoepaOberthuri.jpg)|
+202107180400|LouvreRiders|Tour de France riders in front of the Louvre Pyramid and museum in Paris, France, during the 2020 race (© Martin Bureau/AFP via Getty Images)|Grand finish of Le Tour|![](/en-CA/2021/07/202107180400LouvreRiders.jpg)|
