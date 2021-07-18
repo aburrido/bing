@@ -18,3 +18,4 @@
 202107151500|MontChoisy|｢モンショワジーのビーチ｣モーリシャス (© Robert Harding World Imagery/Offset by Shutterstock)|熱帯の楽園|![](/ja-JP/2021/07/202107151500MontChoisy.jpg)|
 202107161500|EvergladesShowers|｢エバーグレーズ国立公園｣米国, フロリダ州 (© Tetra Images/Getty Images)|野生動物の宝庫|![](/ja-JP/2021/07/202107161500EvergladesShowers.jpg)|
 202107171500|LouvreRiders|｢2020 年のツール・ド・フランス｣フランス, パリ (© Martin Bureau/AFP via Getty Images)|ツール・ド・フランス最終日|![](/ja-JP/2021/07/202107171500LouvreRiders.jpg)|
+202107181500|Tetouan|｢旧市街のカラフルな路地｣モロッコ, テトゥアン (© Jan Wlodarczyk/eStock Photo)|異国情緒あふれる旧市街|![](/ja-JP/2021/07/202107181500Tetouan.jpg)|
