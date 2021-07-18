@@ -18,3 +18,4 @@
 202107151830|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Whatever floats your boat|![](/en-IN/2021/07/202107151830MontChoisy.jpg)|
 202107161830|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Pretty, pretty… butterfly?|![](/en-IN/2021/07/202107161830LoepaOberthuri.jpg)|
 202107171830|LouvreRiders|Tour de France riders in front of the Louvre Pyramid and museum in Paris, France, during the 2020 race (© Martin Bureau/AFP via Getty Images)|Grand finish of Le Tour|![](/en-IN/2021/07/202107171830LouvreRiders.jpg)|
+202107181830|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-IN/2021/07/202107181830Tetouan.jpg)|
