@@ -19,3 +19,4 @@
 202107161600|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)||![](/zh-CN/2021/07/202107161600LoepaOberthuri.jpg)|
 202107171600|ZinnowitzSeebruecke|Zinnowitz pier on Usedom island in the Baltic Sea, Germany (© Frank Günther/Getty Images)||![](/zh-CN/2021/07/202107171600ZinnowitzSeebruecke.jpg)|
 202107181600|Tetouan|麦地那的彩色小巷， 摩洛哥得土安市 (© Jan Wlodarczyk/eStock Photo)||![](/zh-CN/2021/07/202107181600Tetouan.jpg)|
+202107191600|PrathameshJaju|月球的高清合成影像 (© Prathamesh Jaju)||![](/zh-CN/2021/07/202107191600PrathameshJaju.jpg)|
