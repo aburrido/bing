@@ -19,3 +19,4 @@
 202107162200|LoepaOberthuri|Ein Exemplar der Nachtfalter-Art Loepa oberthuri (© Robert Thompson/Minden Pictures)|Tagfalter oder Nachtfalter?|![](/de-DE/2021/07/202107162200LoepaOberthuri.jpg)|
 202107172200|LouvreRiders|Teilnehmer der Tour de France 2020 vor der Glaspyramide im Innenhof des Louvre in Paris, Frankreich (© Martin Bureau/AFP via Getty Images)|Das große Finale der Tour|![](/de-DE/2021/07/202107172200LouvreRiders.jpg)|
 202107182200|Tetouan|Farbenfrohe Gasse in der Medina von Tétouan, Marokko (© Jan Wlodarczyk/eStock Photo)|Erkundung der historischen Medina|![](/de-DE/2021/07/202107182200Tetouan.jpg)|
+202107192200|PrathameshJaju|Kompositaufnahme des Mondes (© Prathamesh Jaju)|Trabant der Erde|![](/de-DE/2021/07/202107192200PrathameshJaju.jpg)|

@@ -19,3 +19,4 @@
 202107162200|BruceMunroUluru|'Field of Light' par Bruce Munro à Uluru, Australie (© Sheralee Stoll/Alamy)|Champ de Lumière|![](/fr-FR/2021/07/202107162200BruceMunroUluru.jpg)|
 202107172200|LouvreRiders|Coureurs du Tour de France devant la pyramide du Louvre lors de la course de 2020 (© Martin Bureau/AFP via Getty Images)|Apothéose|![](/fr-FR/2021/07/202107172200LouvreRiders.jpg)|
 202107182200|Tetouan|Allée colorée à Tétouan, Maroc (© Jan Wlodarczyk/eStock Photo)|Ce qu’il faut de couleur|![](/fr-FR/2021/07/202107182200Tetouan.jpg)|
+202107192200|PrathameshJaju|Image recomposée de la Lune (© Prathamesh Jaju)|Les mille facettes de la Lune|![](/fr-FR/2021/07/202107192200PrathameshJaju.jpg)|
