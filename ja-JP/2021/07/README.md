@@ -20,3 +20,4 @@
 202107171500|LouvreRiders|｢2020 年のツール・ド・フランス｣フランス, パリ (© Martin Bureau/AFP via Getty Images)|ツール・ド・フランス最終日|![](/ja-JP/2021/07/202107171500LouvreRiders.jpg)|
 202107181500|Tetouan|｢旧市街のカラフルな路地｣モロッコ, テトゥアン (© Jan Wlodarczyk/eStock Photo)|異国情緒あふれる旧市街|![](/ja-JP/2021/07/202107181500Tetouan.jpg)|
 202107191500|PrathameshJaju|｢月面の合成写真｣ (© Prathamesh Jaju)|アポロ 11 号が月面に降りた日|![](/ja-JP/2021/07/202107191500PrathameshJaju.jpg)|
+202107201500|VermilionLakes|｢カナディアンロッキーのバーミリオン湖｣ カナダ (© Jeremy Woodhouse/Getty Images)|バーミリオンに染まる湖|![](/ja-JP/2021/07/202107201500VermilionLakes.jpg)|
