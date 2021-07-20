@@ -20,3 +20,4 @@
 202107170400|LoepaOberthuri|Un papillon Loepa oberthuri (© Robert Thompson/Minden Pictures)||![](/fr-CA/2021/07/202107170400LoepaOberthuri.jpg)|
 202107180400|CityPalaceUdaipur|City Palace de Jaipur sur les berges du lac Pichola, Inde (© Chaiyun Damkaew/Getty Images)||![](/fr-CA/2021/07/202107180400CityPalaceUdaipur.jpg)|
 202107190400|Tetouan|Ruelle colorée dans la médina de Tétouan, Maroc (© Jan Wlodarczyk/eStock Photo)||![](/fr-CA/2021/07/202107190400Tetouan.jpg)|
+202107200400|PrathameshJaju|Image composite de la lune (© Prathamesh Jaju)||![](/fr-CA/2021/07/202107200400PrathameshJaju.jpg)|

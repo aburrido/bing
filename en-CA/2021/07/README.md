@@ -19,3 +19,4 @@
 202107170400|LoepaOberthuri|A Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Pretty, pretty…butterfly?|![](/en-CA/2021/07/202107170400LoepaOberthuri.jpg)|
 202107180400|LouvreRiders|Tour de France riders in front of the Louvre Pyramid and museum in Paris, France, during the 2020 race (© Martin Bureau/AFP via Getty Images)|Grand finish of Le Tour|![](/en-CA/2021/07/202107180400LouvreRiders.jpg)|
 202107190400|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-CA/2021/07/202107190400Tetouan.jpg)|
+202107200400|PrathameshJaju|Composite image of the moon (© Prathamesh Jaju)|Fly me to the moon|![](/en-CA/2021/07/202107200400PrathameshJaju.jpg)|
