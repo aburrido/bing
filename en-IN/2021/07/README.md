@@ -20,3 +20,4 @@
 202107171830|LouvreRiders|Tour de France riders in front of the Louvre Pyramid and museum in Paris, France, during the 2020 race (© Martin Bureau/AFP via Getty Images)|Grand finish of Le Tour|![](/en-IN/2021/07/202107171830LouvreRiders.jpg)|
 202107181830|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-IN/2021/07/202107181830Tetouan.jpg)|
 202107191830|PrathameshJaju|Composite image of the moon (© Prathamesh Jaju)|Fly me to the moon|![](/en-IN/2021/07/202107191830PrathameshJaju.jpg)|
+202107201830|ShettihalliChurch|Ruins of Shettihalli Rosary Church in Karnataka, India (© Amith Nag Photography/Getty Images)|India’s only ‘floating church’|![](/en-IN/2021/07/202107201830ShettihalliChurch.jpg)|
