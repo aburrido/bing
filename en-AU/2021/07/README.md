@@ -21,3 +21,4 @@
 202107170700|LoepaOberthuri|Loepa oberthuri moth (© Robert Thompson/Minden Pictures)|Info|![](/en-AU/2021/07/202107170700LoepaOberthuri.jpg)|
 202107180700|SaltLake|Pink salt lake, Gruissan, France (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2021/07/202107180700SaltLake.jpg)|
 202107190700|Tetouan|Medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Info|![](/en-AU/2021/07/202107190700Tetouan.jpg)|
+202107200700|PrathameshJaju|Composite image of the Moon (© Prathamesh Jaju)|Info|![](/en-AU/2021/07/202107200700PrathameshJaju.jpg)|
