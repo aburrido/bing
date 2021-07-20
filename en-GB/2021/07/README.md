@@ -21,3 +21,4 @@
 202107172300|LouvreRiders|Tour de France riders in front of the Louvre Pyramid and museum in Paris, France, during the 2020 race (© Martin Bureau/AFP via Getty Images)|Grand finish of Le Tour|![](/en-GB/2021/07/202107172300LouvreRiders.jpg)|
 202107182300|SkaraBrae|Stormy sky over Skara Brae, a Neolithic village on the Mainland, Orkney (© Robert Harding World Imagery/Offset)|Who lived here?|![](/en-GB/2021/07/202107182300SkaraBrae.jpg)|
 202107192300|PrathameshJaju|Composite image of the Moon (© Prathamesh Jaju)|Fly me to the Moon|![](/en-GB/2021/07/202107192300PrathameshJaju.jpg)|
+202107202300|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-GB/2021/07/202107202300Tetouan.jpg)|
