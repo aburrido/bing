@@ -21,3 +21,4 @@
 202107182200|Tetouan|Allée colorée à Tétouan, Maroc (© Jan Wlodarczyk/eStock Photo)|Ce qu’il faut de couleur|![](/fr-FR/2021/07/202107182200Tetouan.jpg)|
 202107192200|PrathameshJaju|Image recomposée de la Lune (© Prathamesh Jaju)|Les mille facettes de la Lune|![](/fr-FR/2021/07/202107192200PrathameshJaju.jpg)|
 202107202200|VermilionLakes|Les lacs Vermilion dans les Rocheuses canadiennes (© Glowing Earth Photography/Getty Images)|Miroir du ciel|![](/fr-FR/2021/07/202107202200VermilionLakes.jpg)|
+202107212200|MinokakeRocks|Formations rocheuses de Minokake-Iwa rocks devant la péninsule d’Izu, Japon (© Krzysztof Baranowski/Getty Images)|La plage avant les J.O|![](/fr-FR/2021/07/202107212200MinokakeRocks.jpg)|
