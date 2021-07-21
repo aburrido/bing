@@ -21,3 +21,4 @@
 202107181830|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-IN/2021/07/202107181830Tetouan.jpg)|
 202107191830|PrathameshJaju|Composite image of the moon (© Prathamesh Jaju)|Fly me to the moon|![](/en-IN/2021/07/202107191830PrathameshJaju.jpg)|
 202107201830|ShettihalliChurch|Ruins of Shettihalli Rosary Church in Karnataka, India (© Amith Nag Photography/Getty Images)|India’s only ‘floating church’|![](/en-IN/2021/07/202107201830ShettihalliChurch.jpg)|
+202107211830|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-IN/2021/07/202107211830MinokakeRocks.jpg)|
