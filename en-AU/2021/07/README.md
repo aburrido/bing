@@ -22,3 +22,4 @@
 202107180700|SaltLake|Pink salt lake, Gruissan, France (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2021/07/202107180700SaltLake.jpg)|
 202107190700|Tetouan|Medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Info|![](/en-AU/2021/07/202107190700Tetouan.jpg)|
 202107200700|PrathameshJaju|Composite image of the Moon (© Prathamesh Jaju)|Info|![](/en-AU/2021/07/202107200700PrathameshJaju.jpg)|
+202107210700|VermilionLakes|Vermilion Lakes, Canadian Rocky Mountains (© Glowing Earth Photography/Getty Images)|Info|![](/en-AU/2021/07/202107210700VermilionLakes.jpg)|
