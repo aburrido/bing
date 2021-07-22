@@ -23,3 +23,4 @@
 202107192300|PrathameshJaju|Composite image of the Moon (© Prathamesh Jaju)|Fly me to the Moon|![](/en-GB/2021/07/202107192300PrathameshJaju.jpg)|
 202107202300|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-GB/2021/07/202107202300Tetouan.jpg)|
 202107212300|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-GB/2021/07/202107212300MinokakeRocks.jpg)|
+202107222300|TokyoMetropolis|Tokyo Tower in Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Let the games (finally) begin!|![](/en-GB/2021/07/202107222300TokyoMetropolis.jpg)|
