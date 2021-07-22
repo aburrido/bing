@@ -23,3 +23,4 @@
 202107202200|SeaGoldie|Ein Schwarm Juwelen-Fahnenbarsche in einem Korallenriff mit Haarsternen, Great Barrier Reef, Queensland, Australien (© Gary Bell/Minden Pictures)|Unterwasser-Disco|![](/de-DE/2021/07/202107202200SeaGoldie.jpg)|
 202107212200|DenaliCaribou|Karibus im Denali-Nationalpark, Alaska, USA (© Design Pics/Danita Delimont)|Willkommen in der Wildnis!|![](/de-DE/2021/07/202107212200DenaliCaribou.jpg)|
 ||||![](/de-DE/2021/07/.jpg)|
+202107222200|TokyoMetropolis|Tokyo Tower im Stadtbezirk Minato, Tokio, Japan (© Yukinori Hasumi/Getty Images)|Lasst die Spiele (endlich) beginnen!|![](/de-DE/2021/07/202107222200TokyoMetropolis.jpg)|
