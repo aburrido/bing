@@ -22,3 +22,4 @@
 202107192200|PrathameshJaju|Kompositaufnahme des Mondes (© Prathamesh Jaju)|Trabant der Erde|![](/de-DE/2021/07/202107192200PrathameshJaju.jpg)|
 202107202200|SeaGoldie|Ein Schwarm Juwelen-Fahnenbarsche in einem Korallenriff mit Haarsternen, Great Barrier Reef, Queensland, Australien (© Gary Bell/Minden Pictures)|Unterwasser-Disco|![](/de-DE/2021/07/202107202200SeaGoldie.jpg)|
 202107212200|DenaliCaribou|Karibus im Denali-Nationalpark, Alaska, USA (© Design Pics/Danita Delimont)|Willkommen in der Wildnis!|![](/de-DE/2021/07/202107212200DenaliCaribou.jpg)|
+||||![](/de-DE/2021/07/.jpg)|
