@@ -23,3 +23,4 @@
 202107200700|PrathameshJaju|Composite image of the moon (© Prathamesh Jaju)|Fly me to the moon|![](/en-US/2021/07/202107200700PrathameshJaju.jpg)|
 202107210700|WachsenburgCastle|Wachsenburg Castle near Erfurt, Germany (© Radius Images/Offset by Shutterstock)|A reflection of Europe's past|![](/en-US/2021/07/202107210700WachsenburgCastle.jpg)|
 202107210700|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|An octagonal architectural treasure|![](/en-US/2021/07/202107210700CasteldelMonte.jpg)|
+202107220700|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-US/2021/07/202107220700MinokakeRocks.jpg)|
