@@ -21,3 +21,4 @@
 202107190400|Tetouan|Colourful alleyway in the medina of Tétouan, Morocco (© Jan Wlodarczyk/eStock Photo)|Wander the ancient medina|![](/en-CA/2021/07/202107190400Tetouan.jpg)|
 202107200400|PrathameshJaju|Composite image of the moon (© Prathamesh Jaju)|Fly me to the moon|![](/en-CA/2021/07/202107200400PrathameshJaju.jpg)|
 202107210400|VermilionLakes|The Vermilion Lakes in Banff National Park, Alberta (© Glowing Earth Photography/Getty Images)|Alpine peaks and lakes|![](/en-CA/2021/07/202107210400VermilionLakes.jpg)|
+202107220400|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-CA/2021/07/202107220400MinokakeRocks.jpg)|
