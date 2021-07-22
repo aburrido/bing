@@ -22,3 +22,4 @@
 202107191500|PrathameshJaju|｢月面の合成写真｣ (© Prathamesh Jaju)|アポロ 11 号が月面に降りた日|![](/ja-JP/2021/07/202107191500PrathameshJaju.jpg)|
 202107201500|VermilionLakes|｢カナディアンロッキーのバーミリオン湖｣ カナダ (© Jeremy Woodhouse/Getty Images)|バーミリオンに染まる湖|![](/ja-JP/2021/07/202107201500VermilionLakes.jpg)|
 202107211500|MinokakeRocks|｢蓑掛岩｣静岡県, 南伊豆町 (© Krzysztof Baranowski/Getty Images)|今日は海の日|![](/ja-JP/2021/07/202107211500MinokakeRocks.jpg)|
+202107221500|TokyoMetropolis|｢東京タワー｣東京都, 港区 (© Yukinori Hasumi/Getty Images)|今日は開会式|![](/ja-JP/2021/07/202107221500TokyoMetropolis.jpg)|
