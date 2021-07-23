@@ -23,3 +23,4 @@
 202107200400|PrathameshJaju|Image composite de la lune (© Prathamesh Jaju)||![](/fr-CA/2021/07/202107200400PrathameshJaju.jpg)|
 202107210400|VermilionLakes|Les lacs Vermilion dans le Parc national Banff, Alberta (© Glowing Earth Photography/Getty Images)||![](/fr-CA/2021/07/202107210400VermilionLakes.jpg)|
 202107220400|MinokakeRocks|Les rochers Minokake-Iwa au large de la péninsule d'Izu, Japon (© Krzysztof Baranowski/Getty Images)||![](/fr-CA/2021/07/202107220400MinokakeRocks.jpg)|
+202107230400|TokyoMetropolis|La Tour de Tokyo dans le quartier de Minato, Tokyo, Japon (© Yukinori Hasumi/Getty Images)||![](/fr-CA/2021/07/202107230400TokyoMetropolis.jpg)|
