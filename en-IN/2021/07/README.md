@@ -23,3 +23,4 @@
 202107201830|ShettihalliChurch|Ruins of Shettihalli Rosary Church in Karnataka, India (© Amith Nag Photography/Getty Images)|India’s only ‘floating church’|![](/en-IN/2021/07/202107201830ShettihalliChurch.jpg)|
 202107211830|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-IN/2021/07/202107211830MinokakeRocks.jpg)|
 202107221830|TokyoMetropolis|Tokyo Tower in Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Let the games (finally) begin!|![](/en-IN/2021/07/202107221830TokyoMetropolis.jpg)|
+||||![](/en-IN/2021/07/.jpg)|
