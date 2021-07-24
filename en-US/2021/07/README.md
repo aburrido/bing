@@ -25,3 +25,4 @@
 202107210700|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|An octagonal architectural treasure|![](/en-US/2021/07/202107210700CasteldelMonte.jpg)|
 202107220700|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-US/2021/07/202107220700MinokakeRocks.jpg)|
 202107230700|TokyoMetropolis|Tokyo Tower in Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Let the games (finally) begin!|![](/en-US/2021/07/202107230700TokyoMetropolis.jpg)|
+202107240700|JavanCousins|Javan tree frogs sitting together on a stalk in Indonesia (© SnapRapid/Offset by Shutterstock)|Can you see the family resemblance?|![](/en-US/2021/07/202107240700JavanCousins.jpg)|

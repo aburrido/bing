@@ -25,3 +25,4 @@
 202107210700|VermilionLakes|Vermilion Lakes, Canadian Rocky Mountains (© Glowing Earth Photography/Getty Images)|Info|![](/en-AU/2021/07/202107210700VermilionLakes.jpg)|
 202107220700|MinokakeRocks|Minokake-Iwa rocks, Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Info|![](/en-AU/2021/07/202107220700MinokakeRocks.jpg)|
 202107230700|TokyoMetropolis|Tokyo Tower, Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Info|![](/en-AU/2021/07/202107230700TokyoMetropolis.jpg)|
+202107240700|SeaGoldie|Sea goldies, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2021/07/202107240700SeaGoldie.jpg)|
