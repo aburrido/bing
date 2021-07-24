@@ -25,3 +25,4 @@
 202107221830|TokyoMetropolis|Tokyo Tower in Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Let the games (finally) begin!|![](/en-IN/2021/07/202107221830TokyoMetropolis.jpg)|
 ||||![](/en-IN/2021/07/.jpg)|
 202107231830|NalandaMahavihara|The ruins of Nalanda Mahavihara in Bihar, India (© Panoglobe/Shutterstock)|India’s oldest monastic and scholastic institution|![](/en-IN/2021/07/202107231830NalandaMahavihara.jpg)|
+202107241830|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-IN/2021/07/202107241830BruceMunroUluru.jpg)|
