@@ -24,3 +24,4 @@
 202107211500|MinokakeRocks|｢蓑掛岩｣静岡県, 南伊豆町 (© Krzysztof Baranowski/Getty Images)|今日は海の日|![](/ja-JP/2021/07/202107211500MinokakeRocks.jpg)|
 202107221500|TokyoMetropolis|｢東京タワー｣東京都, 港区 (© Yukinori Hasumi/Getty Images)|今日は開会式|![](/ja-JP/2021/07/202107221500TokyoMetropolis.jpg)|
 202107231500|OkinawaSea|｢サンマリーナビーチの桟橋｣沖縄 (© kokouu/Getty Images)|国内のビーチリゾートといえば|![](/ja-JP/2021/07/202107231500OkinawaSea.jpg)|
+202107241500|BruceMunroUluru|｢ブルース・マンローの作品『フィールドオブライト』｣オーストラリア, ウルル (© kokouu/Getty Images)|世界で 2 番目に大きい岩|![](/ja-JP/2021/07/202107241500BruceMunroUluru.jpg)|
