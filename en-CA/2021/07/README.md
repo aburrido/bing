@@ -23,3 +23,4 @@
 202107210400|VermilionLakes|The Vermilion Lakes in Banff National Park, Alberta (© Glowing Earth Photography/Getty Images)|Alpine peaks and lakes|![](/en-CA/2021/07/202107210400VermilionLakes.jpg)|
 202107220400|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-CA/2021/07/202107220400MinokakeRocks.jpg)|
 202107230400|TokyoMetropolis|Tokyo Tower in Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Let the games (finally) begin!|![](/en-CA/2021/07/202107230400TokyoMetropolis.jpg)|
+202107240400|JavanCousins|Javan tree frogs sitting together on a stalk in Indonesia (© SnapRapid/Offset by Shutterstock)|Can you see the family resemblance?|![](/en-CA/2021/07/202107240400JavanCousins.jpg)|
