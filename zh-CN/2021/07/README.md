@@ -24,3 +24,4 @@
 202107211600|MinokakeRocks|伊豆半岛海岸附近的 Minokake-Iwa 奇岩群，日本 (© Krzysztof Baranowski/Getty Images)||![](/zh-CN/2021/07/202107211600MinokakeRocks.jpg)|
 202107221600|TokyoMetropolis|东京塔，日本东京都港区 (© Yukinori Hasumi/Getty Images)||![](/zh-CN/2021/07/202107221600TokyoMetropolis.jpg)|
 202107231600|JavanCousins|Javan tree frogs sitting together on a stalk in Indonesia (© SnapRapid/Offset by Shutterstock)||![](/zh-CN/2021/07/202107231600JavanCousins.jpg)|
+202107241600|CityPalaceUdaipur|皮丘拉湖畔的乌代布尔城市宫殿，印度 (© Chaiyun Damkaew/Getty Images)||![](/zh-CN/2021/07/202107241600CityPalaceUdaipur.jpg)|
