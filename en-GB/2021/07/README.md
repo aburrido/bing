@@ -25,3 +25,4 @@
 202107212300|MinokakeRocks|The Minokake-Iwa rocks off the coast of the Izu Peninsula, Japan (© Krzysztof Baranowski/Getty Images)|Singing praises of the oceans|![](/en-GB/2021/07/202107212300MinokakeRocks.jpg)|
 202107222300|TokyoMetropolis|Tokyo Tower in Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Let the games (finally) begin!|![](/en-GB/2021/07/202107222300TokyoMetropolis.jpg)|
 202107232300|JavanCousins|Four Javan tree frogs sitting together on a stalk in Indonesia (© SnapRapid/Offset by Shutterstock)|Out on a limb|![](/en-GB/2021/07/202107232300JavanCousins.jpg)|
+202107242300|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-GB/2021/07/202107242300BruceMunroUluru.jpg)|
