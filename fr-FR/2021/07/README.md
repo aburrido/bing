@@ -25,3 +25,4 @@
 202107222200|TokyoMetropolis|Tour de Tokyo  Minato, Tokyo, Japon (© Yukinori Hasumi/Getty Images)|Que les Jeux commencent !|![](/fr-FR/2021/07/202107222200TokyoMetropolis.jpg)|
 202107232200|JavanCousins|Quatre grenouilles arboricoles de Java sur une branche, Indonésie (© SnapRapid/Offset by Shutterstock)|Perchés !|![](/fr-FR/2021/07/202107232200JavanCousins.jpg)|
 202107242200|KiteFun|Course de Kitesurf, Gruissan, Aude, Occitanie (© Philippe Turpin/Delta Images/Offset by Shutterstock)|L'art de s'envoyer en l'air|![](/fr-FR/2021/07/202107242200KiteFun.jpg)|
+202107252200|DancingTrees|Arbres de mangrove, Plage de Walakiri, île de Sumba, Indonésie (© Tengguo Wu/Getty Images)|Arbres sauveurs|![](/fr-FR/2021/07/202107252200DancingTrees.jpg)|

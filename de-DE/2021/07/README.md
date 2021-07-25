@@ -26,3 +26,4 @@
 202107222200|TokyoMetropolis|Tokyo Tower im Stadtbezirk Minato, Tokio, Japan (© Yukinori Hasumi/Getty Images)|Lasst die Spiele (endlich) beginnen!|![](/de-DE/2021/07/202107222200TokyoMetropolis.jpg)|
 202107232200|JavanCousins|Vier Java-Flugfrösche auf einem Pflanzenstängel in Indonesien (© SnapRapid/Offset by Shutterstock)|Abhängen am Wochenende|![](/de-DE/2021/07/202107232200JavanCousins.jpg)|
 202107242200|BruceMunroUluru|Lichtinstallation „Field of Light“ des Künstlers Bruce Munro am Fuße des Uluru, Australien (© Sheralee Stoll/Alamy)|Illuminierter Uluru|![](/de-DE/2021/07/202107242200BruceMunroUluru.jpg)|
+202107252200|DancingTrees|Mangrovenbäume am Walakiri Beach auf der Insel Sumba, Indonesien (© Tengguo Wu/Getty Images)|Die „tanzenden Bäume“ auf Sumba|![](/de-DE/2021/07/202107252200DancingTrees.jpg)|
