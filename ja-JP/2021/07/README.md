@@ -25,3 +25,4 @@
 202107221500|TokyoMetropolis|｢東京タワー｣東京都, 港区 (© Yukinori Hasumi/Getty Images)|今日は開会式|![](/ja-JP/2021/07/202107221500TokyoMetropolis.jpg)|
 202107231500|OkinawaSea|｢サンマリーナビーチの桟橋｣沖縄 (© kokouu/Getty Images)|国内のビーチリゾートといえば|![](/ja-JP/2021/07/202107231500OkinawaSea.jpg)|
 202107241500|BruceMunroUluru|｢ブルース・マンローの作品『フィールドオブライト』｣オーストラリア, ウルル (© kokouu/Getty Images)|世界で 2 番目に大きい岩|![](/ja-JP/2021/07/202107241500BruceMunroUluru.jpg)|
+202107251500|DancingTrees|｢マングローブの木｣インドネシア, スンバ島 (© Tengguo Wu/Getty Images)|マングローブ生態系保全の日|![](/ja-JP/2021/07/202107251500DancingTrees.jpg)|
