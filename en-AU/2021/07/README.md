@@ -27,3 +27,4 @@
 202107230700|TokyoMetropolis|Tokyo Tower, Minato City, Tokyo, Japan (© Yukinori Hasumi/Getty Images)|Info|![](/en-AU/2021/07/202107230700TokyoMetropolis.jpg)|
 202107240700|SeaGoldie|Sea goldies, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2021/07/202107240700SeaGoldie.jpg)|
 202107250700|CityPalaceUdaipur|City Palace, Udaipur, India (© Chaiyun Damkaew/Getty Images)|Info|![](/en-AU/2021/07/202107250700CityPalaceUdaipur.jpg)|
+202107260700|DancingTrees|Mangrove trees, Walakiri Beach, Sumba island, Indonesia (© Tengguo Wu/Getty Images)|Info|![](/en-AU/2021/07/202107260700DancingTrees.jpg)|
