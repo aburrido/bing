@@ -26,3 +26,4 @@
 202107231600|JavanCousins|Javan tree frogs sitting together on a stalk in Indonesia (© SnapRapid/Offset by Shutterstock)||![](/zh-CN/2021/07/202107231600JavanCousins.jpg)|
 202107241600|CityPalaceUdaipur|皮丘拉湖畔的乌代布尔城市宫殿，印度 (© Chaiyun Damkaew/Getty Images)||![](/zh-CN/2021/07/202107241600CityPalaceUdaipur.jpg)|
 202107251600|DancingTrees|Walakiri海滩的红树林，印度尼西亚松巴岛 (© Tengguo Wu/Getty Images)||![](/zh-CN/2021/07/202107251600DancingTrees.jpg)|
+202107261600|AdlerPlanetarium|密歇根湖畔的阿德勒天文馆， 芝加哥伊利诺伊州 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/07/202107261600AdlerPlanetarium.jpg)|
