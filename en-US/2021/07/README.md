@@ -28,3 +28,4 @@
 202107240700|JavanCousins|Javan tree frogs sitting together on a stalk in Indonesia (© SnapRapid/Offset by Shutterstock)|Can you see the family resemblance?|![](/en-US/2021/07/202107240700JavanCousins.jpg)|
 202107250700|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-US/2021/07/202107250700BruceMunroUluru.jpg)|
 202107260700|DancingTrees|Mangrove trees, Walakiri Beach, Sumba Island, Indonesia (© Tengguo Wu/Getty Images)|The 'dancing trees' of Sumba Island|![](/en-US/2021/07/202107260700DancingTrees.jpg)|
+||||![](/en-US/2021/07/.jpg)|
