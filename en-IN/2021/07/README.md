@@ -27,3 +27,4 @@
 202107231830|NalandaMahavihara|The ruins of Nalanda Mahavihara in Bihar, India (© Panoglobe/Shutterstock)|India’s oldest monastic and scholastic institution|![](/en-IN/2021/07/202107231830NalandaMahavihara.jpg)|
 202107241830|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-IN/2021/07/202107241830BruceMunroUluru.jpg)|
 202107251830|DancingTrees|Mangrove trees, Walakiri Beach, Sumba Island, Indonesia (© Tengguo Wu/Getty Images)|The 'dancing trees' of Sumba Island|![](/en-IN/2021/07/202107251830DancingTrees.jpg)|
+202107261830|AdlerPlanetarium|Adler Planetarium near Lake Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)|America's oldest planetarium|![](/en-IN/2021/07/202107261830AdlerPlanetarium.jpg)|
