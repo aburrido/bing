@@ -29,3 +29,4 @@
 202107250700|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-US/2021/07/202107250700BruceMunroUluru.jpg)|
 202107260700|DancingTrees|Mangrove trees, Walakiri Beach, Sumba Island, Indonesia (© Tengguo Wu/Getty Images)|The 'dancing trees' of Sumba Island|![](/en-US/2021/07/202107260700DancingTrees.jpg)|
 ||||![](/en-US/2021/07/.jpg)|
+202107270700|AdlerPlanetarium|Adler Planetarium near Lake Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)|Maybe we should be looking up|![](/en-US/2021/07/202107270700AdlerPlanetarium.jpg)|
