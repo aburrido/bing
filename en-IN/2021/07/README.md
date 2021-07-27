@@ -28,3 +28,4 @@
 202107241830|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-IN/2021/07/202107241830BruceMunroUluru.jpg)|
 202107251830|DancingTrees|Mangrove trees, Walakiri Beach, Sumba Island, Indonesia (© Tengguo Wu/Getty Images)|The 'dancing trees' of Sumba Island|![](/en-IN/2021/07/202107251830DancingTrees.jpg)|
 202107261830|AdlerPlanetarium|Adler Planetarium near Lake Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)|America's oldest planetarium|![](/en-IN/2021/07/202107261830AdlerPlanetarium.jpg)|
+202107271830|SeaGoldie|School of sea goldies in a coral reef with feather stars, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|A goldie gala|![](/en-IN/2021/07/202107271830SeaGoldie.jpg)|
