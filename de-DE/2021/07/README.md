@@ -28,3 +28,4 @@
 202107242200|BruceMunroUluru|Lichtinstallation „Field of Light“ des Künstlers Bruce Munro am Fuße des Uluru, Australien (© Sheralee Stoll/Alamy)|Illuminierter Uluru|![](/de-DE/2021/07/202107242200BruceMunroUluru.jpg)|
 202107252200|DancingTrees|Mangrovenbäume am Walakiri Beach auf der Insel Sumba, Indonesien (© Tengguo Wu/Getty Images)|Die „tanzenden Bäume“ auf Sumba|![](/de-DE/2021/07/202107252200DancingTrees.jpg)|
 202107262200|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Inselparadies im Indischen Ozean|![](/de-DE/2021/07/202107262200MontChoisy.jpg)|
+202107272200|VermilionLakes|Die Vermilion Lakes in den Kanadischen Rocky Mountains (© Glowing Earth Photography/Getty Images)|Alpine Gipfel und Seen|![](/de-DE/2021/07/202107272200VermilionLakes.jpg)|

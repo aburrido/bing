@@ -27,3 +27,4 @@
 202107242200|KiteFun|Course de Kitesurf, Gruissan, Aude, Occitanie (© Philippe Turpin/Delta Images/Offset by Shutterstock)|L'art de s'envoyer en l'air|![](/fr-FR/2021/07/202107242200KiteFun.jpg)|
 202107252200|DancingTrees|Arbres de mangrove, Plage de Walakiri, île de Sumba, Indonésie (© Tengguo Wu/Getty Images)|Arbres sauveurs|![](/fr-FR/2021/07/202107252200DancingTrees.jpg)|
 202107262200|AdlerPlanetarium|Le planétarium Adler près du lac Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)|Plus près des étoiles|![](/fr-FR/2021/07/202107262200AdlerPlanetarium.jpg)|
+202107272200|SeaGoldie|Banc de Barbiers rouges dans les coraux de la Grande Barrière, Queensland, Australie (© Gary Bell/Minden Pictures)|Les barbières de la Grande Barrière|![](/fr-FR/2021/07/202107272200SeaGoldie.jpg)|
