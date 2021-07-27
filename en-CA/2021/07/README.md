@@ -27,3 +27,4 @@
 ||||![](/en-CA/2021/07/.jpg)|
 202107250400|BruceMunroUluru|'Field of Light' by artist Bruce Munro at Uluru, Australia (© Sheralee Stoll/Alamy)|Illuminated Uluru|![](/en-CA/2021/07/202107250400BruceMunroUluru.jpg)|
 202107260400|DancingTrees|Mangrove trees, Walakiri Beach, Sumba Island, Indonesia (© Tengguo Wu/Getty Images)|The 'dancing trees' of Sumba Island|![](/en-CA/2021/07/202107260400DancingTrees.jpg)|
+202107270400|CowichanLavender|Rows of different lavender plants in a field in the Cowichan Valley in British Columbia (© plainpicture/Design Pics/Debra Brash)|Enchanting purple flowers|![](/en-CA/2021/07/202107270400CowichanLavender.jpg)|

@@ -27,3 +27,4 @@
 202107240400|CowichanLavender|Différentes variétés de lavandes dans un champ de la vallée de Cowichan en Colombie-Britannique (© plainpicture/Design Pics/Debra Brash)||![](/fr-CA/2021/07/202107240400CowichanLavender.jpg)|
 202107250400|ZinnowitzSeebruecke|La jetée de Zinnowitz sur l'île d'Usedom située en mer Baltique (© Frank Günther/Getty Images)||![](/fr-CA/2021/07/202107250400ZinnowitzSeebruecke.jpg)|
 202107260400|DancingTrees|Des arbres dans la mangrove, plage de Walakiri, île de Sumba, Indonésie (© Tengguo Wu/Getty Images)||![](/fr-CA/2021/07/202107260400DancingTrees.jpg)|
+202107270400|AdlerPlanetarium|Le planétarium Adler près du lac Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/07/202107270400AdlerPlanetarium.jpg)|
