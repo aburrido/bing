@@ -29,3 +29,4 @@
 202107250700|CityPalaceUdaipur|City Palace, Udaipur, India (© Chaiyun Damkaew/Getty Images)|Info|![](/en-AU/2021/07/202107250700CityPalaceUdaipur.jpg)|
 202107260700|DancingTrees|Mangrove trees, Walakiri Beach, Sumba island, Indonesia (© Tengguo Wu/Getty Images)|Info|![](/en-AU/2021/07/202107260700DancingTrees.jpg)|
 202107270700|AdlerPlanetarium|Adler Planetarium, Chicago, Illinois, USA (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107270700AdlerPlanetarium.jpg)|
+202107280700|ZinnowitzSeebruecke|Zinnowitz pier, Usedom island, Germany (© Frank Günther/Getty Images)|Info|![](/en-AU/2021/07/202107280700ZinnowitzSeebruecke.jpg)|
