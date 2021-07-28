@@ -28,3 +28,4 @@
 202107251600|DancingTrees|Walakiri海滩的红树林，印度尼西亚松巴岛 (© Tengguo Wu/Getty Images)||![](/zh-CN/2021/07/202107251600DancingTrees.jpg)|
 202107261600|AdlerPlanetarium|密歇根湖畔的阿德勒天文馆， 芝加哥伊利诺伊州 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/07/202107261600AdlerPlanetarium.jpg)|
 202107271600|SeaGoldie|珊瑚礁周围的丝鳍拟花鮨鱼群，澳大利亚昆士兰大堡礁 (© Gary Bell/Minden Pictures)||![](/zh-CN/2021/07/202107271600SeaGoldie.jpg)|
+202107281600|PantheraTigris|隐藏在高草丛中的老虎，印度阿萨姆邦 (© Sandesh Kadur/Minden Pictures)||![](/zh-CN/2021/07/202107281600PantheraTigris.jpg)|
