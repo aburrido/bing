@@ -29,3 +29,4 @@
 202107262200|AdlerPlanetarium|Le planétarium Adler près du lac Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)|Plus près des étoiles|![](/fr-FR/2021/07/202107262200AdlerPlanetarium.jpg)|
 202107272200|SeaGoldie|Banc de Barbiers rouges dans les coraux de la Grande Barrière, Queensland, Australie (© Gary Bell/Minden Pictures)|Les barbières de la Grande Barrière|![](/fr-FR/2021/07/202107272200SeaGoldie.jpg)|
 202107282200|PantheraTigris|Tigre caché dans les hautes herbes, Assam, Inde (© Sandesh Kadur/Minden Pictures)|Miaou ?|![](/fr-FR/2021/07/202107282200PantheraTigris.jpg)|
+202107292200|FriendsDay|Deux lionceaux dans la réserve nationale du Masai Mara au Kenya (© Anup Shah/Minden)|Meilleurs amis pour la vie|![](/fr-FR/2021/07/202107292200FriendsDay.jpg)|

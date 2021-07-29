@@ -30,3 +30,4 @@
 202107262200|MontChoisy|Mont Choisy Beach, Mauritius (© Robert Harding World Imagery/Offset by Shutterstock)|Inselparadies im Indischen Ozean|![](/de-DE/2021/07/202107262200MontChoisy.jpg)|
 202107272200|VermilionLakes|Die Vermilion Lakes in den Kanadischen Rocky Mountains (© Glowing Earth Photography/Getty Images)|Alpine Gipfel und Seen|![](/de-DE/2021/07/202107272200VermilionLakes.jpg)|
 202107282200|PantheraTigris|Ein gut getarnter Tiger in hohem Gras, Assam, Indien (© Sandesh Kadur/Minden Pictures)|Versteckspiel bei klarer Sicht|![](/de-DE/2021/07/202107282200PantheraTigris.jpg)|
+202107292200|FreundschaftFuechse|Zwei junge Rotfüchse beim Spielen, Deutschland (© Raimund Linke/Getty Images)|Freunde fürs Leben|![](/de-DE/2021/07/202107292200FreundschaftFuechse.jpg)|
