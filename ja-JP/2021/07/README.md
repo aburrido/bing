@@ -29,3 +29,4 @@
 202107261500|AdlerPlanetarium|｢ミシガン湖近くのアドラープラネタリウム｣米国, イリノイ州, シカゴ (© Amazing Aerial Agency/Offset by Shutterstock)|西半球最古のプラネタリウム|![](/ja-JP/2021/07/202107261500AdlerPlanetarium.jpg)|
 202107271500|SeaGoldie|｢サンゴとウミユリとキンギョハナダイ｣オーストラリア, グレートバリアリーフ (© Gary Bell/Minden Pictures)|性転換する魚|![](/ja-JP/2021/07/202107271500SeaGoldie.jpg)|
 202107281500|PantheraTigris|｢草の間に潜むトラ｣インド, アッサム州 (© Sandesh Kadur/Minden Pictures)|世界トラの日|![](/ja-JP/2021/07/202107281500PantheraTigris.jpg)|
+202107291500|OtterCliff|｢アーカディア国立公園のオッタークリフ｣米国, メイン州 (© dbimages/Alamy)|ラッコの崖|![](/ja-JP/2021/07/202107291500OtterCliff.jpg)|
