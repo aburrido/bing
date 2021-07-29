@@ -29,3 +29,4 @@
 202107260400|DancingTrees|Mangrove trees, Walakiri Beach, Sumba Island, Indonesia (© Tengguo Wu/Getty Images)|The 'dancing trees' of Sumba Island|![](/en-CA/2021/07/202107260400DancingTrees.jpg)|
 202107270400|CowichanLavender|Rows of different lavender plants in a field in the Cowichan Valley in British Columbia (© plainpicture/Design Pics/Debra Brash)|Enchanting purple flowers|![](/en-CA/2021/07/202107270400CowichanLavender.jpg)|
 202107280400|SeaGoldie|School of sea goldies in a coral reef with feather stars, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|A goldie gala|![](/en-CA/2021/07/202107280400SeaGoldie.jpg)|
+202107290400|PantheraTigris|Tiger camouflaged amongst tall grass, Assam, India (© Sandesh Kadur/Minden Pictures)|Hiding in plain sight|![](/en-CA/2021/07/202107290400PantheraTigris.jpg)|
