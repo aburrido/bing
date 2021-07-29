@@ -31,3 +31,4 @@
 ||||![](/en-US/2021/07/.jpg)|
 202107270700|AdlerPlanetarium|Adler Planetarium near Lake Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)|Maybe we should be looking up|![](/en-US/2021/07/202107270700AdlerPlanetarium.jpg)|
 202107280700|SeaGoldie|School of sea goldies with feather stars, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|A goldie gala|![](/en-US/2021/07/202107280700SeaGoldie.jpg)|
+202107290700|PantheraTigris|Tiger camouflaged in tall grass, Assam, India (© Sandesh Kadur/Minden Pictures)|Hiding in plain sight|![](/en-US/2021/07/202107290700PantheraTigris.jpg)|
