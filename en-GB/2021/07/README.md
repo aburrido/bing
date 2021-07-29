@@ -30,3 +30,4 @@
 202107262300|FortStCatherine|St Catherine’s Island, Tenby, Pembrokeshire (© David Clapp/Alamy)|The beach fort of Tenby|![](/en-GB/2021/07/202107262300FortStCatherine.jpg)|
 202107272300|SeaGoldie|School of sea goldies in a coral reef with feather stars, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|A goldie gala|![](/en-GB/2021/07/202107272300SeaGoldie.jpg)|
 202107282300|PantheraTigris|Tiger camouflaged in tall grass, Assam, India (© Sandesh Kadur/Minden Pictures)|Hiding in plain sight|![](/en-GB/2021/07/202107282300PantheraTigris.jpg)|
+202107292300|WhitbyHuts|Beach huts on West Cliff Beach, Whitby, North Yorkshire (© Robert Harding World Imagery/Offset)|Sea, sand and… fangs?|![](/en-GB/2021/07/202107292300WhitbyHuts.jpg)|
