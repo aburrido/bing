@@ -30,3 +30,4 @@
 202107270400|AdlerPlanetarium|Le planétarium Adler près du lac Michigan, Chicago, Illinois (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/07/202107270400AdlerPlanetarium.jpg)|
 202107280400|SeaGoldie|Des Barbiers rouges dans un récif coralien jonché de crinoïdes, Grande Barrière de corail, Queensland, Australie (© Gary Bell/Minden Pictures)||![](/fr-CA/2021/07/202107280400SeaGoldie.jpg)|
 202107290400|PantheraTigris|Un tigre se camouflant dans les herbes hautes, Assam, Inde (© Sandesh Kadur/Minden Pictures)||![](/fr-CA/2021/07/202107290400PantheraTigris.jpg)|
+202107300400|OtterCliff|Otter Cliffs, Parc national d'Acadia, Maine (© dbimages/Alamy)||![](/fr-CA/2021/07/202107300400OtterCliff.jpg)|
