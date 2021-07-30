@@ -30,3 +30,4 @@
 202107271600|SeaGoldie|珊瑚礁周围的丝鳍拟花鮨鱼群，澳大利亚昆士兰大堡礁 (© Gary Bell/Minden Pictures)||![](/zh-CN/2021/07/202107271600SeaGoldie.jpg)|
 202107281600|PantheraTigris|隐藏在高草丛中的老虎，印度阿萨姆邦 (© Sandesh Kadur/Minden Pictures)||![](/zh-CN/2021/07/202107281600PantheraTigris.jpg)|
 202107291600|OtterCliff|Otter Cliffs, Acadia National Park, Maine (© dbimages/Alamy)||![](/zh-CN/2021/07/202107291600OtterCliff.jpg)|
+202107301600|TanzaniaBeeEater|姆科马齐国家公园的北部胭脂红食蜂鸟和欧洲食蜂鸟，坦桑尼亚 (© webguzs/Getty Images)||![](/zh-CN/2021/07/202107301600TanzaniaBeeEater.jpg)|
