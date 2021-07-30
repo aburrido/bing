@@ -31,3 +31,4 @@
 202107270700|AdlerPlanetarium|Adler Planetarium, Chicago, Illinois, USA (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/07/202107270700AdlerPlanetarium.jpg)|
 202107280700|ZinnowitzSeebruecke|Zinnowitz pier, Usedom island, Germany (© Frank Günther/Getty Images)|Info|![](/en-AU/2021/07/202107280700ZinnowitzSeebruecke.jpg)|
 202107290700|PantheraTigris|Tiger in Assam, India (© Sandesh Kadur/Minden Pictures)|Info|![](/en-AU/2021/07/202107290700PantheraTigris.jpg)|
+202107300700|OtterCliff|Otter Cliffs, Acadia National Park, Maine, USA (© dbimages/Alamy)|Info|![](/en-AU/2021/07/202107300700OtterCliff.jpg)|
