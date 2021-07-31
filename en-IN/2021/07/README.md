@@ -32,3 +32,4 @@
 202107281830|PantheraTigris|Tiger camouflaged amongst tall grass, Assam, India (© Sandesh Kadur/Minden Pictures)|Hiding in plain sight|![](/en-IN/2021/07/202107281830PantheraTigris.jpg)|
 202107291830|OtterCliff|Otter Cliffs, Acadia National Park, Maine (© dbimages/Alamy)|Working for that cliffside view|![](/en-IN/2021/07/202107291830OtterCliff.jpg)|
 202107301830|TanzaniaBeeEater|Northern carmine and European bee-eaters in Mkomazi National Park, Tanzania (© webguzs/Getty Images)|Fashion models of the avian world|![](/en-IN/2021/07/202107301830TanzaniaBeeEater.jpg)|
+202107311830|LammasDay|Barley field in East Lothian, Scotland (© Scott Masterton/plainpicture)|Welcome to Scotland's garden|![](/en-IN/2021/07/202107311830LammasDay.jpg)|
