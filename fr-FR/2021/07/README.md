@@ -31,3 +31,4 @@
 202107282200|PantheraTigris|Tigre caché dans les hautes herbes, Assam, Inde (© Sandesh Kadur/Minden Pictures)|Miaou ?|![](/fr-FR/2021/07/202107282200PantheraTigris.jpg)|
 202107292200|FriendsDay|Deux lionceaux dans la réserve nationale du Masai Mara au Kenya (© Anup Shah/Minden)|Meilleurs amis pour la vie|![](/fr-FR/2021/07/202107292200FriendsDay.jpg)|
 202107302200|TanzaniaBeeEater|Guêpiers écarlates et guêpiers d’Europe dans le parc national de Mkomazi, Tanzanie (© webguzs/Getty Images)|Beautés ailées|![](/fr-FR/2021/07/202107302200TanzaniaBeeEater.jpg)|
+202107312200|LammasDay|Champ d’orge dans l’East Lothian, Écosse (© Scott Masterton/Plainpicture)|Le Jardin de l’Écosse|![](/fr-FR/2021/07/202107312200LammasDay.jpg)|

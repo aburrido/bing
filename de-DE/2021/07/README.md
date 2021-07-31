@@ -32,3 +32,4 @@
 202107282200|PantheraTigris|Ein gut getarnter Tiger in hohem Gras, Assam, Indien (© Sandesh Kadur/Minden Pictures)|Versteckspiel bei klarer Sicht|![](/de-DE/2021/07/202107282200PantheraTigris.jpg)|
 202107292200|FreundschaftFuechse|Zwei junge Rotfüchse beim Spielen, Deutschland (© Raimund Linke/Getty Images)|Freunde fürs Leben|![](/de-DE/2021/07/202107292200FreundschaftFuechse.jpg)|
 202107302200|TanzaniaBeeEater|Scharlachspinte und Bienenfresser im Mkomazi-Nationalpark, Tansania (© webguzs/Getty Images)|Bunte Modeschau in der Vogelwelt|![](/de-DE/2021/07/202107302200TanzaniaBeeEater.jpg)|
+202107312200|LammasDay|Gerstenfeld in East Lothian, Schottland (© Scott Masterton/Plainpicture)|Willkommen in Schottlands Kornkammer!|![](/de-DE/2021/07/202107312200LammasDay.jpg)|
