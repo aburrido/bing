@@ -31,3 +31,4 @@
 202107280400|SeaGoldie|School of sea goldies in a coral reef with feather stars, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|A goldie gala|![](/en-CA/2021/07/202107280400SeaGoldie.jpg)|
 202107290400|PantheraTigris|Tiger camouflaged amongst tall grass, Assam, India (© Sandesh Kadur/Minden Pictures)|Hiding in plain sight|![](/en-CA/2021/07/202107290400PantheraTigris.jpg)|
 202107300400|NahanniNP|Aerial view of Nahanni National Park Reserve, Northwest Territories, Canada (© Robert Postma/Getty Images)|Rugged mountains and wild rivers|![](/en-CA/2021/07/202107300400NahanniNP.jpg)|
+202107310400|TanzaniaBeeEater|Northern carmine and European bee-eaters in Mkomazi National Park, Tanzania (© webguzs/Getty Images)|Fashion models of the avian world|![](/en-CA/2021/07/202107310400TanzaniaBeeEater.jpg)|

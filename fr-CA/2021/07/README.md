@@ -31,3 +31,4 @@
 202107280400|SeaGoldie|Des Barbiers rouges dans un récif coralien jonché de crinoïdes, Grande Barrière de corail, Queensland, Australie (© Gary Bell/Minden Pictures)||![](/fr-CA/2021/07/202107280400SeaGoldie.jpg)|
 202107290400|PantheraTigris|Un tigre se camouflant dans les herbes hautes, Assam, Inde (© Sandesh Kadur/Minden Pictures)||![](/fr-CA/2021/07/202107290400PantheraTigris.jpg)|
 202107300400|OtterCliff|Otter Cliffs, Parc national d'Acadia, Maine (© dbimages/Alamy)||![](/fr-CA/2021/07/202107300400OtterCliff.jpg)|
+202107310400|TanzaniaBeeEater|Des Guêpiers écarlates et des Guêpiers d'Europe dans le Parc national de Mkomazi, Tanzanie (© webguzs/Getty Images)||![](/fr-CA/2021/07/202107310400TanzaniaBeeEater.jpg)|
