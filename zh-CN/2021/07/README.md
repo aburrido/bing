@@ -31,3 +31,4 @@
 202107281600|PantheraTigris|隐藏在高草丛中的老虎，印度阿萨姆邦 (© Sandesh Kadur/Minden Pictures)||![](/zh-CN/2021/07/202107281600PantheraTigris.jpg)|
 202107291600|OtterCliff|Otter Cliffs, Acadia National Park, Maine (© dbimages/Alamy)||![](/zh-CN/2021/07/202107291600OtterCliff.jpg)|
 202107301600|TanzaniaBeeEater|姆科马齐国家公园的北部胭脂红食蜂鸟和欧洲食蜂鸟，坦桑尼亚 (© webguzs/Getty Images)||![](/zh-CN/2021/07/202107301600TanzaniaBeeEater.jpg)|
+202107311600|LammasDay|东洛锡安的金黄麦田，苏格兰 (© Scott Masterton/plainpicture)||![](/zh-CN/2021/07/202107311600LammasDay.jpg)|
