@@ -32,3 +32,4 @@
 202107280700|ZinnowitzSeebruecke|Zinnowitz pier, Usedom island, Germany (© Frank Günther/Getty Images)|Info|![](/en-AU/2021/07/202107280700ZinnowitzSeebruecke.jpg)|
 202107290700|PantheraTigris|Tiger in Assam, India (© Sandesh Kadur/Minden Pictures)|Info|![](/en-AU/2021/07/202107290700PantheraTigris.jpg)|
 202107300700|OtterCliff|Otter Cliffs, Acadia National Park, Maine, USA (© dbimages/Alamy)|Info|![](/en-AU/2021/07/202107300700OtterCliff.jpg)|
+202107310700|TanzaniaBeeEater|Northern carmine and European bee-eaters in Mkomazi National Park, Tanzania (© webguzs/Getty Images)|Info|![](/en-AU/2021/07/202107310700TanzaniaBeeEater.jpg)|

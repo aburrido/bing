@@ -33,3 +33,4 @@
 202107280700|SeaGoldie|School of sea goldies with feather stars, Great Barrier Reef, Queensland, Australia (© Gary Bell/Minden Pictures)|A goldie gala|![](/en-US/2021/07/202107280700SeaGoldie.jpg)|
 202107290700|PantheraTigris|Tiger camouflaged in tall grass, Assam, India (© Sandesh Kadur/Minden Pictures)|Hiding in plain sight|![](/en-US/2021/07/202107290700PantheraTigris.jpg)|
 202107300700|OtterCliff|Otter Cliffs, Acadia National Park, Maine (© dbimages/Alamy)|Working for that cliffside view|![](/en-US/2021/07/202107300700OtterCliff.jpg)|
+202107310700|TanzaniaBeeEater|Northern carmine and European bee-eaters in Mkomazi National Park, Tanzania (© webguzs/Getty Images)|Fashion models of the avian world|![](/en-US/2021/07/202107310700TanzaniaBeeEater.jpg)|
