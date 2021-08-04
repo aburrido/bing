@@ -4,3 +4,4 @@
 202108012200|Riou|Archipel de Riou vu de la Calanque d'En-Vau, Parc National des Calanques, Bouches-du-Rhône, Provence-Alpes-Cote d'Azur (© Jason Langley/AWL Images/Offset by Shutterstock)|Si l'été avait une destination préférée...|![](/fr-FR/2021/08/202108012200Riou.jpg)|
 202108022200|CasteldelMonte|Castel del Monte, Les Pouilles, Italie (© Toni Spagone/Alamy)|Huit sacré|![](/fr-FR/2021/08/202108022200CasteldelMonte.jpg)|
 202108032200|Neofelis|Panthère nébuleuse (© Dhritiman Mukherjee/Alamy)|Jour spécial pour chat spécial|![](/fr-FR/2021/08/202108032200Neofelis.jpg)|
+202108042200|SkyPool|La sky pool dans le complexe résidentiel Embassy Gardens à Londres  (© Xinhua News Agency/Getty Images)|Brasse aérienne|![](/fr-FR/2021/08/202108042200SkyPool.jpg)|
