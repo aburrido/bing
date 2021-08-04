@@ -4,3 +4,4 @@
 202108011500|UpperCathedral|｢キャピトルリーフ国立公園のアッパーカテドラルバレー｣米国, ユタ州 (© Tim Fitzharris/Minden Pictures)|キャピトルリーフ国定公園設立日|![](/ja-JP/2021/08/202108011500UpperCathedral.jpg)|
 202108021500|CasteldelMonte|｢カステル・デル・モンテ｣イタリア, プッリャ州 (© Toni Spagone/Alamy)|南イタリアの世界遺産|![](/ja-JP/2021/08/202108021500CasteldelMonte.jpg)|
 202108031500|Neofelis|｢ウンピョウ｣インド, トリプラ州 (© Dhritiman Mukherjee/Alamy)|今日は世界ウンピョウの日|![](/ja-JP/2021/08/202108031500Neofelis.jpg)|
+202108041500|SkyPool|｢エンバシーガーデンズの空中プール｣英国, ロンドン (© Xinhua News Agency/Getty Images)|プール橋付き高級マンション|![](/ja-JP/2021/08/202108041500SkyPool.jpg)|
