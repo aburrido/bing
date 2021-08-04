@@ -4,3 +4,4 @@
 202108012300|UpperCathedral|Mesas, Capitol Reef National Park, Utah, USA (© Tim Fitzharris/Minden Pictures)|The rocky ‘reef’ of Utah|![](/en-GB/2021/08/202108012300UpperCathedral.jpg)|
 202108022300|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|An octagonal architectural gem|![](/en-GB/2021/08/202108022300CasteldelMonte.jpg)|
 202108032300|Neofelis|Clouded leopard (© Dhritiman Mukherjee/Alamy)|A rarely spotted leopard|![](/en-GB/2021/08/202108032300Neofelis.jpg)|
+202108042300|SkyPool|The Sky Pool at Embassy Gardens, Nine Elms, south-west London (© Xinhua News Agency/Getty Images)|A swim in the sky|![](/en-GB/2021/08/202108042300SkyPool.jpg)|
