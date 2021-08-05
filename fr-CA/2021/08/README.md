@@ -4,3 +4,4 @@
 202108020400|UpperCathedral|Mesas, Upper Cathedral Valley, Parc national de Capitol Reef, Utah (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/08/202108020400UpperCathedral.jpg)|
 202108030400|CasteldelMonte|Castel del Monte, Pouilles, Italie (© Toni Spagone/Alamy)||![](/fr-CA/2021/08/202108030400CasteldelMonte.jpg)|
 202108040400|Neofelis|Panthère nébuleuse (© Dhritiman Mukherjee/Alamy)||![](/fr-CA/2021/08/202108040400Neofelis.jpg)|
+202108050400|NahanniNP|Vue aérienne sur la Réserve de parc national de Nahanni, Territoires du Nord-Ouest (© Robert Postma/Getty Images)||![](/fr-CA/2021/08/202108050400NahanniNP.jpg)|
