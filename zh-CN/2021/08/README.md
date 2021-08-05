@@ -5,3 +5,4 @@
 202108021600|CasteldelMonte|蒙特城堡，意大利普利亚大区 (© Toni Spagone/Alamy)||![](/zh-CN/2021/08/202108021600CasteldelMonte.jpg)|
 202108031600|Neofelis|云豹 (© Dhritiman Mukherjee/Alamy)||![](/zh-CN/2021/08/202108031600Neofelis.jpg)|
 202108041600|DorsetPinnacles|波白克岛的小尖塔岩石，英格兰多塞特 (© James Osmond/Alamy)||![](/zh-CN/2021/08/202108041600DorsetPinnacles.jpg)|
+202108051600|SalisburyCrags|从索尔兹伯里的峭壁上俯瞰爱丁堡，苏格兰荷里路德公园 (© Andrew Merry/Getty Images)||![](/zh-CN/2021/08/202108051600SalisburyCrags.jpg)|
