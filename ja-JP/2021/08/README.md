@@ -5,3 +5,4 @@
 202108021500|CasteldelMonte|｢カステル・デル・モンテ｣イタリア, プッリャ州 (© Toni Spagone/Alamy)|南イタリアの世界遺産|![](/ja-JP/2021/08/202108021500CasteldelMonte.jpg)|
 202108031500|Neofelis|｢ウンピョウ｣インド, トリプラ州 (© Dhritiman Mukherjee/Alamy)|今日は世界ウンピョウの日|![](/ja-JP/2021/08/202108031500Neofelis.jpg)|
 202108041500|SkyPool|｢エンバシーガーデンズの空中プール｣英国, ロンドン (© Xinhua News Agency/Getty Images)|プール橋付き高級マンション|![](/ja-JP/2021/08/202108041500SkyPool.jpg)|
+202108051500|SendaiTanabata|｢仙台七夕まつり｣宮城県, 仙台市 (© Taku_S/Getty Images)|｢仙台七夕まつり｣宮城県, 仙台市 (© Taku_S/Getty Images)|![](/ja-JP/2021/08/202108051500SendaiTanabata.jpg)|
