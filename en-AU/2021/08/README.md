@@ -5,3 +5,4 @@
 202108020700|UpperCathedral|Upper Cathedral Valley, Capitol Reef National Park, Utah, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2021/08/202108020700UpperCathedral.jpg)|
 202108030700|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|Info|![](/en-AU/2021/08/202108030700CasteldelMonte.jpg)|
 202108040700|Neofelis|Clouded leopard (© Dhritiman Mukherjee/Alamy)|Info|![](/en-AU/2021/08/202108040700Neofelis.jpg)|
+202108050700|DorsetPinnacles|The Pinnacles on the Isle of Purbeck in Dorset, England (© James Osmond/Alamy)|Info|![](/en-AU/2021/08/202108050700DorsetPinnacles.jpg)|

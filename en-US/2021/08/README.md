@@ -5,3 +5,4 @@
 202108020700|UpperCathedral|Mesas, Upper Cathedral Valley, Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)|This 'reef' is nowhere near the sea…|![](/en-US/2021/08/202108020700UpperCathedral.jpg)|
 202108030700|WachsenburgCastle|Wachsenburg Castle near Erfurt, Germany (© Radius Images/Offset by Shutterstock)|A reflection of Europe's past|![](/en-US/2021/08/202108030700WachsenburgCastle.jpg)|
 202108040700|Neofelis|Clouded leopard (© Dhritiman Mukherjee/Alamy)|A special day for a special cat|![](/en-US/2021/08/202108040700Neofelis.jpg)|
+202108050700|SkyPool|The Sky Pool at Embassy Gardens in London, England (© Xinhua News Agency/Getty Images)|A swim in the sky|![](/en-US/2021/08/202108050700SkyPool.jpg)|
