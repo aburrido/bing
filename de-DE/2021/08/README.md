@@ -6,3 +6,4 @@
 202108032200|Neofelis|Nebelparder (© Dhritiman Mukherjee/Alamy)|Ein besonderer Tag für eine besondere Katze|![](/de-DE/2021/08/202108032200Neofelis.jpg)|
 202108042200|SkyPool|Der Sky Pool in den Embassy Gardens in London, England (© Xinhua News Agency/Getty Images)|Himmlischer Swimming Pool|![](/de-DE/2021/08/202108042200SkyPool.jpg)|
 202108052200|SalisburyCrags|Salisbury Crags im Holyrood Park mit Blick auf Edinburgh, Schottland (© Andrew Merry/Getty Images)|Blick auf das „Athen des Nordens“|![](/de-DE/2021/08/202108052200SalisburyCrags.jpg)|
+202108062200|SaltCones|Salzkegel auf dem Salar de Uyuni, Bolivien (© John Shaw/Minden Pictures)|Das Salz der Erde|![](/de-DE/2021/08/202108062200SaltCones.jpg)|
