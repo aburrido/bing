@@ -6,3 +6,4 @@
 202108030700|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|Info|![](/en-AU/2021/08/202108030700CasteldelMonte.jpg)|
 202108040700|Neofelis|Clouded leopard (© Dhritiman Mukherjee/Alamy)|Info|![](/en-AU/2021/08/202108040700Neofelis.jpg)|
 202108050700|DorsetPinnacles|The Pinnacles on the Isle of Purbeck in Dorset, England (© James Osmond/Alamy)|Info|![](/en-AU/2021/08/202108050700DorsetPinnacles.jpg)|
+202108060700|SalisburyCrags|Salisbury Crags in Holyrood Park, Edinburgh, Scotland (© Andrew Merry/Getty Images)|Info|![](/en-AU/2021/08/202108060700SalisburyCrags.jpg)|
