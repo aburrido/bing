@@ -6,3 +6,4 @@
 202108032300|Neofelis|Clouded leopard (© Dhritiman Mukherjee/Alamy)|A rarely spotted leopard|![](/en-GB/2021/08/202108032300Neofelis.jpg)|
 202108042300|SkyPool|The Sky Pool at Embassy Gardens, Nine Elms, south-west London (© Xinhua News Agency/Getty Images)|A swim in the sky|![](/en-GB/2021/08/202108042300SkyPool.jpg)|
 202108052300|SalisburyCrags|Salisbury Crags in Holyrood Park overlooking Edinburgh (© Andrew Merry/Getty Images)|Festival season begins|![](/en-GB/2021/08/202108052300SalisburyCrags.jpg)|
+202108062300|SaltCones|Salt cones on the Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Salt of the Earth|![](/en-GB/2021/08/202108062300SaltCones.jpg)|
