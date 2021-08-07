@@ -7,3 +7,4 @@
 202108041500|SkyPool|｢エンバシーガーデンズの空中プール｣英国, ロンドン (© Xinhua News Agency/Getty Images)|プール橋付き高級マンション|![](/ja-JP/2021/08/202108041500SkyPool.jpg)|
 202108051500|SendaiTanabata|｢仙台七夕まつり｣宮城県, 仙台市 (© Taku_S/Getty Images)|｢仙台七夕まつり｣宮城県, 仙台市 (© Taku_S/Getty Images)|![](/ja-JP/2021/08/202108051500SendaiTanabata.jpg)|
 202108061500|SaltCones|｢ウユニ塩原の塩の山｣ボリビア (© John Shaw/Minden Pictures)|アンデスの塩湖|![](/ja-JP/2021/08/202108061500SaltCones.jpg)|
+202108071500|KegonFall|｢華厳の滝｣栃木県, 日光市 (© Sawarut Triratanachat/Shutterstock)|今年は今日が山の日|![](/ja-JP/2021/08/202108071500KegonFall.jpg)|
