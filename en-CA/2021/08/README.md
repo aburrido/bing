@@ -6,3 +6,4 @@
 202108040400|Neofelis|Clouded leopard (© Dhritiman Mukherjee/Alamy)|A special day for a special cat|![](/en-CA/2021/08/202108040400Neofelis.jpg)|
 202108050400|SkyPool|The Sky Pool at Embassy Gardens in London, England (© Xinhua News Agency/Getty Images)|A swim in the sky|![](/en-CA/2021/08/202108050400SkyPool.jpg)|
 202108060400|SalisburyCrags|Salisbury Crags in Holyrood Park overlooking Edinburgh, Scotland (© Andrew Merry/Getty Images)|Looking down upon ‘The Athens of the North’|![](/en-CA/2021/08/202108060400SalisburyCrags.jpg)|
+202108070400|SaltCones|Salt cones on the Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Salt of the earth|![](/en-CA/2021/08/202108070400SaltCones.jpg)|

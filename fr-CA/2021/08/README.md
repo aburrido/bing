@@ -6,3 +6,4 @@
 202108040400|Neofelis|Panthère nébuleuse (© Dhritiman Mukherjee/Alamy)||![](/fr-CA/2021/08/202108040400Neofelis.jpg)|
 202108050400|NahanniNP|Vue aérienne sur la Réserve de parc national de Nahanni, Territoires du Nord-Ouest (© Robert Postma/Getty Images)||![](/fr-CA/2021/08/202108050400NahanniNP.jpg)|
 202108060400|SalisburyCrags|Falaises de Salisbury dans Holyrood Park surplombant Édimbourg, Écosse (© Andrew Merry/Getty Images)||![](/fr-CA/2021/08/202108060400SalisburyCrags.jpg)|
+202108070400|SaltCones|Des cônes de sel sur le Salar d'Uyuni, Bolivie (© John Shaw/Minden Pictures)||![](/fr-CA/2021/08/202108070400SaltCones.jpg)|
