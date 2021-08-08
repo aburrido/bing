@@ -8,3 +8,4 @@
 202108050700|DorsetPinnacles|The Pinnacles on the Isle of Purbeck in Dorset, England (© James Osmond/Alamy)|Info|![](/en-AU/2021/08/202108050700DorsetPinnacles.jpg)|
 202108060700|SalisburyCrags|Salisbury Crags in Holyrood Park, Edinburgh, Scotland (© Andrew Merry/Getty Images)|Info|![](/en-AU/2021/08/202108060700SalisburyCrags.jpg)|
 202108070700|SaltCones|Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Info|![](/en-AU/2021/08/202108070700SaltCones.jpg)|
+202108080700|QuayBridge|Elizabeth Quay Bridge, Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108080700QuayBridge.jpg)|

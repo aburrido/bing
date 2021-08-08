@@ -8,3 +8,4 @@
 202108050700|SkyPool|The Sky Pool at Embassy Gardens in London, England (© Xinhua News Agency/Getty Images)|A swim in the sky|![](/en-US/2021/08/202108050700SkyPool.jpg)|
 202108060700|SalisburyCrags|Salisbury Crags in Holyrood Park overlooking Edinburgh, Scotland (© Andrew Merry/Getty Images)|Looking down upon Edinburgh|![](/en-US/2021/08/202108060700SalisburyCrags.jpg)|
 202108070700|SaltCones|Salt cones on Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Salt of the earth|![](/en-US/2021/08/202108070700SaltCones.jpg)|
+202108080700|QuayBridge|Elizabeth Quay Bridge in Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Bridge to infinity|![](/en-US/2021/08/202108080700QuayBridge.jpg)|
