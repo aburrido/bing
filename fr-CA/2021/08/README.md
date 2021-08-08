@@ -7,3 +7,4 @@
 202108050400|NahanniNP|Vue aérienne sur la Réserve de parc national de Nahanni, Territoires du Nord-Ouest (© Robert Postma/Getty Images)||![](/fr-CA/2021/08/202108050400NahanniNP.jpg)|
 202108060400|SalisburyCrags|Falaises de Salisbury dans Holyrood Park surplombant Édimbourg, Écosse (© Andrew Merry/Getty Images)||![](/fr-CA/2021/08/202108060400SalisburyCrags.jpg)|
 202108070400|SaltCones|Des cônes de sel sur le Salar d'Uyuni, Bolivie (© John Shaw/Minden Pictures)||![](/fr-CA/2021/08/202108070400SaltCones.jpg)|
+202108080400|QuayBridge|Le Pont Elizabeth Quay à Perth, Australie (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/08/202108080400QuayBridge.jpg)|
