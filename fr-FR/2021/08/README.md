@@ -8,3 +8,4 @@
 202108052200|SalisburyCrags|Les falaises de Salisbury Crags dans le parc d’Holyrood Park au-dessus d’Édimbourg, Écosse (© Andrew Merry/Getty Images)|Temps de fête|![](/fr-FR/2021/08/202108052200SalisburyCrags.jpg)|
 202108062200|SaltCones|Cônes de sel sur le Salar de Uyuni, Bolivie (© John Shaw/Minden Pictures)|Sel de la Terre|![](/fr-FR/2021/08/202108062200SaltCones.jpg)|
 202108072200|QuayBridge|Le pont Elizabeth Quay à Perth, Australie (© Amazing Aerial Agency/Offset by Shutterstock)|Pont infini|![](/fr-FR/2021/08/202108072200QuayBridge.jpg)|
+202108082200|MineBay|Gravure māori réalisée par Matahi Whakataka-Brightwell sur les bords du lac Taupo, île du Nord, Nouvelle-Zélande (© Evgueni Zverev/Alamy)|Gravure en bord de lac|![](/fr-FR/2021/08/202108082200MineBay.jpg)|

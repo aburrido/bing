@@ -8,3 +8,4 @@
 202108052200|SalisburyCrags|Salisbury Crags im Holyrood Park mit Blick auf Edinburgh, Schottland (© Andrew Merry/Getty Images)|Blick auf das „Athen des Nordens“|![](/de-DE/2021/08/202108052200SalisburyCrags.jpg)|
 202108062200|SaltCones|Salzkegel auf dem Salar de Uyuni, Bolivien (© John Shaw/Minden Pictures)|Das Salz der Erde|![](/de-DE/2021/08/202108062200SaltCones.jpg)|
 202108072200|QuayBridge|Elizabeth Quay Bridge in Perth, Australien (© Amazing Aerial Agency/Offset by Shutterstock)|Brücke ins Unendliche|![](/de-DE/2021/08/202108072200QuayBridge.jpg)|
+202108082200|MineBay|Die Mine Bay Māori-Felsschnitzerei des Ngatoroirangi von Matahi Whakataka-Brightwell am Rande des Lake Taupo, Nordinsel, Neuseeland (© Evgueni Zverev/Alamy)|Ein Tribut an die Ahnen|![](/de-DE/2021/08/202108082200MineBay.jpg)|
