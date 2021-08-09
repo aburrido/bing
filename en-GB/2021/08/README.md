@@ -10,3 +10,4 @@
 202108072300|QuayBridge|Elizabeth Quay Bridge in Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Bridge to infinity|![](/en-GB/2021/08/202108072300QuayBridge.jpg)|
 202108082300|MineBay|The Mine Bay Māori Rock Carving of Ngatoroirangi by Matahi Whakataka-Brightwell, Lake Taupo, North Island, New Zealand (© Evgueni Zverev/Alamy)|A tribute to the ancestors|![](/en-GB/2021/08/202108082300MineBay.jpg)|
 ||||![](/en-GB/2021/08/.jpg)|
+202108092300|DorsetPinnacles|The Pinnacles on the Isle of Purbeck in Dorset (© James Osmond/Alamy)|An ever-changing coastline|![](/en-GB/2021/08/202108092300DorsetPinnacles.jpg)|
