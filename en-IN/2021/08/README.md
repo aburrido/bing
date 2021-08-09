@@ -9,3 +9,4 @@
 202108061830|SaltCones|Salt cones on the Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Salt of the earth|![](/en-IN/2021/08/202108061830SaltCones.jpg)|
 202108071830|QuayBridge|Elizabeth Quay Bridge in Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Bridge to infinity|![](/en-IN/2021/08/202108071830QuayBridge.jpg)|
 202108081830|TajMahalAgra|Early morning view of Taj Mahal in Agra, India (© Adrian Pope/Getty Images)|Celebrating Islamic New Year|![](/en-IN/2021/08/202108081830TajMahalAgra.jpg)|
+202108091830|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|An octagonal architectural treasure|![](/en-IN/2021/08/202108091830CasteldelMonte.jpg)|
