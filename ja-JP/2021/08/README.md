@@ -9,3 +9,4 @@
 202108061500|SaltCones|｢ウユニ塩原の塩の山｣ボリビア (© John Shaw/Minden Pictures)|アンデスの塩湖|![](/ja-JP/2021/08/202108061500SaltCones.jpg)|
 202108071500|KegonFall|｢華厳の滝｣栃木県, 日光市 (© Sawarut Triratanachat/Shutterstock)|今年は今日が山の日|![](/ja-JP/2021/08/202108071500KegonFall.jpg)|
 202108081500|MineBay|｢タウポ湖のマインベイ・マオリ・ロックカービング｣ニュージーランド, 北島 (© Evgueni Zverev/Alamy)|今日は先住民の国際デー|![](/ja-JP/2021/08/202108081500MineBay.jpg)|
+202108091500|ArtsandIndustries|｢スミソニアン博物館｣米国, ワシントン D.C. (© Ron Blunt/Courtesy Smithsonian)|スミソニアン学術協会設立記念日|![](/ja-JP/2021/08/202108091500ArtsandIndustries.jpg)|
