@@ -9,3 +9,4 @@
 202108062200|SaltCones|Salzkegel auf dem Salar de Uyuni, Bolivien (© John Shaw/Minden Pictures)|Das Salz der Erde|![](/de-DE/2021/08/202108062200SaltCones.jpg)|
 202108072200|QuayBridge|Elizabeth Quay Bridge in Perth, Australien (© Amazing Aerial Agency/Offset by Shutterstock)|Brücke ins Unendliche|![](/de-DE/2021/08/202108072200QuayBridge.jpg)|
 202108082200|MineBay|Die Mine Bay Māori-Felsschnitzerei des Ngatoroirangi von Matahi Whakataka-Brightwell am Rande des Lake Taupo, Nordinsel, Neuseeland (© Evgueni Zverev/Alamy)|Ein Tribut an die Ahnen|![](/de-DE/2021/08/202108082200MineBay.jpg)|
+202108092200|UmkleidewagenNorderney|Umkleidewagen am Strand bei Sonnenuntergang auf der Insel Norderney, Ostfriesland, Niedersachsen (© Frank Lukasseck/Huber/eStock Photo)|Romantik am Strand|![](/de-DE/2021/08/202108092200UmkleidewagenNorderney.jpg)|
