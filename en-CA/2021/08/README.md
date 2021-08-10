@@ -9,3 +9,4 @@
 202108070400|SaltCones|Salt cones on the Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Salt of the earth|![](/en-CA/2021/08/202108070400SaltCones.jpg)|
 202108080400|QuayBridge|Elizabeth Quay Bridge in Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Bridge to infinity|![](/en-CA/2021/08/202108080400QuayBridge.jpg)|
 202108090400|MineBay|The Mine Bay Māori Rock Carving of Ngatoroirangi by Matahi Whakataka-Brightwell on the edge of Lake Taupo, North Island, New Zealand (© Evgueni Zverev/Alamy)|A tribute to the ancestors|![](/en-CA/2021/08/202108090400MineBay.jpg)|
+202108100400|BorealQuebec|Aerial View of Boreal Forest in summer, Quebec (© Onfokus/Getty Images)|Canada’s largest vegetation zone|![](/en-CA/2021/08/202108100400BorealQuebec.jpg)|
