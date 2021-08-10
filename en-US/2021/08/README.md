@@ -10,3 +10,4 @@
 202108070700|SaltCones|Salt cones on Salar de Uyuni, Bolivia (© John Shaw/Minden Pictures)|Salt of the earth|![](/en-US/2021/08/202108070700SaltCones.jpg)|
 202108080700|QuayBridge|Elizabeth Quay Bridge in Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Bridge to infinity|![](/en-US/2021/08/202108080700QuayBridge.jpg)|
 202108090700|MineBay|Māori rock carving by Matahi Whakataka-Brightwell, Lake Taupo, North Island, New Zealand (© Evgueni Zverev/Alamy)|A tribute to the ancestors|![](/en-US/2021/08/202108090700MineBay.jpg)|
+202108100700|ArtsandIndustries|The Smithsonian Arts and Industries Building in Washington, DC (© Ron Blunt/Courtesy Smithsonian)|A renowned museum celebrates 175 years|![](/en-US/2021/08/202108100700ArtsandIndustries.jpg)|
