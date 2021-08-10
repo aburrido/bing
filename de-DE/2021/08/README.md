@@ -10,3 +10,4 @@
 202108072200|QuayBridge|Elizabeth Quay Bridge in Perth, Australien (© Amazing Aerial Agency/Offset by Shutterstock)|Brücke ins Unendliche|![](/de-DE/2021/08/202108072200QuayBridge.jpg)|
 202108082200|MineBay|Die Mine Bay Māori-Felsschnitzerei des Ngatoroirangi von Matahi Whakataka-Brightwell am Rande des Lake Taupo, Nordinsel, Neuseeland (© Evgueni Zverev/Alamy)|Ein Tribut an die Ahnen|![](/de-DE/2021/08/202108082200MineBay.jpg)|
 202108092200|UmkleidewagenNorderney|Umkleidewagen am Strand bei Sonnenuntergang auf der Insel Norderney, Ostfriesland, Niedersachsen (© Frank Lukasseck/Huber/eStock Photo)|Romantik am Strand|![](/de-DE/2021/08/202108092200UmkleidewagenNorderney.jpg)|
+202108102200|DinoShower|Der Perseiden-Meteoritenschauer, fotografiert im Dinosaurier-Museum von Erenhot in der Inneren Mongolei, Volksrepublik China (© bjdlzx/Getty Images)|Jeder beobachtet die Perseiden|![](/de-DE/2021/08/202108102200DinoShower.jpg)|

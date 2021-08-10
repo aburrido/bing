@@ -10,3 +10,4 @@
 202108072200|QuayBridge|Le pont Elizabeth Quay à Perth, Australie (© Amazing Aerial Agency/Offset by Shutterstock)|Pont infini|![](/fr-FR/2021/08/202108072200QuayBridge.jpg)|
 202108082200|MineBay|Gravure māori réalisée par Matahi Whakataka-Brightwell sur les bords du lac Taupo, île du Nord, Nouvelle-Zélande (© Evgueni Zverev/Alamy)|Gravure en bord de lac|![](/fr-FR/2021/08/202108082200MineBay.jpg)|
 202108092200|CapeofTossa|Tossa de mar, Catalogne, Espagne (© dleiva/Alamy)|Paradis de Chagall|![](/fr-FR/2021/08/202108092200CapeofTossa.jpg)|
+202108102200|DinoShower|Les Perséïdes, photograhiées au Musée des dinosaures d’Erenhot, Mongolie-Intérieure, Chine (© bjdlzx/Getty Images)|Levez les yeux !|![](/fr-FR/2021/08/202108102200DinoShower.jpg)|
