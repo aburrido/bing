@@ -11,3 +11,4 @@
 202108081500|MineBay|｢タウポ湖のマインベイ・マオリ・ロックカービング｣ニュージーランド, 北島 (© Evgueni Zverev/Alamy)|今日は先住民の国際デー|![](/ja-JP/2021/08/202108081500MineBay.jpg)|
 202108091500|ArtsandIndustries|｢スミソニアン博物館｣米国, ワシントン D.C. (© Ron Blunt/Courtesy Smithsonian)|スミソニアン学術協会設立記念日|![](/ja-JP/2021/08/202108091500ArtsandIndustries.jpg)|
 202108101500|DinoShower|｢エレンホト恐竜博物館から見たペルセウス座流星群｣中国, 内モンゴル (© bjdlzx/Getty Images)|ペルセウス座流星群ピークに|![](/ja-JP/2021/08/202108101500DinoShower.jpg)|
+202108111500|OkavangoHerd|｢アフリカゾウの群れ｣ボツワナ, オカバンゴ・デルタ (© Juan-Carlos Munoz/Minden Pictures)|今日は世界ゾウの日|![](/ja-JP/2021/08/202108111500OkavangoHerd.jpg)|
