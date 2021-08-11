@@ -11,3 +11,4 @@
 202108080700|QuayBridge|Elizabeth Quay Bridge, Perth, Australia (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108080700QuayBridge.jpg)|
 202108090700|MineBay|The Mine Bay Māori Rock Carving of Ngatoroirangi by Matahi Whakataka-Brightwell on Lake Taupo, North Island, New Zealand (© Evgueni Zverev/Alamy)|Info|![](/en-AU/2021/08/202108090700MineBay.jpg)|
 202108100700|NahanniNP|Nahanni National Park Reserve, Northwest Territories, Canada (© Robert Postma/Getty Images)|Info|![](/en-AU/2021/08/202108100700NahanniNP.jpg)|
+202108110700|DinoShower|Perseid meteor shower photographed at the Dinosaur Museum of Erenhot in Inner Mongolia, China (© bjdlzx/Getty Images)|Info|![](/en-AU/2021/08/202108110700DinoShower.jpg)|
