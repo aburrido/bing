@@ -11,3 +11,4 @@
 202108081830|TajMahalAgra|Early morning view of Taj Mahal in Agra, India (© Adrian Pope/Getty Images)|Celebrating Islamic New Year|![](/en-IN/2021/08/202108081830TajMahalAgra.jpg)|
 202108091830|CasteldelMonte|Castel del Monte, Apulia, Italy (© Toni Spagone/Alamy)|An octagonal architectural treasure|![](/en-IN/2021/08/202108091830CasteldelMonte.jpg)|
 202108101830|DinoShower|The Perseid meteor shower photographed at the Dinosaur Museum of Erenhot in Inner Mongolia, China (© bjdlzx/Getty Images)|Everyone's watching the Perseids|![](/en-IN/2021/08/202108101830DinoShower.jpg)|
+202108111830|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-IN/2021/08/202108111830OkavangoHerd.jpg)|
