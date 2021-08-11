@@ -11,3 +11,4 @@
 202108082200|MineBay|Gravure māori réalisée par Matahi Whakataka-Brightwell sur les bords du lac Taupo, île du Nord, Nouvelle-Zélande (© Evgueni Zverev/Alamy)|Gravure en bord de lac|![](/fr-FR/2021/08/202108082200MineBay.jpg)|
 202108092200|CapeofTossa|Tossa de mar, Catalogne, Espagne (© dleiva/Alamy)|Paradis de Chagall|![](/fr-FR/2021/08/202108092200CapeofTossa.jpg)|
 202108102200|DinoShower|Les Perséïdes, photograhiées au Musée des dinosaures d’Erenhot, Mongolie-Intérieure, Chine (© bjdlzx/Getty Images)|Levez les yeux !|![](/fr-FR/2021/08/202108102200DinoShower.jpg)|
+202108112200|OkavangoHerd|Éléphants de savane d’Afrique, delta de l’Okovango, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Pour les éléphants|![](/fr-FR/2021/08/202108112200OkavangoHerd.jpg)|
