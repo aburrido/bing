@@ -11,3 +11,4 @@
 202108090400|MineBay|The Mine Bay Māori Rock Carving of Ngatoroirangi by Matahi Whakataka-Brightwell on the edge of Lake Taupo, North Island, New Zealand (© Evgueni Zverev/Alamy)|A tribute to the ancestors|![](/en-CA/2021/08/202108090400MineBay.jpg)|
 202108100400|BorealQuebec|Aerial View of Boreal Forest in summer, Quebec (© Onfokus/Getty Images)|Canada’s largest vegetation zone|![](/en-CA/2021/08/202108100400BorealQuebec.jpg)|
 202108110400|DinoShower|The Perseid meteor shower photographed at the Dinosaur Museum of Erenhot in Inner Mongolia, China (© bjdlzx/Getty Images)|Everyone's watching the Perseids|![](/en-CA/2021/08/202108110400DinoShower.jpg)|
+202108120400|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-CA/2021/08/202108120400OkavangoHerd.jpg)|

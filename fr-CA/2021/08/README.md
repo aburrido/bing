@@ -11,3 +11,4 @@
 202108090400|MineBay|Sculpture dans la roche représentant Ngatoroirangi par l'artiste Matahi Whakataka-Brightwell, Lac Taupo, Île du Nord, Nouvelle-Zélande (© Evgueni Zverev/Alamy)||![](/fr-CA/2021/08/202108090400MineBay.jpg)|
 202108100400|BorealQuebec|Vue aérienne sur la forêt boréale canadienne en été, Québec (© Onfokus/Getty Images)||![](/fr-CA/2021/08/202108100400BorealQuebec.jpg)|
 202108110400|DinoShower|Des perséides photographiées depuis le Dinosaur Museum de Erenhot en Mongolie-Intérieure, Chine (© bjdlzx/Getty Images)||![](/fr-CA/2021/08/202108110400DinoShower.jpg)|
+202108120400|OkavangoHerd|Un troupeau d'éléphants de savane d'Afrique, Delta de l'Okavango, Botswana (© Juan-Carlos Munoz/Minden Pictures)||![](/fr-CA/2021/08/202108120400OkavangoHerd.jpg)|
