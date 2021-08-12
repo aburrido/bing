@@ -12,3 +12,4 @@
 202108091600|NahanniNP|纳汉尼国家公园保护区的鸟瞰图，加拿大西北部 (© Robert Postma/Getty Images)||![](/zh-CN/2021/08/202108091600NahanniNP.jpg)|
 202108101600|DinoShower|拍摄于二连浩特恐龙博物馆中的英仙座流星雨，中国内蒙古 (© bjdlzx/Getty Images)||![](/zh-CN/2021/08/202108101600DinoShower.jpg)|
 202108111600|OkavangoHerd|奥卡万戈三角洲上的非洲草原象群，博茨瓦纳 (© Juan-Carlos Munoz/Minden Pictures)||![](/zh-CN/2021/08/202108111600OkavangoHerd.jpg)|
+202108121600|Southpaw|安斯海滩上的角眼沙蟹，塞舌尔普拉兰岛 (© Ingo Schulz/Offset by Shutterstock)||![](/zh-CN/2021/08/202108121600Southpaw.jpg)|
