@@ -13,3 +13,4 @@
 202108101500|DinoShower|｢エレンホト恐竜博物館から見たペルセウス座流星群｣中国, 内モンゴル (© bjdlzx/Getty Images)|ペルセウス座流星群ピークに|![](/ja-JP/2021/08/202108101500DinoShower.jpg)|
 202108111500|OkavangoHerd|｢アフリカゾウの群れ｣ボツワナ, オカバンゴ・デルタ (© Juan-Carlos Munoz/Minden Pictures)|今日は世界ゾウの日|![](/ja-JP/2021/08/202108111500OkavangoHerd.jpg)|
 202108121500|Southpaw|｢ツノメガニ｣セーシェル, プララン島, グランダンス (© Ingo Schulz/Offset by Shutterstock)|今日は左利きの日|![](/ja-JP/2021/08/202108121500Southpaw.jpg)|
+202108131500|UbehebeCrater|｢デスバレー国立公園のウベヘベクレーター｣米国, カリフォルニア州 (© Albert Knapp/Alamy)|火山活動の痕跡|![](/ja-JP/2021/08/202108131500UbehebeCrater.jpg)|
