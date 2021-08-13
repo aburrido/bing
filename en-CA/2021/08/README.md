@@ -13,3 +13,4 @@
 202108110400|DinoShower|The Perseid meteor shower photographed at the Dinosaur Museum of Erenhot in Inner Mongolia, China (© bjdlzx/Getty Images)|Everyone's watching the Perseids|![](/en-CA/2021/08/202108110400DinoShower.jpg)|
 202108120400|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-CA/2021/08/202108120400OkavangoHerd.jpg)|
 202108130400|Southpaw|Horned ghost crab, Grand Anse, Praslin Island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Fight for your lefts|![](/en-CA/2021/08/202108130400Southpaw.jpg)|
+||||![](/en-CA/2021/08/.jpg)|
