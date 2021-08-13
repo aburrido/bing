@@ -12,3 +12,4 @@
 202108100400|BorealQuebec|Vue aérienne sur la forêt boréale canadienne en été, Québec (© Onfokus/Getty Images)||![](/fr-CA/2021/08/202108100400BorealQuebec.jpg)|
 202108110400|DinoShower|Des perséides photographiées depuis le Dinosaur Museum de Erenhot en Mongolie-Intérieure, Chine (© bjdlzx/Getty Images)||![](/fr-CA/2021/08/202108110400DinoShower.jpg)|
 202108120400|OkavangoHerd|Un troupeau d'éléphants de savane d'Afrique, Delta de l'Okavango, Botswana (© Juan-Carlos Munoz/Minden Pictures)||![](/fr-CA/2021/08/202108120400OkavangoHerd.jpg)|
+202108130400|Southpaw|Un crabe fantôme à cornes, Grand'Anse, Île Praslin, Seychelles (© Ingo Schulz/Offset by Shutterstock)||![](/fr-CA/2021/08/202108130400Southpaw.jpg)|
