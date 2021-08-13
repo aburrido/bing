@@ -13,3 +13,4 @@
 202108100700|NahanniNP|Nahanni National Park Reserve, Northwest Territories, Canada (© Robert Postma/Getty Images)|Info|![](/en-AU/2021/08/202108100700NahanniNP.jpg)|
 202108110700|DinoShower|Perseid meteor shower photographed at the Dinosaur Museum of Erenhot in Inner Mongolia, China (© bjdlzx/Getty Images)|Info|![](/en-AU/2021/08/202108110700DinoShower.jpg)|
 202108120700|Valentre|Pont Valentré bridge, Cahors, France (© Reinhard Schmid/Huber/eStock Photo)|Info|![](/en-AU/2021/08/202108120700Valentre.jpg)|
+202108130700|Southpaw|Horned ghost crab, Grand Anse, Praslin island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108130700Southpaw.jpg)|
