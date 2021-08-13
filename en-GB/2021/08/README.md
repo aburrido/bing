@@ -14,3 +14,4 @@
 202108102300|DinoShower|The Perseid meteor shower photographed at the Dinosaur Museum of Erenhot in Inner Mongolia, China (© bjdlzx/Getty Images)|Everyone's watching the Perseids|![](/en-GB/2021/08/202108102300DinoShower.jpg)|
 202108112300|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-GB/2021/08/202108112300OkavangoHerd.jpg)|
 202108122300|Southpaw|Horned ghost crab, Grand Anse, Praslin Island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Fight for your lefts|![](/en-GB/2021/08/202108122300Southpaw.jpg)|
+202108132300|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California, USA (© Albert Knapp/Alamy)|When Death Valley blew its top|![](/en-GB/2021/08/202108132300UbehebeCrater.jpg)|
