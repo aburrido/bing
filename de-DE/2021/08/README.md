@@ -13,3 +13,4 @@
 202108102200|DinoShower|Der Perseiden-Meteoritenschauer, fotografiert im Dinosaurier-Museum von Erenhot in der Inneren Mongolei, Volksrepublik China (© bjdlzx/Getty Images)|Jeder beobachtet die Perseiden|![](/de-DE/2021/08/202108102200DinoShower.jpg)|
 202108112200|OkavangoHerd|Afrikanische Buschelefanten-Herde, Okavango-Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Zusammen ist man weniger allein|![](/de-DE/2021/08/202108112200OkavangoHerd.jpg)|
 202108122200|Southpaw|Gehörnte Geisterkrabbe, Grand Anse, Insel Praslin, Seychellen (© Ingo Schulz/Offset by Shutterstock)|Heute gilt links vor rechts|![](/de-DE/2021/08/202108122200Southpaw.jpg)|
+202108132200|UbehebeCrater|Ubehebe Crater im Death-Valley-Nationalpark, Kalifornien, USA (© Albert Knapp/Alamy)|Als das Death Valley seinen Deckel sprengte|![](/de-DE/2021/08/202108132200UbehebeCrater.jpg)|

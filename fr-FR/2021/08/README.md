@@ -13,3 +13,4 @@
 202108102200|DinoShower|Les Perséïdes, photograhiées au Musée des dinosaures d’Erenhot, Mongolie-Intérieure, Chine (© bjdlzx/Getty Images)|Levez les yeux !|![](/fr-FR/2021/08/202108102200DinoShower.jpg)|
 202108112200|OkavangoHerd|Éléphants de savane d’Afrique, delta de l’Okovango, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Pour les éléphants|![](/fr-FR/2021/08/202108112200OkavangoHerd.jpg)|
 202108122200|Southpaw|Crabe fantôme, Grand Anse, île de Praslin, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Les droits des gauchers|![](/fr-FR/2021/08/202108122200Southpaw.jpg)|
+202108132200|UbehebeCrater|Le cratère Ubehebe dans le parc national de la vallée de la Mort, Californie, États-Unis (© Albert Knapp/Alamy)|Terre explosive|![](/fr-FR/2021/08/202108132200UbehebeCrater.jpg)|
