@@ -14,3 +14,4 @@
 202108111830|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-IN/2021/08/202108111830OkavangoHerd.jpg)|
 202108121830|Southpaw|Horned ghost crab, Grand Anse, Praslin Island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Fight for your lefts|![](/en-IN/2021/08/202108121830Southpaw.jpg)|
 202108131830|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California (© Albert Knapp/Alamy)|When Death Valley blew its top|![](/en-IN/2021/08/202108131830UbehebeCrater.jpg)|
+202108141830|RedFort|National flag hoisted at Red Fort in New Delhi, India (© Roop_Dey/Shutterstock)|India celebrates its 75th Independence Day|![](/en-IN/2021/08/202108141830RedFort.jpg)|
