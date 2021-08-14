@@ -14,3 +14,4 @@
 202108111500|OkavangoHerd|｢アフリカゾウの群れ｣ボツワナ, オカバンゴ・デルタ (© Juan-Carlos Munoz/Minden Pictures)|今日は世界ゾウの日|![](/ja-JP/2021/08/202108111500OkavangoHerd.jpg)|
 202108121500|Southpaw|｢ツノメガニ｣セーシェル, プララン島, グランダンス (© Ingo Schulz/Offset by Shutterstock)|今日は左利きの日|![](/ja-JP/2021/08/202108121500Southpaw.jpg)|
 202108131500|UbehebeCrater|｢デスバレー国立公園のウベヘベクレーター｣米国, カリフォルニア州 (© Albert Knapp/Alamy)|火山活動の痕跡|![](/ja-JP/2021/08/202108131500UbehebeCrater.jpg)|
+202108141500|StrandbadTiefenbrunnen|｢チューリッヒ湖の公共プール｣スイス (© Amazing Aerial Agency/Offset by Shutterstock)|湖の屋外プール|![](/ja-JP/2021/08/202108141500StrandbadTiefenbrunnen.jpg)|
