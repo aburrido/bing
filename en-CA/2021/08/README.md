@@ -14,3 +14,4 @@
 202108120400|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-CA/2021/08/202108120400OkavangoHerd.jpg)|
 202108130400|Southpaw|Horned ghost crab, Grand Anse, Praslin Island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Fight for your lefts|![](/en-CA/2021/08/202108130400Southpaw.jpg)|
 ||||![](/en-CA/2021/08/.jpg)|
+202108140400|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California (© Albert Knapp/Alamy)|When Death Valley blew its top|![](/en-CA/2021/08/202108140400UbehebeCrater.jpg)|

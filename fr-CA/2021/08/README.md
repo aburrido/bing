@@ -13,3 +13,4 @@
 202108110400|DinoShower|Des perséides photographiées depuis le Dinosaur Museum de Erenhot en Mongolie-Intérieure, Chine (© bjdlzx/Getty Images)||![](/fr-CA/2021/08/202108110400DinoShower.jpg)|
 202108120400|OkavangoHerd|Un troupeau d'éléphants de savane d'Afrique, Delta de l'Okavango, Botswana (© Juan-Carlos Munoz/Minden Pictures)||![](/fr-CA/2021/08/202108120400OkavangoHerd.jpg)|
 202108130400|Southpaw|Un crabe fantôme à cornes, Grand'Anse, Île Praslin, Seychelles (© Ingo Schulz/Offset by Shutterstock)||![](/fr-CA/2021/08/202108130400Southpaw.jpg)|
+202108140400|UbehebeCrater|Le cratère Ubehebe au cœur du parc national de la vallée de la Mort, Californie (© Albert Knapp/Alamy)||![](/fr-CA/2021/08/202108140400UbehebeCrater.jpg)|
