@@ -14,3 +14,4 @@
 202108111600|OkavangoHerd|奥卡万戈三角洲上的非洲草原象群，博茨瓦纳 (© Juan-Carlos Munoz/Minden Pictures)||![](/zh-CN/2021/08/202108111600OkavangoHerd.jpg)|
 202108121600|Southpaw|安斯海滩上的角眼沙蟹，塞舌尔普拉兰岛 (© Ingo Schulz/Offset by Shutterstock)||![](/zh-CN/2021/08/202108121600Southpaw.jpg)|
 202108131600|UbehebeCrater|死亡谷国家公园里的优比喜比火山口，加利福尼亚州 (© Albert Knapp/Alamy)||![](/zh-CN/2021/08/202108131600UbehebeCrater.jpg)|
+202108141600|StrandbadTiefenbrunnen|苏黎世湖岸边的室外游泳池，瑞士 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/08/202108141600StrandbadTiefenbrunnen.jpg)|
