@@ -15,3 +15,4 @@
 202108122200|Southpaw|Crabe fantôme, Grand Anse, île de Praslin, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Les droits des gauchers|![](/fr-FR/2021/08/202108122200Southpaw.jpg)|
 202108132200|UbehebeCrater|Le cratère Ubehebe dans le parc national de la vallée de la Mort, Californie, États-Unis (© Albert Knapp/Alamy)|Terre explosive|![](/fr-FR/2021/08/202108132200UbehebeCrater.jpg)|
 202108142200|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, une piscine publique à ciel ouvert sur le lac de Zurich, Suisse (© Amazing Aerial Agency/Offset by Shutterstock)|Délice Suisse|![](/fr-FR/2021/08/202108142200StrandbadTiefenbrunnen.jpg)|
+202108152200|PortAventura|Silhouette de la montagne russe Shambhala au coucher du soleil, dans le parc PortaVentura, Salou, Tarragone, Espagne (© Joaquim F. P./Getty Images)|Le grand frisson|![](/fr-FR/2021/08/202108152200PortAventura.jpg)|
