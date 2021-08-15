@@ -15,3 +15,4 @@
 202108121500|Southpaw|｢ツノメガニ｣セーシェル, プララン島, グランダンス (© Ingo Schulz/Offset by Shutterstock)|今日は左利きの日|![](/ja-JP/2021/08/202108121500Southpaw.jpg)|
 202108131500|UbehebeCrater|｢デスバレー国立公園のウベヘベクレーター｣米国, カリフォルニア州 (© Albert Knapp/Alamy)|火山活動の痕跡|![](/ja-JP/2021/08/202108131500UbehebeCrater.jpg)|
 202108141500|StrandbadTiefenbrunnen|｢チューリッヒ湖の公共プール｣スイス (© Amazing Aerial Agency/Offset by Shutterstock)|湖の屋外プール|![](/ja-JP/2021/08/202108141500StrandbadTiefenbrunnen.jpg)|
+202108151500|KyotoGozanTorii|｢五山送り火の鳥居形松明と灯篭流し｣京都 (© Kaoru Hayashi/Getty Images)|今日は五山の送り火|![](/ja-JP/2021/08/202108151500KyotoGozanTorii.jpg)|
