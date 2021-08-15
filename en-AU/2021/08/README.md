@@ -15,3 +15,4 @@
 202108120700|Valentre|Pont Valentré bridge, Cahors, France (© Reinhard Schmid/Huber/eStock Photo)|Info|![](/en-AU/2021/08/202108120700Valentre.jpg)|
 202108130700|Southpaw|Horned ghost crab, Grand Anse, Praslin island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108130700Southpaw.jpg)|
 202108140700|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California, USA (© Albert Knapp/Alamy)|Info|![](/en-AU/2021/08/202108140700UbehebeCrater.jpg)|
+202108150700|PetitMinou|Petit Minou Lighthouse, Brittany, France (© Mathieu Rivrin/Getty Images)|Info|![](/en-AU/2021/08/202108150700PetitMinou.jpg)|

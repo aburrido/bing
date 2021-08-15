@@ -15,3 +15,4 @@
 202108120700|OkavangoHerd|African bush elephant herd, Okavango Delta, Botswana (© Juan-Carlos Munoz/Minden Pictures)|Haven't you herd? It's World Elephant Day!|![](/en-US/2021/08/202108120700OkavangoHerd.jpg)|
 202108130700|Southpaw|Horned ghost crab, Grand Anse, Praslin Island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Fight for your lefts|![](/en-US/2021/08/202108130700Southpaw.jpg)|
 202108140700|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California (© Albert Knapp/Alamy)|When the desert blew its top|![](/en-US/2021/08/202108140700UbehebeCrater.jpg)|
+202108150700|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, a public pool on the shore of Lake Zürich, Switzerland (© Amazing Aerial Agency/Offset by Shutterstock)|Swim city|![](/en-US/2021/08/202108150700StrandbadTiefenbrunnen.jpg)|
