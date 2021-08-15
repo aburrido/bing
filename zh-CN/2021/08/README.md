@@ -15,3 +15,4 @@
 202108121600|Southpaw|安斯海滩上的角眼沙蟹，塞舌尔普拉兰岛 (© Ingo Schulz/Offset by Shutterstock)||![](/zh-CN/2021/08/202108121600Southpaw.jpg)|
 202108131600|UbehebeCrater|死亡谷国家公园里的优比喜比火山口，加利福尼亚州 (© Albert Knapp/Alamy)||![](/zh-CN/2021/08/202108131600UbehebeCrater.jpg)|
 202108141600|StrandbadTiefenbrunnen|苏黎世湖岸边的室外游泳池，瑞士 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/08/202108141600StrandbadTiefenbrunnen.jpg)|
+202108151600|PortAventura|落日时分的香巴拉过山车剪影，西班牙塔拉戈纳萨洛 (© Joaquim F. P./Getty Images)||![](/zh-CN/2021/08/202108151600PortAventura.jpg)|
