@@ -16,3 +16,4 @@
 202108132200|UbehebeCrater|Le cratère Ubehebe dans le parc national de la vallée de la Mort, Californie, États-Unis (© Albert Knapp/Alamy)|Terre explosive|![](/fr-FR/2021/08/202108132200UbehebeCrater.jpg)|
 202108142200|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, une piscine publique à ciel ouvert sur le lac de Zurich, Suisse (© Amazing Aerial Agency/Offset by Shutterstock)|Délice Suisse|![](/fr-FR/2021/08/202108142200StrandbadTiefenbrunnen.jpg)|
 202108152200|PortAventura|Silhouette de la montagne russe Shambhala au coucher du soleil, dans le parc PortaVentura, Salou, Tarragone, Espagne (© Joaquim F. P./Getty Images)|Le grand frisson|![](/fr-FR/2021/08/202108152200PortAventura.jpg)|
+202108162200|Valentre|Pont Valentré traversant le Lot à Cahors, Vallée du Lot, France (© Reinhard Schmid/Huber/eStock Photo)|Le pont du diable|![](/fr-FR/2021/08/202108162200Valentre.jpg)|
