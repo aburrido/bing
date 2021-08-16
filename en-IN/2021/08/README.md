@@ -16,3 +16,4 @@
 202108131830|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California (© Albert Knapp/Alamy)|When Death Valley blew its top|![](/en-IN/2021/08/202108131830UbehebeCrater.jpg)|
 202108141830|RedFort|National flag hoisted at Red Fort in New Delhi, India (© Roop_Dey/Shutterstock)|India celebrates its 75th Independence Day|![](/en-IN/2021/08/202108141830RedFort.jpg)|
 202108151830|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Let's ride! It's Roller Coaster Day|![](/en-IN/2021/08/202108151830PortAventura.jpg)|
+202108161830|PochuckValley|Stairway to Heaven Trail in Wawayanda State Park, New Jersey (© Leembe/Getty Images)|Wanderin' Wawayanda|![](/en-IN/2021/08/202108161830PochuckValley.jpg)|
