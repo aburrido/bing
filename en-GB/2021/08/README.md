@@ -17,3 +17,4 @@
 202108132300|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California, USA (© Albert Knapp/Alamy)|When Death Valley blew its top|![](/en-GB/2021/08/202108132300UbehebeCrater.jpg)|
 202108142300|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, an outdoor public pool on the shore of Lake Zürich, Switzerland (© Amazing Aerial Agency/Offset by Shutterstock)|Swim city|![](/en-GB/2021/08/202108142300StrandbadTiefenbrunnen.jpg)|
 202108152300|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|What goes up...|![](/en-GB/2021/08/202108152300PortAventura.jpg)|
+202108162300|LandsEndSunset|Sunset over Land's End, Cornwall in late summer (© Andrew Turner/Getty Images)|The sun sets in the West|![](/en-GB/2021/08/202108162300LandsEndSunset.jpg)|
