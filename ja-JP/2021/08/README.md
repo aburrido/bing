@@ -16,3 +16,4 @@
 202108131500|UbehebeCrater|｢デスバレー国立公園のウベヘベクレーター｣米国, カリフォルニア州 (© Albert Knapp/Alamy)|火山活動の痕跡|![](/ja-JP/2021/08/202108131500UbehebeCrater.jpg)|
 202108141500|StrandbadTiefenbrunnen|｢チューリッヒ湖の公共プール｣スイス (© Amazing Aerial Agency/Offset by Shutterstock)|湖の屋外プール|![](/ja-JP/2021/08/202108141500StrandbadTiefenbrunnen.jpg)|
 202108151500|KyotoGozanTorii|｢五山送り火の鳥居形松明と灯篭流し｣京都 (© Kaoru Hayashi/Getty Images)|今日は五山の送り火|![](/ja-JP/2021/08/202108151500KyotoGozanTorii.jpg)|
+202108161500|PochuckValley|｢ワワヤンダ州立公園のトレイル｣米国, ニュージャージー州 (© Leembe/Getty Images)|ニュージャージーの憩いの場|![](/ja-JP/2021/08/202108161500PochuckValley.jpg)|
