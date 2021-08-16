@@ -16,3 +16,4 @@
 202108130700|Southpaw|Horned ghost crab, Grand Anse, Praslin island, Seychelles (© Ingo Schulz/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108130700Southpaw.jpg)|
 202108140700|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California, USA (© Albert Knapp/Alamy)|Info|![](/en-AU/2021/08/202108140700UbehebeCrater.jpg)|
 202108150700|PetitMinou|Petit Minou Lighthouse, Brittany, France (© Mathieu Rivrin/Getty Images)|Info|![](/en-AU/2021/08/202108150700PetitMinou.jpg)|
+202108160700|PortAventura|Shambhala roller coaster, PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Info|![](/en-AU/2021/08/202108160700PortAventura.jpg)|
