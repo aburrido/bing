@@ -17,3 +17,4 @@
 202108141830|RedFort|National flag hoisted at Red Fort in New Delhi, India (© Roop_Dey/Shutterstock)|India celebrates its 75th Independence Day|![](/en-IN/2021/08/202108141830RedFort.jpg)|
 202108151830|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Let's ride! It's Roller Coaster Day|![](/en-IN/2021/08/202108151830PortAventura.jpg)|
 202108161830|PochuckValley|Stairway to Heaven Trail in Wawayanda State Park, New Jersey (© Leembe/Getty Images)|Wanderin' Wawayanda|![](/en-IN/2021/08/202108161830PochuckValley.jpg)|
+202108171830|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Pearl of the Adriatic|![](/en-IN/2021/08/202108171830RedRoofTile.jpg)|
