@@ -18,3 +18,4 @@
 202108151600|PortAventura|落日时分的香巴拉过山车剪影，西班牙塔拉戈纳萨洛 (© Joaquim F. P./Getty Images)||![](/zh-CN/2021/08/202108151600PortAventura.jpg)|
 202108161600|PochuckValley|天堂之路，新泽西州瓦瓦安达州立公园 (© Leembe/Getty Images)||![](/zh-CN/2021/08/202108161600PochuckValley.jpg)|
 ||||![](/zh-CN/2021/08/.jpg)|
+202108171600|RedRoofTile|杜布罗夫尼克老城，克罗地亚 (© Jeremy Woodhouse/Getty Images)||![](/zh-CN/2021/08/202108171600RedRoofTile.jpg)|
