@@ -17,3 +17,4 @@
 202108140700|UbehebeCrater|Ubehebe Crater in Death Valley National Park, California (© Albert Knapp/Alamy)|When the desert blew its top|![](/en-US/2021/08/202108140700UbehebeCrater.jpg)|
 202108150700|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, a public pool on the shore of Lake Zürich, Switzerland (© Amazing Aerial Agency/Offset by Shutterstock)|Swim city|![](/en-US/2021/08/202108150700StrandbadTiefenbrunnen.jpg)|
 202108160700|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Let's ride! It's Roller Coaster Day|![](/en-US/2021/08/202108160700PortAventura.jpg)|
+202108170700|PochuckValley|Stairway to Heaven trail in Wawayanda State Park, New Jersey (© Leembe/Getty Images)|Wanderin' Wawayanda|![](/en-US/2021/08/202108170700PochuckValley.jpg)|
