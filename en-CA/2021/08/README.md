@@ -18,3 +18,4 @@
 202108150400|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, an outdoor public pool on the shore of Lake Zürich, Switzerland (© Amazing Aerial Agency/Offset by Shutterstock)|Swim city|![](/en-CA/2021/08/202108150400StrandbadTiefenbrunnen.jpg)|
 202108160400|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Let's ride the roller coaster!|![](/en-CA/2021/08/202108160400PortAventura.jpg)|
 202108170400|PochuckValley|Stairway to Heaven trail in Wawayanda State Park, New Jersey (© Leembe/Getty Images)|Wanderin' Wawayanda|![](/en-CA/2021/08/202108170400PochuckValley.jpg)|
+202108180400|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Pearl of the Adriatic|![](/en-CA/2021/08/202108180400RedRoofTile.jpg)|

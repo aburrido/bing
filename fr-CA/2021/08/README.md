@@ -17,3 +17,4 @@
 202108150400|StrandbadTiefenbrunnen|Strandbad Tiefenbrunnen, une piscine publique en extérieur sur la rive du Lac de Zurich, Suisse (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2021/08/202108150400StrandbadTiefenbrunnen.jpg)|
 202108160400|PortAventura|Coucher de soleil sur Shambhala, les célèbres montagnes russes du parc PortAventura, Salou, Tarragone, Espagne (© Joaquim F. P./Getty Images)||![](/fr-CA/2021/08/202108160400PortAventura.jpg)|
 202108170400|PochuckValley|Le sentier Stairway to Heaven dans le parc d'État de Wawayanda, New Jersey (© Leembe/Getty Images)||![](/fr-CA/2021/08/202108170400PochuckValley.jpg)|
+202108180400|RedRoofTile|La vieille ville de Dubrovnik, Croatie (© Jeremy Woodhouse/Getty Images)||![](/fr-CA/2021/08/202108180400RedRoofTile.jpg)|
