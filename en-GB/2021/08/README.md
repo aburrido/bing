@@ -19,3 +19,4 @@
 202108152300|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|What goes up...|![](/en-GB/2021/08/202108152300PortAventura.jpg)|
 202108162300|LandsEndSunset|Sunset over Land's End, Cornwall in late summer (© Andrew Turner/Getty Images)|The sun sets in the West|![](/en-GB/2021/08/202108162300LandsEndSunset.jpg)|
 202108172300|OtterCliff|Otter Cliffs, Acadia National Park, Maine, USA (© dbimages/Alamy)|On the rocks|![](/en-GB/2021/08/202108172300OtterCliff.jpg)|
+202108182300|GiantManta|Giant manta ray and a photographer off the Ningaloo Coast, Australia (© Leith Holtzman/Shutterstock)|Happy World Photography Day!|![](/en-GB/2021/08/202108182300GiantManta.jpg)|
