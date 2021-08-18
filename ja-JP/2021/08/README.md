@@ -18,3 +18,4 @@
 202108151500|KyotoGozanTorii|｢五山送り火の鳥居形松明と灯篭流し｣京都 (© Kaoru Hayashi/Getty Images)|今日は五山の送り火|![](/ja-JP/2021/08/202108151500KyotoGozanTorii.jpg)|
 202108161500|PochuckValley|｢ワワヤンダ州立公園のトレイル｣米国, ニュージャージー州 (© Leembe/Getty Images)|ニュージャージーの憩いの場|![](/ja-JP/2021/08/202108161500PochuckValley.jpg)|
 202108171500|RedRoofTile|｢ドゥブロヴニク旧市街｣クロアチア (© Jeremy Woodhouse/Getty Images)|アドリア海の真珠|![](/ja-JP/2021/08/202108171500RedRoofTile.jpg)|
+202108181500|GiantManta|｢ニンガルー沖のマンタとカメラマン｣オーストラリア (© Leith Holtzman/Shutterstoc)|世界写真の日|![](/ja-JP/2021/08/202108181500GiantManta.jpg)|
