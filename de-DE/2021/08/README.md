@@ -19,3 +19,4 @@
 202108152200|GewitterBW|Gewitterzelle über einer Ortschaft in Baden-Württemberg (© Martin Grimm/Minden)|Regen in Sicht|![](/de-DE/2021/08/202108152200GewitterBW.jpg)|
 202108162200|EmptyQuarter|Die Sandwüste Rub al-Chali an der Grenze zwischen Oman und den Vereinigten Arabischen Emiraten (© Daniel Schoenen/Offset by Shutterstock)|Lebenszeichen im „leeren Viertel“|![](/de-DE/2021/08/202108162200EmptyQuarter.jpg)|
 202108172200|RedRoofTile|Die Altstadt von Dubrovnik, Kroatien (© Jeremy Woodhouse/Getty Images)|Perle der Adria|![](/de-DE/2021/08/202108172200RedRoofTile.jpg)|
+202108182200|GiantManta|Riesenmanta und ein Fotograf in der Nähe des Ningaloo-Riffs, Australien (© Leith Holtzman/Shutterstock)|Tag der Fotografie|![](/de-DE/2021/08/202108182200GiantManta.jpg)|

@@ -18,3 +18,4 @@
 202108152200|PortAventura|Silhouette de la montagne russe Shambhala au coucher du soleil, dans le parc PortaVentura, Salou, Tarragone, Espagne (© Joaquim F. P./Getty Images)|Le grand frisson|![](/fr-FR/2021/08/202108152200PortAventura.jpg)|
 202108162200|Valentre|Pont Valentré traversant le Lot à Cahors, Vallée du Lot, France (© Reinhard Schmid/Huber/eStock Photo)|Le pont du diable|![](/fr-FR/2021/08/202108162200Valentre.jpg)|
 202108172200|RedRoofTile|La vieille ville de Dubrovnik, Croatie (© Jeremy Woodhouse/Getty Images)|Joyau de l’Adriatique|![](/fr-FR/2021/08/202108172200RedRoofTile.jpg)|
+202108182200|GiantManta|Raie manta géante et un photographe au large de la côte de Ningaloo, Australie (© Leith Holtzman/Shutterstock)|Clic, c’est dans la boîte !|![](/fr-FR/2021/08/202108182200GiantManta.jpg)|
