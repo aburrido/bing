@@ -18,3 +18,4 @@
 202108150700|PetitMinou|Petit Minou Lighthouse, Brittany, France (© Mathieu Rivrin/Getty Images)|Info|![](/en-AU/2021/08/202108150700PetitMinou.jpg)|
 202108160700|PortAventura|Shambhala roller coaster, PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Info|![](/en-AU/2021/08/202108160700PortAventura.jpg)|
 202108170700|PochuckValley|Stairway to Heaven trail, Wawayanda State Park, New Jersey, USA (© Leembe/Getty Images)|Info|![](/en-AU/2021/08/202108170700PochuckValley.jpg)|
+202108180700|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2021/08/202108180700RedRoofTile.jpg)|
