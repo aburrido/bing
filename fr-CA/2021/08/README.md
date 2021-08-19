@@ -18,3 +18,4 @@
 202108160400|PortAventura|Coucher de soleil sur Shambhala, les célèbres montagnes russes du parc PortAventura, Salou, Tarragone, Espagne (© Joaquim F. P./Getty Images)||![](/fr-CA/2021/08/202108160400PortAventura.jpg)|
 202108170400|PochuckValley|Le sentier Stairway to Heaven dans le parc d'État de Wawayanda, New Jersey (© Leembe/Getty Images)||![](/fr-CA/2021/08/202108170400PochuckValley.jpg)|
 202108180400|RedRoofTile|La vieille ville de Dubrovnik, Croatie (© Jeremy Woodhouse/Getty Images)||![](/fr-CA/2021/08/202108180400RedRoofTile.jpg)|
+202108190400|GiantManta|Une raie manta géante et un photographe au large du récif de Ningaloo, Australie (© Leith Holtzman/Shutterstock)||![](/fr-CA/2021/08/202108190400GiantManta.jpg)|
