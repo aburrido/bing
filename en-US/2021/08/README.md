@@ -19,3 +19,4 @@
 202108160700|PortAventura|Silhouette of Shambhala roller coaster at sunset in PortAventura Park, Salou, Tarragona, Spain (© Joaquim F. P./Getty Images)|Let's ride! It's Roller Coaster Day|![](/en-US/2021/08/202108160700PortAventura.jpg)|
 202108170700|PochuckValley|Stairway to Heaven trail in Wawayanda State Park, New Jersey (© Leembe/Getty Images)|Wanderin' Wawayanda|![](/en-US/2021/08/202108170700PochuckValley.jpg)|
 202108180700|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Pearl of the Adriatic|![](/en-US/2021/08/202108180700RedRoofTile.jpg)|
+202108190700|GiantManta|Giant manta ray and a photographer off the Ningaloo Coast, Australia (© Shutterstock Premier)|Happy World Photography Day!|![](/en-US/2021/08/202108190700GiantManta.jpg)|
