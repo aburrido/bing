@@ -19,3 +19,4 @@
 202108162200|Valentre|Pont Valentré traversant le Lot à Cahors, Vallée du Lot, France (© Reinhard Schmid/Huber/eStock Photo)|Le pont du diable|![](/fr-FR/2021/08/202108162200Valentre.jpg)|
 202108172200|RedRoofTile|La vieille ville de Dubrovnik, Croatie (© Jeremy Woodhouse/Getty Images)|Joyau de l’Adriatique|![](/fr-FR/2021/08/202108172200RedRoofTile.jpg)|
 202108182200|GiantManta|Raie manta géante et un photographe au large de la côte de Ningaloo, Australie (© Leith Holtzman/Shutterstock)|Clic, c’est dans la boîte !|![](/fr-FR/2021/08/202108182200GiantManta.jpg)|
+202108192200|CuldeSac|Guadeloupe, Grand Cul-de-sac Marin, Ilets de Carénage, Ilet Blanc (© Thierry GRUN - Aero/Alamy Stock Photo)|Cul-de-sac marin|![](/fr-FR/2021/08/202108192200CuldeSac.jpg)|
