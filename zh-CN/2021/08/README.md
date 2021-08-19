@@ -20,3 +20,4 @@
 ||||![](/zh-CN/2021/08/.jpg)|
 202108171600|RedRoofTile|杜布罗夫尼克老城，克罗地亚 (© Jeremy Woodhouse/Getty Images)||![](/zh-CN/2021/08/202108171600RedRoofTile.jpg)|
 202108181600|GiantManta|巨型海洋蝠鲼和摄影师，澳大利亚宁格罗海岸 (© Shutterstock Premier)||![](/zh-CN/2021/08/202108181600GiantManta.jpg)|
+202108191600|EmptyQuarter|位于阿曼和迪拜酋长国边界的鲁卜哈利沙漠 (© Daniel Schoenen/Offset by Shutterstock)||![](/zh-CN/2021/08/202108191600EmptyQuarter.jpg)|
