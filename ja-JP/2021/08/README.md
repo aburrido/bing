@@ -19,3 +19,4 @@
 202108161500|PochuckValley|｢ワワヤンダ州立公園のトレイル｣米国, ニュージャージー州 (© Leembe/Getty Images)|ニュージャージーの憩いの場|![](/ja-JP/2021/08/202108161500PochuckValley.jpg)|
 202108171500|RedRoofTile|｢ドゥブロヴニク旧市街｣クロアチア (© Jeremy Woodhouse/Getty Images)|アドリア海の真珠|![](/ja-JP/2021/08/202108171500RedRoofTile.jpg)|
 202108181500|GiantManta|｢ニンガルー沖のマンタとカメラマン｣オーストラリア (© Leith Holtzman/Shutterstoc)|世界写真の日|![](/ja-JP/2021/08/202108181500GiantManta.jpg)|
+202108191500|EmptyQuarter|｢オマーン、ドバイ国境のルブアルハリ砂漠｣ (© Daniel Schoenen/Offset by Shutterstock)|空虚の地|![](/ja-JP/2021/08/202108191500EmptyQuarter.jpg)|
