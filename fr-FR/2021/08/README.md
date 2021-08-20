@@ -20,3 +20,4 @@
 202108172200|RedRoofTile|La vieille ville de Dubrovnik, Croatie (© Jeremy Woodhouse/Getty Images)|Joyau de l’Adriatique|![](/fr-FR/2021/08/202108172200RedRoofTile.jpg)|
 202108182200|GiantManta|Raie manta géante et un photographe au large de la côte de Ningaloo, Australie (© Leith Holtzman/Shutterstock)|Clic, c’est dans la boîte !|![](/fr-FR/2021/08/202108182200GiantManta.jpg)|
 202108192200|CuldeSac|Guadeloupe, Grand Cul-de-sac Marin, Ilets de Carénage, Ilet Blanc (© Thierry GRUN - Aero/Alamy Stock Photo)|Cul-de-sac marin|![](/fr-FR/2021/08/202108192200CuldeSac.jpg)|
+202108202200|PetitMinou|Fort du Petit Minou près de Brest, Finistère, France (© Mathieu Rivrin/Getty Images)|Lumière dans la nuit|![](/fr-FR/2021/08/202108202200PetitMinou.jpg)|
