@@ -19,3 +19,4 @@
 202108170400|PochuckValley|Le sentier Stairway to Heaven dans le parc d'État de Wawayanda, New Jersey (© Leembe/Getty Images)||![](/fr-CA/2021/08/202108170400PochuckValley.jpg)|
 202108180400|RedRoofTile|La vieille ville de Dubrovnik, Croatie (© Jeremy Woodhouse/Getty Images)||![](/fr-CA/2021/08/202108180400RedRoofTile.jpg)|
 202108190400|GiantManta|Une raie manta géante et un photographe au large du récif de Ningaloo, Australie (© Leith Holtzman/Shutterstock)||![](/fr-CA/2021/08/202108190400GiantManta.jpg)|
+202108200400|EmptyQuarter|Le désert Rub al Khali à cheval entre Oman et Dubaï (© Daniel Schoenen/Offset by Shutterstock)||![](/fr-CA/2021/08/202108200400EmptyQuarter.jpg)|
