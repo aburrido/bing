@@ -20,3 +20,4 @@
 202108170700|PochuckValley|Stairway to Heaven trail, Wawayanda State Park, New Jersey, USA (© Leembe/Getty Images)|Info|![](/en-AU/2021/08/202108170700PochuckValley.jpg)|
 202108180700|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2021/08/202108180700RedRoofTile.jpg)|
 202108190700|GiantManta|Giant manta ray and a photographer off the Ningaloo Coast, Australia (© Shutterstock Premier)|Info|![](/en-AU/2021/08/202108190700GiantManta.jpg)|
+202108200700|EmptyQuarter|Rub' al Khali desert on the border of Oman and the Emirate of Dubai (© Daniel Schoenen/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108200700EmptyQuarter.jpg)|
