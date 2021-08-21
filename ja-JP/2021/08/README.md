@@ -21,3 +21,4 @@
 202108181500|GiantManta|｢ニンガルー沖のマンタとカメラマン｣オーストラリア (© Leith Holtzman/Shutterstoc)|世界写真の日|![](/ja-JP/2021/08/202108181500GiantManta.jpg)|
 202108191500|EmptyQuarter|｢オマーン、ドバイ国境のルブアルハリ砂漠｣ (© Daniel Schoenen/Offset by Shutterstock)|空虚の地|![](/ja-JP/2021/08/202108191500EmptyQuarter.jpg)|
 202108201500|PetitMinou|｢ブレストの船着き場のプチミヌー灯台｣フランス, フィニステール (© Mathieu Rivrin/Getty Images)|今日から国際灯台ウィークエンド|![](/ja-JP/2021/08/202108201500PetitMinou.jpg)|
+202108211500|OlympicCoast|｢オリンピックコースト国立海洋保護区｣米国, ワシントン州 (© Chris Moore/Tandem Stills + Motion)|米国の海洋保護区|![](/ja-JP/2021/08/202108211500OlympicCoast.jpg)|
