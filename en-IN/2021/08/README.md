@@ -21,3 +21,4 @@
 202108181830|GiantManta|Giant manta ray and a photographer off the Ningaloo Coast, Australia (© Shutterstock Premier)|Happy World Photography Day!|![](/en-IN/2021/08/202108181830GiantManta.jpg)|
 202108191830|EmptyQuarter|Rub' al Khali desert on the border of Oman and the Emirate of Dubai (© Daniel Schoenen/Offset by Shutterstock)|Signs of life in the 'Empty Quarter'|![](/en-IN/2021/08/202108191830EmptyQuarter.jpg)|
 202108201830|PetitMinou|Petit Minou Lighthouse in the roadstead of Brest, Finistère, France (© Mathieu Rivrin/Getty Images)|Ambassadors of the airwaves|![](/en-IN/2021/08/202108201830PetitMinou.jpg)|
+202108211830|OlympicCoast|The shoreline of Olympic Coast National Marine Sanctuary, Washington state (© Chris Moore/Tandem Stills + Motion)|A wild, craggy corner of the United States|![](/en-IN/2021/08/202108211830OlympicCoast.jpg)|
