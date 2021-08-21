@@ -22,3 +22,4 @@
 202108182200|GiantManta|Riesenmanta und ein Fotograf in der Nähe des Ningaloo-Riffs, Australien (© Leith Holtzman/Shutterstock)|Tag der Fotografie|![](/de-DE/2021/08/202108182200GiantManta.jpg)|
 202108192200|ZinnowitzSeebruecke|Tauchgondel an der Seebrücke Zinnowitz, Insel Usedom, Mecklenburg-Vorpommern (© Frank Günther/Getty Images)|Abtauchen in der Ostsee|![](/de-DE/2021/08/202108192200ZinnowitzSeebruecke.jpg)|
 202108202200|PetitMinou|Leuchtturm Petit Minou in der Nähe von Brest, Département Finistère, Frankreich (© Mathieu Rivrin/Getty Images)|Botschafter der Ätherwellen|![](/de-DE/2021/08/202108202200PetitMinou.jpg)|
+202108212200|OlympicCoast|Die Küstenlinie des Olympic Coast National Marine Sanctuary, Bundesstaat Washington, USA (© Chris Moore/Tandem Stills + Motion)|Eine wilde, schroffe Ecke der USA|![](/de-DE/2021/08/202108212200OlympicCoast.jpg)|
