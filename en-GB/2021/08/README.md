@@ -22,3 +22,4 @@
 202108182300|GiantManta|Giant manta ray and a photographer off the Ningaloo Coast, Australia (© Leith Holtzman/Shutterstock)|Happy World Photography Day!|![](/en-GB/2021/08/202108182300GiantManta.jpg)|
 202108192300|EmptyQuarter|Rub' al Khali desert on the border of Oman and the Emirate of Dubai (© Daniel Schoenen/Offset by Shutterstock)|Signs of life in the Empty Quarter|![](/en-GB/2021/08/202108192300EmptyQuarter.jpg)|
 202108202300|PetitMinou|Petit Minou Lighthouse in the roadstead of Brest, Finistère, France (© Mathieu Rivrin/Getty Images)|Hailing the sentinels of the sea|![](/en-GB/2021/08/202108202300PetitMinou.jpg)|
+202108212300|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Pearl of the Adriatic|![](/en-GB/2021/08/202108212300RedRoofTile.jpg)|
