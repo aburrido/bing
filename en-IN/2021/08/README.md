@@ -22,3 +22,4 @@
 202108191830|EmptyQuarter|Rub' al Khali desert on the border of Oman and the Emirate of Dubai (© Daniel Schoenen/Offset by Shutterstock)|Signs of life in the 'Empty Quarter'|![](/en-IN/2021/08/202108191830EmptyQuarter.jpg)|
 202108201830|PetitMinou|Petit Minou Lighthouse in the roadstead of Brest, Finistère, France (© Mathieu Rivrin/Getty Images)|Ambassadors of the airwaves|![](/en-IN/2021/08/202108201830PetitMinou.jpg)|
 202108211830|OlympicCoast|The shoreline of Olympic Coast National Marine Sanctuary, Washington state (© Chris Moore/Tandem Stills + Motion)|A wild, craggy corner of the United States|![](/en-IN/2021/08/202108211830OlympicCoast.jpg)|
+202108221830|ChhatrisOrchha|The chhatris of Orchha in Madhya Pradesh, India (© PEDRE/iStock/Getty Images Plus)|The magnificent chhatris of Orchha|![](/en-IN/2021/08/202108221830ChhatrisOrchha.jpg)|
