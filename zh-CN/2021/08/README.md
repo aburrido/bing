@@ -23,3 +23,4 @@
 202108191600|EmptyQuarter|位于阿曼和迪拜酋长国边界的鲁卜哈利沙漠 (© Daniel Schoenen/Offset by Shutterstock)||![](/zh-CN/2021/08/202108191600EmptyQuarter.jpg)|
 202108201600|PetitMinou|港边的小米努灯塔，法国布雷斯特 (© Mathieu Rivrin/Getty Images)||![](/zh-CN/2021/08/202108201600PetitMinou.jpg)|
 202108211600|OlympicCoast|奥林匹克海岸国家海洋保护区的海岸线，美国华盛顿州 (© Chris Moore/Tandem Stills + Motion)||![](/zh-CN/2021/08/202108211600OlympicCoast.jpg)|
+202108221600|LittleBlueHeron|浅水滩上的小蓝鹭，古巴 (© Sergey Uryadnikov/Alamy)||![](/zh-CN/2021/08/202108221600LittleBlueHeron.jpg)|
