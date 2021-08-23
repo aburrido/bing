@@ -24,3 +24,4 @@
 202108201600|PetitMinou|港边的小米努灯塔，法国布雷斯特 (© Mathieu Rivrin/Getty Images)||![](/zh-CN/2021/08/202108201600PetitMinou.jpg)|
 202108211600|OlympicCoast|奥林匹克海岸国家海洋保护区的海岸线，美国华盛顿州 (© Chris Moore/Tandem Stills + Motion)||![](/zh-CN/2021/08/202108211600OlympicCoast.jpg)|
 202108221600|LittleBlueHeron|浅水滩上的小蓝鹭，古巴 (© Sergey Uryadnikov/Alamy)||![](/zh-CN/2021/08/202108221600LittleBlueHeron.jpg)|
+202108231600|HippieTown|排成篱笆模样的旧滑板，夏威夷毛伊岛 (© Matt Anderson Photography/Getty Images)||![](/zh-CN/2021/08/202108231600HippieTown.jpg)|
