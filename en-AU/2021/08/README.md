@@ -23,3 +23,4 @@
 202108200700|EmptyQuarter|Rub' al Khali desert on the border of Oman and the Emirate of Dubai (© Daniel Schoenen/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108200700EmptyQuarter.jpg)|
 202108210700|AmboliFalls|Waterfall in Amboli, Maharashtra, India (© ePhotocorp/iStock/Getty Images Plus)|Info|![](/en-AU/2021/08/202108210700AmboliFalls.jpg)|
 202108220700|OlympicCoast|Olympic Coast National Marine Sanctuary, Washington state, USA (© Chris Moore/Tandem Stills + Motion)|Info|![](/en-AU/2021/08/202108220700OlympicCoast.jpg)|
+202108230700|LittleBlueHeron|Little blue heron in Cuba (© Sergey Uryadnikov/Alamy)|Info|![](/en-AU/2021/08/202108230700LittleBlueHeron.jpg)|
