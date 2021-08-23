@@ -24,3 +24,4 @@
 202108202200|PetitMinou|Leuchtturm Petit Minou in der Nähe von Brest, Département Finistère, Frankreich (© Mathieu Rivrin/Getty Images)|Botschafter der Ätherwellen|![](/de-DE/2021/08/202108202200PetitMinou.jpg)|
 202108212200|OlympicCoast|Die Küstenlinie des Olympic Coast National Marine Sanctuary, Bundesstaat Washington, USA (© Chris Moore/Tandem Stills + Motion)|Eine wilde, schroffe Ecke der USA|![](/de-DE/2021/08/202108212200OlympicCoast.jpg)|
 202108222200|LittleBlueHeron|Ein Blaureiher auf Kuba (© Sergey Uryadnikov/Alamy)|Bei der Nahrungssuche ist Geduld gefragt|![](/de-DE/2021/08/202108222200LittleBlueHeron.jpg)|
+202108232200|CadolzburgMittelfranken|Cadolzburg, Mittelfranken, Bayern (© Rüdiger Hess/geo-select Fotoart)|Zeitreise ins Mittelalter|![](/de-DE/2021/08/202108232200CadolzburgMittelfranken.jpg)|

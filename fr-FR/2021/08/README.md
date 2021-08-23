@@ -23,3 +23,4 @@
 202108202200|PetitMinou|Fort du Petit Minou près de Brest, Finistère, France (© Mathieu Rivrin/Getty Images)|Lumière dans la nuit|![](/fr-FR/2021/08/202108202200PetitMinou.jpg)|
 202108212200|OlympicCoast|La côte du Sanctuaire marin de la côte Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)|Sanctuaire de la vie marine|![](/fr-FR/2021/08/202108212200OlympicCoast.jpg)|
 202108222200|LittleBlueHeron|Aigrette bleue à Cuba (© Sergey Uryadnikov/Alamy)|La force du nombre|![](/fr-FR/2021/08/202108222200LittleBlueHeron.jpg)|
+202108232200|HippieTown|Vieilles planches de surfs formant une clôture près de Paia, Maui, Hawaï (© Matt Anderson Photography/Getty Images)|Rien ne se perd…|![](/fr-FR/2021/08/202108232200HippieTown.jpg)|
