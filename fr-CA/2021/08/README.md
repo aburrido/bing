@@ -22,3 +22,4 @@
 202108200400|EmptyQuarter|Le désert Rub al Khali à cheval entre Oman et Dubaï (© Daniel Schoenen/Offset by Shutterstock)||![](/fr-CA/2021/08/202108200400EmptyQuarter.jpg)|
 202108210400|PetitMinou|Le phare du Petit Minou dans la rade de Brest, Finistère, France (© Mathieu Rivrin/Getty Images)||![](/fr-CA/2021/08/202108210400PetitMinou.jpg)|
 202108220400|TombstoneYukon|Le départ du sentier Goldensides dans le parc territorial Tombstone, Yukon (© Ron Erwin/All Canada Photos/Alamy Stock Photo)||![](/fr-CA/2021/08/202108220400TombstoneYukon.jpg)|
+202108230400|ScenicStanley|Vue panoramique depuis le parc Stanley surplombant le centre-ville de Vancouver (© Basic Elements Photography/Getty Images)||![](/fr-CA/2021/08/202108230400ScenicStanley.jpg)|
