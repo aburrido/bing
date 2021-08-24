@@ -24,3 +24,4 @@
 202108210700|PetitMinou|Petit Minou Lighthouse in the roadstead of Brest, Finistère, France (© Mathieu Rivrin/Getty Images)|Ambassadors of the airwaves|![](/en-US/2021/08/202108210700PetitMinou.jpg)|
 202108220700|OlympicCoast|The shoreline of Olympic Coast National Marine Sanctuary, Washington state (© Chris Moore/Tandem Stills + Motion)|A wild, craggy corner of the United States|![](/en-US/2021/08/202108220700OlympicCoast.jpg)|
 202108230700|LittleBlueHeron|Little blue heron in Cuba (© Sergey Uryadnikov/Alamy)|A little blue|![](/en-US/2021/08/202108230700LittleBlueHeron.jpg)|
+202108240700|HippieTown|Old surfboards lined up as a fence near Paia, Maui, Hawaii (© Matt Anderson Photography/Getty Images)|Surf's always up in Paia|![](/en-US/2021/08/202108240700HippieTown.jpg)|

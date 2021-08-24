@@ -24,3 +24,4 @@
 202108210700|AmboliFalls|Waterfall in Amboli, Maharashtra, India (© ePhotocorp/iStock/Getty Images Plus)|Info|![](/en-AU/2021/08/202108210700AmboliFalls.jpg)|
 202108220700|OlympicCoast|Olympic Coast National Marine Sanctuary, Washington state, USA (© Chris Moore/Tandem Stills + Motion)|Info|![](/en-AU/2021/08/202108220700OlympicCoast.jpg)|
 202108230700|LittleBlueHeron|Little blue heron in Cuba (© Sergey Uryadnikov/Alamy)|Info|![](/en-AU/2021/08/202108230700LittleBlueHeron.jpg)|
+202108240700|HippieTown|A surfboard fence near Paia, Maui, Hawaii (© Matt Anderson Photography/Getty Images)|Info|![](/en-AU/2021/08/202108240700HippieTown.jpg)|
