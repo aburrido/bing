@@ -25,3 +25,4 @@
 202108212300|RedRoofTile|The Old Town of Dubrovnik, Croatia (© Jeremy Woodhouse/Getty Images)|Pearl of the Adriatic|![](/en-GB/2021/08/202108212300RedRoofTile.jpg)|
 202108222300|LittleBlueHeron|Little blue heron in Cuba (© Sergey Uryadnikov/Alamy)|A little blue|![](/en-GB/2021/08/202108222300LittleBlueHeron.jpg)|
 202108232300|HippieTown|Old surfboards lined up as a fence near Paia, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)|A board meeting in Maui|![](/en-GB/2021/08/202108232300HippieTown.jpg)|
+202108242300|WalhallaOverlook|Peekaboo view of Angels Window on the North Rim of the Grand Canyon, Arizona, USA (© Tim Fitzharris/Minden Pictures)|A heavenly view|![](/en-GB/2021/08/202108242300WalhallaOverlook.jpg)|
