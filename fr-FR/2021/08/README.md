@@ -24,3 +24,4 @@
 202108212200|OlympicCoast|La côte du Sanctuaire marin de la côte Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)|Sanctuaire de la vie marine|![](/fr-FR/2021/08/202108212200OlympicCoast.jpg)|
 202108222200|LittleBlueHeron|Aigrette bleue à Cuba (© Sergey Uryadnikov/Alamy)|La force du nombre|![](/fr-FR/2021/08/202108222200LittleBlueHeron.jpg)|
 202108232200|HippieTown|Vieilles planches de surfs formant une clôture près de Paia, Maui, Hawaï (© Matt Anderson Photography/Getty Images)|Rien ne se perd…|![](/fr-FR/2021/08/202108232200HippieTown.jpg)|
+202108242200|WalhallaOverlook|La Fenêtre des Anges vues depuis la rive nord du Grand Canyon, en Arizona, États-Unis (© Tim Fitzharris/Minden Pictures)|Protéger les grands espaces|![](/fr-FR/2021/08/202108242200WalhallaOverlook.jpg)|
