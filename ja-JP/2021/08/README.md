@@ -24,3 +24,4 @@
 202108211500|OlympicCoast|｢オリンピックコースト国立海洋保護区｣米国, ワシントン州 (© Chris Moore/Tandem Stills + Motion)|米国の海洋保護区|![](/ja-JP/2021/08/202108211500OlympicCoast.jpg)|
 202108221500|LittleBlueHeron|｢ヒメアカクロサギ｣キューバ (© Sergey Uryadnikov/Alamy)|青いサギの仲間|![](/ja-JP/2021/08/202108221500LittleBlueHeron.jpg)|
 202108231500|HippieTown|｢パイアのサーフボードのフェンス｣米国, ハワイ, マウイ島 (© Matt Anderson Photography/Getty Images)|パイアの名物|![](/ja-JP/2021/08/202108231500HippieTown.jpg)|
+202108241500|WalhallaOverlook|｢グランドキャニオンノースリムのエンジェルウィンドウ｣米国, アリゾナ州 (© Tim Fitzharris/Minden Pictures)|米国国立公園局創設記念日|![](/ja-JP/2021/08/202108241500WalhallaOverlook.jpg)|
