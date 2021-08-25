@@ -26,3 +26,4 @@
 202108221600|LittleBlueHeron|浅水滩上的小蓝鹭，古巴 (© Sergey Uryadnikov/Alamy)||![](/zh-CN/2021/08/202108221600LittleBlueHeron.jpg)|
 202108231600|HippieTown|排成篱笆模样的旧滑板，夏威夷毛伊岛 (© Matt Anderson Photography/Getty Images)||![](/zh-CN/2021/08/202108231600HippieTown.jpg)|
 202108241600|WalhallaOverlook|美国大峡谷北缘的天使之窗，亚利桑那州 (© Tim Fitzharris/Minden Pictures)||![](/zh-CN/2021/08/202108241600WalhallaOverlook.jpg)|
+202108251600|SeaSwallow|一只海蛞蝓正在进食银币水母，澳大利亚新南威尔士州 (© Gary Bell/Minden Pictures)||![](/zh-CN/2021/08/202108251600SeaSwallow.jpg)|
