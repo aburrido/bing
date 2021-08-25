@@ -25,3 +25,4 @@
 202108221830|ChhatrisOrchha|The chhatris of Orchha in Madhya Pradesh, India (© PEDRE/iStock/Getty Images Plus)|The magnificent chhatris of Orchha|![](/en-IN/2021/08/202108221830ChhatrisOrchha.jpg)|
 202108231830|HippieTown|Old surfboards lined up as a fence near Paia, Maui, Hawaii (© Matt Anderson Photography/Getty Images)|Surf's always up in Paia|![](/en-IN/2021/08/202108231830HippieTown.jpg)|
 202108241830|WalhallaOverlook|Peekaboo view of Angels Window on the North Rim of the Grand Canyon, Arizona (© Tim Fitzharris/Minden Pictures)|Grand Canyon National Park|![](/en-IN/2021/08/202108241830WalhallaOverlook.jpg)|
+202108251830|SeaSwallow|A sea swallow feeding on the tentacles of a blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|Who’s feeding on whom here?|![](/en-IN/2021/08/202108251830SeaSwallow.jpg)|
