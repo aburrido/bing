@@ -25,3 +25,4 @@
 202108222200|LittleBlueHeron|Aigrette bleue à Cuba (© Sergey Uryadnikov/Alamy)|La force du nombre|![](/fr-FR/2021/08/202108222200LittleBlueHeron.jpg)|
 202108232200|HippieTown|Vieilles planches de surfs formant une clôture près de Paia, Maui, Hawaï (© Matt Anderson Photography/Getty Images)|Rien ne se perd…|![](/fr-FR/2021/08/202108232200HippieTown.jpg)|
 202108242200|WalhallaOverlook|La Fenêtre des Anges vues depuis la rive nord du Grand Canyon, en Arizona, États-Unis (© Tim Fitzharris/Minden Pictures)|Protéger les grands espaces|![](/fr-FR/2021/08/202108242200WalhallaOverlook.jpg)|
+202108252200|SeaSwallow|Un dragon bleu des mers se nourrissant des tentacules d’une méduse “bouton bleu” près de Coffs Harbour, Nouvelles -Galles du Sud, Australie (© Gary Bell/Minden Pictures)|Échanges de bons procédés|![](/fr-FR/2021/08/202108252200SeaSwallow.jpg)|

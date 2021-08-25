@@ -26,3 +26,4 @@
 202108222200|LittleBlueHeron|Ein Blaureiher auf Kuba (© Sergey Uryadnikov/Alamy)|Bei der Nahrungssuche ist Geduld gefragt|![](/de-DE/2021/08/202108222200LittleBlueHeron.jpg)|
 202108232200|CadolzburgMittelfranken|Cadolzburg, Mittelfranken, Bayern (© Rüdiger Hess/geo-select Fotoart)|Zeitreise ins Mittelalter|![](/de-DE/2021/08/202108232200CadolzburgMittelfranken.jpg)|
 202108242200|WalhallaOverlook|Angels Window am Nordrand des Grand Canyon, Arizona, USA (© Tim Fitzharris/Minden Pictures)|Gratulation an den National Park Service!|![](/de-DE/2021/08/202108242200WalhallaOverlook.jpg)|
+202108252200|SeaSwallow|Eine Seeschwalbe nagt an den Tentakeln eines Blauen Knopfes in Coffs Harbour, New South Wales, Australien (© Gary Bell/Minden Pictures)|Wer knabbert hier an wem?|![](/de-DE/2021/08/202108252200SeaSwallow.jpg)|
