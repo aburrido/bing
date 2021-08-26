@@ -25,3 +25,4 @@
 202108230400|ScenicStanley|Vue panoramique depuis le parc Stanley surplombant le centre-ville de Vancouver (© Basic Elements Photography/Getty Images)||![](/fr-CA/2021/08/202108230400ScenicStanley.jpg)|
 202108240400|HippieTown|De vieilles planches de surf remplaçant une clôture près de Paia, Maui, Hawaï (© Matt Anderson Photography/Getty Images)||![](/fr-CA/2021/08/202108240400HippieTown.jpg)|
 202108250400|WalhallaOverlook|Panorama dévoilant la « fenêtre de l'ange » sur la rive nord du Grand Canyon, Arizona (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/08/202108250400WalhallaOverlook.jpg)|
+202108260400|SeaSwallow|Un glaucus atlanticus se nourrit des tentacules d'une porpite à Coffs Harbour, Nouvelle-Galles du Sud, Australie (© Gary Bell/Minden Pictures)||![](/fr-CA/2021/08/202108260400SeaSwallow.jpg)|

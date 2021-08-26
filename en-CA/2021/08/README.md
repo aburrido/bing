@@ -26,3 +26,4 @@
 202108230400|LittleBlueHeron|Little blue heron in Cuba (© Sergey Uryadnikov/Alamy)|A little blue|![](/en-CA/2021/08/202108230400LittleBlueHeron.jpg)|
 202108240400|HippieTown|Old surfboards lined up as a fence near Paia, Maui, Hawaii (© Matt Anderson Photography/Getty Images)|Surf's always up in Paia|![](/en-CA/2021/08/202108240400HippieTown.jpg)|
 202108250400|ScenicStanley|Scenic shot from Stanley Park overlooking the downtown core, Vancouver (© Basic Elements Photography/Getty Images)|Vancouver’s first park|![](/en-CA/2021/08/202108250400ScenicStanley.jpg)|
+202108260400|SeaSwallow|A sea swallow feeding on the tentacles of a blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|Who’s feeding on whom here?|![](/en-CA/2021/08/202108260400SeaSwallow.jpg)|
