@@ -26,3 +26,4 @@
 202108230700|LittleBlueHeron|Little blue heron in Cuba (© Sergey Uryadnikov/Alamy)|A little blue|![](/en-US/2021/08/202108230700LittleBlueHeron.jpg)|
 202108240700|HippieTown|Old surfboards lined up as a fence near Paia, Maui, Hawaii (© Matt Anderson Photography/Getty Images)|Surf's always up in Paia|![](/en-US/2021/08/202108240700HippieTown.jpg)|
 202108250700|WalhallaOverlook|Peekaboo view of Angels Window on the North Rim of the Grand Canyon, Arizona (© Tim Fitzharris/Minden Pictures)|Happy anniversary to the National Park Service!|![](/en-US/2021/08/202108250700WalhallaOverlook.jpg)|
+202108260700|SeaSwallow|A sea swallow feeding on the tentacles of a blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|What are these creatures?|![](/en-US/2021/08/202108260700SeaSwallow.jpg)|
