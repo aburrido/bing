@@ -27,3 +27,4 @@
 202108232300|HippieTown|Old surfboards lined up as a fence near Paia, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)|A board meeting in Maui|![](/en-GB/2021/08/202108232300HippieTown.jpg)|
 202108242300|WalhallaOverlook|Peekaboo view of Angels Window on the North Rim of the Grand Canyon, Arizona, USA (© Tim Fitzharris/Minden Pictures)|A heavenly view|![](/en-GB/2021/08/202108242300WalhallaOverlook.jpg)|
 202108252300|TheBroads|The Broads National Park at Thurne, Norfolk (© Steven Docwra/Getty Images)|Broad horizons|![](/en-GB/2021/08/202108252300TheBroads.jpg)|
+202108262300|WeymouthHarbour|Colourful cottages, fishing boats and yachts around the harbour in Weymouth, Dorset (© fotoVoyager/Getty Images)|Centuries of seaside charm|![](/en-GB/2021/08/202108262300WeymouthHarbour.jpg)|
