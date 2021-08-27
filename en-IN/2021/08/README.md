@@ -27,3 +27,4 @@
 202108241830|WalhallaOverlook|Peekaboo view of Angels Window on the North Rim of the Grand Canyon, Arizona (© Tim Fitzharris/Minden Pictures)|Grand Canyon National Park|![](/en-IN/2021/08/202108241830WalhallaOverlook.jpg)|
 202108251830|SeaSwallow|A sea swallow feeding on the tentacles of a blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|Who’s feeding on whom here?|![](/en-IN/2021/08/202108251830SeaSwallow.jpg)|
 202108261830|FlintstoneHouse|Casa do Penedo (House of the Rock) in Portugal (© Olimpio Fantuz/eStock Photo)|Yabba-Dabba-Doo!|![](/en-IN/2021/08/202108261830FlintstoneHouse.jpg)|
+202108271830|Mpumalanga|Red-billed oxpeckers on an impala in Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Relationship status: It's complicated|![](/en-IN/2021/08/202108271830Mpumalanga.jpg)|
