@@ -27,3 +27,4 @@
 202108242200|WalhallaOverlook|La Fenêtre des Anges vues depuis la rive nord du Grand Canyon, en Arizona, États-Unis (© Tim Fitzharris/Minden Pictures)|Protéger les grands espaces|![](/fr-FR/2021/08/202108242200WalhallaOverlook.jpg)|
 202108252200|SeaSwallow|Un dragon bleu des mers se nourrissant des tentacules d’une méduse “bouton bleu” près de Coffs Harbour, Nouvelles -Galles du Sud, Australie (© Gary Bell/Minden Pictures)|Échanges de bons procédés|![](/fr-FR/2021/08/202108252200SeaSwallow.jpg)|
 202108262200|FlintstoneHouse|Casa do Penedo (Maison de pierre) au Portugal (© Olimpio Fantuz/eStock Photo)|Se fondre dans la masse|![](/fr-FR/2021/08/202108262200FlintstoneHouse.jpg)|
+202108272200|Mpumalanga|Deux piqueboeufs à bec rouge sur un impala dans le Mpumalanga, Afrique du Sud  (© Heini Wehrle/Minden Pictures)|Altruisme ou invasion ?|![](/fr-FR/2021/08/202108272200Mpumalanga.jpg)|
