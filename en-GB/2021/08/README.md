@@ -28,3 +28,4 @@
 202108242300|WalhallaOverlook|Peekaboo view of Angels Window on the North Rim of the Grand Canyon, Arizona, USA (© Tim Fitzharris/Minden Pictures)|A heavenly view|![](/en-GB/2021/08/202108242300WalhallaOverlook.jpg)|
 202108252300|TheBroads|The Broads National Park at Thurne, Norfolk (© Steven Docwra/Getty Images)|Broad horizons|![](/en-GB/2021/08/202108252300TheBroads.jpg)|
 202108262300|WeymouthHarbour|Colourful cottages, fishing boats and yachts around the harbour in Weymouth, Dorset (© fotoVoyager/Getty Images)|Centuries of seaside charm|![](/en-GB/2021/08/202108262300WeymouthHarbour.jpg)|
+202108272300|Mpumalanga|Red-billed oxpeckers on an impala in Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Relationship status: It's complicated|![](/en-GB/2021/08/202108272300Mpumalanga.jpg)|
