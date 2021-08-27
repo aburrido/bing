@@ -27,3 +27,4 @@
 202108241500|WalhallaOverlook|｢グランドキャニオンノースリムのエンジェルウィンドウ｣米国, アリゾナ州 (© Tim Fitzharris/Minden Pictures)|米国国立公園局創設記念日|![](/ja-JP/2021/08/202108241500WalhallaOverlook.jpg)|
 202108251500|SeaSwallow|｢アオミノウミウシとギンカクラゲ｣オーストラリア, ニューサウスウェールズ州 (© Gary Bell/Minden Pictures)|食物連鎖|![](/ja-JP/2021/08/202108251500SeaSwallow.jpg)|
 202108261500|FlintstoneHouse|｢カサ・ド・ペネド（石の家）｣ ポルトガル, ファフェ (© Olimpio Fantuz/eStock Photo)|石の家|![](/ja-JP/2021/08/202108261500FlintstoneHouse.jpg)|
+202108271500|Mpumalanga|｢インパラとウシツツキ｣南アフリカ, ムプマランガ州 (© Heini Wehrle/Minden Pictures)|小鳥の掃除屋さん|![](/ja-JP/2021/08/202108271500Mpumalanga.jpg)|
