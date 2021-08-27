@@ -27,3 +27,4 @@
 202108240700|HippieTown|A surfboard fence near Paia, Maui, Hawaii (© Matt Anderson Photography/Getty Images)|Info|![](/en-AU/2021/08/202108240700HippieTown.jpg)|
 202108250700|WalhallaOverlook|Angels Window on the North Rim of the Grand Canyon, Arizona, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2021/08/202108250700WalhallaOverlook.jpg)|
 202108260700|SeaSwallow|A sea swallow and blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2021/08/202108260700SeaSwallow.jpg)|
+202108270700|FlintstoneHouse|Casa do Penedo, Portugal (© Olimpio Fantuz/eStock Photo)|Info|![](/en-AU/2021/08/202108270700FlintstoneHouse.jpg)|
