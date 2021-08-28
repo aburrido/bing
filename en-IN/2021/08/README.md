@@ -28,3 +28,4 @@
 202108251830|SeaSwallow|A sea swallow feeding on the tentacles of a blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|Who’s feeding on whom here?|![](/en-IN/2021/08/202108251830SeaSwallow.jpg)|
 202108261830|FlintstoneHouse|Casa do Penedo (House of the Rock) in Portugal (© Olimpio Fantuz/eStock Photo)|Yabba-Dabba-Doo!|![](/en-IN/2021/08/202108261830FlintstoneHouse.jpg)|
 202108271830|Mpumalanga|Red-billed oxpeckers on an impala in Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Relationship status: It's complicated|![](/en-IN/2021/08/202108271830Mpumalanga.jpg)|
+202108281830|Ruskeala|Underground lake in Ruskeala Mountain Park, Karelia, Russia (© Konstantin Trubavin/Offset by Shutterstock)|Notes from an underground lake|![](/en-IN/2021/08/202108281830Ruskeala.jpg)|
