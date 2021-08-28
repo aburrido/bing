@@ -27,3 +27,4 @@
 202108250400|WalhallaOverlook|Panorama dévoilant la « fenêtre de l'ange » sur la rive nord du Grand Canyon, Arizona (© Tim Fitzharris/Minden Pictures)||![](/fr-CA/2021/08/202108250400WalhallaOverlook.jpg)|
 202108260400|SeaSwallow|Un glaucus atlanticus se nourrit des tentacules d'une porpite à Coffs Harbour, Nouvelle-Galles du Sud, Australie (© Gary Bell/Minden Pictures)||![](/fr-CA/2021/08/202108260400SeaSwallow.jpg)|
 202108270400|FlintstoneHouse|Casa do Penedo (Maison de pierre) au Portugal (© Olimpio Fantuz/eStock Photo)||![](/fr-CA/2021/08/202108270400FlintstoneHouse.jpg)|
+202108280400|Mpumalanga|Deux piqueboeufs à bec rouge sur un impala dans le Mpumalanga, Afrique du Sud (© Heini Wehrle/Minden Pictures)||![](/fr-CA/2021/08/202108280400Mpumalanga.jpg)|

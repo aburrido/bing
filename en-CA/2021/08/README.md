@@ -28,3 +28,4 @@
 202108250400|ScenicStanley|Scenic shot from Stanley Park overlooking the downtown core, Vancouver (© Basic Elements Photography/Getty Images)|Vancouver’s first park|![](/en-CA/2021/08/202108250400ScenicStanley.jpg)|
 202108260400|SeaSwallow|A sea swallow feeding on the tentacles of a blue button in Coffs Harbour, New South Wales, Australia (© Gary Bell/Minden Pictures)|Who’s feeding on whom here?|![](/en-CA/2021/08/202108260400SeaSwallow.jpg)|
 202108270400|FlintstoneHouse|Casa do Penedo (House of the Rock) in Portugal (© Olimpio Fantuz/eStock Photo)|Yabba-Dabba-Doo!|![](/en-CA/2021/08/202108270400FlintstoneHouse.jpg)|
+202108280400|Mpumalanga|Red-billed oxpeckers on an impala in Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Relationship status: It's complicated|![](/en-CA/2021/08/202108280400Mpumalanga.jpg)|
