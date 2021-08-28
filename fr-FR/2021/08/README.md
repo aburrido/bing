@@ -28,3 +28,4 @@
 202108252200|SeaSwallow|Un dragon bleu des mers se nourrissant des tentacules d’une méduse “bouton bleu” près de Coffs Harbour, Nouvelles -Galles du Sud, Australie (© Gary Bell/Minden Pictures)|Échanges de bons procédés|![](/fr-FR/2021/08/202108252200SeaSwallow.jpg)|
 202108262200|FlintstoneHouse|Casa do Penedo (Maison de pierre) au Portugal (© Olimpio Fantuz/eStock Photo)|Se fondre dans la masse|![](/fr-FR/2021/08/202108262200FlintstoneHouse.jpg)|
 202108272200|Mpumalanga|Deux piqueboeufs à bec rouge sur un impala dans le Mpumalanga, Afrique du Sud  (© Heini Wehrle/Minden Pictures)|Altruisme ou invasion ?|![](/fr-FR/2021/08/202108272200Mpumalanga.jpg)|
+202108282200|Ruskeala|Lac dans le Ruskeala Mountain Park, Carélie, Russie (© Konstantin Trubavin/Offset by Shutterstock)|Favori de la Grande Catherine|![](/fr-FR/2021/08/202108282200Ruskeala.jpg)|

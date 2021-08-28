@@ -29,3 +29,4 @@
 202108252200|SeaSwallow|Eine Seeschwalbe nagt an den Tentakeln eines Blauen Knopfes in Coffs Harbour, New South Wales, Australien (© Gary Bell/Minden Pictures)|Wer knabbert hier an wem?|![](/de-DE/2021/08/202108252200SeaSwallow.jpg)|
 202108262200|BotanischeNachtBerlin|Lichtshow während der Botanischen Nacht im Botanischen Garten in Berlin (© Hayoung Jeon/EPA-EFE/Rex/Shutterstock)|Willkommen in Botania!|![](/de-DE/2021/08/202108262200BotanischeNachtBerlin.jpg)|
 202108272200|Ruskeala|Unterirdischer See im Bergpark Ruskeala, Karelien, Russland (© Konstantin Trubavin/Offset by Shutterstock)|Hinweis auf einen unterirdischen See|![](/de-DE/2021/08/202108272200Ruskeala.jpg)|
+202108282200|FlintstoneHouse|Casa do Penedo in der Nähe von Fafe, Portugal (© Olimpio Fantuz/eStock Photo)|Felsenfeste Behausung|![](/de-DE/2021/08/202108282200FlintstoneHouse.jpg)|
