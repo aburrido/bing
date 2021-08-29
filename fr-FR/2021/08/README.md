@@ -29,3 +29,4 @@
 202108262200|FlintstoneHouse|Casa do Penedo (Maison de pierre) au Portugal (© Olimpio Fantuz/eStock Photo)|Se fondre dans la masse|![](/fr-FR/2021/08/202108262200FlintstoneHouse.jpg)|
 202108272200|Mpumalanga|Deux piqueboeufs à bec rouge sur un impala dans le Mpumalanga, Afrique du Sud  (© Heini Wehrle/Minden Pictures)|Altruisme ou invasion ?|![](/fr-FR/2021/08/202108272200Mpumalanga.jpg)|
 202108282200|Ruskeala|Lac dans le Ruskeala Mountain Park, Carélie, Russie (© Konstantin Trubavin/Offset by Shutterstock)|Favori de la Grande Catherine|![](/fr-FR/2021/08/202108282200Ruskeala.jpg)|
+202108292200|MayonVolcano|Cratère flambant du volcan Mayon, Philippines (© Per-Andre Hoffmann/Cavan)|Le cône parfait|![](/fr-FR/2021/08/202108292200MayonVolcano.jpg)|
