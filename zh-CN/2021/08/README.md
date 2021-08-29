@@ -30,3 +30,4 @@
 202108261600|FlintstoneHouse|镶嵌在巨石之间的石屋，葡萄牙 (© Olimpio Fantuz/eStock Photo)||![](/zh-CN/2021/08/202108261600FlintstoneHouse.jpg)|
 202108271600|Mpumalanga|红嘴牛椋鸟和高角羚， 南非姆普马兰加省 (© Heini Wehrle/Minden Pictures)||![](/zh-CN/2021/08/202108271600Mpumalanga.jpg)|
 202108281600|Ruskeala|Ruskeala山地公园的地下湖， 俄罗斯卡累利阿 (© Konstantin Trubavin/Offset by Shutterstock)||![](/zh-CN/2021/08/202108281600Ruskeala.jpg)|
+202108291600|MayonVolcano|菲律宾马荣山的火山口冒烟 (© Per-Andre Hoffmann/Cavan)||![](/zh-CN/2021/08/202108291600MayonVolcano.jpg)|
