@@ -29,3 +29,4 @@
 202108261500|FlintstoneHouse|｢カサ・ド・ペネド（石の家）｣ ポルトガル, ファフェ (© Olimpio Fantuz/eStock Photo)|石の家|![](/ja-JP/2021/08/202108261500FlintstoneHouse.jpg)|
 202108271500|Mpumalanga|｢インパラとウシツツキ｣南アフリカ, ムプマランガ州 (© Heini Wehrle/Minden Pictures)|小鳥の掃除屋さん|![](/ja-JP/2021/08/202108271500Mpumalanga.jpg)|
 202108281500|Ruskeala|｢ルスケアラマウンテンパーク｣ ロシア, カレリア (© Konstantin Trubavin/Offset by Shutterstock)|大理石の採石場跡|![](/ja-JP/2021/08/202108281500Ruskeala.jpg)|
+202108291500|MayonVolcano|｢マヨン山｣フィリピン, ルソン島 (© Per-Andre Hoffmann/Cavan)|ルソンの富士山|![](/ja-JP/2021/08/202108291500MayonVolcano.jpg)|
