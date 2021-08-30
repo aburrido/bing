@@ -29,3 +29,4 @@
 202108270400|FlintstoneHouse|Casa do Penedo (Maison de pierre) au Portugal (© Olimpio Fantuz/eStock Photo)||![](/fr-CA/2021/08/202108270400FlintstoneHouse.jpg)|
 202108280400|Mpumalanga|Deux piqueboeufs à bec rouge sur un impala dans le Mpumalanga, Afrique du Sud (© Heini Wehrle/Minden Pictures)||![](/fr-CA/2021/08/202108280400Mpumalanga.jpg)|
 202108290400|Ruskeala|Lac souterrain à Ruskeala, Carélie, Russie (© Konstantin Trubavin/Offset by Shutterstock)||![](/fr-CA/2021/08/202108290400Ruskeala.jpg)|
+202108300400|MayonVolcano|Cratère flambant du volcan Mayon, Philippines (© Per-Andre Hoffmann/Cavan)||![](/fr-CA/2021/08/202108300400MayonVolcano.jpg)|

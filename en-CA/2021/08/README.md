@@ -30,3 +30,4 @@
 202108270400|FlintstoneHouse|Casa do Penedo (House of the Rock) in Portugal (© Olimpio Fantuz/eStock Photo)|Yabba-Dabba-Doo!|![](/en-CA/2021/08/202108270400FlintstoneHouse.jpg)|
 202108280400|Mpumalanga|Red-billed oxpeckers on an impala in Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Relationship status: It's complicated|![](/en-CA/2021/08/202108280400Mpumalanga.jpg)|
 202108290400|Ruskeala|Underground lake in Ruskeala Mountain Park, Karelia, Russia (© Konstantin Trubavin/Offset by Shutterstock)|Notes from an underground lake|![](/en-CA/2021/08/202108290400Ruskeala.jpg)|
+202108300400|MayonVolcano|Crater glow from Mount Mayon in the Philippines (© Per-Andre Hoffmann/Cavan)|Behold the 'perfect' cone|![](/en-CA/2021/08/202108300400MayonVolcano.jpg)|
