@@ -32,3 +32,4 @@
 202108281600|Ruskeala|Ruskeala山地公园的地下湖， 俄罗斯卡累利阿 (© Konstantin Trubavin/Offset by Shutterstock)||![](/zh-CN/2021/08/202108281600Ruskeala.jpg)|
 202108291600|MayonVolcano|菲律宾马荣山的火山口冒烟 (© Per-Andre Hoffmann/Cavan)||![](/zh-CN/2021/08/202108291600MayonVolcano.jpg)|
 202108301600|DjurdjevicaBridge|杜德维卡塔拉大桥，黑山 (© Hike The World/Shutterstock)||![](/zh-CN/2021/08/202108301600DjurdjevicaBridge.jpg)|
+202108311600|Porcini|一朵牛肝菌 (© vnosokin/Getty Images)||![](/zh-CN/2021/08/202108311600Porcini.jpg)|
