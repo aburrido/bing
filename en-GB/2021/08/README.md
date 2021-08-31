@@ -32,3 +32,4 @@
 202108282300|Ruskeala|Underground lake in Ruskeala Mountain Park, Karelia, Russia (© Konstantin Trubavin/Offset by Shutterstock)|Notes from an underground lake|![](/en-GB/2021/08/202108282300Ruskeala.jpg)|
 202108292300|MayonVolcano|Crater glow from Mount Mayon in the Philippines (© Per-Andre Hoffmann/Cavan)|Behold the 'perfect' cone|![](/en-GB/2021/08/202108292300MayonVolcano.jpg)|
 202108302300|DjurdjevicaBridge|Đurđevića Tara Bridge in Montenegro (© Hike The World/Shutterstock)|The bridge on the river Tara|![](/en-GB/2021/08/202108302300DjurdjevicaBridge.jpg)|
+202108312300|FlintstoneHouse|Casa do Penedo (House of the Rock) in Portugal (© Olimpio Fantuz/eStock Photo)|Yabba-Dabba-Doo!|![](/en-GB/2021/08/202108312300FlintstoneHouse.jpg)|
