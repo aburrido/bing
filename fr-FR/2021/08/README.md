@@ -31,3 +31,4 @@
 202108282200|Ruskeala|Lac dans le Ruskeala Mountain Park, Carélie, Russie (© Konstantin Trubavin/Offset by Shutterstock)|Favori de la Grande Catherine|![](/fr-FR/2021/08/202108282200Ruskeala.jpg)|
 202108292200|MayonVolcano|Cratère flambant du volcan Mayon, Philippines (© Per-Andre Hoffmann/Cavan)|Le cône parfait|![](/fr-FR/2021/08/202108292200MayonVolcano.jpg)|
 202108302200|Stillness|Sculpture créée par l'artiste Catalan Jaume Plensa intitulée "Nomade", vieille ville d'Antibes, Alpes-Maritimes (© Norbert Scanella/Alamy Stock Photo)|Nostalgie d’un nomade|![](/fr-FR/2021/08/202108302200Stillness.jpg)|
+202108312200|Knowledge|Fresque "La bibliothèque de la cité" située dans le centre-ville de Lyon  (© Russ Bishop/Alamy Stock Photo)|La fin de la récré|![](/fr-FR/2021/08/202108312200Knowledge.jpg)|

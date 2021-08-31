@@ -32,3 +32,4 @@
 202108282200|FlintstoneHouse|Casa do Penedo in der Nähe von Fafe, Portugal (© Olimpio Fantuz/eStock Photo)|Felsenfeste Behausung|![](/de-DE/2021/08/202108282200FlintstoneHouse.jpg)|
 202108292200|MayonVolcano|Kraterglühen des Vulkans Mayon auf den Philippinen (© Per-Andre Hoffmann/Cavan)|Blick auf den „perfekten“ Kegel|![](/de-DE/2021/08/202108292200MayonVolcano.jpg)|
 202108302200|DjurdjevicaBridge|Đurđevića-Tara-Brücke, Montenegro (© Hike The World/Shutterstock)|Brücke über die Tara|![](/de-DE/2021/08/202108302200DjurdjevicaBridge.jpg)|
+202108312200|Mpumalanga|Rotschnabel-Madenhacker auf einem Impala in Mpumalanga, Südafrika (© Heini Wehrle/Minden Pictures)|Beziehungsstatus: Es ist kompliziert|![](/de-DE/2021/08/202108312200Mpumalanga.jpg)|
