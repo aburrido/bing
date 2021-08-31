@@ -31,3 +31,4 @@
 202108281830|Ruskeala|Underground lake in Ruskeala Mountain Park, Karelia, Russia (© Konstantin Trubavin/Offset by Shutterstock)|Notes from an underground lake|![](/en-IN/2021/08/202108281830Ruskeala.jpg)|
 202108291830|SriKrishnaTemple|Ancient architecture of Sri Krishna Temple ruins in Hampi, India (© Images of India/Alamy Stock Photo)|Celebrating the birth of Lord Krishna|![](/en-IN/2021/08/202108291830SriKrishnaTemple.jpg)|
 202108301830|DjurdjevicaBridge|Đurđevića Tara Bridge in Montenegro (© Hike The World/Shutterstock)|The bridge on the river Tara|![](/en-IN/2021/08/202108301830DjurdjevicaBridge.jpg)|
+202108311830|Porcini|A porcini mushroom (© vnosokin/Getty Images)|Let's talk about mushroom!|![](/en-IN/2021/08/202108311830Porcini.jpg)|
