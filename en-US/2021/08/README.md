@@ -31,3 +31,4 @@
 202108280700|Mpumalanga|Red-billed oxpeckers on an impala in Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Relationship status: It's complicated|![](/en-US/2021/08/202108280700Mpumalanga.jpg)|
 202108290700|Ruskeala|Underground lake in Ruskeala Mountain Park, Karelia, Russia (© Konstantin Trubavin/Offset by Shutterstock)|Notes from an underground lake|![](/en-US/2021/08/202108290700Ruskeala.jpg)|
 202108300700|MayonVolcano|Crater glow from Mount Mayon in the Philippines (© Per-Andre Hoffmann/Cavan)|Behold the 'perfect' cone|![](/en-US/2021/08/202108300700MayonVolcano.jpg)|
+202108310700|DjurdjevicaBridge|Đurđevića Tara Bridge in Montenegro (© Hike The World/Shutterstock)|Bridge over the River Tara|![](/en-US/2021/08/202108310700DjurdjevicaBridge.jpg)|

@@ -31,3 +31,4 @@
 202108280700|Mpumalanga|Red-billed oxpeckers on an impala, Mpumalanga, South Africa (© Heini Wehrle/Minden Pictures)|Info|![](/en-AU/2021/08/202108280700Mpumalanga.jpg)|
 202108290700|Ruskeala|Ruskeala Mountain Park, Karelia, Russia (© Konstantin Trubavin/Offset by Shutterstock)|Info|![](/en-AU/2021/08/202108290700Ruskeala.jpg)|
 202108300700|MayonVolcano|Mount Mayon, Philippines (© Per-Andre Hoffmann/Cavan)|Info|![](/en-AU/2021/08/202108300700MayonVolcano.jpg)|
+202108310700|DjurdjevicaBridge|Đurđevića Tara Bridge, Montenegro (© Hike The World/Shutterstock)|Info|![](/en-AU/2021/08/202108310700DjurdjevicaBridge.jpg)|
