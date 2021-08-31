@@ -31,3 +31,4 @@
 202108281500|Ruskeala|｢ルスケアラマウンテンパーク｣ ロシア, カレリア (© Konstantin Trubavin/Offset by Shutterstock)|大理石の採石場跡|![](/ja-JP/2021/08/202108281500Ruskeala.jpg)|
 202108291500|MayonVolcano|｢マヨン山｣フィリピン, ルソン島 (© Per-Andre Hoffmann/Cavan)|ルソンの富士山|![](/ja-JP/2021/08/202108291500MayonVolcano.jpg)|
 202108301500|DjurdjevicaBridge|｢タラ渓谷の橋｣モンテネグロ (© Hike The World/Shutterstock)|欧州のグランドキャニオン|![](/ja-JP/2021/08/202108301500DjurdjevicaBridge.jpg)|
+202108311500|Porcini|｢ポルチーニ茸｣ (© vnosokin/Getty Images)|今日からきのこ月間|![](/ja-JP/2021/08/202108311500Porcini.jpg)|
