@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202108311500|Porcini|｢ポルチーニ茸｣ (© vnosokin/Getty Images)|今日からきのこ月間|![](/ja-JP/2021/09/202108311500Porcini.jpg)|
 202109011500|PortoFlavia|｢ポルトフラビア｣イタリア, サルデーニャ島 (© Visualframing/Adobe Stock)|元鉱山のハイテク港|![](/ja-JP/2021/09/202109011500PortoFlavia.jpg)|
+202109021500|AlienEggs|｢ビスタイ／デナジンウィルダネスのエイリアンの孵化場｣米国, ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)|今日は原生地域法の日|![](/ja-JP/2021/09/202109021500AlienEggs.jpg)|
