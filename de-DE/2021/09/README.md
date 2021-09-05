@@ -5,3 +5,4 @@
 202109022200|AlienEggs|Die „Alien Egg Hatchery“ in der Bisti/De-Na-Zin Wilderness, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Willkommen in der Alien-Brutstätte!|![](/de-DE/2021/09/202109022200AlienEggs.jpg)|
 202109032200|AnnasHummingbird|Annakolibri (© Dee/Getty Images)|Glitzerndes Gefieder|![](/de-DE/2021/09/202109032200AnnasHummingbird.jpg)|
 202109042200|GCVenice|Die Regata Storica am Canale Grande in Venedig, Italien (© Alexander Duffner/Alamy)|Die große Regatta von Venedig|![](/de-DE/2021/09/202109042200GCVenice.jpg)|
+202109052200|SegelbooteBodensee|Luftaufnahme von Segelbooten, Friedrichshafen, Bodensee, Baden-Württemberg (© Westend61/Getty Images)|Segeln, wohin der Wind weht!|![](/de-DE/2021/09/202109052200SegelbooteBodensee.jpg)|
