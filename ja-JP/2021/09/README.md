@@ -6,3 +6,4 @@
 202109031500|AnnasHummingbird|｢アンナハチドリ｣ (© Dee/Getty Images)|今日はハチドリの日|![](/ja-JP/2021/09/202109031500AnnasHummingbird.jpg)|
 202109041500|GCVenice|｢ヴェネツィア大運河のレガッタ・ストーリカ｣イタリア (© Alexander Duffner/Alamy)|レガッタ・ストーリカの日|![](/ja-JP/2021/09/202109041500GCVenice.jpg)|
 202109051500|HowgillFells|｢ヨークシャーデールズ国立公園のハウギルフェルズ｣イギリス (© davidnmoorhouse/iStock/Getty Images Plus)|古代の丘|![](/ja-JP/2021/09/202109051500HowgillFells.jpg)|
+202109061500|MassachusettsHumpbacks|｢マサチューセッツ州沖のザトウクジラ｣米国 (© Eric Kulin/plainpicture)|唄うクジラ|![](/ja-JP/2021/09/202109061500MassachusettsHumpbacks.jpg)|
