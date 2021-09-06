@@ -6,3 +6,4 @@
 202109032200|AnnasHummingbird|Colibri d’Anna (© Dee/Getty Images)|Le colibri d’Anna|![](/fr-FR/2021/09/202109032200AnnasHummingbird.jpg)|
 202109042200|GCVenice|Régate historique sur le Grand Canal de Venise, Italie (© Alexander Duffner/Alamy)|Régate vénitienne|![](/fr-FR/2021/09/202109042200GCVenice.jpg)|
 202109052200|DjurdjevicaBridge|Le pont de Đurđevića Tara au Montenegro (© Hike The World/Shutterstock)|Une sacrée histoire de pont|![](/fr-FR/2021/09/202109052200DjurdjevicaBridge.jpg)|
+202109062200|MassachusettsHumpbacks|Baleines à bosse au large de la côte du Massachusetts, États-Unis (© Eric Kulin/plainpicture)|Festin pour baleines|![](/fr-FR/2021/09/202109062200MassachusettsHumpbacks.jpg)|
