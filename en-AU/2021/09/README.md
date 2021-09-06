@@ -6,3 +6,4 @@
 202109030700|AlienEggs|Bisti/De-Na-Zin Wilderness, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2021/09/202109030700AlienEggs.jpg)|
 202109040700|AnnasHummingbird|Anna's hummingbird (© Dee/Getty Images)|Info|![](/en-AU/2021/09/202109040700AnnasHummingbird.jpg)|
 202109050700|GCVenice|Grand Canal, Venice, Italy (© Alexander Duffner/Alamy)|Info|![](/en-AU/2021/09/202109050700GCVenice.jpg)|
+202109060700|HowgillFells|Howgill Fells, Yorkshire Dales National Park, England (© davidnmoorhouse/iStock/Getty Images Plus)|Info|![](/en-AU/2021/09/202109060700HowgillFells.jpg)|
