@@ -7,3 +7,4 @@
 202109041600|GCVenice|在大运河上举办的赛船节， 意大利威尼斯 (© Alexander Duffner/Alamy)||![](/zh-CN/2021/09/202109041600GCVenice.jpg)|
 202109051600|HowgillFells|约克郡谷地国家公园里的山丘，英格兰 (© davidnmoorhouse/iStock/Getty Images Plus)||![](/zh-CN/2021/09/202109051600HowgillFells.jpg)|
 202109061600|MassachusettsHumpbacks|出现在马萨诸塞州海岸附近的座头鲸 (© Eric Kulin/plainpicture)||![](/zh-CN/2021/09/202109061600MassachusettsHumpbacks.jpg)|
+202109071600|Riou|从昂沃峡湾眺望里欧岛，法国马赛 (© Jason Langley/AWL Images/Offset by Shutterstock)||![](/zh-CN/2021/09/202109071600Riou.jpg)|
