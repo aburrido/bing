@@ -7,3 +7,4 @@
 202109041830|GCVenice|The Regata Storica on the Grand Canal in Venice, Italy (© Alexander Duffner/Alamy)|Venice’s grand regatta|![](/en-IN/2021/09/202109041830GCVenice.jpg)|
 202109051830|HowgillFells|Howgill Fells in the Yorkshire Dales National Park, England (© davidnmoorhouse/iStock/Getty Images Plus)|Between the Lakes and the Dales|![](/en-IN/2021/09/202109051830HowgillFells.jpg)|
 202109061830|MassachusettsHumpbacks|Humpback whales off the coast of Massachusetts (© Eric Kulin/plainpicture)|Whale hello there!|![](/en-IN/2021/09/202109061830MassachusettsHumpbacks.jpg)|
+202109071830|LivrariaLello|Livraria Lello in Porto, Portugal (© Nido Huebl/Shutterstock)|Enter the magical world of Livraria Lello|![](/en-IN/2021/09/202109071830LivrariaLello.jpg)|
