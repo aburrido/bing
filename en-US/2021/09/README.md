@@ -7,3 +7,4 @@
 202109040700|AnnasHummingbird|Anna's hummingbird (© Dee/Getty Images)|Humming along|![](/en-US/2021/09/202109040700AnnasHummingbird.jpg)|
 202109050700|GCVenice|The Regata Storica on the Grand Canal in Venice, Italy (© Alexander Duffner/Alamy)|Venice's grand regatta|![](/en-US/2021/09/202109050700GCVenice.jpg)|
 202109060700|MRInspection|Park service employees inspecting Mount Rushmore National Memorial, South Dakota (© Universal Images Group via Getty Images)|All in a day's work|![](/en-US/2021/09/202109060700MRInspection.jpg)|
+202109070700|MassachusettsHumpbacks|Humpback whales off the coast of Massachusetts (© Eric Kulin/plainpicture)|Whale hello there!|![](/en-US/2021/09/202109070700MassachusettsHumpbacks.jpg)|
