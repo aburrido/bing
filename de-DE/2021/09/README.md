@@ -7,3 +7,4 @@
 202109042200|GCVenice|Die Regata Storica am Canale Grande in Venedig, Italien (© Alexander Duffner/Alamy)|Die große Regatta von Venedig|![](/de-DE/2021/09/202109042200GCVenice.jpg)|
 202109052200|SegelbooteBodensee|Luftaufnahme von Segelbooten, Friedrichshafen, Bodensee, Baden-Württemberg (© Westend61/Getty Images)|Segeln, wohin der Wind weht!|![](/de-DE/2021/09/202109052200SegelbooteBodensee.jpg)|
 202109062200|MassachusettsHumpbacks|Buckelwale vor der Küste von Massachusetts, USA (© Eric Kulin/plainpicture)|Hallo, ihr Wale!|![](/de-DE/2021/09/202109062200MassachusettsHumpbacks.jpg)|
+202109072200|LivrariaLello|Die Buchhandlug Livraria Lello in Porto, Portugal (© Nido Huebl/Shutterstock)|Betreten Sie diese magische Welt|![](/de-DE/2021/09/202109072200LivrariaLello.jpg)|

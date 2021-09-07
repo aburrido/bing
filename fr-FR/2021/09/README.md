@@ -7,3 +7,4 @@
 202109042200|GCVenice|Régate historique sur le Grand Canal de Venise, Italie (© Alexander Duffner/Alamy)|Régate vénitienne|![](/fr-FR/2021/09/202109042200GCVenice.jpg)|
 202109052200|DjurdjevicaBridge|Le pont de Đurđevića Tara au Montenegro (© Hike The World/Shutterstock)|Une sacrée histoire de pont|![](/fr-FR/2021/09/202109052200DjurdjevicaBridge.jpg)|
 202109062200|MassachusettsHumpbacks|Baleines à bosse au large de la côte du Massachusetts, États-Unis (© Eric Kulin/plainpicture)|Festin pour baleines|![](/fr-FR/2021/09/202109062200MassachusettsHumpbacks.jpg)|
+202109072200|LivrariaLello|Librairie Lello à Porto, Portugal (© Nido Huebl/Shutterstock)|Ensorcelante librairie|![](/fr-FR/2021/09/202109072200LivrariaLello.jpg)|
