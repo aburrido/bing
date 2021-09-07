@@ -7,3 +7,4 @@
 202109041500|GCVenice|｢ヴェネツィア大運河のレガッタ・ストーリカ｣イタリア (© Alexander Duffner/Alamy)|レガッタ・ストーリカの日|![](/ja-JP/2021/09/202109041500GCVenice.jpg)|
 202109051500|HowgillFells|｢ヨークシャーデールズ国立公園のハウギルフェルズ｣イギリス (© davidnmoorhouse/iStock/Getty Images Plus)|古代の丘|![](/ja-JP/2021/09/202109051500HowgillFells.jpg)|
 202109061500|MassachusettsHumpbacks|｢マサチューセッツ州沖のザトウクジラ｣米国 (© Eric Kulin/plainpicture)|唄うクジラ|![](/ja-JP/2021/09/202109061500MassachusettsHumpbacks.jpg)|
+202109071500|LivrariaLello|｢ポルトのレロ書店｣ポルトガル (© Nido Huebl/Shutterstock)|今日は国際識字デー|![](/ja-JP/2021/09/202109071500LivrariaLello.jpg)|
