@@ -8,3 +8,4 @@
 202109050700|GCVenice|The Regata Storica on the Grand Canal in Venice, Italy (© Alexander Duffner/Alamy)|Venice's grand regatta|![](/en-US/2021/09/202109050700GCVenice.jpg)|
 202109060700|MRInspection|Park service employees inspecting Mount Rushmore National Memorial, South Dakota (© Universal Images Group via Getty Images)|All in a day's work|![](/en-US/2021/09/202109060700MRInspection.jpg)|
 202109070700|MassachusettsHumpbacks|Humpback whales off the coast of Massachusetts (© Eric Kulin/plainpicture)|Whale hello there!|![](/en-US/2021/09/202109070700MassachusettsHumpbacks.jpg)|
+202109080700|LivrariaLello|Livraria Lello, a bookstore in Porto, Portugal (© Nido Huebl/Shutterstock)|Enter the magical world of Livraria Lello|![](/en-US/2021/09/202109080700LivrariaLello.jpg)|
