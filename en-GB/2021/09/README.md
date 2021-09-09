@@ -9,3 +9,4 @@
 202109062300|MassachusettsHumpbacks|Humpback whales off the coast of Massachusetts, USA (© Eric Kulin/plainpicture)|Whale hello there!|![](/en-GB/2021/09/202109062300MassachusettsHumpbacks.jpg)|
 202109072300|LivrariaLello|Livraria Lello in Porto, Portugal (© Nido Huebl/Shutterstock)|Enter the magical world of Livraria Lello|![](/en-GB/2021/09/202109072300LivrariaLello.jpg)|
 202109082300|SanJuanIslands|San Juan Islands, Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Islands of the Salish Sea|![](/en-GB/2021/09/202109082300SanJuanIslands.jpg)|
+202109092300|JaneAusten|River Avon in Bath, Somerset (© Robert Harding World Imagery/Offset by Shutterstock)|Celebrating all things Austen|![](/en-GB/2021/09/202109092300JaneAusten.jpg)|
