@@ -9,3 +9,4 @@
 202109062200|MassachusettsHumpbacks|Buckelwale vor der Küste von Massachusetts, USA (© Eric Kulin/plainpicture)|Hallo, ihr Wale!|![](/de-DE/2021/09/202109062200MassachusettsHumpbacks.jpg)|
 202109072200|LivrariaLello|Die Buchhandlug Livraria Lello in Porto, Portugal (© Nido Huebl/Shutterstock)|Betreten Sie diese magische Welt|![](/de-DE/2021/09/202109072200LivrariaLello.jpg)|
 202109082200|HowgillFells|Howgill Fells im Yorkshire-Dales-Nationalpark, Cumbria, England (© davidnmoorhouse/iStock/Getty Images Plus)|Zwischen den Seen und den Tälern|![](/de-DE/2021/09/202109082200HowgillFells.jpg)|
+202109092200|JaneAusten|River Avon in Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)|Ein Fest für alle Austen-Fans|![](/de-DE/2021/09/202109092200JaneAusten.jpg)|

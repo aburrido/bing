@@ -9,3 +9,4 @@
 202109062200|MassachusettsHumpbacks|Baleines à bosse au large de la côte du Massachusetts, États-Unis (© Eric Kulin/plainpicture)|Festin pour baleines|![](/fr-FR/2021/09/202109062200MassachusettsHumpbacks.jpg)|
 202109072200|LivrariaLello|Librairie Lello à Porto, Portugal (© Nido Huebl/Shutterstock)|Ensorcelante librairie|![](/fr-FR/2021/09/202109072200LivrariaLello.jpg)|
 202109082200|SanJuanIslands|Les îles San Juan, État de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Îles et Histoire|![](/fr-FR/2021/09/202109082200SanJuanIslands.jpg)|
+202109092200|JaneAusten|L’Avon traversant la ville de Bath, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)|L’inspiration de Jane Austen|![](/fr-FR/2021/09/202109092200JaneAusten.jpg)|
