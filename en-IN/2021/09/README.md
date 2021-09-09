@@ -9,3 +9,4 @@
 202109061830|MassachusettsHumpbacks|Humpback whales off the coast of Massachusetts (© Eric Kulin/plainpicture)|Whale hello there!|![](/en-IN/2021/09/202109061830MassachusettsHumpbacks.jpg)|
 202109071830|LivrariaLello|Livraria Lello in Porto, Portugal (© Nido Huebl/Shutterstock)|Enter the magical world of Livraria Lello|![](/en-IN/2021/09/202109071830LivrariaLello.jpg)|
 202109081830|SanJuanIslands|San Juan Islands, Washington (© Stephen Matera/Tandem Stills + Motion)|Islands of the Salish Sea|![](/en-IN/2021/09/202109081830SanJuanIslands.jpg)|
+202109091830|GaneshaStatue|Panchamukhi Ganesh statue (© Tomexx/iStock/Getty Images Plus)|Celebrating Ganesh Chaturthi|![](/en-IN/2021/09/202109091830GaneshaStatue.jpg)|
