@@ -10,3 +10,4 @@
 202109071500|LivrariaLello|｢ポルトのレロ書店｣ポルトガル (© Nido Huebl/Shutterstock)|今日は国際識字デー|![](/ja-JP/2021/09/202109071500LivrariaLello.jpg)|
 202109081500|Chrysanthemium|｢菊の花｣東京都, 調布市 (© Juan-Carlos Munoz/Minden Pictures)|今日は重陽の節句|![](/ja-JP/2021/09/202109081500Chrysanthemium.jpg)|
 202109091500|JaneAusten|｢エイボン川｣イギリス, バース (© Robert Harding World Imagery/Offset by Shutterstock)|ジェーン・オースティン祭|![](/ja-JP/2021/09/202109091500JaneAusten.jpg)|
+202109101500|HainichBaumwipfelpfad|｢ハイニッヒ国立公園の遊歩道｣ドイツ, テューリンゲン州 (© mauritius images GmbH/Alamy)|古代のブナ林|![](/ja-JP/2021/09/202109101500HainichBaumwipfelpfad.jpg)|
