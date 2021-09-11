@@ -10,3 +10,4 @@
 202109080400|BatterySlopes|Signal Hill surplombant Saint-Jean de Terre-Neuve (© Terrance Klassen/Alamy Stock Photo)||![](/fr-CA/2021/09/202109080400BatterySlopes.jpg)|
 202109090400|SanJuanIslands|Les îles San Juan, État de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)||![](/fr-CA/2021/09/202109090400SanJuanIslands.jpg)|
 202109100400|JaneAusten|La rivière Avon à Bath, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2021/09/202109100400JaneAusten.jpg)|
+202109110400|TorontoView|Vue sur la skyline de Toronto depuis les Îles de Toronto (© AWL Images/DanitaDelimont.com)||![](/fr-CA/2021/09/202109110400TorontoView.jpg)|
