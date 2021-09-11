@@ -11,3 +11,4 @@
 202109080700|LivrariaLello|Livraria Lello, a bookstore in Porto, Portugal (© Nido Huebl/Shutterstock)|Enter the magical world of Livraria Lello|![](/en-US/2021/09/202109080700LivrariaLello.jpg)|
 202109090700|SanJuanIslands|San Juan Islands, Washington (© Stephen Matera/Tandem Stills + Motion)|Islands of the Salish Sea|![](/en-US/2021/09/202109090700SanJuanIslands.jpg)|
 202109100700|JaneAusten|River Avon in Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)|Celebrating all things Austen|![](/en-US/2021/09/202109100700JaneAusten.jpg)|
+202109110700|TwistedSteel|US flag on part of a 9/11 memorial overlooking the New York skyline from Exchange Place, Jersey City, New Jersey (© Gary Hershorn/Getty Images)|20 years later|![](/en-US/2021/09/202109110700TwistedSteel.jpg)|

@@ -11,3 +11,4 @@
 202109080700|Riou|Riou island, Calanques National Park, France (© Jason Langley/AWL Images/Offset by Shutterstock)|Info|![](/en-AU/2021/09/202109080700Riou.jpg)|
 202109090700|SanJuanIslands|San Juan Islands, Washington state, USA (© Stephen Matera/Tandem Stills + Motion)|Info|![](/en-AU/2021/09/202109090700SanJuanIslands.jpg)|
 202109100700|JaneAusten|River Avon, Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/09/202109100700JaneAusten.jpg)|
+202109110700|HainichBaumwipfelpfad|Hainich National Park, Thuringia, Germany (© mauritius images GmbH/Alamy)|Info|![](/en-AU/2021/09/202109110700HainichBaumwipfelpfad.jpg)|
