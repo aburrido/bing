@@ -11,3 +11,4 @@
 202109082200|SanJuanIslands|Les îles San Juan, État de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Îles et Histoire|![](/fr-FR/2021/09/202109082200SanJuanIslands.jpg)|
 202109092200|JaneAusten|L’Avon traversant la ville de Bath, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)|L’inspiration de Jane Austen|![](/fr-FR/2021/09/202109092200JaneAusten.jpg)|
 202109102200|HainichBaumwipfelpfad|Sentier perché dans le parc national de Hainich, Thuringe, Allemagne (© mauritius images GmbH/Alamy Stock Photo)|Balade à la cime des arbres|![](/fr-FR/2021/09/202109102200HainichBaumwipfelpfad.jpg)|
+202109112200|AsianElephants|Éléphants d’Asie dans le Bengale-Occidental, Inde (© Avijan Saha/Minden Pictures)|Ancêtres vivants|![](/fr-FR/2021/09/202109112200AsianElephants.jpg)|

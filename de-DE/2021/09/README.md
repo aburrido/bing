@@ -11,3 +11,4 @@
 202109082200|HowgillFells|Howgill Fells im Yorkshire-Dales-Nationalpark, Cumbria, England (© davidnmoorhouse/iStock/Getty Images Plus)|Zwischen den Seen und den Tälern|![](/de-DE/2021/09/202109082200HowgillFells.jpg)|
 202109092200|JaneAusten|River Avon in Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)|Ein Fest für alle Austen-Fans|![](/de-DE/2021/09/202109092200JaneAusten.jpg)|
 202109102200|AsianElephants|Asiatische Elefanten in Westbengalen, Indien (© Avijan Saha/Minden Pictures)|Nachmittagsspaziergang|![](/de-DE/2021/09/202109102200AsianElephants.jpg)|
+202109112200|VeniceBeach|Luftaufnahme des Venice-Skateparks in Venice Beach, Los Angeles, Kalifornien, USA (© Ingus Kruklitis/Getty Images)|Sand, Sonne und Skater|![](/de-DE/2021/09/202109112200VeniceBeach.jpg)|
