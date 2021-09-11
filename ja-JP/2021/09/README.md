@@ -11,3 +11,4 @@
 202109081500|Chrysanthemium|｢菊の花｣東京都, 調布市 (© Juan-Carlos Munoz/Minden Pictures)|今日は重陽の節句|![](/ja-JP/2021/09/202109081500Chrysanthemium.jpg)|
 202109091500|JaneAusten|｢エイボン川｣イギリス, バース (© Robert Harding World Imagery/Offset by Shutterstock)|ジェーン・オースティン祭|![](/ja-JP/2021/09/202109091500JaneAusten.jpg)|
 202109101500|HainichBaumwipfelpfad|｢ハイニッヒ国立公園の遊歩道｣ドイツ, テューリンゲン州 (© mauritius images GmbH/Alamy)|古代のブナ林|![](/ja-JP/2021/09/202109101500HainichBaumwipfelpfad.jpg)|
+202109111500|AsianElephants|｢アジアゾウ｣インド, 西ベンガル州 (© Avijan Saha/Minden Pictures)|今日は祖父母の日|![](/ja-JP/2021/09/202109111500AsianElephants.jpg)|
