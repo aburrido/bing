@@ -11,3 +11,4 @@
 202109082300|SanJuanIslands|San Juan Islands, Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Islands of the Salish Sea|![](/en-GB/2021/09/202109082300SanJuanIslands.jpg)|
 202109092300|JaneAusten|River Avon in Bath, Somerset (© Robert Harding World Imagery/Offset by Shutterstock)|Celebrating all things Austen|![](/en-GB/2021/09/202109092300JaneAusten.jpg)|
 202109102300|HainichBaumwipfelpfad|Treetop walkway in Hainich National Park, Thuringia, Germany (© mauritius images GmbH/Alamy)|Top of the trees|![](/en-GB/2021/09/202109102300HainichBaumwipfelpfad.jpg)|
+202109112300|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles, USA (© Ingus Kruklitis/Getty Images)|Sand, sun and sk8ers|![](/en-GB/2021/09/202109112300VeniceBeach.jpg)|
