@@ -11,3 +11,4 @@
 202109090400|SanJuanIslands|Les îles San Juan, État de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)||![](/fr-CA/2021/09/202109090400SanJuanIslands.jpg)|
 202109100400|JaneAusten|La rivière Avon à Bath, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)||![](/fr-CA/2021/09/202109100400JaneAusten.jpg)|
 202109110400|TorontoView|Vue sur la skyline de Toronto depuis les Îles de Toronto (© AWL Images/DanitaDelimont.com)||![](/fr-CA/2021/09/202109110400TorontoView.jpg)|
+202109120400|AsianElephants|Éléphants d'Asie dans l'État du Bengale-Occidental, Inde (© Avijan Saha/Minden Pictures)||![](/fr-CA/2021/09/202109120400AsianElephants.jpg)|

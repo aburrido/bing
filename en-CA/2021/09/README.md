@@ -11,3 +11,4 @@
 202109090400|SanJuanIslands|San Juan Islands, Washington (© Stephen Matera/Tandem Stills + Motion)|Islands of the Salish Sea|![](/en-CA/2021/09/202109090400SanJuanIslands.jpg)|
 202109100400|JaneAusten|River Avon in Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)|Celebrating all things Austen|![](/en-CA/2021/09/202109100400JaneAusten.jpg)|
 202109110400|TorontoView|The Toronto skyline viewed from the Toronto Islands (© AWL Images/DanitaDelimont.com)|Lights, camera, action!|![](/en-CA/2021/09/202109110400TorontoView.jpg)|
+202109120400|BirnbeckPier|Birnbeck Pier on the Bristol Channel in Weston-super-Mare, England (© Stephen Davies/Adobe Stock)|End of the pier?|![](/en-CA/2021/09/202109120400BirnbeckPier.jpg)|
