@@ -12,3 +12,4 @@
 202109091830|GaneshaStatue|Panchamukhi Ganesh statue (© Tomexx/iStock/Getty Images Plus)|Celebrating Ganesh Chaturthi|![](/en-IN/2021/09/202109091830GaneshaStatue.jpg)|
 202109101830|BenagilCave|Benagil Cave in the Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|Eye of the cave|![](/en-IN/2021/09/202109101830BenagilCave.jpg)|
 202109111830|AsianElephants|Asian elephants in West Bengal, India (© Avijan Saha/Minden Pictures)|Asia's neglected giant|![](/en-IN/2021/09/202109111830AsianElephants.jpg)|
+202109121830|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Sand, sun, and sk8ers|![](/en-IN/2021/09/202109121830VeniceBeach.jpg)|
