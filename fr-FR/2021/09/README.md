@@ -12,3 +12,4 @@
 202109092200|JaneAusten|L’Avon traversant la ville de Bath, Angleterre (© Robert Harding World Imagery/Offset by Shutterstock)|L’inspiration de Jane Austen|![](/fr-FR/2021/09/202109092200JaneAusten.jpg)|
 202109102200|HainichBaumwipfelpfad|Sentier perché dans le parc national de Hainich, Thuringe, Allemagne (© mauritius images GmbH/Alamy Stock Photo)|Balade à la cime des arbres|![](/fr-FR/2021/09/202109102200HainichBaumwipfelpfad.jpg)|
 202109112200|AsianElephants|Éléphants d’Asie dans le Bengale-Occidental, Inde (© Avijan Saha/Minden Pictures)|Ancêtres vivants|![](/fr-FR/2021/09/202109112200AsianElephants.jpg)|
+202109122200|VeniceBeach|Vue aérienne du skate-park de Venice,  Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Surfer quoi qu’il arrive|![](/fr-FR/2021/09/202109122200VeniceBeach.jpg)|

@@ -12,3 +12,4 @@
 202109092200|JaneAusten|River Avon in Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)|Ein Fest für alle Austen-Fans|![](/de-DE/2021/09/202109092200JaneAusten.jpg)|
 202109102200|AsianElephants|Asiatische Elefanten in Westbengalen, Indien (© Avijan Saha/Minden Pictures)|Nachmittagsspaziergang|![](/de-DE/2021/09/202109102200AsianElephants.jpg)|
 202109112200|VeniceBeach|Luftaufnahme des Venice-Skateparks in Venice Beach, Los Angeles, Kalifornien, USA (© Ingus Kruklitis/Getty Images)|Sand, Sonne und Skater|![](/de-DE/2021/09/202109112200VeniceBeach.jpg)|
+202109122200|RehWeizen|Rehbock in einem Getreidefeld zwischen den Dörfern Mehlbek und Wacken, Schleswig-Holstein (© Helge Schulz/Minden Pictures)|Versteckspiel im Feld|![](/de-DE/2021/09/202109122200RehWeizen.jpg)|
