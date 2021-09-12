@@ -12,3 +12,4 @@
 202109091600|JaneAusten|River Avon in Bath, England (© Robert Harding World Imagery/Offset by Shutterstock)||![](/zh-CN/2021/09/202109091600JaneAusten.jpg)|
 202109101600|HainichBaumwipfelpfad|Treetop walkway in Hainich National Park, Thuringia, Germany (© mauritius images GmbH/Alamy)||![](/zh-CN/2021/09/202109101600HainichBaumwipfelpfad.jpg)|
 202109111600|AsianElephants|Asian elephants in West Bengal, India (© Avijan Saha/Minden Pictures)||![](/zh-CN/2021/09/202109111600AsianElephants.jpg)|
+202109121600|VeniceBeach|威尼斯海滩滑板公园鸟瞰图，洛杉矶 (© Ingus Kruklitis/Getty Images)||![](/zh-CN/2021/09/202109121600VeniceBeach.jpg)|
