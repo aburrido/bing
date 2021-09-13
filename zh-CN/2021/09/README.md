@@ -13,3 +13,4 @@
 202109101600|HainichBaumwipfelpfad|Treetop walkway in Hainich National Park, Thuringia, Germany (© mauritius images GmbH/Alamy)||![](/zh-CN/2021/09/202109101600HainichBaumwipfelpfad.jpg)|
 202109111600|AsianElephants|Asian elephants in West Bengal, India (© Avijan Saha/Minden Pictures)||![](/zh-CN/2021/09/202109111600AsianElephants.jpg)|
 202109121600|VeniceBeach|威尼斯海滩滑板公园鸟瞰图，洛杉矶 (© Ingus Kruklitis/Getty Images)||![](/zh-CN/2021/09/202109121600VeniceBeach.jpg)|
+202109131600|Aldeyjarfoss|冰岛北部内陆景观中的Aldeyjarfoss瀑布 (© Jim Patterson/Tandem Stills + Motion)||![](/zh-CN/2021/09/202109131600Aldeyjarfoss.jpg)|
