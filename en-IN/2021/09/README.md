@@ -14,3 +14,4 @@
 202109111830|AsianElephants|Asian elephants in West Bengal, India (© Avijan Saha/Minden Pictures)|Asia's neglected giant|![](/en-IN/2021/09/202109111830AsianElephants.jpg)|
 202109121830|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Sand, sun, and sk8ers|![](/en-IN/2021/09/202109121830VeniceBeach.jpg)|
 202109131830|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-IN/2021/09/202109131830Aldeyjarfoss.jpg)|
+202109141830|BirnbeckPier|Birnbeck Pier on the Bristol Channel in Weston-super-Mare, England (© Stephen Davies/Adobe Stock)|End of the pier?|![](/en-IN/2021/09/202109141830BirnbeckPier.jpg)|
