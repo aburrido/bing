@@ -14,3 +14,4 @@
 202109111500|AsianElephants|｢アジアゾウ｣インド, 西ベンガル州 (© Avijan Saha/Minden Pictures)|今日は祖父母の日|![](/ja-JP/2021/09/202109111500AsianElephants.jpg)|
 202109121500|VeniceBeach|｢ベニスビーチのスケートボードパーク｣米国, ロサンゼルス (© Ingus Kruklitis/Getty Images)|ストリート文化の発信地|![](/ja-JP/2021/09/202109121500VeniceBeach.jpg)|
 202109131500|Aldeyjarfoss|｢北アイスランドのアルドエイヤルフォスの滝｣アイスランド (© Jim Patterson/Tandem Stills + Motion)|滝のアイスランド|![](/ja-JP/2021/09/202109131500Aldeyjarfoss.jpg)|
+202109141500|BirnbeckPier|｢ブリストル海峡のバーンベック桟橋｣イギリス, ウェストンスーパーメア (© Stephen Davies/Adobe Stock)|オールドピア|![](/ja-JP/2021/09/202109141500BirnbeckPier.jpg)|
