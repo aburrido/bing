@@ -13,3 +13,4 @@
 202109110400|TorontoView|The Toronto skyline viewed from the Toronto Islands (© AWL Images/DanitaDelimont.com)|Lights, camera, action!|![](/en-CA/2021/09/202109110400TorontoView.jpg)|
 202109120400|BirnbeckPier|Birnbeck Pier on the Bristol Channel in Weston-super-Mare, England (© Stephen Davies/Adobe Stock)|End of the pier?|![](/en-CA/2021/09/202109120400BirnbeckPier.jpg)|
 202109130400|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Sand, sun, and sk8ers|![](/en-CA/2021/09/202109130400VeniceBeach.jpg)|
+202109140400|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-CA/2021/09/202109140400Aldeyjarfoss.jpg)|

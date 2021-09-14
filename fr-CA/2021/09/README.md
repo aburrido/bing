@@ -13,3 +13,4 @@
 202109110400|TorontoView|Vue sur la skyline de Toronto depuis les Îles de Toronto (© AWL Images/DanitaDelimont.com)||![](/fr-CA/2021/09/202109110400TorontoView.jpg)|
 202109120400|AsianElephants|Éléphants d'Asie dans l'État du Bengale-Occidental, Inde (© Avijan Saha/Minden Pictures)||![](/fr-CA/2021/09/202109120400AsianElephants.jpg)|
 202109130400|VeniceBeach|Vue aérienne du skatepark de Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)||![](/fr-CA/2021/09/202109130400VeniceBeach.jpg)|
+202109140400|Aldeyjarfoss|Cascade d’Aldeyjarfoss dans les Hautes Terres d'Islande (© Jim Patterson/Tandem Stills + Motion)||![](/fr-CA/2021/09/202109140400Aldeyjarfoss.jpg)|
