@@ -14,3 +14,4 @@
 202109112200|VeniceBeach|Luftaufnahme des Venice-Skateparks in Venice Beach, Los Angeles, Kalifornien, USA (© Ingus Kruklitis/Getty Images)|Sand, Sonne und Skater|![](/de-DE/2021/09/202109112200VeniceBeach.jpg)|
 202109122200|RehWeizen|Rehbock in einem Getreidefeld zwischen den Dörfern Mehlbek und Wacken, Schleswig-Holstein (© Helge Schulz/Minden Pictures)|Versteckspiel im Feld|![](/de-DE/2021/09/202109122200RehWeizen.jpg)|
 202109132200|Aldeyjarfoss|Der Wasserfall Aldeyjarfoss in der nordisländischen Binnenlandschaft (© Jim Patterson/Tandem Stills + Motion)|Der mächtige Aldeyjarfoss|![](/de-DE/2021/09/202109132200Aldeyjarfoss.jpg)|
+202109142200|BirnbeckPier|Der Birnbeck Pier erstreckt sich in Weston-super-Mare in den Bristolkanal (© Stephen Davies/Adobe Stock)|Das Ende des Piers?|![](/de-DE/2021/09/202109142200BirnbeckPier.jpg)|

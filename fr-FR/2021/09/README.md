@@ -14,3 +14,4 @@
 202109112200|AsianElephants|Éléphants d’Asie dans le Bengale-Occidental, Inde (© Avijan Saha/Minden Pictures)|Ancêtres vivants|![](/fr-FR/2021/09/202109112200AsianElephants.jpg)|
 202109122200|VeniceBeach|Vue aérienne du skate-park de Venice,  Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Surfer quoi qu’il arrive|![](/fr-FR/2021/09/202109122200VeniceBeach.jpg)|
 202109132200|Aldeyjarfoss|Cascade Aldeyjarfoss au nord de l’Islande (© Jim Patterson/Tandem Stills + Motion)|Puissance nordique|![](/fr-FR/2021/09/202109132200Aldeyjarfoss.jpg)|
+202109142200|BirnbeckPier|Le Birnbeck Pier sur le canal de Bristol à Weston-super-mare, Angleterre (© Stephen Davies/Adobe Stock)|Souvenirs d’antan|![](/fr-FR/2021/09/202109142200BirnbeckPier.jpg)|
