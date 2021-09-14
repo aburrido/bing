@@ -14,3 +14,4 @@
 202109112300|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles, USA (© Ingus Kruklitis/Getty Images)|Sand, sun and sk8ers|![](/en-GB/2021/09/202109112300VeniceBeach.jpg)|
 202109122300|LindisfarneDawn|Lindisfarne Castle at dawn, Northumberland (© Karen Deakin/Getty Images)|In splendid isolation|![](/en-GB/2021/09/202109122300LindisfarneDawn.jpg)|
 202109132300|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-GB/2021/09/202109132300Aldeyjarfoss.jpg)|
+202109142300|BirnbeckPier|Birnbeck Pier stretches out into the Bristol Channel in Weston-super-Mare (© Stephen Davies/Adobe Stock)|End of the pier?|![](/en-GB/2021/09/202109142300BirnbeckPier.jpg)|
