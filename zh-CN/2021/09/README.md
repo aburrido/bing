@@ -14,3 +14,4 @@
 202109111600|AsianElephants|Asian elephants in West Bengal, India (© Avijan Saha/Minden Pictures)||![](/zh-CN/2021/09/202109111600AsianElephants.jpg)|
 202109121600|VeniceBeach|威尼斯海滩滑板公园鸟瞰图，洛杉矶 (© Ingus Kruklitis/Getty Images)||![](/zh-CN/2021/09/202109121600VeniceBeach.jpg)|
 202109131600|Aldeyjarfoss|冰岛北部内陆景观中的Aldeyjarfoss瀑布 (© Jim Patterson/Tandem Stills + Motion)||![](/zh-CN/2021/09/202109131600Aldeyjarfoss.jpg)|
+202109141600|BirnbeckPier|布里斯托尔海峡的伯恩贝克码头，英国滨海韦斯顿北索美塞得 (© Stephen Davies/Adobe Stock)||![](/zh-CN/2021/09/202109141600BirnbeckPier.jpg)|
