@@ -14,3 +14,4 @@
 202109110700|TwistedSteel|US flag on part of a 9/11 memorial overlooking the New York skyline from Exchange Place, Jersey City, New Jersey (© Gary Hershorn/Getty Images)|20 years later|![](/en-US/2021/09/202109110700TwistedSteel.jpg)|
 202109120700|AsianElephants|Asian elephants in West Bengal, India (© Avijan Saha/Minden Pictures)|A grand event|![](/en-US/2021/09/202109120700AsianElephants.jpg)|
 202109130700|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Sand, sun, and sk8ers|![](/en-US/2021/09/202109130700VeniceBeach.jpg)|
+202109140700|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-US/2021/09/202109140700Aldeyjarfoss.jpg)|

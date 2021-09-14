@@ -14,3 +14,4 @@
 202109110700|HainichBaumwipfelpfad|Hainich National Park, Thuringia, Germany (© mauritius images GmbH/Alamy)|Info|![](/en-AU/2021/09/202109110700HainichBaumwipfelpfad.jpg)|
 202109120700|TombstoneYukon|Tombstone Territorial Park, Yukon, Canada (© Ron Erwin/All Canada Photos/Alamy)|Info|![](/en-AU/2021/09/202109120700TombstoneYukon.jpg)|
 202109130700|VeniceBeach|Venice Skatepark, Venice Beach, Los Angeles, USA (© Ingus Kruklitis/Getty Images)|Info|![](/en-AU/2021/09/202109130700VeniceBeach.jpg)|
+202109140700|Aldeyjarfoss|Aldeyjarfoss waterfall, Highlands of Iceland (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2021/09/202109140700Aldeyjarfoss.jpg)|
