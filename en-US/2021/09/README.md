@@ -16,3 +16,4 @@
 202109130700|VeniceBeach|Aerial view of the Venice Skatepark in Venice Beach, Los Angeles (© Ingus Kruklitis/Getty Images)|Sand, sun, and sk8ers|![](/en-US/2021/09/202109130700VeniceBeach.jpg)|
 202109140700|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-US/2021/09/202109140700Aldeyjarfoss.jpg)|
 202109150700|Fronterizos|Artist Jesus 'CIMI' Alvarado painting his mural 'Fronterizos' on a wall of the El Paso Museum of Art, El Paso, Texas (© Paul Ratje/AFP via Getty Images)|It's National Hispanic Heritage Month|![](/en-US/2021/09/202109150700Fronterizos.jpg)|
+||||![](/en-US/2021/09/.jpg)|

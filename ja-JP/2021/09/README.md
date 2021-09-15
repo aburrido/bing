@@ -16,3 +16,4 @@
 202109131500|Aldeyjarfoss|｢北アイスランドのアルドエイヤルフォスの滝｣アイスランド (© Jim Patterson/Tandem Stills + Motion)|滝のアイスランド|![](/ja-JP/2021/09/202109131500Aldeyjarfoss.jpg)|
 202109141500|BirnbeckPier|｢ブリストル海峡のバーンベック桟橋｣イギリス, ウェストンスーパーメア (© Stephen Davies/Adobe Stock)|オールドピア|![](/ja-JP/2021/09/202109141500BirnbeckPier.jpg)|
 202109151500|PalacioArtes|｢ベジャス・アルテス宮殿｣メキシコ, メキシコシティ (© Lukas Bischoff Photograph/Shutterstock)|メキシコ独立記念日|![](/ja-JP/2021/09/202109151500PalacioArtes.jpg)|
+||||![](/ja-JP/2021/09/.jpg)|
