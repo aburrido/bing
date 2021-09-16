@@ -16,3 +16,4 @@
 202109131600|Aldeyjarfoss|冰岛北部内陆景观中的Aldeyjarfoss瀑布 (© Jim Patterson/Tandem Stills + Motion)||![](/zh-CN/2021/09/202109131600Aldeyjarfoss.jpg)|
 202109141600|BirnbeckPier|布里斯托尔海峡的伯恩贝克码头，英国滨海韦斯顿北索美塞得 (© Stephen Davies/Adobe Stock)||![](/zh-CN/2021/09/202109141600BirnbeckPier.jpg)|
 202109151600|HouseboatKerala|阿拉普扎的船屋，印度喀拉拉邦 (© Martin Harvey/The Image Bank/Getty Images)||![](/zh-CN/2021/09/202109151600HouseboatKerala.jpg)|
+202109161600|BenagilCave|贝纳吉尔洞穴，葡萄牙阿尔加维 (© Michael Malorny/Offset by Shutterstock)||![](/zh-CN/2021/09/202109161600BenagilCave.jpg)|
