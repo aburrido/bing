@@ -16,3 +16,4 @@
 202109132200|Aldeyjarfoss|Der Wasserfall Aldeyjarfoss in der nordisländischen Binnenlandschaft (© Jim Patterson/Tandem Stills + Motion)|Der mächtige Aldeyjarfoss|![](/de-DE/2021/09/202109132200Aldeyjarfoss.jpg)|
 202109142200|BirnbeckPier|Der Birnbeck Pier erstreckt sich in Weston-super-Mare in den Bristolkanal (© Stephen Davies/Adobe Stock)|Das Ende des Piers?|![](/de-DE/2021/09/202109142200BirnbeckPier.jpg)|
 202109152200|PalacioArtes|Palacio de Bellas Artes, Mexiko-Stadt, Mexiko (© Lukas Bischoff Photograph/Shutterstock)|Schrei nach Unabhängigkeit|![](/de-DE/2021/09/202109152200PalacioArtes.jpg)|
+202109162200|BenagilCave|Benagil Cave an der Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|Das Auge der Höhle|![](/de-DE/2021/09/202109162200BenagilCave.jpg)|
