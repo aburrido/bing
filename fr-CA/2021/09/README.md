@@ -16,3 +16,4 @@
 202109140400|Aldeyjarfoss|Cascade d’Aldeyjarfoss dans les Hautes Terres d'Islande (© Jim Patterson/Tandem Stills + Motion)||![](/fr-CA/2021/09/202109140400Aldeyjarfoss.jpg)|
 ||||![](/fr-CA/2021/09/.jpg)|
 202109150400|QuartierMontreal|La façade de la Maison du Festival au cœur du Quartier des Spectacles, Montréal (© Hemis/Alamy Stock Photo)||![](/fr-CA/2021/09/202109150400QuartierMontreal.jpg)|
+202109160400|HainichBaumwipfelpfad|Chemin des cimes dans le Parc national de Hainich, Thuringe, Allemagne (© mauritius images GmbH/Alamy)||![](/fr-CA/2021/09/202109160400HainichBaumwipfelpfad.jpg)|
