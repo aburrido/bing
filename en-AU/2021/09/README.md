@@ -16,3 +16,4 @@
 202109130700|VeniceBeach|Venice Skatepark, Venice Beach, Los Angeles, USA (© Ingus Kruklitis/Getty Images)|Info|![](/en-AU/2021/09/202109130700VeniceBeach.jpg)|
 202109140700|Aldeyjarfoss|Aldeyjarfoss waterfall, Highlands of Iceland (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2021/09/202109140700Aldeyjarfoss.jpg)|
 202109150700|BirnbeckPier|Birnbeck Pier, Bristol Channel, Weston-super-Mare, England (© Stephen Davies/Adobe Stock)|Info|![](/en-AU/2021/09/202109150700BirnbeckPier.jpg)|
+202109160700|HouseboatKerala|Houseboats in Alappuzha, Kerala, India (© Martin Harvey/The Image Bank/Getty Images)|Info|![](/en-AU/2021/09/202109160700HouseboatKerala.jpg)|

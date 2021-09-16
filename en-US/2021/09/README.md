@@ -17,3 +17,4 @@
 202109140700|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-US/2021/09/202109140700Aldeyjarfoss.jpg)|
 202109150700|Fronterizos|Artist Jesus 'CIMI' Alvarado painting his mural 'Fronterizos' on a wall of the El Paso Museum of Art, El Paso, Texas (© Paul Ratje/AFP via Getty Images)|It's National Hispanic Heritage Month|![](/en-US/2021/09/202109150700Fronterizos.jpg)|
 ||||![](/en-US/2021/09/.jpg)|
+202109160700|PalacioArtes|Palacio de Bellas Artes, Mexico City, Mexico (© Lukas Bischoff Photograph/Shutterstock)|A cry for independence|![](/en-US/2021/09/202109160700PalacioArtes.jpg)|
