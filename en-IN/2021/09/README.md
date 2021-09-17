@@ -17,3 +17,4 @@
 202109141830|BirnbeckPier|Birnbeck Pier on the Bristol Channel in Weston-super-Mare, England (© Stephen Davies/Adobe Stock)|End of the pier?|![](/en-IN/2021/09/202109141830BirnbeckPier.jpg)|
 202109151830|PalacioArtes|Palacio de Bellas Artes, Mexico City (© Lukas Bischoff Photograph/Shutterstock)|A cry for independence|![](/en-IN/2021/09/202109151830PalacioArtes.jpg)|
 202109161830|OrchhaMadhyaPradesh|The monuments of Orchha in Madhya Pradesh, India (© Kevin Standage/Shutterstock)|Orchha, the city of the Bundela kings|![](/en-IN/2021/09/202109161830OrchhaMadhyaPradesh.jpg)|
+202109171830|Firefox|Red panda at the Chengdu Panda Base in Sichuan province, China (© Biosphoto/Alamy)|Hanging out on a limb|![](/en-IN/2021/09/202109171830Firefox.jpg)|
