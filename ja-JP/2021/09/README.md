@@ -18,3 +18,4 @@
 202109151500|PalacioArtes|｢ベジャス・アルテス宮殿｣メキシコ, メキシコシティ (© Lukas Bischoff Photograph/Shutterstock)|メキシコ独立記念日|![](/ja-JP/2021/09/202109151500PalacioArtes.jpg)|
 ||||![](/ja-JP/2021/09/.jpg)|
 202109161500|BenagilCave|｢ベナジル海中洞窟｣ポルトガル, アルガルヴェ (© Michael Malorny/Offset by Shutterstock)|神秘の海中洞窟|![](/ja-JP/2021/09/202109161500BenagilCave.jpg)|
+202109171500|Firefox|｢成都ジャイアントパンダ繁殖研究基地のレッサーパンダ｣中国, 四川省 (© Biosphoto/Alamy)|レッサーパンダの日|![](/ja-JP/2021/09/202109171500Firefox.jpg)|
