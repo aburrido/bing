@@ -17,3 +17,4 @@
 202109142200|BirnbeckPier|Le Birnbeck Pier sur le canal de Bristol à Weston-super-mare, Angleterre (© Stephen Davies/Adobe Stock)|Souvenirs d’antan|![](/fr-FR/2021/09/202109142200BirnbeckPier.jpg)|
 202109152200|PalacioArtes|Palais des beaux-arts, Mexico, Mexique (© Lukas Bischoff Photograph/Shutterstock)|Cri d’indépendance|![](/fr-FR/2021/09/202109152200PalacioArtes.jpg)|
 202109162200|BenagilCave|Grotte Benagil sur la côte de l’Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|L’œil de la grotte|![](/fr-FR/2021/09/202109162200BenagilCave.jpg)|
+||||![](/fr-FR/2021/09/.jpg)|
