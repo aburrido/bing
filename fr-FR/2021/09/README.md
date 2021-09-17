@@ -18,3 +18,4 @@
 202109152200|PalacioArtes|Palais des beaux-arts, Mexico, Mexique (© Lukas Bischoff Photograph/Shutterstock)|Cri d’indépendance|![](/fr-FR/2021/09/202109152200PalacioArtes.jpg)|
 202109162200|BenagilCave|Grotte Benagil sur la côte de l’Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|L’œil de la grotte|![](/fr-FR/2021/09/202109162200BenagilCave.jpg)|
 ||||![](/fr-FR/2021/09/.jpg)|
+202109172200|Heritage|France, Gironde (33), Bordeaux, zone classée au Patrimoine Mondial par l'UNESCO, le Grand Théâtre (© CHICUREL Arnaud/hemis.fr)|Notre beau pays|![](/fr-FR/2021/09/202109172200Heritage.jpg)|
