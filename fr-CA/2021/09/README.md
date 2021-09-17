@@ -17,3 +17,4 @@
 ||||![](/fr-CA/2021/09/.jpg)|
 202109150400|QuartierMontreal|La façade de la Maison du Festival au cœur du Quartier des Spectacles, Montréal (© Hemis/Alamy Stock Photo)||![](/fr-CA/2021/09/202109150400QuartierMontreal.jpg)|
 202109160400|HainichBaumwipfelpfad|Chemin des cimes dans le Parc national de Hainich, Thuringe, Allemagne (© mauritius images GmbH/Alamy)||![](/fr-CA/2021/09/202109160400HainichBaumwipfelpfad.jpg)|
+202109170400|BenagilCave|La grotte de Benagil en Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)||![](/fr-CA/2021/09/202109170400BenagilCave.jpg)|

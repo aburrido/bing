@@ -16,3 +16,4 @@
 202109140400|Aldeyjarfoss|Aldeyjarfoss waterfall in northern Iceland's interior landscape (© Jim Patterson/Tandem Stills + Motion)|Behold the mighty Aldeyjarfoss|![](/en-CA/2021/09/202109140400Aldeyjarfoss.jpg)|
 202109150400|QuartierMontreal|The exterior wall of Maison du Festival in Quartier des Spectacles, Montreal (© Hemis/Alamy Stock Photo)|Festival International de Jazz de Montréal|![](/en-CA/2021/09/202109150400QuartierMontreal.jpg)|
 202109160400|PalacioArtes|Palacio de Bellas Artes, Mexico City (© Lukas Bischoff Photograph/Shutterstock)|A cry for independence|![](/en-CA/2021/09/202109160400PalacioArtes.jpg)|
+202109170400|BenagilCave|Benagil Cave in the Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|Eye of the cave|![](/en-CA/2021/09/202109170400BenagilCave.jpg)|
