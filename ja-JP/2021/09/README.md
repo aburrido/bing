@@ -19,3 +19,4 @@
 ||||![](/ja-JP/2021/09/.jpg)|
 202109161500|BenagilCave|｢ベナジル海中洞窟｣ポルトガル, アルガルヴェ (© Michael Malorny/Offset by Shutterstock)|神秘の海中洞窟|![](/ja-JP/2021/09/202109161500BenagilCave.jpg)|
 202109171500|Firefox|｢成都ジャイアントパンダ繁殖研究基地のレッサーパンダ｣中国, 四川省 (© Biosphoto/Alamy)|レッサーパンダの日|![](/ja-JP/2021/09/202109171500Firefox.jpg)|
+202109181500|LeCastella|｢カーポ・リッツートのレ・カステッラ城｣イタリア, カラブリア州 (© mRGB/Shutterstock)|世界海賊口調の日|![](/ja-JP/2021/09/202109181500LeCastella.jpg)|
