@@ -20,3 +20,4 @@
 ||||![](/zh-CN/2021/09/.jpg)|
 202109171600|Firefox|四川成都熊猫基地的小熊猫 (© Biosphoto/Alamy)||![](/zh-CN/2021/09/202109171600Firefox.jpg)|
 202109181600|LandsEndSunset|英国康沃尔郡岸边的日落 (© Andrew Turner/Getty Images)||![](/zh-CN/2021/09/202109181600LandsEndSunset.jpg)|
+202109191600|BlackSun|秋季在湿地上空迁徙的椋鸟群 (© Viking/Alamy)||![](/zh-CN/2021/09/202109191600BlackSun.jpg)|
