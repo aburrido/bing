@@ -19,3 +19,4 @@
 202109160400|HainichBaumwipfelpfad|Chemin des cimes dans le Parc national de Hainich, Thuringe, Allemagne (© mauritius images GmbH/Alamy)||![](/fr-CA/2021/09/202109160400HainichBaumwipfelpfad.jpg)|
 202109170400|BenagilCave|La grotte de Benagil en Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)||![](/fr-CA/2021/09/202109170400BenagilCave.jpg)|
 202109180400|Firefox|Un panda roux au Centre sur le Panda géant de Chengdu, Sichuan, Chine (© Biosphoto/Alamy)||![](/fr-CA/2021/09/202109180400Firefox.jpg)|
+202109190400|HouseboatKerala|Des péniches à Alappuzha, Kerala, Inde (© Martin Harvey/The Image Bank/Getty Images)||![](/fr-CA/2021/09/202109190400HouseboatKerala.jpg)|

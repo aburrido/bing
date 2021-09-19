@@ -18,3 +18,4 @@
 202109160400|PalacioArtes|Palacio de Bellas Artes, Mexico City (© Lukas Bischoff Photograph/Shutterstock)|A cry for independence|![](/en-CA/2021/09/202109160400PalacioArtes.jpg)|
 202109170400|BenagilCave|Benagil Cave in the Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|Eye of the cave|![](/en-CA/2021/09/202109170400BenagilCave.jpg)|
 202109180400|Firefox|Red panda at the Chengdu Panda Base in Sichuan province, China (© Biosphoto/Alamy)|Hanging out on a limb|![](/en-CA/2021/09/202109180400Firefox.jpg)|
+202109190400|LeCastella|Le Castella at Capo Rizzuto, Italy (© mRGB/Shutterstock)|Arrr! Can you talk like a pirate?|![](/en-CA/2021/09/202109190400LeCastella.jpg)|
