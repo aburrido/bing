@@ -20,3 +20,4 @@
 ||||![](/fr-FR/2021/09/.jpg)|
 202109172200|Heritage|France, Gironde (33), Bordeaux, zone classée au Patrimoine Mondial par l'UNESCO, le Grand Théâtre (© CHICUREL Arnaud/hemis.fr)|Notre beau pays|![](/fr-FR/2021/09/202109172200Heritage.jpg)|
 202109182200|LeCastella|Le Castella à Capo Rizzuto, Italie (© mRGB/Shutterstock)|La Journée du parler pirate|![](/fr-FR/2021/09/202109182200LeCastella.jpg)|
+202109192200|BlackSun|Étourneaux lors de la migration d’automne au-dessus de marais entre l’Allemagne et le Danemark (© Viking/Alamy)|Silence, on murmure|![](/fr-FR/2021/09/202109192200BlackSun.jpg)|

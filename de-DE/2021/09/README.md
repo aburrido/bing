@@ -19,3 +19,4 @@
 202109162200|BenagilCave|Benagil Cave an der Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|Das Auge der Höhle|![](/de-DE/2021/09/202109162200BenagilCave.jpg)|
 202109172200|Firefox|Kleiner Panda, Chengdu Panda Base, Provinz Sichuan, Volksrepublik China (© Biosphoto/Alamy)|Entspannt ins Wochenende|![](/de-DE/2021/09/202109172200Firefox.jpg)|
 202109182200|LeCastella|Le Castella nahe Capo Rizzuto, Italien (© mRGB/Shutterstock)|Arrr! Sprechen Sie wie ein Pirat?|![](/de-DE/2021/09/202109182200LeCastella.jpg)|
+202109192200|BlackSun|Stare sammeln sich zur Herbstwanderung, Marschland zwischen Dänemark und Deutschland (© Viking/Alamy)|Die „Schwarze Sonne“|![](/de-DE/2021/09/202109192200BlackSun.jpg)|
