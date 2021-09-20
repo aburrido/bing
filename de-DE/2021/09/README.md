@@ -20,3 +20,4 @@
 202109172200|Firefox|Kleiner Panda, Chengdu Panda Base, Provinz Sichuan, Volksrepublik China (© Biosphoto/Alamy)|Entspannt ins Wochenende|![](/de-DE/2021/09/202109172200Firefox.jpg)|
 202109182200|LeCastella|Le Castella nahe Capo Rizzuto, Italien (© mRGB/Shutterstock)|Arrr! Sprechen Sie wie ein Pirat?|![](/de-DE/2021/09/202109182200LeCastella.jpg)|
 202109192200|BlackSun|Stare sammeln sich zur Herbstwanderung, Marschland zwischen Dänemark und Deutschland (© Viking/Alamy)|Die „Schwarze Sonne“|![](/de-DE/2021/09/202109192200BlackSun.jpg)|
+202109202200|RisingMoon|„Rising Moon“-Laterne beim Mondfest in Hongkongs Victoria Park (© Bobby Yip/Reuters)|Ein altes Fest für einen neuen Jahresabschnitt|![](/de-DE/2021/09/202109202200RisingMoon.jpg)|
