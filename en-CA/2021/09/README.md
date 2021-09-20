@@ -19,3 +19,4 @@
 202109170400|BenagilCave|Benagil Cave in the Algarve, Portugal (© Michael Malorny/Offset by Shutterstock)|Eye of the cave|![](/en-CA/2021/09/202109170400BenagilCave.jpg)|
 202109180400|Firefox|Red panda at the Chengdu Panda Base in Sichuan province, China (© Biosphoto/Alamy)|Hanging out on a limb|![](/en-CA/2021/09/202109180400Firefox.jpg)|
 202109190400|LeCastella|Le Castella at Capo Rizzuto, Italy (© mRGB/Shutterstock)|Arrr! Can you talk like a pirate?|![](/en-CA/2021/09/202109190400LeCastella.jpg)|
+202109200400|BlackSun|Starlings during the autumn migration in the wetlands between Denmark and Germany (© Viking/Alamy)|Birds of a feather flocking together|![](/en-CA/2021/09/202109200400BlackSun.jpg)|
