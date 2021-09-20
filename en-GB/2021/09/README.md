@@ -20,3 +20,4 @@
 202109172300|Firefox|Red panda at the Chengdu Panda Base in Sichuan province, China (© Biosphoto/Alamy)|Hanging out on a limb|![](/en-GB/2021/09/202109172300Firefox.jpg)|
 202109182300|LeCastella|Le Castella at Isola di Capo Rizzuto, Italy (© mRGB/Shutterstock)|Arrr! Can you talk like a pirate?|![](/en-GB/2021/09/202109182300LeCastella.jpg)|
 202109192300|BlackSun|Starlings during the autumn migration in the wetlands between Denmark and Germany (© Viking/Alamy)|Birds of a feather|![](/en-GB/2021/09/202109192300BlackSun.jpg)|
+202109202300|RisingMoon|'Rising Moon' lantern to celebrate the Mid-Autumn Festival in Hong Kong's Victoria Park (© Bobby Yip/Reuters)|A blue moon rises|![](/en-GB/2021/09/202109202300RisingMoon.jpg)|
