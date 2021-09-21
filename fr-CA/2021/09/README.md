@@ -21,3 +21,4 @@
 202109180400|Firefox|Un panda roux au Centre sur le Panda géant de Chengdu, Sichuan, Chine (© Biosphoto/Alamy)||![](/fr-CA/2021/09/202109180400Firefox.jpg)|
 202109190400|HouseboatKerala|Des péniches à Alappuzha, Kerala, Inde (© Martin Harvey/The Image Bank/Getty Images)||![](/fr-CA/2021/09/202109190400HouseboatKerala.jpg)|
 202109200400|BlackSun|Étourneaux sansonnets survolant les marécages entre le Danemark et l'Allemagne pendant la migration d'automne (© Viking/Alamy)||![](/fr-CA/2021/09/202109200400BlackSun.jpg)|
+202109210400|Autumn|Des saules se reflétant dans le lac de Bret, Bugey, France (© Jean-Philippe Delobelle/Minden Pictures)||![](/fr-CA/2021/09/202109210400Autumn.jpg)|
