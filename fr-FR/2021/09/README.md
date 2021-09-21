@@ -22,3 +22,4 @@
 202109182200|LeCastella|Le Castella à Capo Rizzuto, Italie (© mRGB/Shutterstock)|La Journée du parler pirate|![](/fr-FR/2021/09/202109182200LeCastella.jpg)|
 202109192200|BlackSun|Étourneaux lors de la migration d’automne au-dessus de marais entre l’Allemagne et le Danemark (© Viking/Alamy)|Silence, on murmure|![](/fr-FR/2021/09/202109192200BlackSun.jpg)|
 202109202200|RisingMoon|La lanterne “Lever de Lune” dans le parc Victoria de Hong Kong pour célébrer la fête de la mi-automne, (© Bobby Yip/Reuters)|Lever de Lune|![](/fr-FR/2021/09/202109202200RisingMoon.jpg)|
+202109212200|Autumn|Saules se reflétant sur le lac de Bret dans le Bugey, région Auvergne-Rhône-Alpes (© Jean-Philippe Delobelle/Minden Pictures)|La saison la plus riche|![](/fr-FR/2021/09/202109212200Autumn.jpg)|
