@@ -22,3 +22,4 @@
 202109181600|LandsEndSunset|英国康沃尔郡岸边的日落 (© Andrew Turner/Getty Images)||![](/zh-CN/2021/09/202109181600LandsEndSunset.jpg)|
 202109191600|BlackSun|秋季在湿地上空迁徙的椋鸟群 (© Viking/Alamy)||![](/zh-CN/2021/09/202109191600BlackSun.jpg)|
 202109201600|MidAutumnFestival2021|【中秋快乐】 （ © shutterstock ）||![](/zh-CN/2021/09/202109201600MidAutumnFestival2021.jpg)|
+202109211600|BabyRhino|白犀牛宝宝和它的妈妈 (© Martin Harvey/Alamy)||![](/zh-CN/2021/09/202109211600BabyRhino.jpg)|
