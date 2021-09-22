@@ -23,3 +23,4 @@
 202109191600|BlackSun|秋季在湿地上空迁徙的椋鸟群 (© Viking/Alamy)||![](/zh-CN/2021/09/202109191600BlackSun.jpg)|
 202109201600|MidAutumnFestival2021|【中秋快乐】 （ © shutterstock ）||![](/zh-CN/2021/09/202109201600MidAutumnFestival2021.jpg)|
 202109211600|BabyRhino|白犀牛宝宝和它的妈妈 (© Martin Harvey/Alamy)||![](/zh-CN/2021/09/202109211600BabyRhino.jpg)|
+202109221600|BrilliantBlue|蔚蓝色的海王星 (© NASA/JPL)||![](/zh-CN/2021/09/202109221600BrilliantBlue.jpg)|
