@@ -22,3 +22,4 @@
 202109192300|BlackSun|Starlings during the autumn migration in the wetlands between Denmark and Germany (© Viking/Alamy)|Birds of a feather|![](/en-GB/2021/09/202109192300BlackSun.jpg)|
 202109202300|RisingMoon|'Rising Moon' lantern to celebrate the Mid-Autumn Festival in Hong Kong's Victoria Park (© Bobby Yip/Reuters)|A blue moon rises|![](/en-GB/2021/09/202109202300RisingMoon.jpg)|
 202109212300|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-GB/2021/09/202109212300BabyRhino.jpg)|
+202109222300|BrilliantBlue|Neptune (© NASA/JPL)|A distant ice giant|![](/en-GB/2021/09/202109222300BrilliantBlue.jpg)|
