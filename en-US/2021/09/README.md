@@ -23,3 +23,4 @@
 202109190700|LeCastella|Le Castella at Capo Rizzuto, Italy (© mRGB/Shutterstock)|Arrr! Can you talk like a pirate?|![](/en-US/2021/09/202109190700LeCastella.jpg)|
 202109200700|BlackSun|Starlings in the wetlands between Denmark and Germany (© Viking/Alamy)|Birds of a feather flocking together|![](/en-US/2021/09/202109200700BlackSun.jpg)|
 202109210700|RisingMoon|'Rising Moon' lantern to celebrate the Mid-Autumn Festival in Hong Kong's Victoria Park (© Bobby Yip/Reuters)|An old celebration for a new season|![](/en-US/2021/09/202109210700RisingMoon.jpg)|
+202109220700|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–iMfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-US/2021/09/202109220700BabyRhino.jpg)|

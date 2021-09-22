@@ -22,3 +22,4 @@
 202109190700|LandsEndSunset|Land's End, Cornwall, England (© Andrew Turner/Getty Images)|Info|![](/en-AU/2021/09/202109190700LandsEndSunset.jpg)|
 202109200700|BlackSun|Starlings during the autumn migration (© Viking/Alamy)|Info|![](/en-AU/2021/09/202109200700BlackSun.jpg)|
 202109210700|Autumn|Willow trees, Lake Bret, Bugey, France (© Jean-Philippe Delobelle/Minden Pictures)|Info|![](/en-AU/2021/09/202109210700Autumn.jpg)|
+202109220700|BabyRhino|Baby white rhinoceros and mother, Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|Info|![](/en-AU/2021/09/202109220700BabyRhino.jpg)|
