@@ -23,3 +23,4 @@
 202109200700|BlackSun|Starlings during the autumn migration (© Viking/Alamy)|Info|![](/en-AU/2021/09/202109200700BlackSun.jpg)|
 202109210700|Autumn|Willow trees, Lake Bret, Bugey, France (© Jean-Philippe Delobelle/Minden Pictures)|Info|![](/en-AU/2021/09/202109210700Autumn.jpg)|
 202109220700|BabyRhino|Baby white rhinoceros and mother, Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|Info|![](/en-AU/2021/09/202109220700BabyRhino.jpg)|
+202109230700|BrilliantBlue|Neptune (© NASA/JPL)|Info|![](/en-AU/2021/09/202109230700BrilliantBlue.jpg)|
