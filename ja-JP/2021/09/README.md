@@ -24,3 +24,4 @@
 202109201500|MoonKyoto|｢月｣京都府 (© Aflo/Aflo Co., Ltd./Alamy Stock Photo)|今日は中秋の名月|![](/ja-JP/2021/09/202109201500MoonKyoto.jpg)|
 202109211500|BabyRhino|｢シュシュルウェイムフォロジ動物保護区のシロサイの親子｣南アフリカ (© Martin Harvey/Alamy)|今日はサイの日|![](/ja-JP/2021/09/202109211500BabyRhino.jpg)|
 202109221500|BrilliantBlue|｢海王星｣ (© NASA/JPL)|今日は海王星発見の日|![](/ja-JP/2021/09/202109221500BrilliantBlue.jpg)|
+202109231500|CuscoCathedral|｢アルマス広場のクスコ大聖堂｣ペルー, クスコ (© sharptoyou/Shutterstock)|黄金の都の大聖堂|![](/ja-JP/2021/09/202109231500CuscoCathedral.jpg)|
