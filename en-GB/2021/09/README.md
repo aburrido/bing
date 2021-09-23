@@ -23,3 +23,4 @@
 202109202300|RisingMoon|'Rising Moon' lantern to celebrate the Mid-Autumn Festival in Hong Kong's Victoria Park (© Bobby Yip/Reuters)|A blue moon rises|![](/en-GB/2021/09/202109202300RisingMoon.jpg)|
 202109212300|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-GB/2021/09/202109212300BabyRhino.jpg)|
 202109222300|BrilliantBlue|Neptune (© NASA/JPL)|A distant ice giant|![](/en-GB/2021/09/202109222300BrilliantBlue.jpg)|
+202109232300|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-GB/2021/09/202109232300CuscoCathedral.jpg)|
