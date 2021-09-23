@@ -23,3 +23,4 @@
 202109202200|RisingMoon|„Rising Moon“-Laterne beim Mondfest in Hongkongs Victoria Park (© Bobby Yip/Reuters)|Ein altes Fest für einen neuen Jahresabschnitt|![](/de-DE/2021/09/202109202200RisingMoon.jpg)|
 202109212200|HainichBaumwipfelpfad|Baumkronenpfad im Nationalpark Hainich, Thüringen (© mauritius images GmbH/Alamy Stock Photo)|Spaziergang über den Baumwipfeln|![](/de-DE/2021/09/202109212200HainichBaumwipfelpfad.jpg)|
 202109222200|BrilliantBlue|Neptun (© NASA/JPL)|Letzter Halt vor Verlassen des Sonnensystems|![](/de-DE/2021/09/202109222200BrilliantBlue.jpg)|
+202109232200|CuscoCathedral|Kathedrale von Cusco auf der Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|Fast hundert Jahre Bauzeit|![](/de-DE/2021/09/202109232200CuscoCathedral.jpg)|

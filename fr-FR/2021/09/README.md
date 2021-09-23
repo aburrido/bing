@@ -24,3 +24,4 @@
 202109202200|RisingMoon|La lanterne “Lever de Lune” dans le parc Victoria de Hong Kong pour célébrer la fête de la mi-automne, (© Bobby Yip/Reuters)|Lever de Lune|![](/fr-FR/2021/09/202109202200RisingMoon.jpg)|
 202109212200|Autumn|Saules se reflétant sur le lac de Bret dans le Bugey, région Auvergne-Rhône-Alpes (© Jean-Philippe Delobelle/Minden Pictures)|La saison la plus riche|![](/fr-FR/2021/09/202109212200Autumn.jpg)|
 202109222200|BrilliantBlue|Neptune (© NASA/JPL)|Géant de glace|![](/fr-FR/2021/09/202109222200BrilliantBlue.jpg)|
+202109232200|CuscoCathedral|Cathédrale Notre-Dame-de-l'Assomption de Cuzco, Place d’armes, Cuzco, Pérou (© sharptoyou/Shutterstock)|Trésor des Andes|![](/fr-FR/2021/09/202109232200CuscoCathedral.jpg)|
