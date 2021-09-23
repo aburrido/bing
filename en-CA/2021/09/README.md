@@ -22,3 +22,4 @@
 202109200400|BlackSun|Starlings during the autumn migration in the wetlands between Denmark and Germany (© Viking/Alamy)|Birds of a feather flocking together|![](/en-CA/2021/09/202109200400BlackSun.jpg)|
 202109210400|RisingMoon|'Rising Moon' lantern to celebrate the Mid-Autumn Festival in Hong Kong's Victoria Park (© Bobby Yip/Reuters)|An old celebration for a new season|![](/en-CA/2021/09/202109210400RisingMoon.jpg)|
 202109220400|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-CA/2021/09/202109220400BabyRhino.jpg)|
+202109230400|BrilliantBlue|Neptune (© NASA/JPL)|Last stop before leaving the solar system|![](/en-CA/2021/09/202109230400BrilliantBlue.jpg)|

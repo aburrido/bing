@@ -23,3 +23,4 @@
 202109200400|BlackSun|Étourneaux sansonnets survolant les marécages entre le Danemark et l'Allemagne pendant la migration d'automne (© Viking/Alamy)||![](/fr-CA/2021/09/202109200400BlackSun.jpg)|
 202109210400|Autumn|Des saules se reflétant dans le lac de Bret, Bugey, France (© Jean-Philippe Delobelle/Minden Pictures)||![](/fr-CA/2021/09/202109210400Autumn.jpg)|
 202109220400|BabyRhino|Un bébé rhinocéros blanc et sa mère en Afrique du Sud (© Martin Harvey/Alamy)||![](/fr-CA/2021/09/202109220400BabyRhino.jpg)|
+202109230400|BrilliantBlue|Neptune (© NASA/JPL)||![](/fr-CA/2021/09/202109230400BrilliantBlue.jpg)|
