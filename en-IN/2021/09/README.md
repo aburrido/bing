@@ -23,3 +23,4 @@
 202109201830|RisingMoon|'Rising Moon' lantern to celebrate the Mid-Autumn Festival in Hong Kong's Victoria Park (© Bobby Yip/Reuters)|An old celebration for a new season|![](/en-IN/2021/09/202109201830RisingMoon.jpg)|
 202109211830|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-IN/2021/09/202109211830BabyRhino.jpg)|
 202109221830|BrilliantBlue|Neptune (© NASA/JPL)|Last stop before leaving the solar system|![](/en-IN/2021/09/202109221830BrilliantBlue.jpg)|
+202109231830|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-IN/2021/09/202109231830CuscoCathedral.jpg)|
