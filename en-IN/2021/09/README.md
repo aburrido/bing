@@ -24,3 +24,4 @@
 202109211830|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-IN/2021/09/202109211830BabyRhino.jpg)|
 202109221830|BrilliantBlue|Neptune (© NASA/JPL)|Last stop before leaving the solar system|![](/en-IN/2021/09/202109221830BrilliantBlue.jpg)|
 202109231830|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-IN/2021/09/202109231830CuscoCathedral.jpg)|
+202109241830|SahyadriRange|Sahyadri mountain range during the monsoon season in India (© Bhushan Patil Photography/Moment Open Collection/Getty Images)|A rare mountain range in India|![](/en-IN/2021/09/202109241830SahyadriRange.jpg)|
