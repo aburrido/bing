@@ -25,3 +25,4 @@
 202109212200|Autumn|Saules se reflétant sur le lac de Bret dans le Bugey, région Auvergne-Rhône-Alpes (© Jean-Philippe Delobelle/Minden Pictures)|La saison la plus riche|![](/fr-FR/2021/09/202109212200Autumn.jpg)|
 202109222200|BrilliantBlue|Neptune (© NASA/JPL)|Géant de glace|![](/fr-FR/2021/09/202109222200BrilliantBlue.jpg)|
 202109232200|CuscoCathedral|Cathédrale Notre-Dame-de-l'Assomption de Cuzco, Place d’armes, Cuzco, Pérou (© sharptoyou/Shutterstock)|Trésor des Andes|![](/fr-FR/2021/09/202109232200CuscoCathedral.jpg)|
+202109242200|PorkiesTrail|Sentier dans le Porcupine Mountains Wilderness State Park, Montagnes du Porc-Épic, Michigan, États-Unis (© Pat & Chuck Blackley/Alamy)|De l’automne dans l’air|![](/fr-FR/2021/09/202109242200PorkiesTrail.jpg)|
