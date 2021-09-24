@@ -24,3 +24,4 @@
 202109210700|Autumn|Willow trees, Lake Bret, Bugey, France (© Jean-Philippe Delobelle/Minden Pictures)|Info|![](/en-AU/2021/09/202109210700Autumn.jpg)|
 202109220700|BabyRhino|Baby white rhinoceros and mother, Hluhluwe–Imfolozi Park, South Africa (© Martin Harvey/Alamy)|Info|![](/en-AU/2021/09/202109220700BabyRhino.jpg)|
 202109230700|BrilliantBlue|Neptune (© NASA/JPL)|Info|![](/en-AU/2021/09/202109230700BrilliantBlue.jpg)|
+202109240700|CuscoCathedral|Cusco Cathedral, Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|Info|![](/en-AU/2021/09/202109240700CuscoCathedral.jpg)|
