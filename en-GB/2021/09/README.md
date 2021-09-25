@@ -25,3 +25,4 @@
 202109222300|BrilliantBlue|Neptune (© NASA/JPL)|A distant ice giant|![](/en-GB/2021/09/202109222300BrilliantBlue.jpg)|
 202109232300|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-GB/2021/09/202109232300CuscoCathedral.jpg)|
 202109242300|PorkiesTrail|Escarpment Trail in Porcupine Mountains Wilderness State Park, Michigan, USA (© Pat & Chuck Blackley/Alamy)|Autumn comes to the Porcupines|![](/en-GB/2021/09/202109242300PorkiesTrail.jpg)|
+202109252300|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-GB/2021/09/202109252300MackenzieRiver.jpg)|
