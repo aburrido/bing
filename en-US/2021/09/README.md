@@ -26,3 +26,4 @@
 202109220700|BabyRhino|Baby white rhinoceros and mother in Hluhluwe–iMfolozi Park, South Africa (© Martin Harvey/Alamy)|What's cuter than nuzzling rhinos?|![](/en-US/2021/09/202109220700BabyRhino.jpg)|
 202109230700|BrilliantBlue|Neptune (© NASA/JPL)|Last stop before leaving the solar system|![](/en-US/2021/09/202109230700BrilliantBlue.jpg)|
 202109240700|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-US/2021/09/202109240700CuscoCathedral.jpg)|
+202109250700|PorkiesTrail|Escarpment Trail in Porcupine Mountains Wilderness State Park, Michigan (© Pat & Chuck Blackley/Alamy)|Autumn comes to the Porcupines|![](/en-US/2021/09/202109250700PorkiesTrail.jpg)|
