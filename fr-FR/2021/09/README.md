@@ -26,3 +26,4 @@
 202109222200|BrilliantBlue|Neptune (© NASA/JPL)|Géant de glace|![](/fr-FR/2021/09/202109222200BrilliantBlue.jpg)|
 202109232200|CuscoCathedral|Cathédrale Notre-Dame-de-l'Assomption de Cuzco, Place d’armes, Cuzco, Pérou (© sharptoyou/Shutterstock)|Trésor des Andes|![](/fr-FR/2021/09/202109232200CuscoCathedral.jpg)|
 202109242200|PorkiesTrail|Sentier dans le Porcupine Mountains Wilderness State Park, Montagnes du Porc-Épic, Michigan, États-Unis (© Pat & Chuck Blackley/Alamy)|De l’automne dans l’air|![](/fr-FR/2021/09/202109242200PorkiesTrail.jpg)|
+202109252200|MackenzieRiver|Le fleuve Mackenzie s’écoulant dans la mer de Beaufort, Canada (© Norman Kuring, GSFC/NASA/USGS Landsat)|Journée mondiale des rivières et des fleuves|![](/fr-FR/2021/09/202109252200MackenzieRiver.jpg)|
