@@ -27,3 +27,4 @@
 202109231600|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)||![](/zh-CN/2021/09/202109231600CuscoCathedral.jpg)|
 202109241600|PorkiesTrail|豪猪山荒野国家公园中的小路，美国密歇根州 (© Pat & Chuck Blackley/Alamy)||![](/zh-CN/2021/09/202109241600PorkiesTrail.jpg)|
 202109251600|MackenzieRiver|注入海中的马更些河，加拿大 (© Norman Kuring, GSFC/NASA/USGS Landsat)||![](/zh-CN/2021/09/202109251600MackenzieRiver.jpg)|
+202109261600|PicoThorn|Pico Bonito国家公园里的刺蛾，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)||![](/zh-CN/2021/09/202109261600PicoThorn.jpg)|
