@@ -27,3 +27,4 @@
 202109231500|CuscoCathedral|｢アルマス広場のクスコ大聖堂｣ペルー, クスコ (© sharptoyou/Shutterstock)|黄金の都の大聖堂|![](/ja-JP/2021/09/202109231500CuscoCathedral.jpg)|
 202109241500|PorkiesTrail|｢ポーキュパイン山脈荒野州立公園のエスカープメントトレイル｣米国, ミシガン州 (© Pat & Chuck Blackley/Alamy)|今日は公有地の日|![](/ja-JP/2021/09/202109241500PorkiesTrail.jpg)|
 202109251500|MackenzieRiver|｢北極海に注ぐマッケンジー川｣カナダ (© Norman Kuring, GSFC/NASA/USGS Landsat)|今日は世界河川の日|![](/ja-JP/2021/09/202109251500MackenzieRiver.jpg)|
+202109261500|Susuki|｢曽爾高原の夕焼け｣奈良県 (© Ken1200/Shutterstock)|秋の七草の 1 つ|![](/ja-JP/2021/09/202109261500Susuki.jpg)|
