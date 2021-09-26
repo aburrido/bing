@@ -26,3 +26,4 @@
 202109232200|CuscoCathedral|Kathedrale von Cusco auf der Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|Fast hundert Jahre Bauzeit|![](/de-DE/2021/09/202109232200CuscoCathedral.jpg)|
 202109242200|PicoThorn|Dornzikade, Nationalpark Pico Bonito, Honduras (© Mac Stone/Tandem Stills + Motion)|Scharf gekleidet|![](/de-DE/2021/09/202109242200PicoThorn.jpg)|
 202109252200|MackenzieRiver|Flussdelta des Mackenzie River in der Mackenzie-Bucht der Beaufortsee, Kanada (© Norman Kuring, GSFC/NASA/USGS Landsat)|Welttag der Flüsse|![](/de-DE/2021/09/202109252200MackenzieRiver.jpg)|
+202109262200|MaximilianskircheM|Kirche St. Maximilian, München, Bayern (© Rolf Hicker/All Canada Photos/Alamy Stock Photo)|„Notre Dame an der Isar“|![](/de-DE/2021/09/202109262200MaximilianskircheM.jpg)|
