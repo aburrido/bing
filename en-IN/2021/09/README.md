@@ -26,3 +26,4 @@
 202109231830|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-IN/2021/09/202109231830CuscoCathedral.jpg)|
 202109241830|SahyadriRange|Sahyadri mountain range during the monsoon season in India (© Bhushan Patil Photography/Moment Open Collection/Getty Images)|A rare mountain range in India|![](/en-IN/2021/09/202109241830SahyadriRange.jpg)|
 202109251830|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-IN/2021/09/202109251830MackenzieRiver.jpg)|
+202109261830|PicoThorn|Thorn bug, Pico Bonito National Park, Honduras (© Mac Stone/Tandem Stills + Motion)|Sharp-dressed bug|![](/en-IN/2021/09/202109261830PicoThorn.jpg)|
