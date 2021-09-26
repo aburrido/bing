@@ -26,3 +26,4 @@
 202109230700|BrilliantBlue|Neptune (© NASA/JPL)|Info|![](/en-AU/2021/09/202109230700BrilliantBlue.jpg)|
 202109240700|CuscoCathedral|Cusco Cathedral, Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|Info|![](/en-AU/2021/09/202109240700CuscoCathedral.jpg)|
 202109250700|PorkiesTrail|Escarpment Trail, Porcupine Mountains Wilderness State Park, Michigan, USA (© Pat & Chuck Blackley/Alamy)|Info|![](/en-AU/2021/09/202109250700PorkiesTrail.jpg)|
+202109260700|MackenzieRiver|Mackenzie River, Canada, and Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|Info|![](/en-AU/2021/09/202109260700MackenzieRiver.jpg)|
