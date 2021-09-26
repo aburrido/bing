@@ -26,3 +26,4 @@
 202109230400|BrilliantBlue|Neptune (© NASA/JPL)||![](/fr-CA/2021/09/202109230400BrilliantBlue.jpg)|
 202109240400|CuscoCathedral|Cathédrale Notre-Dame-de-l'Assomption de Cuzco, Place d’armes, Cuzco, Pérou (© sharptoyou/Shutterstock)||![](/fr-CA/2021/09/202109240400CuscoCathedral.jpg)|
 202109250400|PorkiesTrail|Sentier dans le Porcupine Mountains Wilderness State Park, Montagnes du Porc-Épic, Michigan, États-Unis (© Pat & Chuck Blackley/Alamy)||![](/fr-CA/2021/09/202109250400PorkiesTrail.jpg)|
+202109260400|MackenzieRiver|Le fleuve Mackenzie s’écoulant dans la mer de Beaufort, Canada (© Norman Kuring, GSFC/NASA/USGS Landsat)||![](/fr-CA/2021/09/202109260400MackenzieRiver.jpg)|
