@@ -28,3 +28,4 @@
 202109240700|CuscoCathedral|Cusco Cathedral on the Plaza de Armas, Cusco, Peru (© sharptoyou/Shutterstock)|The crossroads of empires|![](/en-US/2021/09/202109240700CuscoCathedral.jpg)|
 202109250700|PorkiesTrail|Escarpment Trail in Porcupine Mountains Wilderness State Park, Michigan (© Pat & Chuck Blackley/Alamy)|Autumn comes to the Porcupines|![](/en-US/2021/09/202109250700PorkiesTrail.jpg)|
 202109260700|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-US/2021/09/202109260700MackenzieRiver.jpg)|
+202109270700|PicoThorn|Thorn bug, Pico Bonito National Park, Honduras (© Mac Stone/Tandem Stills + Motion)|Sharp-dressed bug|![](/en-US/2021/09/202109270700PicoThorn.jpg)|
