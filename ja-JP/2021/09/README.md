@@ -28,3 +28,4 @@
 202109241500|PorkiesTrail|｢ポーキュパイン山脈荒野州立公園のエスカープメントトレイル｣米国, ミシガン州 (© Pat & Chuck Blackley/Alamy)|今日は公有地の日|![](/ja-JP/2021/09/202109241500PorkiesTrail.jpg)|
 202109251500|MackenzieRiver|｢北極海に注ぐマッケンジー川｣カナダ (© Norman Kuring, GSFC/NASA/USGS Landsat)|今日は世界河川の日|![](/ja-JP/2021/09/202109251500MackenzieRiver.jpg)|
 202109261500|Susuki|｢曽爾高原の夕焼け｣奈良県 (© Ken1200/Shutterstock)|秋の七草の 1 つ|![](/ja-JP/2021/09/202109261500Susuki.jpg)|
+202109271500|SnowFuji|｢初冠雪した富士山｣ (© The Asahi Shimbun/Getty Images)|富士の白峰|![](/ja-JP/2021/09/202109271500SnowFuji.jpg)|
