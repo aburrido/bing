@@ -28,3 +28,4 @@
 202109242200|PorkiesTrail|Sentier dans le Porcupine Mountains Wilderness State Park, Montagnes du Porc-Épic, Michigan, États-Unis (© Pat & Chuck Blackley/Alamy)|De l’automne dans l’air|![](/fr-FR/2021/09/202109242200PorkiesTrail.jpg)|
 202109252200|MackenzieRiver|Le fleuve Mackenzie s’écoulant dans la mer de Beaufort, Canada (© Norman Kuring, GSFC/NASA/USGS Landsat)|Journée mondiale des rivières et des fleuves|![](/fr-FR/2021/09/202109252200MackenzieRiver.jpg)|
 202109262200|Galliera|Palais Galliera, Musée de la mode de la ville de Paris (© Peter Horree/Alamy Stock Photo)|La mode, la mode, la mode|![](/fr-FR/2021/09/202109262200Galliera.jpg)|
+202109272200|SnowFuji|Mont Fuji au Japon (© The Asahi Shimbun/Getty Images)|Sommet enneigé|![](/fr-FR/2021/09/202109272200SnowFuji.jpg)|
