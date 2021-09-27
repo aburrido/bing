@@ -27,3 +27,4 @@
 202109242300|PorkiesTrail|Escarpment Trail in Porcupine Mountains Wilderness State Park, Michigan, USA (© Pat & Chuck Blackley/Alamy)|Autumn comes to the Porcupines|![](/en-GB/2021/09/202109242300PorkiesTrail.jpg)|
 202109252300|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-GB/2021/09/202109252300MackenzieRiver.jpg)|
 202109262300|QuoichBowl|The Punch Bowl and Linn of Quoich, Braemar, Aberdeenshire (© AWL Images/DanitaDelimont.com)|Through the cracks|![](/en-GB/2021/09/202109262300QuoichBowl.jpg)|
+202109272300|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-GB/2021/09/202109272300SnowFuji.jpg)|
