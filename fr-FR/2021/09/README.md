@@ -29,3 +29,4 @@
 202109252200|MackenzieRiver|Le fleuve Mackenzie s’écoulant dans la mer de Beaufort, Canada (© Norman Kuring, GSFC/NASA/USGS Landsat)|Journée mondiale des rivières et des fleuves|![](/fr-FR/2021/09/202109252200MackenzieRiver.jpg)|
 202109262200|Galliera|Palais Galliera, Musée de la mode de la ville de Paris (© Peter Horree/Alamy Stock Photo)|La mode, la mode, la mode|![](/fr-FR/2021/09/202109262200Galliera.jpg)|
 202109272200|SnowFuji|Mont Fuji au Japon (© The Asahi Shimbun/Getty Images)|Sommet enneigé|![](/fr-FR/2021/09/202109272200SnowFuji.jpg)|
+202109282200|WoodBison|Un bison des bois près de Behchokǫ̀, Territoires du Nord-Ouest, Canada (© Don Johnston/age fotostock)|Bison des bois|![](/fr-FR/2021/09/202109282200WoodBison.jpg)|

@@ -28,3 +28,4 @@
 202109252200|MackenzieRiver|Flussdelta des Mackenzie River in der Mackenzie-Bucht der Beaufortsee, Kanada (© Norman Kuring, GSFC/NASA/USGS Landsat)|Welttag der Flüsse|![](/de-DE/2021/09/202109252200MackenzieRiver.jpg)|
 202109262200|MaximilianskircheM|Kirche St. Maximilian, München, Bayern (© Rolf Hicker/All Canada Photos/Alamy Stock Photo)|„Notre Dame an der Isar“|![](/de-DE/2021/09/202109262200MaximilianskircheM.jpg)|
 202109272200|SnowFuji|Fuji in Japan (© The Asahi Shimbun/Getty Images)|Der Schnee des Fuji|![](/de-DE/2021/09/202109272200SnowFuji.jpg)|
+202109282200|WoodBison|Waldbison in der Nähe von Behchoko, Nordwest-Territorien, Kanada (© Don Johnston/age fotostock)|Amerikas größtes Landsäugetier|![](/de-DE/2021/09/202109282200WoodBison.jpg)|
