@@ -28,3 +28,4 @@
 202109252300|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-GB/2021/09/202109252300MackenzieRiver.jpg)|
 202109262300|QuoichBowl|The Punch Bowl and Linn of Quoich, Braemar, Aberdeenshire (© AWL Images/DanitaDelimont.com)|Through the cracks|![](/en-GB/2021/09/202109262300QuoichBowl.jpg)|
 202109272300|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-GB/2021/09/202109272300SnowFuji.jpg)|
+202109282300|WoodBison|A wood bison near Behchoko, in the Northwest Territories, Canada (© Don Johnston/agefotostock)|Out of the woods?|![](/en-GB/2021/09/202109282300WoodBison.jpg)|
