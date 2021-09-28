@@ -29,3 +29,4 @@
 202109250700|PorkiesTrail|Escarpment Trail in Porcupine Mountains Wilderness State Park, Michigan (© Pat & Chuck Blackley/Alamy)|Autumn comes to the Porcupines|![](/en-US/2021/09/202109250700PorkiesTrail.jpg)|
 202109260700|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-US/2021/09/202109260700MackenzieRiver.jpg)|
 202109270700|PicoThorn|Thorn bug, Pico Bonito National Park, Honduras (© Mac Stone/Tandem Stills + Motion)|Sharp-dressed bug|![](/en-US/2021/09/202109270700PicoThorn.jpg)|
+202109280700|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-US/2021/09/202109280700SnowFuji.jpg)|
