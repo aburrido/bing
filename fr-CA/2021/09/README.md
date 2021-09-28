@@ -28,3 +28,4 @@
 202109250400|PorkiesTrail|Sentier dans le Porcupine Mountains Wilderness State Park, Montagnes du Porc-Épic, Michigan, États-Unis (© Pat & Chuck Blackley/Alamy)||![](/fr-CA/2021/09/202109250400PorkiesTrail.jpg)|
 202109260400|MackenzieRiver|Le fleuve Mackenzie s’écoulant dans la mer de Beaufort, Canada (© Norman Kuring, GSFC/NASA/USGS Landsat)||![](/fr-CA/2021/09/202109260400MackenzieRiver.jpg)|
 202109270400|PicoThorn|Punaise-épine (Umbonia crassicornis) dans le parc national de Pico Bonito, Honduras (© Mac Stone/Tandem Stills + Motion)||![](/fr-CA/2021/09/202109270400PicoThorn.jpg)|
+202109280400|FallAssiniboine|L’automne dans le parc national du mont Assiniboine, Colombie-Britannique (© Mitch Pittman/TANDEM Stills + Motion)||![](/fr-CA/2021/09/202109280400FallAssiniboine.jpg)|
