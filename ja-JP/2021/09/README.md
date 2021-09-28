@@ -29,3 +29,4 @@
 202109251500|MackenzieRiver|｢北極海に注ぐマッケンジー川｣カナダ (© Norman Kuring, GSFC/NASA/USGS Landsat)|今日は世界河川の日|![](/ja-JP/2021/09/202109251500MackenzieRiver.jpg)|
 202109261500|Susuki|｢曽爾高原の夕焼け｣奈良県 (© Ken1200/Shutterstock)|秋の七草の 1 つ|![](/ja-JP/2021/09/202109261500Susuki.jpg)|
 202109271500|SnowFuji|｢初冠雪した富士山｣ (© The Asahi Shimbun/Getty Images)|富士の白峰|![](/ja-JP/2021/09/202109271500SnowFuji.jpg)|
+202109281500|TokyoSkyTree|｢東京スカイツリー｣東京都, 墨田区 (© Horizon Images/Motion/Alamy Stock Photo)|新しい東京のシンボル|![](/ja-JP/2021/09/202109281500TokyoSkyTree.jpg)|
