@@ -29,3 +29,4 @@
 202109262300|QuoichBowl|The Punch Bowl and Linn of Quoich, Braemar, Aberdeenshire (© AWL Images/DanitaDelimont.com)|Through the cracks|![](/en-GB/2021/09/202109262300QuoichBowl.jpg)|
 202109272300|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-GB/2021/09/202109272300SnowFuji.jpg)|
 202109282300|WoodBison|A wood bison near Behchoko, in the Northwest Territories, Canada (© Don Johnston/agefotostock)|Out of the woods?|![](/en-GB/2021/09/202109282300WoodBison.jpg)|
+202109292300|ContainerShip|Container ship in San Pedro, California, USA (© Cameron Venti/Getty Images)|Ahoy there!|![](/en-GB/2021/09/202109292300ContainerShip.jpg)|
