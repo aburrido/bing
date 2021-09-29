@@ -30,3 +30,4 @@
 202109262200|Galliera|Palais Galliera, Musée de la mode de la ville de Paris (© Peter Horree/Alamy Stock Photo)|La mode, la mode, la mode|![](/fr-FR/2021/09/202109262200Galliera.jpg)|
 202109272200|SnowFuji|Mont Fuji au Japon (© The Asahi Shimbun/Getty Images)|Sommet enneigé|![](/fr-FR/2021/09/202109272200SnowFuji.jpg)|
 202109282200|WoodBison|Un bison des bois près de Behchokǫ̀, Territoires du Nord-Ouest, Canada (© Don Johnston/age fotostock)|Bison des bois|![](/fr-FR/2021/09/202109282200WoodBison.jpg)|
+202109292200|ContainerShip|Porte-conteneurs, San Pedro, Californie, États-Unis (© Cameron Venti/Getty Images)|Commerce mondial en action|![](/fr-FR/2021/09/202109292200ContainerShip.jpg)|
