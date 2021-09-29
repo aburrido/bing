@@ -30,3 +30,4 @@
 202109261600|PicoThorn|Pico Bonito国家公园里的刺蛾，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)||![](/zh-CN/2021/09/202109261600PicoThorn.jpg)|
 202109271600|TheBroads|布罗兹湿地国家公园，英国诺福克郡 (© Steven Docwra/Getty Images)||![](/zh-CN/2021/09/202109271600TheBroads.jpg)|
 202109281600|WoodBison|加拿大西北部的一头美洲野牛 (© Don Johnston/agefotostock)||![](/zh-CN/2021/09/202109281600WoodBison.jpg)|
+202109291600|ContainerShip|加利福尼亚州的一艘集装箱船，美国 (© Cameron Venti/Getty Images)||![](/zh-CN/2021/09/202109291600ContainerShip.jpg)|
