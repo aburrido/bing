@@ -28,3 +28,4 @@
 202109260400|MackenzieRiver|The Mackenzie River in Canada emptying into the Beaufort Sea (© Norman Kuring, GSFC/NASA/USGS Landsat)|World Rivers Day|![](/en-CA/2021/09/202109260400MackenzieRiver.jpg)|
 202109270400|PicoThorn|Thorn bug, Pico Bonito National Park, Honduras (© Mac Stone/Tandem Stills + Motion)|Sharp-dressed bug|![](/en-CA/2021/09/202109270400PicoThorn.jpg)|
 202109280400|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-CA/2021/09/202109280400SnowFuji.jpg)|
+202109290400|WoodBison|A wood bison near Behchoko, in the Northwest Territories, Canada (© Don Johnston/agefotostock)|The largest American bison around|![](/en-CA/2021/09/202109290400WoodBison.jpg)|

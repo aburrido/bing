@@ -29,3 +29,4 @@
 202109260400|MackenzieRiver|Le fleuve Mackenzie s’écoulant dans la mer de Beaufort, Canada (© Norman Kuring, GSFC/NASA/USGS Landsat)||![](/fr-CA/2021/09/202109260400MackenzieRiver.jpg)|
 202109270400|PicoThorn|Punaise-épine (Umbonia crassicornis) dans le parc national de Pico Bonito, Honduras (© Mac Stone/Tandem Stills + Motion)||![](/fr-CA/2021/09/202109270400PicoThorn.jpg)|
 202109280400|FallAssiniboine|L’automne dans le parc national du mont Assiniboine, Colombie-Britannique (© Mitch Pittman/TANDEM Stills + Motion)||![](/fr-CA/2021/09/202109280400FallAssiniboine.jpg)|
+202109290400|WoodBison|Un bison des bois près de Behchokǫ̀, Territoires du Nord-Ouest (© Don Johnston/agefotostock)||![](/fr-CA/2021/09/202109290400WoodBison.jpg)|
