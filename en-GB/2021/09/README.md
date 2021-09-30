@@ -30,3 +30,4 @@
 202109272300|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-GB/2021/09/202109272300SnowFuji.jpg)|
 202109282300|WoodBison|A wood bison near Behchoko, in the Northwest Territories, Canada (© Don Johnston/agefotostock)|Out of the woods?|![](/en-GB/2021/09/202109282300WoodBison.jpg)|
 202109292300|ContainerShip|Container ship in San Pedro, California, USA (© Cameron Venti/Getty Images)|Ahoy there!|![](/en-GB/2021/09/202109292300ContainerShip.jpg)|
+202109302300|MarySeacole|Statue of Mary Seacole at St Thomas' Hospital, London (© Pajor Pawel/Shutterstock)|Black History Month begins|![](/en-GB/2021/09/202109302300MarySeacole.jpg)|
