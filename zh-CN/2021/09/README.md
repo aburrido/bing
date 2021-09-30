@@ -31,3 +31,4 @@
 202109271600|TheBroads|布罗兹湿地国家公园，英国诺福克郡 (© Steven Docwra/Getty Images)||![](/zh-CN/2021/09/202109271600TheBroads.jpg)|
 202109281600|WoodBison|加拿大西北部的一头美洲野牛 (© Don Johnston/agefotostock)||![](/zh-CN/2021/09/202109281600WoodBison.jpg)|
 202109291600|ContainerShip|加利福尼亚州的一艘集装箱船，美国 (© Cameron Venti/Getty Images)||![](/zh-CN/2021/09/202109291600ContainerShip.jpg)|
+202109301600|HyacinthMacaws|潘塔纳尔湿地的风信子金刚鹦鹉，巴西 (© David Pattyn/Minden Pictures)||![](/zh-CN/2021/09/202109301600HyacinthMacaws.jpg)|
