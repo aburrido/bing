@@ -31,3 +31,4 @@
 202109270700|PicoThorn|Thorn bug, Pico Bonito National Park, Honduras (© Mac Stone/Tandem Stills + Motion)|Sharp-dressed bug|![](/en-US/2021/09/202109270700PicoThorn.jpg)|
 202109280700|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-US/2021/09/202109280700SnowFuji.jpg)|
 202109290700|WoodBison|A wood bison near Behchoko, in the Northwest Territories, Canada (© Don Johnston/agefotostock)|The largest American bison around|![](/en-US/2021/09/202109290700WoodBison.jpg)|
+202109300700|ContainerShip|Container ship in San Pedro, California (© Cameron Venti/Getty Images)|Global commerce in motion|![](/en-US/2021/09/202109300700ContainerShip.jpg)|
