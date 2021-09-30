@@ -30,3 +30,4 @@
 202109271830|SnowFuji|Mount Fuji in Japan (© The Asahi Shimbun/Getty Images)|The snows of Fuji|![](/en-IN/2021/09/202109271830SnowFuji.jpg)|
 202109281830|WoodBison|A wood bison near Behchoko, in the Northwest Territories, Canada (© Don Johnston/agefotostock)|The largest American bison around|![](/en-IN/2021/09/202109281830WoodBison.jpg)|
 202109291830|ContainerShip|Container ship in San Pedro, California (© Cameron Venti/Getty Images)|Global commerce in motion|![](/en-IN/2021/09/202109291830ContainerShip.jpg)|
+202109301830|HyacinthMacaws|Hyacinth macaws in the Pantanal region of Brazil (© David Pattyn/Minden Pictures)|What's better than a smile?|![](/en-IN/2021/09/202109301830HyacinthMacaws.jpg)|
