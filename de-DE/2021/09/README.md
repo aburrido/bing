@@ -30,3 +30,4 @@
 202109272200|SnowFuji|Fuji in Japan (© The Asahi Shimbun/Getty Images)|Der Schnee des Fuji|![](/de-DE/2021/09/202109272200SnowFuji.jpg)|
 202109282200|WoodBison|Waldbison in der Nähe von Behchoko, Nordwest-Territorien, Kanada (© Don Johnston/age fotostock)|Amerikas größtes Landsäugetier|![](/de-DE/2021/09/202109282200WoodBison.jpg)|
 202109292200|ContainerShip|Containerschiff in San Pedro, Kalifornien, USA (© Cameron Venti/Getty Images)|Globaler Handel in Bewegung|![](/de-DE/2021/09/202109292200ContainerShip.jpg)|
+202109302200|HyacinthMacaws|Hyazinth-Aras in der Pantanal-Region in Brasilien (© David Pattyn/Minden Pictures)|Was ist besser als ein Lächeln?|![](/de-DE/2021/09/202109302200HyacinthMacaws.jpg)|
