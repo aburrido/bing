@@ -4,3 +4,4 @@
 202110010700|HyacinthMacaws|Hyacinth macaws in the Pantanal region of Brazil (© David Pattyn/Minden Pictures)|What's better than a smile?|![](/en-US/2021/10/202110010700HyacinthMacaws.jpg)|
 202110020700|IvishakRiver|The Ivishak River in the North Slope of Alaska (© Don Paulson/Danita Delimont)|A river on the tundra|![](/en-US/2021/10/202110020700IvishakRiver.jpg)|
 202110030700|Italica|The Roman amphitheater of Itálica, near Seville, Spain (© Amazing Aerial Agency/Offset by Shutterstock)|Birthplace of Roman emperors|![](/en-US/2021/10/202110030700Italica.jpg)|
+202110040700|Andromeda|Andromeda galaxy (© NASA/JPL-Caltech)|Hey neighbor, it's World Space Week!|![](/en-US/2021/10/202110040700Andromeda.jpg)|
