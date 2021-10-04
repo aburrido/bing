@@ -4,3 +4,4 @@
 202110012200|Italica|Römisches Amphitheater von Itálica bei Santiponce, Spanien (© Amazing Aerial Agency/Offset by Shutterstock)|Geburtsort römischer Kaiser|![](/de-DE/2021/10/202110012200Italica.jpg)|
 202110022200|KastanieNRW|Reife Früchte einer Edelkastanie, Nordrhein-Westfalen (© Frederik/imageBROKER/Shutterstock)|Stachelige Schale, delikater Kern|![](/de-DE/2021/10/202110022200KastanieNRW.jpg)|
 202110032200|Andromeda|Andromedagalaxie (© NASA/JPL-Caltech)|Hallo Nachbar, es ist Weltraumwoche!|![](/de-DE/2021/10/202110032200Andromeda.jpg)|
+202110042200|Kindergarteners|Luftaufnahme von Kindergartenkindern beim Malen auf einer Leinwand in Nantong, Provinz Jiangsu, Volksrepublik China (© Xu Hui/VCG via Getty Images)|Ein Tag zu Ehren aller Lehrkräfte|![](/de-DE/2021/10/202110042200Kindergarteners.jpg)|
