@@ -5,3 +5,4 @@
 202110022200|KastanieNRW|Reife Früchte einer Edelkastanie, Nordrhein-Westfalen (© Frederik/imageBROKER/Shutterstock)|Stachelige Schale, delikater Kern|![](/de-DE/2021/10/202110022200KastanieNRW.jpg)|
 202110032200|Andromeda|Andromedagalaxie (© NASA/JPL-Caltech)|Hallo Nachbar, es ist Weltraumwoche!|![](/de-DE/2021/10/202110032200Andromeda.jpg)|
 202110042200|Kindergarteners|Luftaufnahme von Kindergartenkindern beim Malen auf einer Leinwand in Nantong, Provinz Jiangsu, Volksrepublik China (© Xu Hui/VCG via Getty Images)|Ein Tag zu Ehren aller Lehrkräfte|![](/de-DE/2021/10/202110042200Kindergarteners.jpg)|
+202110052200|SWColorado|Dallas Divide im Südwesten Colorados, USA (© Ronda Kimbrow/Shutterstock)|Blick ins Tal|![](/de-DE/2021/10/202110052200SWColorado.jpg)|
