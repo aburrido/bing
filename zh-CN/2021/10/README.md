@@ -6,3 +6,4 @@
 202110021600|Italica|古罗马斗兽场，西班牙桑蒂蓬塞镇的罗马古城遗迹 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2021/10/202110021600Italica.jpg)|
 202110031600|Andromeda|绚烂的仙女座星系 (© NASA/JPL-Caltech)||![](/zh-CN/2021/10/202110031600Andromeda.jpg)|
 202110041600|FallPEI|爱德华王子岛的森林和树冠，加拿大 (© OliverChilds/Getty Images)||![](/zh-CN/2021/10/202110041600FallPEI.jpg)|
+202110051600|SWColorado|达拉斯分水岭, 科罗拉多州西南部 (© Ronda Kimbrow/Shutterstock)||![](/zh-CN/2021/10/202110051600SWColorado.jpg)|
