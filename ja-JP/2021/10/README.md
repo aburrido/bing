@@ -5,3 +5,4 @@
 202110021500|Italica|｢イタリカ遺跡のローマ円形劇場｣スペイン, サンティポンセ (© Amazing Aerial Agency/Offset by Shutterstock)|2 人の皇帝を生んだ植民地|![](/ja-JP/2021/10/202110021500Italica.jpg)|
 202110031500|Andromeda|｢アンドロメダ銀河｣ (© NASA/JPL-Caltech)|今日から世界宇宙週間|![](/ja-JP/2021/10/202110031500Andromeda.jpg)|
 202110041500|Kindergarteners|｢南通市の幼稚園児たち｣中国, 江蘇省 (© Xu Hui/VCG via Getty Images)|今日は世界教師デー|![](/ja-JP/2021/10/202110041500Kindergarteners.jpg)|
+202110051500|SWColorado|｢ダラスディバイド｣米国, コロラド州 (© Ronda Kimbrow/Shutterstock)|北米の峠|![](/ja-JP/2021/10/202110051500SWColorado.jpg)|
