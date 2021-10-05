@@ -4,3 +4,4 @@
 202110020400|IvishakRiver|The Ivishak River in the North Slope Borough, Alaska (© Don Paulson/Danita Delimont)|A river on the tundra|![](/en-CA/2021/10/202110020400IvishakRiver.jpg)|
 202110030400|Italica|The Roman amphitheater of Itálica near Santiponce, Spain (© Amazing Aerial Agency/Offset by Shutterstock)|Birthplace of Roman emperors|![](/en-CA/2021/10/202110030400Italica.jpg)|
 202110040400|Andromeda|Andromeda galaxy (© NASA/JPL-Caltech)|Hey neighbour, it's World Space Week!|![](/en-CA/2021/10/202110040400Andromeda.jpg)|
+202110050400|FallPEI|A canopy of trees in a forest in Prince Edward Island (© OliverChilds/Getty Images)|Vibrant colours of Fall|![](/en-CA/2021/10/202110050400FallPEI.jpg)|
