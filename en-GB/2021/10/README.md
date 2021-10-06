@@ -6,3 +6,4 @@
 202110032300|Andromeda|Andromeda galaxy (© NASA/JPL-Caltech)|Hey neighbour, it's World Space Week!|![](/en-GB/2021/10/202110032300Andromeda.jpg)|
 202110042300|Kindergarteners|Aerial view of kindergarteners drawing on a canvas in Nantong, in the Jiangsu province of China (© Xu Hui/VCG via Getty Images)|Thank you teachers!|![](/en-GB/2021/10/202110042300Kindergarteners.jpg)|
 202110052300|SWColorado|Dallas Divide in south-west Colorado, USA  (© Ronda Kimbrow/Shutterstock)|A valley at 9,000ft|![](/en-GB/2021/10/202110052300SWColorado.jpg)|
+202110062300|HuayMaeKhamin|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© Casper1774Studio/Getty Images)|Stunning on so many levels|![](/en-GB/2021/10/202110062300HuayMaeKhamin.jpg)|
