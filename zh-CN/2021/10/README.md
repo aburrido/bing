@@ -7,3 +7,4 @@
 202110031600|Andromeda|绚烂的仙女座星系 (© NASA/JPL-Caltech)||![](/zh-CN/2021/10/202110031600Andromeda.jpg)|
 202110041600|FallPEI|爱德华王子岛的森林和树冠，加拿大 (© OliverChilds/Getty Images)||![](/zh-CN/2021/10/202110041600FallPEI.jpg)|
 202110051600|SWColorado|达拉斯分水岭, 科罗拉多州西南部 (© Ronda Kimbrow/Shutterstock)||![](/zh-CN/2021/10/202110051600SWColorado.jpg)|
+202110061600|HuayMaeKhamin|Khuean Srinagarindra国家公园的Huay Mae Khamin瀑布,泰国 (© Casper1774Studio/Getty Images)||![](/zh-CN/2021/10/202110061600HuayMaeKhamin.jpg)|
