@@ -6,3 +6,4 @@
 202110032200|Andromeda|Galaxie d’Andromède (© NASA/JPL-Caltech)|Un peu d’espace s’il vous plait|![](/fr-FR/2021/10/202110032200Andromeda.jpg)|
 202110042200|Kindergarteners|Vue aérienne d’élèves de maternelle dessinant sur une toile à Nantong dans la province du Jiangsu, Chine (© Xu Hui/VCG via Getty Images)|Merci les profs !|![](/fr-FR/2021/10/202110042200Kindergarteners.jpg)|
 202110052200|SWColorado|Le Dallas Divide dans le Sud-Ouest du Colorado, États-Unis (© Ronda Kimbrow/Shutterstock)|Dallas Divide|![](/fr-FR/2021/10/202110052200SWColorado.jpg)|
+202110062200|HuayMaeKhamin|Cascades Huay Mae Khamin dans le parc national Khuean Srinagarindra, Thaïlande (© Casper1774Studio/Getty Images)|Cascade thaï|![](/fr-FR/2021/10/202110062200HuayMaeKhamin.jpg)|
