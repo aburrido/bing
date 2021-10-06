@@ -6,3 +6,4 @@
 202110030700|Italica|The Roman amphitheater of Itálica, near Seville, Spain (© Amazing Aerial Agency/Offset by Shutterstock)|Birthplace of Roman emperors|![](/en-US/2021/10/202110030700Italica.jpg)|
 202110040700|Andromeda|Andromeda galaxy (© NASA/JPL-Caltech)|Hey neighbor, it's World Space Week!|![](/en-US/2021/10/202110040700Andromeda.jpg)|
 202110050700|Kindergarteners|Kindergarteners drawing on canvases in Nantong, Jiangsu province, China (© Xu Hui/VCG via Getty Images)|A day to celebrate teachers|![](/en-US/2021/10/202110050700Kindergarteners.jpg)|
+202110060700|SWColorado|Dallas Divide in southwest Colorado (© Ronda Kimbrow/Shutterstock)|A valley view at 9,000 feet|![](/en-US/2021/10/202110060700SWColorado.jpg)|

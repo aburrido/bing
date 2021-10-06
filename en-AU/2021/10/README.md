@@ -6,3 +6,4 @@
 202110030700|Italica|Roman amphitheatre of Itálica, Spain (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2021/10/202110030700Italica.jpg)|
 202110040700|Andromeda|Andromeda Galaxy (© NASA/JPL-Caltech)|Info|![](/en-AU/2021/10/202110040700Andromeda.jpg)|
 202110050700|BorealQuebec|Boreal forest, Quebec, Canada (© Onfokus/Getty Images)|Info|![](/en-AU/2021/10/202110050700BorealQuebec.jpg)|
+202110060700|SWColorado|Dallas Divide, Colorado, USA (© Ronda Kimbrow/Shutterstock)|Info|![](/en-AU/2021/10/202110060700SWColorado.jpg)|
