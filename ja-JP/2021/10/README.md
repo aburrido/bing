@@ -7,3 +7,4 @@
 202110041500|Kindergarteners|｢南通市の幼稚園児たち｣中国, 江蘇省 (© Xu Hui/VCG via Getty Images)|今日は世界教師デー|![](/ja-JP/2021/10/202110041500Kindergarteners.jpg)|
 202110051500|SWColorado|｢ダラスディバイド｣米国, コロラド州 (© Ronda Kimbrow/Shutterstock)|北米の峠|![](/ja-JP/2021/10/202110051500SWColorado.jpg)|
 202110061500|HuayMaeKhamin|｢シーナカリン国立公園のフアイメーカミン滝｣タイ (© Casper1774Studio/Getty Images)|7 つの滝|![](/ja-JP/2021/10/202110061500HuayMaeKhamin.jpg)|
+202110071500|SanJuanIslands|｢サンフアン諸島｣米国, ワシントン州 (© Stephen Matera/Tandem Stills + Motion)|米国の国定公園|![](/ja-JP/2021/10/202110071500SanJuanIslands.jpg)|
