@@ -7,3 +7,4 @@
 202110042200|Kindergarteners|Luftaufnahme von Kindergartenkindern beim Malen auf einer Leinwand in Nantong, Provinz Jiangsu, Volksrepublik China (© Xu Hui/VCG via Getty Images)|Ein Tag zu Ehren aller Lehrkräfte|![](/de-DE/2021/10/202110042200Kindergarteners.jpg)|
 202110052200|SWColorado|Dallas Divide im Südwesten Colorados, USA (© Ronda Kimbrow/Shutterstock)|Blick ins Tal|![](/de-DE/2021/10/202110052200SWColorado.jpg)|
 202110062200|HuayMaeKhamin|Huay-Mae-Khamin-Wasserfall im Khuean-Srinagarindra-Nationalpark, Thailand (© Casper1774Studio/Getty Images)|Großartig auf so vielen Ebenen|![](/de-DE/2021/10/202110062200HuayMaeKhamin.jpg)|
+202110072200|FriendlyOctopus|Gewöhnlicher Krake vor der französischen Mittelmeerküste im Golf von Lion (© BIOSPHOTO/Alamy Stock Photo)|Ein ungewöhnlich gelassener Meeresbewohner|![](/de-DE/2021/10/202110072200FriendlyOctopus.jpg)|
