@@ -7,3 +7,4 @@
 202110040700|Andromeda|Andromeda Galaxy (© NASA/JPL-Caltech)|Info|![](/en-AU/2021/10/202110040700Andromeda.jpg)|
 202110050700|BorealQuebec|Boreal forest, Quebec, Canada (© Onfokus/Getty Images)|Info|![](/en-AU/2021/10/202110050700BorealQuebec.jpg)|
 202110060700|SWColorado|Dallas Divide, Colorado, USA (© Ronda Kimbrow/Shutterstock)|Info|![](/en-AU/2021/10/202110060700SWColorado.jpg)|
+202110070700|HuayMaeKhamin|Huay Mae Khamin waterfall, Khuean Srinagarindra National Park, Thailand (© Casper1774Studio/Getty Images)|Info|![](/en-AU/2021/10/202110070700HuayMaeKhamin.jpg)|
