@@ -6,3 +6,4 @@
 202110040400|Andromeda|Galaxie d’Andromède (© NASA/JPL-Caltech)||![](/fr-CA/2021/10/202110040400Andromeda.jpg)|
 202110050400|FallPEI|L’automne sur les feuilles, Île-du-Prince-Édouard (© OliverChilds/Getty Images)||![](/fr-CA/2021/10/202110050400FallPEI.jpg)|
 202110060400|SWColorado|Le Dallas Divide dans le Sud-Ouest du Colorado, États-Unis (© Ronda Kimbrow/Shutterstock)||![](/fr-CA/2021/10/202110060400SWColorado.jpg)|
+202110070400|HuayMaeKhamin|Cascades Huay Mae Khamin dans le parc national Khuean Srinagarindra, Thaïlande (© Casper1774Studio/Getty Images)||![](/fr-CA/2021/10/202110070400HuayMaeKhamin.jpg)|
