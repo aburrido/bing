@@ -9,3 +9,4 @@
 202110051600|SWColorado|达拉斯分水岭, 科罗拉多州西南部 (© Ronda Kimbrow/Shutterstock)||![](/zh-CN/2021/10/202110051600SWColorado.jpg)|
 202110061600|HuayMaeKhamin|Khuean Srinagarindra国家公园的Huay Mae Khamin瀑布,泰国 (© Casper1774Studio/Getty Images)||![](/zh-CN/2021/10/202110061600HuayMaeKhamin.jpg)|
 202110071600|FriendlyOctopus|海草中的章鱼，法国利翁湾 (© BIOSPHOTO/Alamy)||![](/zh-CN/2021/10/202110071600FriendlyOctopus.jpg)|
+202110081600|SandhillApache|野生动物保护区中的沙丘鹤和野鸭，美国新墨西哥州 (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)||![](/zh-CN/2021/10/202110081600SandhillApache.jpg)|
