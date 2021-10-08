@@ -8,3 +8,4 @@
 202110052300|SWColorado|Dallas Divide in south-west Colorado, USA  (© Ronda Kimbrow/Shutterstock)|A valley at 9,000ft|![](/en-GB/2021/10/202110052300SWColorado.jpg)|
 202110062300|HuayMaeKhamin|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© Casper1774Studio/Getty Images)|Stunning on so many levels|![](/en-GB/2021/10/202110062300HuayMaeKhamin.jpg)|
 202110072300|FriendlyOctopus|Common octopus in sea grass in the Gulf of Lion in the Mediterranean Sea (© BIOSPHOTO/Alamy)|Uncommonly cool|![](/en-GB/2021/10/202110072300FriendlyOctopus.jpg)|
+202110082300|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Chasing summer|![](/en-GB/2021/10/202110082300SandhillApache.jpg)|
