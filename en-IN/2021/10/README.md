@@ -9,3 +9,4 @@
 202110061830|HuayMaeKhamin|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© Casper1774Studio/Getty Images)|Great on so many levels|![](/en-IN/2021/10/202110061830HuayMaeKhamin.jpg)|
 202110071830|FriendlyOctopus|Common octopus in sea grass off the coast of France in the Gulf of Lion in the Mediterranean Sea (© BIOSPHOTO/Alamy)|An uncommonly cool critter|![](/en-IN/2021/10/202110071830FriendlyOctopus.jpg)|
 202110081830|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Birds of a feather|![](/en-IN/2021/10/202110081830SandhillApache.jpg)|
+202110091830|AbaloneShell|Rainbow abalone shell, New Zealand (© Lynda Harper/Minden Pictures)|A shell of many colours|![](/en-IN/2021/10/202110091830AbaloneShell.jpg)|
