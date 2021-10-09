@@ -8,3 +8,4 @@
 202110060400|SWColorado|Le Dallas Divide dans le Sud-Ouest du Colorado, États-Unis (© Ronda Kimbrow/Shutterstock)||![](/fr-CA/2021/10/202110060400SWColorado.jpg)|
 202110070400|HuayMaeKhamin|Cascades Huay Mae Khamin dans le parc national Khuean Srinagarindra, Thaïlande (© Casper1774Studio/Getty Images)||![](/fr-CA/2021/10/202110070400HuayMaeKhamin.jpg)|
 202110080400|FriendlyOctopus|Pieuvre commune dans l’herbe marine au large du golfe du Lion dans la mer Méditerranée (© BIOSPHOTO/Alamy)||![](/fr-CA/2021/10/202110080400FriendlyOctopus.jpg)|
+202110090400|SandhillApache|Grues du Canada et Canards colvert dans le refuge faunique national de Bosque del Apache, Nouveau-Mexique (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)||![](/fr-CA/2021/10/202110090400SandhillApache.jpg)|

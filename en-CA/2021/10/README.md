@@ -8,3 +8,4 @@
 202110060400|FallAssiniboine|Fall foliage in Mount Assiniboine Provincial Park, British Columbia (© Mitch Pittman/TANDEM Stills + Motion)|Shimmering lakes and glistening glaciers|![](/en-CA/2021/10/202110060400FallAssiniboine.jpg)|
 202110070400|HuayMaeKhamin|Huay Mae Khamin waterfall in Khuean Srinagarindra National Park, Thailand (© Casper1774Studio/Getty Images)|Great on so many levels|![](/en-CA/2021/10/202110070400HuayMaeKhamin.jpg)|
 202110080400|FriendlyOctopus|Common octopus in sea grass off the coast of France in the Gulf of Lion in the Mediterranean Sea (© BIOSPHOTO/Alamy)|An uncommonly cool critter|![](/en-CA/2021/10/202110080400FriendlyOctopus.jpg)|
+202110090400|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Birds of a feather|![](/en-CA/2021/10/202110090400SandhillApache.jpg)|
