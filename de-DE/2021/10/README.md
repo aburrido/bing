@@ -9,3 +9,4 @@
 202110062200|HuayMaeKhamin|Huay-Mae-Khamin-Wasserfall im Khuean-Srinagarindra-Nationalpark, Thailand (© Casper1774Studio/Getty Images)|Großartig auf so vielen Ebenen|![](/de-DE/2021/10/202110062200HuayMaeKhamin.jpg)|
 202110072200|FriendlyOctopus|Gewöhnlicher Krake vor der französischen Mittelmeerküste im Golf von Lion (© BIOSPHOTO/Alamy Stock Photo)|Ein ungewöhnlich gelassener Meeresbewohner|![](/de-DE/2021/10/202110072200FriendlyOctopus.jpg)|
 202110082200|SandhillApache|Kanadakraniche und Stockenten, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Langstreckenflieger|![](/de-DE/2021/10/202110082200SandhillApache.jpg)|
+202110092200|AbaloneShell|Regenbogen-Abalone, Neuseeland (© Lynda Harper/Minden Pictures)|Schillerndes Schmuckstück|![](/de-DE/2021/10/202110092200AbaloneShell.jpg)|
