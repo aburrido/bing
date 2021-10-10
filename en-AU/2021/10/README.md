@@ -10,3 +10,4 @@
 202110070700|HuayMaeKhamin|Huay Mae Khamin waterfall, Khuean Srinagarindra National Park, Thailand (© Casper1774Studio/Getty Images)|Info|![](/en-AU/2021/10/202110070700HuayMaeKhamin.jpg)|
 202110080700|FriendlyOctopus|Common octopus, Gulf of Lion, Mediterranean Sea (© BIOSPHOTO/Alamy)|Info|![](/en-AU/2021/10/202110080700FriendlyOctopus.jpg)|
 202110090700|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Info|![](/en-AU/2021/10/202110090700SandhillApache.jpg)|
+202110100700|AbaloneShell|Blackfoot paua (rainbow abalone) shell, New Zealand (© Lynda Harper/Minden Pictures)|Info|![](/en-AU/2021/10/202110100700AbaloneShell.jpg)|
