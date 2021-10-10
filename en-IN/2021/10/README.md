@@ -10,3 +10,4 @@
 202110071830|FriendlyOctopus|Common octopus in sea grass off the coast of France in the Gulf of Lion in the Mediterranean Sea (© BIOSPHOTO/Alamy)|An uncommonly cool critter|![](/en-IN/2021/10/202110071830FriendlyOctopus.jpg)|
 202110081830|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Birds of a feather|![](/en-IN/2021/10/202110081830SandhillApache.jpg)|
 202110091830|AbaloneShell|Rainbow abalone shell, New Zealand (© Lynda Harper/Minden Pictures)|A shell of many colours|![](/en-IN/2021/10/202110091830AbaloneShell.jpg)|
+202110101830|RedPandas|Red pandas in cloud forest habitat of Singalila in West Bengal, India (© Ben Cranke/Minden Pictures)|On the red panda trail|![](/en-IN/2021/10/202110101830RedPandas.jpg)|
