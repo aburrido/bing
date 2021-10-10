@@ -10,3 +10,4 @@
 202110072200|FriendlyOctopus|Gewöhnlicher Krake vor der französischen Mittelmeerküste im Golf von Lion (© BIOSPHOTO/Alamy Stock Photo)|Ein ungewöhnlich gelassener Meeresbewohner|![](/de-DE/2021/10/202110072200FriendlyOctopus.jpg)|
 202110082200|SandhillApache|Kanadakraniche und Stockenten, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Langstreckenflieger|![](/de-DE/2021/10/202110082200SandhillApache.jpg)|
 202110092200|AbaloneShell|Regenbogen-Abalone, Neuseeland (© Lynda Harper/Minden Pictures)|Schillerndes Schmuckstück|![](/de-DE/2021/10/202110092200AbaloneShell.jpg)|
+202110102200|HandthalerStollberg|Weinberge auf dem Stollberg bei Handthal, Oberschwarzach, Unterfranken, Bayern (© Rüdiger Hess/geo-select FotoArt)|Herbstimpressionen aus Unterfranken|![](/de-DE/2021/10/202110102200HandthalerStollberg.jpg)|

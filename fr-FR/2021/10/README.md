@@ -10,3 +10,4 @@
 202110072200|FriendlyOctopus|Pieuvre commune dans l’herbe marine au large du golfe du Lion dans la mer Méditerranée (© BIOSPHOTO/Alamy Stock Photo)|Sage des fonds marins|![](/fr-FR/2021/10/202110072200FriendlyOctopus.jpg)|
 202110082200|SandhillApache|Grues du Canada et Canards colvert dans le refuge faunique national de Bosque del Apache, Nouveau-Mexique (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|La Journée des oiseaux migrateurs|![](/fr-FR/2021/10/202110082200SandhillApache.jpg)|
 202110092200|AbaloneShell|Coquille d’ormeau arc-en-ciel, Nouvelle-Zélande (© Lynda Harper/Minden Pictures)|Coquille colorée|![](/fr-FR/2021/10/202110092200AbaloneShell.jpg)|
+202110102200|MauricieAutumn|Le lac Wapizagonke dans le parc national de la Mauricie, Québec, Canada (© Instants/Getty Images)|Toutes les couleurs de l’automne|![](/fr-FR/2021/10/202110102200MauricieAutumn.jpg)|
