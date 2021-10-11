@@ -11,3 +11,4 @@
 202110081500|SandhillApache|｢ボスケ・デル・アパッチ国立野生動物保護区｣米国, ニューメキシコ州 (© Cathy&Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|秋のカナダヅル|![](/ja-JP/2021/10/202110081500SandhillApache.jpg)|
 202110091500|AbaloneShell|｢パウア貝の貝殻｣ニュージーランド (© Minden)|マオリの宝物|![](/ja-JP/2021/10/202110091500AbaloneShell.jpg)|
 202110101500|MauricieAutumn|｢ワピッザゴンク湖｣カナダ，ケベック州 (© Instants/Getty Images)|カナダの紅葉|![](/ja-JP/2021/10/202110101500MauricieAutumn.jpg)|
+202110111500|StMalo|｢サン・マロ｣フランス, ブルターニュ地方 (© MathieuRivrin/Moment/Getty Images)|イギリス海峡の要塞都市|![](/ja-JP/2021/10/202110111500StMalo.jpg)|
