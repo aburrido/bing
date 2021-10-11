@@ -12,3 +12,4 @@
 202110081600|SandhillApache|野生动物保护区中的沙丘鹤和野鸭，美国新墨西哥州 (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)||![](/zh-CN/2021/10/202110081600SandhillApache.jpg)|
 202110091600|AbaloneShell|五彩缤纷的鲍鱼贝壳，新西兰 (© Lynda Harper/Minden Pictures)||![](/zh-CN/2021/10/202110091600AbaloneShell.jpg)|
 202110101600|MauricieAutumn|拉莫里斯国家公园中的Wapizagonke湖区，加拿大魁北克 (© Instants/Getty Images)||![](/zh-CN/2021/10/202110101600MauricieAutumn.jpg)|
+202110111600|StMalo|布列塔尼大区的城市圣马洛，法国 (© Mathieu Rivrin/Moment/Getty Images)||![](/zh-CN/2021/10/202110111600StMalo.jpg)|
