@@ -10,3 +10,4 @@
 202110080400|FriendlyOctopus|Pieuvre commune dans l’herbe marine au large du golfe du Lion dans la mer Méditerranée (© BIOSPHOTO/Alamy)||![](/fr-CA/2021/10/202110080400FriendlyOctopus.jpg)|
 202110090400|SandhillApache|Grues du Canada et Canards colvert dans le refuge faunique national de Bosque del Apache, Nouveau-Mexique (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)||![](/fr-CA/2021/10/202110090400SandhillApache.jpg)|
 202110100400|AbaloneShell|Coquille d’ormeau arc-en-ciel, Nouvelle-Zélande (© Lynda Harper/Minden Pictures)||![](/fr-CA/2021/10/202110100400AbaloneShell.jpg)|
+202110110400|ChipmunkBerries|Tamia mineur adulte se nourrissant de baies en automne dans le parc national de Jasper, Alberta (© Ignacio Yufera/Minden Pictures)||![](/fr-CA/2021/10/202110110400ChipmunkBerries.jpg)|

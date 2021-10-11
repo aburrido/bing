@@ -10,3 +10,4 @@
 202110080400|FriendlyOctopus|Common octopus in sea grass off the coast of France in the Gulf of Lion in the Mediterranean Sea (© BIOSPHOTO/Alamy)|An uncommonly cool critter|![](/en-CA/2021/10/202110080400FriendlyOctopus.jpg)|
 202110090400|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Birds of a feather|![](/en-CA/2021/10/202110090400SandhillApache.jpg)|
 202110100400|AbaloneShell|Rainbow abalone shell, New Zealand (© Lynda Harper/Minden Pictures)|A shell of many colours|![](/en-CA/2021/10/202110100400AbaloneShell.jpg)|
+202110110400|ChipmunkBerries|Least Chipmunk (Tamias minimus) adult, feeding on berries in Autumn, Jasper National Park, Alta. (© Ignacio Yufera/Minden Pictures)|Happy Thanksgiving!|![](/en-CA/2021/10/202110110400ChipmunkBerries.jpg)|
