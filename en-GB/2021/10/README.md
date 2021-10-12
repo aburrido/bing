@@ -12,3 +12,4 @@
 202110092300|AbaloneShell|Rainbow abalone shell, New Zealand (© Lynda Harper/Minden Pictures)|A shell of many colours|![](/en-GB/2021/10/202110092300AbaloneShell.jpg)|
 202110102300|RameHead|Low angle view of Rame Head, Cornwall. (© Cavan Images/Offset)|Taking the high ground|![](/en-GB/2021/10/202110102300RameHead.jpg)|
 202110112300|StMalo|Saint-Malo in Brittany, France (© Mathieu Rivrin/Moment/Getty Images)|High tide at the walled city|![](/en-GB/2021/10/202110112300StMalo.jpg)|
+202110122300|IchthyosaurFossil|An ichthyosaur fossil of the Jurassic period, Dinosaurland Fossil Museum, Lyme Regis, Dorset (© Christopher Jones/Alamy)|Mary's monster find|![](/en-GB/2021/10/202110122300IchthyosaurFossil.jpg)|
