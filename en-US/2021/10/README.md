@@ -12,3 +12,4 @@
 202110090700|SandhillApache|Sandhill cranes and mallard ducks, Bosque del Apache National Wildlife Refuge, New Mexico (© Cathy & Gordon Illg/Jaynes Gallery/DanitaDelimont.com)|Birds of a feather|![](/en-US/2021/10/202110090700SandhillApache.jpg)|
 202110100700|AbaloneShell|Rainbow abalone shell, New Zealand (© Lynda Harper/Minden Pictures)|A shell of many colors|![](/en-US/2021/10/202110100700AbaloneShell.jpg)|
 202110110700|ClanHouse|The Clan House at Totem Bight State Historical Park near Ketchikan, Alaska (© Ron Niebrugge/Alamy)|Indigenous living|![](/en-US/2021/10/202110110700ClanHouse.jpg)|
+202110120700|StMalo|Saint-Malo in Brittany, France (© Mathieu Rivrin/Moment/Getty Images)|High tide at the walled city|![](/en-US/2021/10/202110120700StMalo.jpg)|
