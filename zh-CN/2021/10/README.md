@@ -13,3 +13,4 @@
 202110091600|AbaloneShell|五彩缤纷的鲍鱼贝壳，新西兰 (© Lynda Harper/Minden Pictures)||![](/zh-CN/2021/10/202110091600AbaloneShell.jpg)|
 202110101600|MauricieAutumn|拉莫里斯国家公园中的Wapizagonke湖区，加拿大魁北克 (© Instants/Getty Images)||![](/zh-CN/2021/10/202110101600MauricieAutumn.jpg)|
 202110111600|StMalo|布列塔尼大区的城市圣马洛，法国 (© Mathieu Rivrin/Moment/Getty Images)||![](/zh-CN/2021/10/202110111600StMalo.jpg)|
+202110121600|IchthyosaurFossil|侏罗纪时期的鱼龙化石，英国多塞特 (© Christopher Jones/Alamy)||![](/zh-CN/2021/10/202110121600IchthyosaurFossil.jpg)|
