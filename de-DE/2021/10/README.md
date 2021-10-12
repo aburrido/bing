@@ -12,3 +12,4 @@
 202110092200|AbaloneShell|Regenbogen-Abalone, Neuseeland (© Lynda Harper/Minden Pictures)|Schillerndes Schmuckstück|![](/de-DE/2021/10/202110092200AbaloneShell.jpg)|
 202110102200|HandthalerStollberg|Weinberge auf dem Stollberg bei Handthal, Oberschwarzach, Unterfranken, Bayern (© Rüdiger Hess/geo-select FotoArt)|Herbstimpressionen aus Unterfranken|![](/de-DE/2021/10/202110102200HandthalerStollberg.jpg)|
 202110112200|StMalo|Saint-Malo in der Bretagne, Frankreich (© MathieuRivrin/Moment/Getty Images)|Hochwasser vor der Altstadtmauer|![](/de-DE/2021/10/202110112200StMalo.jpg)|
+202110122200|IchthyosaurFossil|Fossil eines Ichthyosauriers aus der Jurazeit, Dinosaurland Fossil Museum, Lyme Regis, Grafschaft Dorset, England (© Christopher Jones/Alamy Stock Photo)|Ein junges Mädchen und eine uralte Entdeckung|![](/de-DE/2021/10/202110122200IchthyosaurFossil.jpg)|
