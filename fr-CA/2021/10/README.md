@@ -12,3 +12,4 @@
 202110100400|AbaloneShell|Coquille d’ormeau arc-en-ciel, Nouvelle-Zélande (© Lynda Harper/Minden Pictures)||![](/fr-CA/2021/10/202110100400AbaloneShell.jpg)|
 202110110400|ChipmunkBerries|Tamia mineur adulte se nourrissant de baies en automne dans le parc national de Jasper, Alberta (© Ignacio Yufera/Minden Pictures)||![](/fr-CA/2021/10/202110110400ChipmunkBerries.jpg)|
 202110120400|StMalo|Saint-Malo, Bretagne, France (© Mathieu Rivrin/Moment/Getty Images)||![](/fr-CA/2021/10/202110120400StMalo.jpg)|
+202110130400|IchthyosaurFossil|Le fossile d’un ichthyosaure de la période du Jurassique, Dinosaurland Fossil Museum, Lyme Regis, Dorset, Royaume-Uni (© Christopher Jones/Alamy)||![](/fr-CA/2021/10/202110130400IchthyosaurFossil.jpg)|
