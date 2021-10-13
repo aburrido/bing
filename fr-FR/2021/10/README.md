@@ -13,3 +13,4 @@
 202110102200|MauricieAutumn|Le lac Wapizagonke dans le parc national de la Mauricie, Québec, Canada (© Instants/Getty Images)|Toutes les couleurs de l’automne|![](/fr-FR/2021/10/202110102200MauricieAutumn.jpg)|
 202110112200|StMalo|Saint-Malo, Bretagne (© MathieuRivrin/Moment/Getty Images)|Ô Saint-Malo|![](/fr-FR/2021/10/202110112200StMalo.jpg)|
 202110122200|IchthyosaurFossil|Le fossile d’un ichthyosaure de la période du Jurassique, Dinosaurland Fossil Museum, Lyme Regis, Dorset, Royaume-Uni  (© Christopher Jones/Alamy)|Fossilisé !|![](/fr-FR/2021/10/202110122200IchthyosaurFossil.jpg)|
+202110132200|SaguaroFamily|Famille de Saguaros et la Voie lactée dans le parc national de Saguaro, Arizona (© Christian Foto Az/Shutterstock)|Aïe, ça pique !|![](/fr-FR/2021/10/202110132200SaguaroFamily.jpg)|
