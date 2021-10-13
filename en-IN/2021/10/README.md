@@ -13,3 +13,4 @@
 202110101830|RedPandas|Red pandas in cloud forest habitat of Singalila in West Bengal, India (© Ben Cranke/Minden Pictures)|On the red panda trail|![](/en-IN/2021/10/202110101830RedPandas.jpg)|
 202110111830|StMalo|Saint-Malo in Brittany, France (© Mathieu Rivrin/Moment/Getty Images)|High tide at the walled city|![](/en-IN/2021/10/202110111830StMalo.jpg)|
 202110121830|IchthyosaurFossil|An ichthyosaur fossil of the Jurassic period, Dinosaurland Fossil Museum, Lyme Regis, Dorset, England (© Christopher Jones/Alamy)|Celebrating a young girl's age-old discovery|![](/en-IN/2021/10/202110121830IchthyosaurFossil.jpg)|
+202110131830|SaguaroFamily|Saguaro 'family' and Milky Way, Saguaro National Park, Arizona (© Christian Foto Az/Shutterstock)|Happy birthday, Saguaro National Park|![](/en-IN/2021/10/202110131830SaguaroFamily.jpg)|
