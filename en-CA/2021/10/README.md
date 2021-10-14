@@ -13,3 +13,4 @@
 202110110400|ChipmunkBerries|Least Chipmunk (Tamias minimus) adult, feeding on berries in Autumn, Jasper National Park, Alta. (© Ignacio Yufera/Minden Pictures)|Happy Thanksgiving!|![](/en-CA/2021/10/202110110400ChipmunkBerries.jpg)|
 202110120400|StMalo|Saint-Malo in Brittany, France (© Mathieu Rivrin/Moment/Getty Images)|High tide at the walled city|![](/en-CA/2021/10/202110120400StMalo.jpg)|
 202110130400|IchthyosaurFossil|An ichthyosaur fossil of the Jurassic period, Dinosaurland Fossil Museum, Lyme Regis, Dorset, England (© Christopher Jones/Alamy)|Celebrating a young girl's age-old discovery|![](/en-CA/2021/10/202110130400IchthyosaurFossil.jpg)|
+202110140400|SaguaroFamily|Saguaro 'family' and Milky Way, Saguaro National Park, Arizona (© Christian Foto Az/Shutterstock)|Saguaro National Park, Arizona|![](/en-CA/2021/10/202110140400SaguaroFamily.jpg)|
