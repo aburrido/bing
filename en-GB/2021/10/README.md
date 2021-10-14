@@ -14,3 +14,4 @@
 202110112300|StMalo|Saint-Malo in Brittany, France (© Mathieu Rivrin/Moment/Getty Images)|High tide at the walled city|![](/en-GB/2021/10/202110112300StMalo.jpg)|
 202110122300|IchthyosaurFossil|An ichthyosaur fossil of the Jurassic period, Dinosaurland Fossil Museum, Lyme Regis, Dorset (© Christopher Jones/Alamy)|Mary's monster find|![](/en-GB/2021/10/202110122300IchthyosaurFossil.jpg)|
 202110132300|SaguaroFamily|Saguaro 'family' and Milky Way, Saguaro National Park, Arizona, USA (© Christian Foto Az/Shutterstock)|Prickly giants|![](/en-GB/2021/10/202110132300SaguaroFamily.jpg)|
+202110142300|ProseccoHills|Farra di Soligo in the Prosecco Hills of Veneto, Italy (© Olimpio Fantuz/Sime/eStock Photo)|Autumn in the Prosecco Hills|![](/en-GB/2021/10/202110142300ProseccoHills.jpg)|
