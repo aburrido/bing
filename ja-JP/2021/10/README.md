@@ -14,3 +14,4 @@
 202110111500|StMalo|｢サン・マロ｣フランス, ブルターニュ地方 (© MathieuRivrin/Moment/Getty Images)|イギリス海峡の要塞都市|![](/ja-JP/2021/10/202110111500StMalo.jpg)|
 202110121500|ProseccoHills|｢ファッラ・ディ・ソリーゴ｣イタリア, ヴェネト州 (© Olimpio Fantuz/Sime/eStock Photo)|霧に沈む丘陵地帯|![](/ja-JP/2021/10/202110121500ProseccoHills.jpg)|
 202110131500|SaguaroFamily|｢サワロ国立公園｣米国, アリゾナ州 (© Shutterstock)|サボテンと銀河|![](/ja-JP/2021/10/202110131500SaguaroFamily.jpg)|
+202110141500|IchthyosaurFossil|｢イクチオサウルスの化石｣イギリス，ドーセット (© Alamy)|今日は「化石の日」|![](/ja-JP/2021/10/202110141500IchthyosaurFossil.jpg)|
