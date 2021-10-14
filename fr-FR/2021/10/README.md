@@ -14,3 +14,4 @@
 202110112200|StMalo|Saint-Malo, Bretagne (© MathieuRivrin/Moment/Getty Images)|Ô Saint-Malo|![](/fr-FR/2021/10/202110112200StMalo.jpg)|
 202110122200|IchthyosaurFossil|Le fossile d’un ichthyosaure de la période du Jurassique, Dinosaurland Fossil Museum, Lyme Regis, Dorset, Royaume-Uni  (© Christopher Jones/Alamy)|Fossilisé !|![](/fr-FR/2021/10/202110122200IchthyosaurFossil.jpg)|
 202110132200|SaguaroFamily|Famille de Saguaros et la Voie lactée dans le parc national de Saguaro, Arizona (© Christian Foto Az/Shutterstock)|Aïe, ça pique !|![](/fr-FR/2021/10/202110132200SaguaroFamily.jpg)|
+202110142200|ProseccoHills|Farra di Soligo dans les collines du prosecco de la Vénétie, Italie (© Olimpio Fantuz/Sime/eStock Photo)|Des bulles italiennes|![](/fr-FR/2021/10/202110142200ProseccoHills.jpg)|

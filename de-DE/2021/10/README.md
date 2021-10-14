@@ -14,3 +14,4 @@
 202110112200|StMalo|Saint-Malo in der Bretagne, Frankreich (© MathieuRivrin/Moment/Getty Images)|Hochwasser vor der Altstadtmauer|![](/de-DE/2021/10/202110112200StMalo.jpg)|
 202110122200|IchthyosaurFossil|Fossil eines Ichthyosauriers aus der Jurazeit, Dinosaurland Fossil Museum, Lyme Regis, Grafschaft Dorset, England (© Christopher Jones/Alamy Stock Photo)|Ein junges Mädchen und eine uralte Entdeckung|![](/de-DE/2021/10/202110122200IchthyosaurFossil.jpg)|
 202110132200|SaguaroFamily|Saguaro-Kakteen und Milchstraße, Saguaro-Nationalpark, Arizona, USA (© Christian Foto Az/Shutterstock)|Alles Gute, Saguaro-Nationalpark!|![](/de-DE/2021/10/202110132200SaguaroFamily.jpg)|
+202110142200|ProseccoHills|Farra di Soligo in den Prosecco-Hügeln von Venetien, Italien (© Olimpio Fantuz/Sime/eStock Photo)|Herbst in den Prosecco-Hügeln|![](/de-DE/2021/10/202110142200ProseccoHills.jpg)|
