@@ -14,3 +14,4 @@
 202110120400|StMalo|Saint-Malo, Bretagne, France (© Mathieu Rivrin/Moment/Getty Images)||![](/fr-CA/2021/10/202110120400StMalo.jpg)|
 202110130400|IchthyosaurFossil|Le fossile d’un ichthyosaure de la période du Jurassique, Dinosaurland Fossil Museum, Lyme Regis, Dorset, Royaume-Uni (© Christopher Jones/Alamy)||![](/fr-CA/2021/10/202110130400IchthyosaurFossil.jpg)|
 202110140400|SaguaroFamily|Famille de Saguaros et la Voie lactée dans le parc national de Saguaro, Arizona (© Christian Foto Az/Shutterstock)||![](/fr-CA/2021/10/202110140400SaguaroFamily.jpg)|
+202110150400|ProseccoHills|Famille de Saguaros et la Voie lactée dans le parc national de Saguaro, Arizona (© Olimpio Fantuz/Sime/eStock Photo)||![](/fr-CA/2021/10/202110150400ProseccoHills.jpg)|
