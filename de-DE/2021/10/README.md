@@ -15,3 +15,4 @@
 202110122200|IchthyosaurFossil|Fossil eines Ichthyosauriers aus der Jurazeit, Dinosaurland Fossil Museum, Lyme Regis, Grafschaft Dorset, England (© Christopher Jones/Alamy Stock Photo)|Ein junges Mädchen und eine uralte Entdeckung|![](/de-DE/2021/10/202110122200IchthyosaurFossil.jpg)|
 202110132200|SaguaroFamily|Saguaro-Kakteen und Milchstraße, Saguaro-Nationalpark, Arizona, USA (© Christian Foto Az/Shutterstock)|Alles Gute, Saguaro-Nationalpark!|![](/de-DE/2021/10/202110132200SaguaroFamily.jpg)|
 202110142200|ProseccoHills|Farra di Soligo in den Prosecco-Hügeln von Venetien, Italien (© Olimpio Fantuz/Sime/eStock Photo)|Herbst in den Prosecco-Hügeln|![](/de-DE/2021/10/202110142200ProseccoHills.jpg)|
+202110152200|Hatshepsut|Luftbild des Totentempels der Hatschepsut nahe Luxor, Ägypten (© Ratnakorn Piyasirisorost/Moment/Getty Images)|Die Freilegung der Geschichte einer Königin|![](/de-DE/2021/10/202110152200Hatshepsut.jpg)|
