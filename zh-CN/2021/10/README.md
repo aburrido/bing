@@ -16,3 +16,4 @@
 202110121600|IchthyosaurFossil|侏罗纪时期的鱼龙化石，英国多塞特 (© Christopher Jones/Alamy)||![](/zh-CN/2021/10/202110121600IchthyosaurFossil.jpg)|
 202110131600|SaguaroFamily|星空下的仙人掌家族，美国萨瓜罗国家公园 (© Christian Foto Az/Shutterstock)||![](/zh-CN/2021/10/202110131600SaguaroFamily.jpg)|
 202110141600|ProseccoHills|世界著名气泡酒产地普罗塞克山丘,意大利威尼托 (© Olimpio Fantuz/Sime/eStock Photo)||![](/zh-CN/2021/10/202110141600ProseccoHills.jpg)|
+202110151600|Hatshepsut|哈特谢普苏特女王神庙鸟瞰图，埃及卢克索古城 (© Ratnakorn Piyasirisorost/Moment/Getty Images)||![](/zh-CN/2021/10/202110151600Hatshepsut.jpg)|
