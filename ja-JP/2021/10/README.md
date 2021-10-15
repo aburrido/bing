@@ -15,3 +15,4 @@
 202110121500|ProseccoHills|｢ファッラ・ディ・ソリーゴ｣イタリア, ヴェネト州 (© Olimpio Fantuz/Sime/eStock Photo)|霧に沈む丘陵地帯|![](/ja-JP/2021/10/202110121500ProseccoHills.jpg)|
 202110131500|SaguaroFamily|｢サワロ国立公園｣米国, アリゾナ州 (© Shutterstock)|サボテンと銀河|![](/ja-JP/2021/10/202110131500SaguaroFamily.jpg)|
 202110141500|IchthyosaurFossil|｢イクチオサウルスの化石｣イギリス，ドーセット (© Alamy)|今日は「化石の日」|![](/ja-JP/2021/10/202110141500IchthyosaurFossil.jpg)|
+202110151500|Hatshepsut|｢ハトシェプスト女王葬祭殿｣エジプト, ルクソール西岸 (© Ratnakorn Piyasirisorost/Moment/Getty Images)|ハトシェプスト女王の葬祭殿|![](/ja-JP/2021/10/202110151500Hatshepsut.jpg)|
