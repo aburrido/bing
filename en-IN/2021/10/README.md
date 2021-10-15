@@ -15,3 +15,4 @@
 202110121830|IchthyosaurFossil|An ichthyosaur fossil of the Jurassic period, Dinosaurland Fossil Museum, Lyme Regis, Dorset, England (© Christopher Jones/Alamy)|Celebrating a young girl's age-old discovery|![](/en-IN/2021/10/202110121830IchthyosaurFossil.jpg)|
 202110131830|SaguaroFamily|Saguaro 'family' and Milky Way, Saguaro National Park, Arizona (© Christian Foto Az/Shutterstock)|Happy birthday, Saguaro National Park|![](/en-IN/2021/10/202110131830SaguaroFamily.jpg)|
 202110141830|RavanaEffigy|An artisan applies final touches to an effigy of Ravana in Jammu, India (© Mukesh Gupta/Reuters)|Celebrating the victory of good over evil|![](/en-IN/2021/10/202110141830RavanaEffigy.jpg)|
+202110151830|Hatshepsut|Aerial view of the Temple of Hatshepsut near Luxor, Egypt (© Ratnakorn Piyasirisorost/Moment/Getty Images)|Unearthing a queen's lost tale|![](/en-IN/2021/10/202110151830Hatshepsut.jpg)|
