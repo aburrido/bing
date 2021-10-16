@@ -16,3 +16,4 @@
 202110131500|SaguaroFamily|｢サワロ国立公園｣米国, アリゾナ州 (© Shutterstock)|サボテンと銀河|![](/ja-JP/2021/10/202110131500SaguaroFamily.jpg)|
 202110141500|IchthyosaurFossil|｢イクチオサウルスの化石｣イギリス，ドーセット (© Alamy)|今日は「化石の日」|![](/ja-JP/2021/10/202110141500IchthyosaurFossil.jpg)|
 202110151500|Hatshepsut|｢ハトシェプスト女王葬祭殿｣エジプト, ルクソール西岸 (© Ratnakorn Piyasirisorost/Moment/Getty Images)|ハトシェプスト女王の葬祭殿|![](/ja-JP/2021/10/202110151500Hatshepsut.jpg)|
+202110161500|Whakarewarewa|「ファカレワレワ森林保護区｣ニュージーランド北島 (© Michael Breitung/Huber/eStock Photo)|セコイアの森のトレイル|![](/ja-JP/2021/10/202110161500Whakarewarewa.jpg)|
