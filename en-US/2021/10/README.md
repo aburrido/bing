@@ -16,3 +16,4 @@
 202110130700|IchthyosaurFossil|An ichthyosaur fossil of the Jurassic period, Dinosaurland Fossil Museum, Lyme Regis, Dorset, England (© Christopher Jones/Alamy)|Celebrating a young girl's age-old discovery|![](/en-US/2021/10/202110130700IchthyosaurFossil.jpg)|
 202110140700|SaguaroFamily|Saguaro 'family' and Milky Way, Saguaro National Park, Arizona (© Christian Foto Az/Shutterstock)|Happy birthday, Saguaro National Park|![](/en-US/2021/10/202110140700SaguaroFamily.jpg)|
 202110150700|ProseccoHills|Farra di Soligo in the Prosecco Hills of Veneto, Italy (© Olimpio Fantuz/Sime/eStock Photo)|Autumn in the Prosecco Hills|![](/en-US/2021/10/202110150700ProseccoHills.jpg)|
+202110160700|Hatshepsut|Aerial view of the Temple of Hatshepsut near Luxor, Egypt (© Ratnakorn Piyasirisorost/Moment/Getty Images)|Unearthing a queen's lost tale|![](/en-US/2021/10/202110160700Hatshepsut.jpg)|
