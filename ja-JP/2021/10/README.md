@@ -17,3 +17,4 @@
 202110141500|IchthyosaurFossil|｢イクチオサウルスの化石｣イギリス，ドーセット (© Alamy)|今日は「化石の日」|![](/ja-JP/2021/10/202110141500IchthyosaurFossil.jpg)|
 202110151500|Hatshepsut|｢ハトシェプスト女王葬祭殿｣エジプト, ルクソール西岸 (© Ratnakorn Piyasirisorost/Moment/Getty Images)|ハトシェプスト女王の葬祭殿|![](/ja-JP/2021/10/202110151500Hatshepsut.jpg)|
 202110161500|Whakarewarewa|「ファカレワレワ森林保護区｣ニュージーランド北島 (© Michael Breitung/Huber/eStock Photo)|セコイアの森のトレイル|![](/ja-JP/2021/10/202110161500Whakarewarewa.jpg)|
+202110171500|MoonCloud|｢夕焼けに映える月｣ (© kanzilyou/iStock/Getty Images Plus)|今日は十三夜|![](/ja-JP/2021/10/202110171500MoonCloud.jpg)|
