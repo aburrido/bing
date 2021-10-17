@@ -16,3 +16,4 @@
 202110140400|SaguaroFamily|Famille de Saguaros et la Voie lactée dans le parc national de Saguaro, Arizona (© Christian Foto Az/Shutterstock)||![](/fr-CA/2021/10/202110140400SaguaroFamily.jpg)|
 202110150400|ProseccoHills|Famille de Saguaros et la Voie lactée dans le parc national de Saguaro, Arizona (© Olimpio Fantuz/Sime/eStock Photo)||![](/fr-CA/2021/10/202110150400ProseccoHills.jpg)|
 202110160400|MauricieAutumn|Le lac Wapizagonke dans le parc national de la Mauricie, Québec (© Instants/Getty Images)||![](/fr-CA/2021/10/202110160400MauricieAutumn.jpg)|
+202110170400|Whakarewarewa|Séquoias dans la forêt Whakarewarewa, île du Nord, Nouvelle-Zélande (© Michael Breitung/Huber/eStock Photo)||![](/fr-CA/2021/10/202110170400Whakarewarewa.jpg)|

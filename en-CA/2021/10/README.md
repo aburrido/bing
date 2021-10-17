@@ -16,3 +16,4 @@
 202110140400|SaguaroFamily|Saguaro 'family' and Milky Way, Saguaro National Park, Arizona (© Christian Foto Az/Shutterstock)|Saguaro National Park, Arizona|![](/en-CA/2021/10/202110140400SaguaroFamily.jpg)|
 202110150400|ProseccoHills|Farra di Soligo in the Prosecco Hills of Veneto, Italy (© Olimpio Fantuz/Sime/eStock Photo)|Autumn in the Prosecco Hills|![](/en-CA/2021/10/202110150400ProseccoHills.jpg)|
 202110160400|MauricieAutumn|The Wapizagonke Lake in La Mauricie National Park, Quebec (© Instants/Getty Images)|Vibrant colours of Fall|![](/en-CA/2021/10/202110160400MauricieAutumn.jpg)|
+202110170400|Whakarewarewa|Redwood Memorial Grove in Whakarewarewa Forest, North Island, New Zealand (© Michael Breitung/Huber/eStock Photo)|A walk among the giants|![](/en-CA/2021/10/202110170400Whakarewarewa.jpg)|
