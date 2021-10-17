@@ -17,3 +17,4 @@
 202110142300|ProseccoHills|Farra di Soligo in the Prosecco Hills of Veneto, Italy (© Olimpio Fantuz/Sime/eStock Photo)|Autumn in the Prosecco Hills|![](/en-GB/2021/10/202110142300ProseccoHills.jpg)|
 202110152300|Hatshepsut|Aerial view of the Temple of Hatshepsut near Luxor, Egypt (© Ratnakorn Piyasirisorost/Moment/Getty Images)|Unearthing a queen's lost tale|![](/en-GB/2021/10/202110152300Hatshepsut.jpg)|
 202110162300|Whakarewarewa|Redwood Memorial Grove in Whakarewarewa Forest, North Island, New Zealand (© Michael Breitung/Huber/eStock Photo)|A walk among the giants|![](/en-GB/2021/10/202110162300Whakarewarewa.jpg)|
+202110172300|CapelCurig|Capel Curig in Snowdonia National Park (© Sebastian Wasek/Sime/eStock Photo)|Snowdonia turns 70|![](/en-GB/2021/10/202110172300CapelCurig.jpg)|
