@@ -17,3 +17,4 @@
 202110141830|RavanaEffigy|An artisan applies final touches to an effigy of Ravana in Jammu, India (© Mukesh Gupta/Reuters)|Celebrating the victory of good over evil|![](/en-IN/2021/10/202110141830RavanaEffigy.jpg)|
 202110151830|Hatshepsut|Aerial view of the Temple of Hatshepsut near Luxor, Egypt (© Ratnakorn Piyasirisorost/Moment/Getty Images)|Unearthing a queen's lost tale|![](/en-IN/2021/10/202110151830Hatshepsut.jpg)|
 202110161830|Whakarewarewa|Redwood Memorial Grove in Whakarewarewa Forest, North Island, New Zealand (© Michael Breitung/Huber/eStock Photo)|A walk among the giants|![](/en-IN/2021/10/202110161830Whakarewarewa.jpg)|
+202110171830|CapelCurig|Capel Curig in Snowdonia National Park, Wales, United Kingdom (© Sebastian Wasek/Sime/eStock Photo)|A Welsh wonder turns 70|![](/en-IN/2021/10/202110171830CapelCurig.jpg)|
