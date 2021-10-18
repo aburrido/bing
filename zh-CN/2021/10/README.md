@@ -19,3 +19,4 @@
 202110151600|Hatshepsut|哈特谢普苏特女王神庙鸟瞰图，埃及卢克索古城 (© Ratnakorn Piyasirisorost/Moment/Getty Images)||![](/zh-CN/2021/10/202110151600Hatshepsut.jpg)|
 202110161600|Whakarewarewa|华卡雷瓦雷瓦森林的红木纪念树林，新西兰北岛 (© Michael Breitung/Huber/eStock Photo)||![](/zh-CN/2021/10/202110161600Whakarewarewa.jpg)|
 202110171600|CapelCurig|史诺多尼亚国家公园的Capel Curig，英国威尔士 (© Sebastian Wasek/Sime/eStock Photo)||![](/zh-CN/2021/10/202110171600CapelCurig.jpg)|
+202110181600|FanalMadeira|马德拉岛的法纳尔森林，葡萄牙 (© Val Thoermer/Alamy)||![](/zh-CN/2021/10/202110181600FanalMadeira.jpg)|
