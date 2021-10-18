@@ -18,3 +18,4 @@
 202110152200|Hatshepsut|Luftbild des Totentempels der Hatschepsut nahe Luxor, Ägypten (© Ratnakorn Piyasirisorost/Moment/Getty Images)|Die Freilegung der Geschichte einer Königin|![](/de-DE/2021/10/202110152200Hatshepsut.jpg)|
 202110162200|Whakarewarewa|Redwood Memorial Grove, Whakarewarewa Forest, Rotorua, Nordinsel, Neuseeland (© Michael Breitung/Huber/eStock Photo)|Ein Spaziergang unter Riesen|![](/de-DE/2021/10/202110162200Whakarewarewa.jpg)|
 202110172200|CapelCurig|Capel Curig im Snowdonia-Nationalpark, Wales (© Sebastian Wasek/Sime/eStock Photo)|Ein walisisches Naturwunder wird 70|![](/de-DE/2021/10/202110172200CapelCurig.jpg)|
+202110182200|FanalMadeira|Der Lorbeerwald von Fanal auf Madeira, Portugal (© PETAR MLADENOV/Alamy Stock Photo)|Wanderung durch den „Feenwald“|![](/de-DE/2021/10/202110182200FanalMadeira.jpg)|

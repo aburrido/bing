@@ -18,3 +18,4 @@
 202110152200|Hatshepsut|Vue aérienne du temple d’Hatchepsout près de Louxor, Egypte (© Ratnakorn Piyasirisoros/Moment/Getty Images)|Héritage d’une reine|![](/fr-FR/2021/10/202110152200Hatshepsut.jpg)|
 202110162200|RunningWilde|Des coureurs passent devant l’Obélisque place de la Concorde pendant le 42ème marathon de Paris en avril 2018 (© Ian Lagsdon/EPA-EFE/Shutterstock)|Rien ne sert de courir…|![](/fr-FR/2021/10/202110162200RunningWilde.jpg)|
 202110172200|CapelCurig|Le village de Capel Curig dans le parc national de Snowdonia, pays de Galles, Royaume-Uni (© Sebastian Wasek/Sime/eStock Photo)|Grands espaces à l’anglaise|![](/fr-FR/2021/10/202110172200CapelCurig.jpg)|
+202110182200|FanalMadeira|Forêt de lauriers à Madère, Portugal (© PETAR MLADENOV/Alamy Stock Photo)|Longue vie aux lauriers|![](/fr-FR/2021/10/202110182200FanalMadeira.jpg)|
