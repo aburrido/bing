@@ -20,3 +20,4 @@
 202110161600|Whakarewarewa|华卡雷瓦雷瓦森林的红木纪念树林，新西兰北岛 (© Michael Breitung/Huber/eStock Photo)||![](/zh-CN/2021/10/202110161600Whakarewarewa.jpg)|
 202110171600|CapelCurig|史诺多尼亚国家公园的Capel Curig，英国威尔士 (© Sebastian Wasek/Sime/eStock Photo)||![](/zh-CN/2021/10/202110171600CapelCurig.jpg)|
 202110181600|FanalMadeira|马德拉岛的法纳尔森林，葡萄牙 (© Val Thoermer/Alamy)||![](/zh-CN/2021/10/202110181600FanalMadeira.jpg)|
+202110191600|SmileySloth|微笑的树懒,哥斯达黎加 (© Lukas Kovarik/Shutterstock)||![](/zh-CN/2021/10/202110191600SmileySloth.jpg)|
