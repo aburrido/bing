@@ -19,3 +19,4 @@
 202110161500|Whakarewarewa|「ファカレワレワ森林保護区｣ニュージーランド北島 (© Michael Breitung/Huber/eStock Photo)|セコイアの森のトレイル|![](/ja-JP/2021/10/202110161500Whakarewarewa.jpg)|
 202110171500|MoonCloud|｢夕焼けに映える月｣ (© kanzilyou/iStock/Getty Images Plus)|今日は十三夜|![](/ja-JP/2021/10/202110171500MoonCloud.jpg)|
 202110181500|FanalMadeira|｢ファナル・フォレスト｣ポルトガル, マデイラ諸島 (© PETAR MLADENOV/Alamy Stock Photo)|ポルトガルの月桂樹林|![](/ja-JP/2021/10/202110181500FanalMadeira.jpg)|
+202110191500|SmileySloth|｢マヌエル・アントニオ国立公園｣コスタリカ (© Lukas Kovarik/Shutterstock)|今日は「国際ナマケモノデー」|![](/ja-JP/2021/10/202110191500SmileySloth.jpg)|
