@@ -20,3 +20,4 @@
 202110172200|CapelCurig|Capel Curig im Snowdonia-Nationalpark, Wales (© Sebastian Wasek/Sime/eStock Photo)|Ein walisisches Naturwunder wird 70|![](/de-DE/2021/10/202110172200CapelCurig.jpg)|
 202110182200|FanalMadeira|Der Lorbeerwald von Fanal auf Madeira, Portugal (© PETAR MLADENOV/Alamy Stock Photo)|Wanderung durch den „Feenwald“|![](/de-DE/2021/10/202110182200FanalMadeira.jpg)|
 202110192200|SmileySloth|Braunkehl-Faultier im Manuel-Antonio-Nationalpark, Costa Rica (© Lukas Kovarik/Shutterstock)|Heute ist ein Tag zum Faulenzen!|![](/de-DE/2021/10/202110192200SmileySloth.jpg)|
+202110202200|PassauInn|Abenddämmerung über der Altstadt von Passau, Bayern (© Sergey Alimov/Moment/Getty Images)|„Dreiflüssestadt“ in der Abenddämmerung|![](/de-DE/2021/10/202110202200PassauInn.jpg)|
