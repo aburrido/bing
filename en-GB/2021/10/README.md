@@ -20,3 +20,4 @@
 202110172300|CapelCurig|Capel Curig in Snowdonia National Park (© Sebastian Wasek/Sime/eStock Photo)|Snowdonia turns 70|![](/en-GB/2021/10/202110172300CapelCurig.jpg)|
 202110182300|FanalMadeira|The Fanal Forest on Madeira Island, Portugal (© Val Thoermer/Alamy)|These laurels are hardy|![](/en-GB/2021/10/202110182300FanalMadeira.jpg)|
 202110192300|SmileySloth|Brown-throated three-toed sloth in Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Feeling lazy? Today's your day|![](/en-GB/2021/10/202110192300SmileySloth.jpg)|
+202110202300|CoastalOtter|Otter (Lutra Lutra) in seaweed, Ardnamurchan. (© Michael Durham/Minden Pictures)|Otters bounce back|![](/en-GB/2021/10/202110202300CoastalOtter.jpg)|
