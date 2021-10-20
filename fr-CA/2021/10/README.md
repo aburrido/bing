@@ -19,3 +19,4 @@
 202110170400|Whakarewarewa|Séquoias dans la forêt Whakarewarewa, île du Nord, Nouvelle-Zélande (© Michael Breitung/Huber/eStock Photo)||![](/fr-CA/2021/10/202110170400Whakarewarewa.jpg)|
 202110180400|CapelCurig|Le village de Capel Curig dans le parc national de Snowdonia, pays de Galles, Royaume-Uni (© Sebastian Wasek/Sime/eStock Photo)||![](/fr-CA/2021/10/202110180400CapelCurig.jpg)|
 202110190400|FanalMadeira|Forêt de lauriers à Madère, Portugal (© Val Thoermer/Alamy)||![](/fr-CA/2021/10/202110190400FanalMadeira.jpg)|
+202110200400|SmileySloth|Paresseux à gorge brune dans le parc national Manuel Antonio, Costa Rica (© Lukas Kovarik/Shutterstock)||![](/fr-CA/2021/10/202110200400SmileySloth.jpg)|

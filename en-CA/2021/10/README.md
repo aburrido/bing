@@ -19,3 +19,4 @@
 202110170400|Whakarewarewa|Redwood Memorial Grove in Whakarewarewa Forest, North Island, New Zealand (© Michael Breitung/Huber/eStock Photo)|A walk among the giants|![](/en-CA/2021/10/202110170400Whakarewarewa.jpg)|
 202110180400|CapelCurig|Capel Curig in Snowdonia National Park, Wales, United Kingdom (© Sebastian Wasek/Sime/eStock Photo)|A Welsh wonder turns 70|![](/en-CA/2021/10/202110180400CapelCurig.jpg)|
 202110190400|FanalMadeira|The Fanal Forest on Madeira Island, Portugal (© Val Thoermer/Alamy)|These laurels are hardy|![](/en-CA/2021/10/202110190400FanalMadeira.jpg)|
+202110200400|SmileySloth|Brown-throated three-toed sloth in Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Feeling lazy? Today's your day.|![](/en-CA/2021/10/202110200400SmileySloth.jpg)|
