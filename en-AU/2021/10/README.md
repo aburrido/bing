@@ -20,3 +20,4 @@
 202110170700|Whakarewarewa|Redwood Memorial Grove, Whakarewarewa Forest, North Island, New Zealand (© Michael Breitung/Huber/eStock Photo)|Info|![](/en-AU/2021/10/202110170700Whakarewarewa.jpg)|
 202110180700|CapelCurig|Capel Curig, Snowdonia National Park, Wales, United Kingdom (© Sebastian Wasek/Sime/eStock Photo)|Info|![](/en-AU/2021/10/202110180700CapelCurig.jpg)|
 202110190700|FanalMadeira|Fanal forest, Madeira island, Portugal (© Val Thoermer/Alamy)|Info|![](/en-AU/2021/10/202110190700FanalMadeira.jpg)|
+202110200700|SmileySloth|Brown-throated sloth, Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Info|![](/en-AU/2021/10/202110200700SmileySloth.jpg)|
