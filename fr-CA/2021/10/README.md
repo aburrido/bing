@@ -20,3 +20,4 @@
 202110180400|CapelCurig|Le village de Capel Curig dans le parc national de Snowdonia, pays de Galles, Royaume-Uni (© Sebastian Wasek/Sime/eStock Photo)||![](/fr-CA/2021/10/202110180400CapelCurig.jpg)|
 202110190400|FanalMadeira|Forêt de lauriers à Madère, Portugal (© Val Thoermer/Alamy)||![](/fr-CA/2021/10/202110190400FanalMadeira.jpg)|
 202110200400|SmileySloth|Paresseux à gorge brune dans le parc national Manuel Antonio, Costa Rica (© Lukas Kovarik/Shutterstock)||![](/fr-CA/2021/10/202110200400SmileySloth.jpg)|
+202110210400|AtchafalayaMoss|Cyprès chauve et mousse espagnole dans le bassin d’Atchafalaya, Louisiane, États-Unis (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)||![](/fr-CA/2021/10/202110210400AtchafalayaMoss.jpg)|
