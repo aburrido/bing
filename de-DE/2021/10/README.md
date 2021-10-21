@@ -21,3 +21,4 @@
 202110182200|FanalMadeira|Der Lorbeerwald von Fanal auf Madeira, Portugal (© PETAR MLADENOV/Alamy Stock Photo)|Wanderung durch den „Feenwald“|![](/de-DE/2021/10/202110182200FanalMadeira.jpg)|
 202110192200|SmileySloth|Braunkehl-Faultier im Manuel-Antonio-Nationalpark, Costa Rica (© Lukas Kovarik/Shutterstock)|Heute ist ein Tag zum Faulenzen!|![](/de-DE/2021/10/202110192200SmileySloth.jpg)|
 202110202200|PassauInn|Abenddämmerung über der Altstadt von Passau, Bayern (© Sergey Alimov/Moment/Getty Images)|„Dreiflüssestadt“ in der Abenddämmerung|![](/de-DE/2021/10/202110202200PassauInn.jpg)|
+202110212200|Neowise|Der Komet NEOWISE über dem Sunwapta Lake im Jasper-Nationalpark, Kanada (© Stocktrek Images, Inc./Alamy Stock Photo)|Faszinierender Nachthimmel|![](/de-DE/2021/10/202110212200Neowise.jpg)|

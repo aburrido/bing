@@ -21,3 +21,4 @@
 202110182200|FanalMadeira|Forêt de lauriers à Madère, Portugal (© PETAR MLADENOV/Alamy Stock Photo)|Longue vie aux lauriers|![](/fr-FR/2021/10/202110182200FanalMadeira.jpg)|
 202110192200|SmileySloth|Paresseux à gorge brune dans le parc national Manuel Antonio, Costa Rica (© Lukas Kovarik/Shutterstock)|Douuuucement|![](/fr-FR/2021/10/202110192200SmileySloth.jpg)|
 202110202200|GlassCeiling|Plafond voûté du Grand Palais en verre et en acier, Paris (© Roberto Destarac Photo/Shutterstock)|FIAC !|![](/fr-FR/2021/10/202110202200GlassCeiling.jpg)|
+202110212200|Neowise|Comète NEOWISE traversant le ciel au-dessus du lac Sunwapta dans le parc national de Jasper (© Stocktrek Images, Inc./Alamy Stock Photo)|Lueurs de l’air|![](/fr-FR/2021/10/202110212200Neowise.jpg)|
