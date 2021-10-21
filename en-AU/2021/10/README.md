@@ -21,3 +21,4 @@
 202110180700|CapelCurig|Capel Curig, Snowdonia National Park, Wales, United Kingdom (© Sebastian Wasek/Sime/eStock Photo)|Info|![](/en-AU/2021/10/202110180700CapelCurig.jpg)|
 202110190700|FanalMadeira|Fanal forest, Madeira island, Portugal (© Val Thoermer/Alamy)|Info|![](/en-AU/2021/10/202110190700FanalMadeira.jpg)|
 202110200700|SmileySloth|Brown-throated sloth, Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Info|![](/en-AU/2021/10/202110200700SmileySloth.jpg)|
+202110210700|AtchafalayaMoss|Atchafalaya Basin, Louisiana, USA (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)|Info|![](/en-AU/2021/10/202110210700AtchafalayaMoss.jpg)|
