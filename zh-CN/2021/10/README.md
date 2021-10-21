@@ -22,3 +22,4 @@
 202110181600|FanalMadeira|马德拉岛的法纳尔森林，葡萄牙 (© Val Thoermer/Alamy)||![](/zh-CN/2021/10/202110181600FanalMadeira.jpg)|
 202110191600|SmileySloth|微笑的树懒,哥斯达黎加 (© Lukas Kovarik/Shutterstock)||![](/zh-CN/2021/10/202110191600SmileySloth.jpg)|
 202110201600|AtchafalayaMoss|阿查法拉亚盆地的秃柏和西班牙苔藓，路易斯安那州 (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)||![](/zh-CN/2021/10/202110201600AtchafalayaMoss.jpg)|
+202110211600|Neowise|划过湖面上空的新智彗星，加拿大贾斯珀国家公园 (© Stocktrek Images, Inc./Alamy)||![](/zh-CN/2021/10/202110211600Neowise.jpg)|
