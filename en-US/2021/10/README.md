@@ -22,3 +22,4 @@
 202110190700|FanalMadeira|The Fanal Forest on Madeira Island, Portugal (© Val Thoermer/Alamy)|These laurels are hardy|![](/en-US/2021/10/202110190700FanalMadeira.jpg)|
 202110200700|SmileySloth|Brown-throated three-toed sloth in Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Feeling lazy? Today's your day.|![](/en-US/2021/10/202110200700SmileySloth.jpg)|
 202110210700|AtchafalayaMoss|Bald cypress and Spanish moss in the Atchafalaya Basin, Louisiana (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)|Here's looking Atchafalaya|![](/en-US/2021/10/202110210700AtchafalayaMoss.jpg)|
+202110220700|Neowise|Comet NEOWISE streaks across the sky over Sunwapta Lake in Jasper National Park, Alberta, Canada (© Stocktrek Images, Inc./Alamy)|Take in the mesmerizing sky|![](/en-US/2021/10/202110220700Neowise.jpg)|
