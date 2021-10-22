@@ -22,3 +22,4 @@
 202110192300|SmileySloth|Brown-throated three-toed sloth in Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Feeling lazy? Today's your day|![](/en-GB/2021/10/202110192300SmileySloth.jpg)|
 202110202300|CoastalOtter|Otter (Lutra Lutra) in seaweed, Ardnamurchan. (© Michael Durham/Minden Pictures)|Otters bounce back|![](/en-GB/2021/10/202110202300CoastalOtter.jpg)|
 202110212300|FoleysBridge|Foley's Bridge over the Shimna River in Tollymore Forest Park in County Down. (© Adrian McGlynn/Alamy)|A fantastical forest park|![](/en-GB/2021/10/202110212300FoleysBridge.jpg)|
+202110222300|ScopsOwl|Eurasian scops owl in Bohemian Switzerland National Park, Czech Republic (© Milan Zygmunt/Alamy)|Hoo's there?|![](/en-GB/2021/10/202110222300ScopsOwl.jpg)|
