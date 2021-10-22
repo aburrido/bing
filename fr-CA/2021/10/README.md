@@ -21,3 +21,4 @@
 202110190400|FanalMadeira|Forêt de lauriers à Madère, Portugal (© Val Thoermer/Alamy)||![](/fr-CA/2021/10/202110190400FanalMadeira.jpg)|
 202110200400|SmileySloth|Paresseux à gorge brune dans le parc national Manuel Antonio, Costa Rica (© Lukas Kovarik/Shutterstock)||![](/fr-CA/2021/10/202110200400SmileySloth.jpg)|
 202110210400|AtchafalayaMoss|Cyprès chauve et mousse espagnole dans le bassin d’Atchafalaya, Louisiane, États-Unis (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)||![](/fr-CA/2021/10/202110210400AtchafalayaMoss.jpg)|
+202110220400|Neowise|Comète NEOWISE traversant le ciel au-dessus du lac Sunwapta dans le parc national de Jasper (© Stocktrek Images, Inc./Alamy)||![](/fr-CA/2021/10/202110220400Neowise.jpg)|
