@@ -22,3 +22,4 @@
 202110191830|SmileySloth|Brown-throated three-toed sloth in Manuel Antonio National Park, Costa Rica (© Lukas Kovarik/Shutterstock)|Feeling lazy? Today's your day!|![](/en-IN/2021/10/202110191830SmileySloth.jpg)|
 202110201830|AtchafalayaMoss|Bald cypress and Spanish moss in the Atchafalaya Basin, Louisiana (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)|Here’s looking Atchafalaya|![](/en-IN/2021/10/202110201830AtchafalayaMoss.jpg)|
 202110211830|Neowise|Comet NEOWISE streaks across the sky over Sunwapta Lake in Jasper National Park, Alberta, Canada (© Stocktrek Images, Inc./Alamy)|Take in the mesmerising sky|![](/en-IN/2021/10/202110211830Neowise.jpg)|
+202110221830|ScopsOwl|Eurasian scops owl in Bohemian Switzerland National Park, Czech Republic (© Milan Zygmunt/Alamy)|Hoo's there?|![](/en-IN/2021/10/202110221830ScopsOwl.jpg)|
