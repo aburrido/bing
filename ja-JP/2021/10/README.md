@@ -22,3 +22,4 @@
 202110191500|SmileySloth|｢マヌエル・アントニオ国立公園｣コスタリカ (© Lukas Kovarik/Shutterstock)|今日は「国際ナマケモノデー」|![](/ja-JP/2021/10/202110191500SmileySloth.jpg)|
 202110201500|AtchafalayaMoss|｢ヌマスギとスパニッシュ・モス｣米国, ルイジアナ州 (© Chris Moore/Exploring Light Photography/TANDEM Stills + Motion)|米国最大の湿地帯|![](/ja-JP/2021/10/202110201500AtchafalayaMoss.jpg)|
 202110211500|Neowise|｢ジャスパー国立公園｣カナダ, アルバータ州 (© Stocktrek Images, Inc./Alamy Stock Photo)|カナダの世界遺産とネオワイズ彗星|![](/ja-JP/2021/10/202110211500Neowise.jpg)|
+202110221500|ScopsOwl|｢ボヘミアン・スイス国立公園｣チェコ共和国 (© Milan Zygmunt/Alamy)|秋の森とコノハズク|![](/ja-JP/2021/10/202110221500ScopsOwl.jpg)|
