@@ -24,3 +24,4 @@
 202110201600|AtchafalayaMoss|阿查法拉亚盆地的秃柏和西班牙苔藓，路易斯安那州 (© Chris Moore/Exploring Light Photography/Tandem Stills + Motion)||![](/zh-CN/2021/10/202110201600AtchafalayaMoss.jpg)|
 202110211600|Neowise|划过湖面上空的新智彗星，加拿大贾斯珀国家公园 (© Stocktrek Images, Inc./Alamy)||![](/zh-CN/2021/10/202110211600Neowise.jpg)|
 202110221600|ScopsOwl|波西米亚瑞士国家公园里的红角鸮，捷克共和国 (© Milan Zygmunt/Alamy)||![](/zh-CN/2021/10/202110221600ScopsOwl.jpg)|
+202110231600|Bavljenac|像巨大指纹一样的Bavljenac岛，克罗地亚 (© Julien Duval/Amazing Aerial Agency)||![](/zh-CN/2021/10/202110231600Bavljenac.jpg)|
