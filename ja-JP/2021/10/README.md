@@ -24,3 +24,4 @@
 202110211500|Neowise|｢ジャスパー国立公園｣カナダ, アルバータ州 (© Stocktrek Images, Inc./Alamy Stock Photo)|カナダの世界遺産とネオワイズ彗星|![](/ja-JP/2021/10/202110211500Neowise.jpg)|
 202110221500|ScopsOwl|｢ボヘミアン・スイス国立公園｣チェコ共和国 (© Milan Zygmunt/Alamy)|秋の森とコノハズク|![](/ja-JP/2021/10/202110221500ScopsOwl.jpg)|
 202110231500|Bavljenac|｢バヴリェナツ島｣クロアチア (© Julien Duval/Amazing Aerial Agency)|アドリア海に浮かぶ指紋の島|![](/ja-JP/2021/10/202110231500Bavljenac.jpg)|
+202110241500|BulgariaDevilBridge|｢デャヴォルスキ・モスト｣ブルガリア, アルディノ (© Petar Mladenov/Alamy Stock Photo)|ブルガリアの魔橋|![](/ja-JP/2021/10/202110241500BulgariaDevilBridge.jpg)|
