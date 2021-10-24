@@ -24,3 +24,4 @@
 202110211830|Neowise|Comet NEOWISE streaks across the sky over Sunwapta Lake in Jasper National Park, Alberta, Canada (© Stocktrek Images, Inc./Alamy)|Take in the mesmerising sky|![](/en-IN/2021/10/202110211830Neowise.jpg)|
 202110221830|ScopsOwl|Eurasian scops owl in Bohemian Switzerland National Park, Czech Republic (© Milan Zygmunt/Alamy)|Hoo's there?|![](/en-IN/2021/10/202110221830ScopsOwl.jpg)|
 202110231830|Bavljenac|Bavljenac Island, Croatia (© Julien Duval/Amazing Aerial Agency)|This 'fingerprint' is one of a kind|![](/en-IN/2021/10/202110231830Bavljenac.jpg)|
+202110241830|VirupakshaTemple|Virupaksha Temple framed by two huge rocks in Hampi, Karnataka (© Travel Wild/iStock/Getty Images Plus)|A temple dedicated to Lord Shiva|![](/en-IN/2021/10/202110241830VirupakshaTemple.jpg)|
