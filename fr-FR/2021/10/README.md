@@ -24,3 +24,4 @@
 202110212200|Neowise|Comète NEOWISE traversant le ciel au-dessus du lac Sunwapta dans le parc national de Jasper (© Stocktrek Images, Inc./Alamy Stock Photo)|Lueurs de l’air|![](/fr-FR/2021/10/202110212200Neowise.jpg)|
 202110222200|MixedSeason|Les Cévennes entre deux saisons (© Yann Guichaoua/Age Fotostock)|Sur les traces de Stevenson|![](/fr-FR/2021/10/202110222200MixedSeason.jpg)|
 202110232200|Bavljenac|L’île de Bavljenac, Croatie (© Julien Duval/Amazing Aerial Agency)|Empreinte de l’Histoire|![](/fr-FR/2021/10/202110232200Bavljenac.jpg)|
+202110242200|BulgariaDevilBridge|Dyavolski Most (le pont du diable) traversant l’Arda en Bulgarie (© Petar Mladenov/Alamy Stock Photo)|Le pont du diable|![](/fr-FR/2021/10/202110242200BulgariaDevilBridge.jpg)|

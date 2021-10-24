@@ -24,3 +24,4 @@
 202110212200|Neowise|Der Komet NEOWISE über dem Sunwapta Lake im Jasper-Nationalpark, Kanada (© Stocktrek Images, Inc./Alamy Stock Photo)|Faszinierender Nachthimmel|![](/de-DE/2021/10/202110212200Neowise.jpg)|
 202110222200|ScopsOwl|Zwergohreule im Nationalpark Böhmische Schweiz, Tschechien (© Milan Zygmunt/Alamy)|Kleiner Räuber|![](/de-DE/2021/10/202110222200ScopsOwl.jpg)|
 202110232200|Bavljenac|Insel Bavljenac, Kroatien (© Julien Duval/Amazing Aerial Agency)|Ein einzigartiger „Fingerabdruck“|![](/de-DE/2021/10/202110232200Bavljenac.jpg)|
+202110242200|HasenStoppelfeld|Feldhasen auf einem Stoppelfeld, Deutschland (© Michael Breuer/agefotostock/Alamy Stock Photo)|Herbstliches Beschnuppern|![](/de-DE/2021/10/202110242200HasenStoppelfeld.jpg)|
