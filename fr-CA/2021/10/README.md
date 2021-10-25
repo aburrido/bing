@@ -24,3 +24,4 @@
 202110220400|Neowise|Comète NEOWISE traversant le ciel au-dessus du lac Sunwapta dans le parc national de Jasper (© Stocktrek Images, Inc./Alamy)||![](/fr-CA/2021/10/202110220400Neowise.jpg)|
 202110230400|ScopsOwl|Petit-duc scops dans le parc national de la Suisse bohémienne (© Milan Zygmunt/Alamy)||![](/fr-CA/2021/10/202110230400ScopsOwl.jpg)|
 202110240400|Bavljenac|L’île de Bavljenac, Croatie (© Julien Duval/Amazing Aerial Agency)||![](/fr-CA/2021/10/202110240400Bavljenac.jpg)|
+202110250400|BulgariaDevilBridge|Dyavolski Most (le pont du diable) traversant l’Arda en Bulgarie (© Petar Mladenov/Alamy)||![](/fr-CA/2021/10/202110250400BulgariaDevilBridge.jpg)|
