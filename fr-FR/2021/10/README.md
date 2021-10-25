@@ -25,3 +25,4 @@
 202110222200|MixedSeason|Les Cévennes entre deux saisons (© Yann Guichaoua/Age Fotostock)|Sur les traces de Stevenson|![](/fr-FR/2021/10/202110222200MixedSeason.jpg)|
 202110232200|Bavljenac|L’île de Bavljenac, Croatie (© Julien Duval/Amazing Aerial Agency)|Empreinte de l’Histoire|![](/fr-FR/2021/10/202110232200Bavljenac.jpg)|
 202110242200|BulgariaDevilBridge|Dyavolski Most (le pont du diable) traversant l’Arda en Bulgarie (© Petar Mladenov/Alamy Stock Photo)|Le pont du diable|![](/fr-FR/2021/10/202110242200BulgariaDevilBridge.jpg)|
+202110252200|RedFoxBlackForest|Renard roux dans la Forêt-Noire en Allemagne (© Klaus Echle/Minden Pictures)|Maître renard|![](/fr-FR/2021/10/202110252200RedFoxBlackForest.jpg)|
