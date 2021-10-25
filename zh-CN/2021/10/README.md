@@ -26,3 +26,4 @@
 202110221600|ScopsOwl|波西米亚瑞士国家公园里的红角鸮，捷克共和国 (© Milan Zygmunt/Alamy)||![](/zh-CN/2021/10/202110221600ScopsOwl.jpg)|
 202110231600|Bavljenac|像巨大指纹一样的Bavljenac岛，克罗地亚 (© Julien Duval/Amazing Aerial Agency)||![](/zh-CN/2021/10/202110231600Bavljenac.jpg)|
 202110241600|BulgariaDevilBridge|阿尔达河上的魔鬼桥，保加利亚 (© Petar Mladenov/Alamy)||![](/zh-CN/2021/10/202110241600BulgariaDevilBridge.jpg)|
+202110251600|RedFoxBlackForest|黑林山中的赤狐，德国 (© Klaus Echle/Minden Pictures)||![](/zh-CN/2021/10/202110251600RedFoxBlackForest.jpg)|
