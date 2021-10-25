@@ -25,3 +25,4 @@
 202110220700|Neowise|Comet NEOWISE, Jasper National Park, Alberta, Canada (© Stocktrek Images, Inc./Alamy)|Info|![](/en-AU/2021/10/202110220700Neowise.jpg)|
 202110230700|ScopsOwl|Eurasian scops owl, Bohemian Switzerland National Park, Czech Republic (© Milan Zygmunt/Alamy)|Info|![](/en-AU/2021/10/202110230700ScopsOwl.jpg)|
 202110240700|Bavljenac|Bavljenac island, Croatia (© Julien Duval/Amazing Aerial Agency)|Info|![](/en-AU/2021/10/202110240700Bavljenac.jpg)|
+202110250700|BulgariaDevilBridge|Dyavolski most (Devil's Bridge), Arda river, Bulgaria (© Petar Mladenov/Alamy)|Info|![](/en-AU/2021/10/202110250700BulgariaDevilBridge.jpg)|
