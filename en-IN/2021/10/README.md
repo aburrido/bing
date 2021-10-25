@@ -25,3 +25,4 @@
 202110221830|ScopsOwl|Eurasian scops owl in Bohemian Switzerland National Park, Czech Republic (© Milan Zygmunt/Alamy)|Hoo's there?|![](/en-IN/2021/10/202110221830ScopsOwl.jpg)|
 202110231830|Bavljenac|Bavljenac Island, Croatia (© Julien Duval/Amazing Aerial Agency)|This 'fingerprint' is one of a kind|![](/en-IN/2021/10/202110231830Bavljenac.jpg)|
 202110241830|VirupakshaTemple|Virupaksha Temple framed by two huge rocks in Hampi, Karnataka (© Travel Wild/iStock/Getty Images Plus)|A temple dedicated to Lord Shiva|![](/en-IN/2021/10/202110241830VirupakshaTemple.jpg)|
+202110251830|RedFoxBlackForest|Red fox in the Black Forest of Germany (© Klaus Echle/Minden Pictures)|A red fox stalks the Black Forest|![](/en-IN/2021/10/202110251830RedFoxBlackForest.jpg)|
