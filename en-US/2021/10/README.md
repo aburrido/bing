@@ -26,3 +26,4 @@
 202110230700|ScopsOwl|Eurasian scops owl in Bohemian Switzerland National Park, Czech Republic (© Milan Zygmunt/Alamy)|Hoo's there?|![](/en-US/2021/10/202110230700ScopsOwl.jpg)|
 202110240700|Bavljenac|Bavljenac Island, Croatia (© Julien Duval/Amazing Aerial Agency)|This 'fingerprint' is one of a kind|![](/en-US/2021/10/202110240700Bavljenac.jpg)|
 202110250700|BulgariaDevilBridge|Dyavolski Most (Devil's Bridge) over the Arda River in Bulgaria (© Petar Mladenov/Alamy)|Does this crossing carry a curse?|![](/en-US/2021/10/202110250700BulgariaDevilBridge.jpg)|
+202110260700|RedFoxBlackForest|Red fox in the Black Forest of Germany (© Klaus Echle/Minden Pictures)|A red fox stalks the Black Forest|![](/en-US/2021/10/202110260700RedFoxBlackForest.jpg)|
