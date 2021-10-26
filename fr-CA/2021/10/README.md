@@ -25,3 +25,4 @@
 202110230400|ScopsOwl|Petit-duc scops dans le parc national de la Suisse bohémienne (© Milan Zygmunt/Alamy)||![](/fr-CA/2021/10/202110230400ScopsOwl.jpg)|
 202110240400|Bavljenac|L’île de Bavljenac, Croatie (© Julien Duval/Amazing Aerial Agency)||![](/fr-CA/2021/10/202110240400Bavljenac.jpg)|
 202110250400|BulgariaDevilBridge|Dyavolski Most (le pont du diable) traversant l’Arda en Bulgarie (© Petar Mladenov/Alamy)||![](/fr-CA/2021/10/202110250400BulgariaDevilBridge.jpg)|
+202110260400|RedFoxBlackForest|Renard roux dans la Forêt-Noire en Allemagne (© Klaus Echle/Minden Pictures)||![](/fr-CA/2021/10/202110260400RedFoxBlackForest.jpg)|
