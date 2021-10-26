@@ -26,3 +26,4 @@
 202110232300|Bavljenac|Bavljenac Island, Croatia (© Julien Duval/Amazing Aerial Agency)|This 'fingerprint' is one of a kind|![](/en-GB/2021/10/202110232300Bavljenac.jpg)|
 202110242300|BulgariaDevilBridge|Dyavolski Most (Devil's Bridge) over the Arda River in Bulgaria (© Petar Mladenov/Alamy Stock Photo)|An unholy crossing?|![](/en-GB/2021/10/202110242300BulgariaDevilBridge.jpg)|
 202110252300|RedFoxBlackForest|Red fox in the Black Forest, Baden-Württemberg, Germany (© Klaus Echle/Minden Pictures)|A red fox stalks the Black Forest|![](/en-GB/2021/10/202110252300RedFoxBlackForest.jpg)|
+202110262300|NewtonPumpkins|A pumpkin patch in Newton, Massachusetts, USA (© Frank Debonis/EyeEm/Alamy Stock Photo)|In a field of fruit…or vegetable?|![](/en-GB/2021/10/202110262300NewtonPumpkins.jpg)|
