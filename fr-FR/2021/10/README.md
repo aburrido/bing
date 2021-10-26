@@ -26,3 +26,4 @@
 202110232200|Bavljenac|L’île de Bavljenac, Croatie (© Julien Duval/Amazing Aerial Agency)|Empreinte de l’Histoire|![](/fr-FR/2021/10/202110232200Bavljenac.jpg)|
 202110242200|BulgariaDevilBridge|Dyavolski Most (le pont du diable) traversant l’Arda en Bulgarie (© Petar Mladenov/Alamy Stock Photo)|Le pont du diable|![](/fr-FR/2021/10/202110242200BulgariaDevilBridge.jpg)|
 202110252200|RedFoxBlackForest|Renard roux dans la Forêt-Noire en Allemagne (© Klaus Echle/Minden Pictures)|Maître renard|![](/fr-FR/2021/10/202110252200RedFoxBlackForest.jpg)|
+202110262200|NewtonPumpkins|Champ de citrouilles à Newton dans le Massachusetts, États-Unis (© Frank Debonis/EyeEm/Alamy Stock Photo)|Fruit de saison|![](/fr-FR/2021/10/202110262200NewtonPumpkins.jpg)|
