@@ -26,3 +26,4 @@
 202110231500|Bavljenac|｢バヴリェナツ島｣クロアチア (© Julien Duval/Amazing Aerial Agency)|アドリア海に浮かぶ指紋の島|![](/ja-JP/2021/10/202110231500Bavljenac.jpg)|
 202110241500|BulgariaDevilBridge|｢デャヴォルスキ・モスト｣ブルガリア, アルディノ (© Petar Mladenov/Alamy Stock Photo)|ブルガリアの魔橋|![](/ja-JP/2021/10/202110241500BulgariaDevilBridge.jpg)|
 202110251500|RedFoxBlackForest|｢シュヴァルツヴァルトのアカギツネ｣ドイツ, バーデン＝ヴュルテンベルク州 (© Klaus Echle/Minden Pictures)|霧の森を行くアカギツネ|![](/ja-JP/2021/10/202110251500RedFoxBlackForest.jpg)|
+202110261500|CapelCurig|｢スノードニア国立公園｣イギリス，ウェールズ (© Sebastian Wasek/Sime/eStock Photo)|ウェールズの自然公園|![](/ja-JP/2021/10/202110261500CapelCurig.jpg)|
