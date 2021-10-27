@@ -28,3 +28,4 @@
 202110241600|BulgariaDevilBridge|阿尔达河上的魔鬼桥，保加利亚 (© Petar Mladenov/Alamy)||![](/zh-CN/2021/10/202110241600BulgariaDevilBridge.jpg)|
 202110251600|RedFoxBlackForest|黑林山中的赤狐，德国 (© Klaus Echle/Minden Pictures)||![](/zh-CN/2021/10/202110251600RedFoxBlackForest.jpg)|
 202110261600|NewtonPumpkins|牛顿市的一片南瓜地，美国马萨诸塞州 (© Frank Debonis/EyeEm/Alamy)||![](/zh-CN/2021/10/202110261600NewtonPumpkins.jpg)|
+202110271600|Dargavs|北奥塞梯-阿兰共和国的一片墓地，俄罗斯 (© Yakov Oskanov/Shutterstock)||![](/zh-CN/2021/10/202110271600Dargavs.jpg)|
