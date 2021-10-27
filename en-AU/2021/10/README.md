@@ -27,3 +27,4 @@
 202110240700|Bavljenac|Bavljenac island, Croatia (© Julien Duval/Amazing Aerial Agency)|Info|![](/en-AU/2021/10/202110240700Bavljenac.jpg)|
 202110250700|BulgariaDevilBridge|Dyavolski most (Devil's Bridge), Arda river, Bulgaria (© Petar Mladenov/Alamy)|Info|![](/en-AU/2021/10/202110250700BulgariaDevilBridge.jpg)|
 202110260700|RedFoxBlackForest|Red fox, Black Forest, Germany (© Klaus Echle/Minden Pictures)|Info|![](/en-AU/2021/10/202110260700RedFoxBlackForest.jpg)|
+202110270700|BatterySlopes|The Battery, Signal Hill, St. John's, Newfoundland and Labrador, Canada (© Terrance Klassen/Alamy)|Info|![](/en-AU/2021/10/202110270700BatterySlopes.jpg)|
