@@ -27,3 +27,4 @@
 202110250400|BulgariaDevilBridge|Dyavolski Most (le pont du diable) traversant l’Arda en Bulgarie (© Petar Mladenov/Alamy)||![](/fr-CA/2021/10/202110250400BulgariaDevilBridge.jpg)|
 202110260400|RedFoxBlackForest|Renard roux dans la Forêt-Noire en Allemagne (© Klaus Echle/Minden Pictures)||![](/fr-CA/2021/10/202110260400RedFoxBlackForest.jpg)|
 202110270400|NewtonPumpkins|Champ de citrouilles à Newton dans le Massachusetts, États-Unis (© Frank Debonis/EyeEm/Alamy)||![](/fr-CA/2021/10/202110270400NewtonPumpkins.jpg)|
+202110280400|Dargavs|Nécropole près de Dargavs, Ossétie du Nord, Russie (© Yakov Oskanov/Shutterstock)||![](/fr-CA/2021/10/202110280400Dargavs.jpg)|
