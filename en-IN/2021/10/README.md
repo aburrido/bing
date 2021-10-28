@@ -28,3 +28,4 @@
 202110251830|RedFoxBlackForest|Red fox in the Black Forest of Germany (© Klaus Echle/Minden Pictures)|A red fox stalks the Black Forest|![](/en-IN/2021/10/202110251830RedFoxBlackForest.jpg)|
 202110261830|NewtonPumpkins|A pumpkin patch in Newton, Massachusetts (© Frank Debonis/EyeEm/Alamy)|In a field of fruit…or vegetable?|![](/en-IN/2021/10/202110261830NewtonPumpkins.jpg)|
 202110271830|Dargavs|Necropolis near Dargavs, North Ossetia, Russia (© Yakov Oskanov/Shutterstock)|Tale from the crypts|![](/en-IN/2021/10/202110271830Dargavs.jpg)|
+202110281830|UnkindnessRavens|An unkindness of ravens in Juneau, Alaska (© Brian Browitt Photo/Adobe Stock)|An unkindness of ravens|![](/en-IN/2021/10/202110281830UnkindnessRavens.jpg)|
