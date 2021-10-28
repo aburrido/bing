@@ -28,3 +28,4 @@
 202110252200|BulgariaDevilBridge|Die Teufelsbrücke („Dyavolskiat Most“) über den Fluss Arda, Bulgarien (© Petar Mladenov/Alamy Stock Photo)|Ist die Überquerung mit einem Fluch belegt?|![](/de-DE/2021/10/202110252200BulgariaDevilBridge.jpg)|
 202110262200|RedFoxBlackForest|Rotfuchs im Schwarzwald (© Klaus Echle/Minden Pictures)|Auf der Pirsch im Schwarzwald|![](/de-DE/2021/10/202110262200RedFoxBlackForest.jpg)|
 202110272200|Dargavs|Nekropole nahe Dargaws, Republik Nordossetien-Alanien, Russland (© Yakov Oskanov/Shutterstock)|Geschichte aus der Gruft|![](/de-DE/2021/10/202110272200Dargavs.jpg)|
+202110282200|UnkindnessRavens|Eine Versammlung von Raben in Juneau, Alaska, USA (© Brian Browitt Photo/Adobe Stock)|Warten auf Halloween|![](/de-DE/2021/10/202110282200UnkindnessRavens.jpg)|
