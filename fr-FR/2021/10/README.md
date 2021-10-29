@@ -29,3 +29,4 @@
 202110262200|NewtonPumpkins|Champ de citrouilles à Newton dans le Massachusetts, États-Unis (© Frank Debonis/EyeEm/Alamy Stock Photo)|Fruit de saison|![](/fr-FR/2021/10/202110262200NewtonPumpkins.jpg)|
 202110272200|Dargavs|Nécropole près de Dargavs, Ossétie du Nord, Russie (© Yakov Oskanov/Shutterstock)|Village mortel|![](/fr-FR/2021/10/202110272200Dargavs.jpg)|
 202110282200|UnkindnessRavens|Corbeaux sur un arbre perchés à Juneau, Alaska (© Brian Browitt Photo/Adobe Stock)|Maître corbeau|![](/fr-FR/2021/10/202110282200UnkindnessRavens.jpg)|
+202110292200|MistyForest|Forêt de pins dans la brume des Montagnes centrales du Vietnam (© Thanh Thuy/Moment/Getty Images)|Promenons-nous dans les bois…|![](/fr-FR/2021/10/202110292200MistyForest.jpg)|
