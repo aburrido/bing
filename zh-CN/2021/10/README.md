@@ -30,3 +30,4 @@
 202110261600|NewtonPumpkins|牛顿市的一片南瓜地，美国马萨诸塞州 (© Frank Debonis/EyeEm/Alamy)||![](/zh-CN/2021/10/202110261600NewtonPumpkins.jpg)|
 202110271600|Dargavs|北奥塞梯-阿兰共和国的一片墓地，俄罗斯 (© Yakov Oskanov/Shutterstock)||![](/zh-CN/2021/10/202110271600Dargavs.jpg)|
 202110281600|UnkindnessRavens|冷漠的渡鸦们，美国阿拉斯加州 (© Brian Browitt Photo/Adobe Stock)||![](/zh-CN/2021/10/202110281600UnkindnessRavens.jpg)|
+202110291600|MistyForest|薄雾笼罩的松树林，越南 (© Thanh Thuy/Moment/Getty Images)||![](/zh-CN/2021/10/202110291600MistyForest.jpg)|
