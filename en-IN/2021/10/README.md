@@ -29,3 +29,4 @@
 202110261830|NewtonPumpkins|A pumpkin patch in Newton, Massachusetts (© Frank Debonis/EyeEm/Alamy)|In a field of fruit…or vegetable?|![](/en-IN/2021/10/202110261830NewtonPumpkins.jpg)|
 202110271830|Dargavs|Necropolis near Dargavs, North Ossetia, Russia (© Yakov Oskanov/Shutterstock)|Tale from the crypts|![](/en-IN/2021/10/202110271830Dargavs.jpg)|
 202110281830|UnkindnessRavens|An unkindness of ravens in Juneau, Alaska (© Brian Browitt Photo/Adobe Stock)|An unkindness of ravens|![](/en-IN/2021/10/202110281830UnkindnessRavens.jpg)|
+202110291830|MistyForest|Misty pine forest in the Central Highlands of Vietnam (© Thanh Thuy/Moment/Getty Images)|Into the woods…|![](/en-IN/2021/10/202110291830MistyForest.jpg)|
