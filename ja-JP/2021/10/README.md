@@ -29,3 +29,4 @@
 202110261500|CapelCurig|｢スノードニア国立公園｣イギリス，ウェールズ (© Sebastian Wasek/Sime/eStock Photo)|ウェールズの自然公園|![](/ja-JP/2021/10/202110261500CapelCurig.jpg)|
 202110271500|SalisburyCrags|｢アーサーの玉座｣イギリス, スコットランド. エディンバラ (© Andrew Merry/Getty Images)|スコットランドの世界遺産|![](/ja-JP/2021/10/202110271500SalisburyCrags.jpg)|
 202110281500|MistyForest|｢中部高原の松林｣ベトナム (© Thanh Thuy/Moment/Getty Images)|熱帯に広がる霧の森|![](/ja-JP/2021/10/202110281500MistyForest.jpg)|
+202110291500|Dargavs|｢ダルガフスのネクロポリス｣ロシア, 北オセチア・アラニヤ共和国  (© Yakov Oskanov/Shutterstock)|北コーカサスの死者の街|![](/ja-JP/2021/10/202110291500Dargavs.jpg)|
