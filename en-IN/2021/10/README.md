@@ -30,3 +30,4 @@
 202110271830|Dargavs|Necropolis near Dargavs, North Ossetia, Russia (© Yakov Oskanov/Shutterstock)|Tale from the crypts|![](/en-IN/2021/10/202110271830Dargavs.jpg)|
 202110281830|UnkindnessRavens|An unkindness of ravens in Juneau, Alaska (© Brian Browitt Photo/Adobe Stock)|An unkindness of ravens|![](/en-IN/2021/10/202110281830UnkindnessRavens.jpg)|
 202110291830|MistyForest|Misty pine forest in the Central Highlands of Vietnam (© Thanh Thuy/Moment/Getty Images)|Into the woods…|![](/en-IN/2021/10/202110291830MistyForest.jpg)|
+202110301830|YorkMinster|Grotesques at York Minster, North Yorkshire, England (© John Potter/Alamy)|Wishing you a grotesque Halloween|![](/en-IN/2021/10/202110301830YorkMinster.jpg)|
