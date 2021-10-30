@@ -31,3 +31,4 @@
 202110271600|Dargavs|北奥塞梯-阿兰共和国的一片墓地，俄罗斯 (© Yakov Oskanov/Shutterstock)||![](/zh-CN/2021/10/202110271600Dargavs.jpg)|
 202110281600|UnkindnessRavens|冷漠的渡鸦们，美国阿拉斯加州 (© Brian Browitt Photo/Adobe Stock)||![](/zh-CN/2021/10/202110281600UnkindnessRavens.jpg)|
 202110291600|MistyForest|薄雾笼罩的松树林，越南 (© Thanh Thuy/Moment/Getty Images)||![](/zh-CN/2021/10/202110291600MistyForest.jpg)|
+202110301600|YorkMinster|约克大教堂墙上的怪诞雕塑，英格兰北约克郡 (© John Potter/Alamy)||![](/zh-CN/2021/10/202110301600YorkMinster.jpg)|
