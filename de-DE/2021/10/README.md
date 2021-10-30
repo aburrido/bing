@@ -30,3 +30,4 @@
 202110272200|Dargavs|Nekropole nahe Dargaws, Republik Nordossetien-Alanien, Russland (© Yakov Oskanov/Shutterstock)|Geschichte aus der Gruft|![](/de-DE/2021/10/202110272200Dargavs.jpg)|
 202110282200|UnkindnessRavens|Eine Versammlung von Raben in Juneau, Alaska, USA (© Brian Browitt Photo/Adobe Stock)|Warten auf Halloween|![](/de-DE/2021/10/202110282200UnkindnessRavens.jpg)|
 202110292200|StMichaelSH|Astronomische Uhr am Kirchturm von St. Michael, Schwäbisch Hall, Baden-Württemberg (© imageBROKER/Helmut Meyer zur Capellen/Alamy Stock Photo)|Eine Stunde länger schlafen|![](/de-DE/2021/10/202110292200StMichaelSH.jpg)|
+202110302200|YorkMinster|Groteske Figuren an der Fassade des York Minster, York, North Yorkshire, England, Großbritannien (© John Potter/Alamy Stock Photo)|Wir wünschen ein groteskes Halloween!|![](/de-DE/2021/10/202110302200YorkMinster.jpg)|

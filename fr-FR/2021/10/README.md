@@ -30,3 +30,4 @@
 202110272200|Dargavs|Nécropole près de Dargavs, Ossétie du Nord, Russie (© Yakov Oskanov/Shutterstock)|Village mortel|![](/fr-FR/2021/10/202110272200Dargavs.jpg)|
 202110282200|UnkindnessRavens|Corbeaux sur un arbre perchés à Juneau, Alaska (© Brian Browitt Photo/Adobe Stock)|Maître corbeau|![](/fr-FR/2021/10/202110282200UnkindnessRavens.jpg)|
 202110292200|MistyForest|Forêt de pins dans la brume des Montagnes centrales du Vietnam (© Thanh Thuy/Moment/Getty Images)|Promenons-nous dans les bois…|![](/fr-FR/2021/10/202110292200MistyForest.jpg)|
+202110302200|YorkMinster|Grotesques sur la cathédrale d’York, North Yorkshire, Angleterre, (© John Potter/Alamy Stock Photo)|Grotesques Grotesques|![](/fr-FR/2021/10/202110302200YorkMinster.jpg)|
