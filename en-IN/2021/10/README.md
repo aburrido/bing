@@ -31,3 +31,4 @@
 202110281830|UnkindnessRavens|An unkindness of ravens in Juneau, Alaska (© Brian Browitt Photo/Adobe Stock)|An unkindness of ravens|![](/en-IN/2021/10/202110281830UnkindnessRavens.jpg)|
 202110291830|MistyForest|Misty pine forest in the Central Highlands of Vietnam (© Thanh Thuy/Moment/Getty Images)|Into the woods…|![](/en-IN/2021/10/202110291830MistyForest.jpg)|
 202110301830|YorkMinster|Grotesques at York Minster, North Yorkshire, England (© John Potter/Alamy)|Wishing you a grotesque Halloween|![](/en-IN/2021/10/202110301830YorkMinster.jpg)|
+202110311830|BulgariaDevilBridge|Dyavolski Most (Devil's Bridge) over the Arda River in Bulgaria (© Petar Mladenov/Alamy)|Does this crossing carry a curse?|![](/en-IN/2021/10/202110311830BulgariaDevilBridge.jpg)|
