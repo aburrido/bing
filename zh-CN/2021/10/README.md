@@ -32,3 +32,4 @@
 202110281600|UnkindnessRavens|冷漠的渡鸦们，美国阿拉斯加州 (© Brian Browitt Photo/Adobe Stock)||![](/zh-CN/2021/10/202110281600UnkindnessRavens.jpg)|
 202110291600|MistyForest|薄雾笼罩的松树林，越南 (© Thanh Thuy/Moment/Getty Images)||![](/zh-CN/2021/10/202110291600MistyForest.jpg)|
 202110301600|YorkMinster|约克大教堂墙上的怪诞雕塑，英格兰北约克郡 (© John Potter/Alamy)||![](/zh-CN/2021/10/202110301600YorkMinster.jpg)|
+202110311600|LittleBirds|海滩上的三趾鹬，法国布列塔尼大区 (© Fabrice Cahez/Minden Pictures)||![](/zh-CN/2021/10/202110311600LittleBirds.jpg)|
