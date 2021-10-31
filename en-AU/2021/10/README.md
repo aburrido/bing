@@ -31,3 +31,4 @@
 202110280700|UnkindnessRavens|Ravens, Alaska, USA (© Brian Browitt Photo/Adobe Stock)|Info|![](/en-AU/2021/10/202110280700UnkindnessRavens.jpg)|
 202110290700|Dargavs|Necropolis, Dargavs, Republic of North Ossetia–Alania, Russia (© Yakov Oskanov/Shutterstock)|Info|![](/en-AU/2021/10/202110290700Dargavs.jpg)|
 202110300700|MistyForest|Pine forest, Central Highlands of Vietnam (© Thanh Thuy/Moment/Getty Images)|Info|![](/en-AU/2021/10/202110300700MistyForest.jpg)|
+202110310700|NewtonPumpkins|Pumpkins, Massachusetts, USA (© Frank Debonis/EyeEm/Alamy)|Info|![](/en-AU/2021/10/202110310700NewtonPumpkins.jpg)|
