@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202110310400|YorkMinster|Grotesques at York Minster, North Yorkshire, England (© John Potter/Alamy)|Wishing you a grotesque Halloween|![](/en-CA/2021/11/202110310400YorkMinster.jpg)|
 202111010400|AutumnWolf|A lone wolf standing tall amid autumn colours near Montebello, Que. (© Thousand Word Images by Dustin Abbott/Getty Images)|Standing tall and mighty|![](/en-CA/2021/11/202111010400AutumnWolf.jpg)|
+202111020400|MarigoldsLosMuertos|Marigolds decorate a cemetery in Patzcuaro, Michoacan, Mexico, for a Day of the Dead ceremony (© Daniel Elizalde S/Shutterstock)|A day to honour the ancestors|![](/en-CA/2021/11/202111020400MarigoldsLosMuertos.jpg)|
