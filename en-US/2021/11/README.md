@@ -3,3 +3,4 @@
 202110310700|YorkMinster|Grotesques at York Minster, North Yorkshire, England (© John Potter/Alamy)|Wishing you a grotesque Halloween|![](/en-US/2021/11/202110310700YorkMinster.jpg)|
 202111010700|KindredSpirits|The sculpture 'Kindred Spirits' by Alex Pentek in Bailick Park, Midleton, County Cork, Ireland (© David Creedon/Alamy Live News/Alamy)|Celebrating Native American Heritage Month|![](/en-US/2021/11/202111010700KindredSpirits.jpg)|
 202111020700|MarigoldsLosMuertos|Marigolds decorate a cemetery in Patzcuaro, Michoacan, Mexico, for a Day of the Dead ceremony (© Daniel Elizalde S/Shutterstock)|A day to honor the ancestors|![](/en-US/2021/11/202111020700MarigoldsLosMuertos.jpg)|
+202111030700|MoonJellyDay|Moon jelly and golden jellyfish, Raja Ampat, West Papua, Indonesia (© Alex Mustard/Minden Pictures)|Sunshine on a moon jelly|![](/en-US/2021/11/202111030700MoonJellyDay.jpg)|
