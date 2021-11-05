@@ -5,3 +5,4 @@
 202111020400|AutumnWolf|Un loup solitaire au milieu de feuilles d’automne (© Thousand Word Images by Dustin Abbott/Getty Images)||![](/fr-CA/2021/11/202111020400AutumnWolf.jpg)|
 202111030400|MoonJellyDay|Méduse et groupe de méduses dorées dans un lac marin, îles de Raja Ampat, Papouasie Occidentale, Indonésie (© Alex Mustard/Minden Pictures)||![](/fr-CA/2021/11/202111030400MoonJellyDay.jpg)|
 202111040400|CinnamonFernNS|Parterre d’osmondes cannelle près de la rive ouest de la rivière Sainte-Marie, Sainte-Marie, Nouvelle-Écosse (© Irwin Barrett/Design Pics/Alamy)||![](/fr-CA/2021/11/202111040400CinnamonFernNS.jpg)|
+202111050400|PontRouge|Pont rouge au-dessus du fleuve Palmer près de Sainte-Agathe-de-Lotbinière, Québec (© Jean Surprenant/Getty Images)||![](/fr-CA/2021/11/202111050400PontRouge.jpg)|
