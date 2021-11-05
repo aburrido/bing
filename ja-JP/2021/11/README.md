@@ -5,3 +5,4 @@
 202111021500|MoonJellyDay|｢ミズクラゲとゴールデンジェリーフィッシュ｣インドネシア, ラジャ・アンパット諸島  (© Alex Mustard/Minden Pictures)|ラジャ・アンパット諸島のクラゲたち|![](/ja-JP/2021/11/202111021500MoonJellyDay.jpg)|
 202111031500|DiwaliLights|｢ディーワーリーのランタン｣インド. ムンバイ  (© RAMNIKLAL MODI/Shutterstock)|今日はディーワーリー|![](/ja-JP/2021/11/202111031500DiwaliLights.jpg)|
 202111041500|PontRouge|ポン＝ルージュ,  カナダ ケベック州 （© Getty）|パルマー川の屋根付き橋|![](/ja-JP/2021/11/202111041500PontRouge.jpg)|
+202111051500|WANumbat|フクロアリクイ, オーストラリア ブルックトン （© Minden）|オーストラリアの絶滅危惧種|![](/ja-JP/2021/11/202111051500WANumbat.jpg)|
