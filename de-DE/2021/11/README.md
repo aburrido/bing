@@ -6,3 +6,4 @@
 202111032300|DiwaliLights|Leuchtende Laternen zum Lichterfest Diwali, Mumbai, Indien (© RAMNIKLAL MODI/Shutterstock)|Alles leuchtet für Lakshmi Puja|![](/de-DE/2021/11/202111032300DiwaliLights.jpg)|
 202111042300|PontRouge|Pont Rouge (Rote Brücke) über den Palmer River in Sainte-Agathe-de-Lotbinière, Québec, Kanada (© Jean Surprenant/Getty Images)|Eine Brücke in die Vergangenheit|![](/de-DE/2021/11/202111042300PontRouge.jpg)|
 202111052300|WANumbat|Numbatweibchen in Brookton, Western Australia, Australien (© Martin Willis/Minden Pictures)|Heute ist Numbat-Tag!|![](/de-DE/2021/11/202111052300WANumbat.jpg)|
+202111062300|MackArch|Sonnenaufgang am Mack Arch an der Südküste Oregons, USA (© Dennis Frates/Alamy Stock Photo)|Traumkulisse an der US-Pazifikküste|![](/de-DE/2021/11/202111062300MackArch.jpg)|

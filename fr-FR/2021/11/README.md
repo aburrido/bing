@@ -6,3 +6,4 @@
 202111032300|DiwaliLights|Lanternes suspendues pour Divali, Mumbai, Inde (© RAMNIKLAL MODI/Shutterstock)|Triomphe de la lumière|![](/fr-FR/2021/11/202111032300DiwaliLights.jpg)|
 202111042300|PontRouge|Pont rouge au-dessus du fleuve Palmer près de Sainte-Agathe-de-Lotbinière, Québec, Canada (© Jean Surprenant/Getty Images)|Pont historique|![](/fr-FR/2021/11/202111042300PontRouge.jpg)|
 202111052300|WANumbat|Femelle numbat à Bookton, Australie-Occidentale, Australie (© Martin Willis/Minden Pictures)|C’est la Journée mondiale des numbats !|![](/fr-FR/2021/11/202111052300WANumbat.jpg)|
+202111062300|MackArch|L’arche Mack au lever du soleil sur la côte sud de l’Oregon, États-Unis  (© Dennis Frates/Alamy)|Arche protégée|![](/fr-FR/2021/11/202111062300MackArch.jpg)|
