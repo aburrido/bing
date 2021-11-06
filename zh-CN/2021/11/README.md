@@ -6,3 +6,4 @@
 202111031600|FoleysBridge|托利莫尔森林公园的弗利桥，英国北爱尔兰 (© Adrian McGlynn/Alamy)||![](/zh-CN/2021/11/202111031600FoleysBridge.jpg)|
 202111041600|PontRouge|Pont Rouge (Red Bridge) over the Palmer River in Sainte-Agathe-de-Lotbinière, Quebec, Canada (© Jean Surprenant/Getty Images)||![](/zh-CN/2021/11/202111041600PontRouge.jpg)|
 202111051600|WANumbat|布鲁克顿的一只雌性袋食蚁兽，西澳大利亚州 (© Martin Willis/Minden Pictures)||![](/zh-CN/2021/11/202111051600WANumbat.jpg)|
+202111061600|MackArch|日出时的麦克拱岩，俄勒冈南海岸 (© Dennis Frates/Alamy)||![](/zh-CN/2021/11/202111061600MackArch.jpg)|
