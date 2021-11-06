@@ -6,3 +6,4 @@
 202111031500|DiwaliLights|｢ディーワーリーのランタン｣インド. ムンバイ  (© RAMNIKLAL MODI/Shutterstock)|今日はディーワーリー|![](/ja-JP/2021/11/202111031500DiwaliLights.jpg)|
 202111041500|PontRouge|ポン＝ルージュ,  カナダ ケベック州 （© Getty）|パルマー川の屋根付き橋|![](/ja-JP/2021/11/202111041500PontRouge.jpg)|
 202111051500|WANumbat|フクロアリクイ, オーストラリア ブルックトン （© Minden）|オーストラリアの絶滅危惧種|![](/ja-JP/2021/11/202111051500WANumbat.jpg)|
+202111061500|MackArch|マック・アーチ・ロック, 米国 オレゴン州 （© Alamy）|オレゴンの奇岩の風景|![](/ja-JP/2021/11/202111061500MackArch.jpg)|
