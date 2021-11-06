@@ -6,3 +6,4 @@
 202111031830|DiwaliLights|Lanterns illuminated for the Diwali festival, Mumbai, India (© RAMNIKLAL MODI/Shutterstock)|All aglow for Lakshmi Pujan|![](/en-IN/2021/11/202111031830DiwaliLights.jpg)|
 202111041830|PontRouge|Pont Rouge (Red Bridge) over the Palmer River in Sainte-Agathe-de-Lotbinière, Quebec, Canada (© Jean Surprenant/Getty Images)|A bridge to the past|![](/en-IN/2021/11/202111041830PontRouge.jpg)|
 202111051830|WANumbat|Female numbat in Brookton, Western Australia, Australia (© Martin Willis/Minden Pictures)|It's World Numbat Day!|![](/en-IN/2021/11/202111051830WANumbat.jpg)|
+202111061830|MackArch|Mack Arch Rock at sunrise on the southern Oregon coast (© Dennis Frates/Alamy)|A rocky wildlife refuge|![](/en-IN/2021/11/202111061830MackArch.jpg)|
