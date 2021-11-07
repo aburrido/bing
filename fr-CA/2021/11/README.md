@@ -7,3 +7,4 @@
 202111040400|CinnamonFernNS|Parterre d’osmondes cannelle près de la rive ouest de la rivière Sainte-Marie, Sainte-Marie, Nouvelle-Écosse (© Irwin Barrett/Design Pics/Alamy)||![](/fr-CA/2021/11/202111040400CinnamonFernNS.jpg)|
 202111050400|PontRouge|Pont rouge au-dessus du fleuve Palmer près de Sainte-Agathe-de-Lotbinière, Québec (© Jean Surprenant/Getty Images)||![](/fr-CA/2021/11/202111050400PontRouge.jpg)|
 202111060400|WANumbat|Femelle numbat in Bookton, Australie-Occidentale, Australie (© Martin Willis/Minden Pictures)||![](/fr-CA/2021/11/202111060400WANumbat.jpg)|
+202111070400|MackArch|L’arche Mack au lever du soleil sur la côte sud de l’Oregon, États-Unis (© Dennis Frates/Alamy)||![](/fr-CA/2021/11/202111070400MackArch.jpg)|
