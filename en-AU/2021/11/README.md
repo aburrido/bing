@@ -7,3 +7,4 @@
 202111040700|FoleysBridge|Foley's Bridge, Tollymore Forest Park, County Down, Northern Ireland (© Adrian McGlynn/Alamy)|Info|![](/en-AU/2021/11/202111040700FoleysBridge.jpg)|
 202111050700|PontRouge|Pont Rouge, Sainte-Agathe-de-Lotbinière, Quebec, Canada (© Jean Surprenant/Getty Images)|Info|![](/en-AU/2021/11/202111050700PontRouge.jpg)|
 202111060700|WANumbat|Female numbat, Brookton, Western Australia, Australia (© Martin Willis/Minden Pictures)|Info|![](/en-AU/2021/11/202111060700WANumbat.jpg)|
+202111070800|MackArch|Mack Arch Rock, Oregon, USA (© Dennis Frates/Alamy)|Info|![](/en-AU/2021/11/202111070800MackArch.jpg)|
