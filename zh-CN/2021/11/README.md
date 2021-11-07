@@ -7,3 +7,4 @@
 202111041600|PontRouge|Pont Rouge (Red Bridge) over the Palmer River in Sainte-Agathe-de-Lotbinière, Quebec, Canada (© Jean Surprenant/Getty Images)||![](/zh-CN/2021/11/202111041600PontRouge.jpg)|
 202111051600|WANumbat|布鲁克顿的一只雌性袋食蚁兽，西澳大利亚州 (© Martin Willis/Minden Pictures)||![](/zh-CN/2021/11/202111051600WANumbat.jpg)|
 202111061600|MackArch|日出时的麦克拱岩，俄勒冈南海岸 (© Dennis Frates/Alamy)||![](/zh-CN/2021/11/202111061600MackArch.jpg)|
+202111071600|ChurchillBears|好奇地看着相机的北极熊，加拿大丘吉尔镇 (© Matthias Breiter/Minden Pictures)||![](/zh-CN/2021/11/202111071600ChurchillBears.jpg)|
