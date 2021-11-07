@@ -6,3 +6,4 @@
 202111040000|DiwaliLights|Lanterns illuminated for the Diwali festival, Mumbai, India (© RAMNIKLAL MODI/Shutterstock)|All aglow for Lakshmi Pujan|![](/en-GB/2021/11/202111040000DiwaliLights.jpg)|
 202111050000|KingsLynn|Fireworks exploding over the Great River Ouse, King's Lynn, Norfolk (© Simon Bratt/Shutterstock)|Back with a bang|![](/en-GB/2021/11/202111050000KingsLynn.jpg)|
 202111060000|WANumbat|Female numbat in Brookton, Western Australia (© Martin Willis/Minden Pictures)|It's World Numbat Day!|![](/en-GB/2021/11/202111060000WANumbat.jpg)|
+202111070000|MackArch|Mack Arch Rock at sunrise, Oregon, USA (© Dennis Frates/Alamy)|A rocky wildlife refuge|![](/en-GB/2021/11/202111070000MackArch.jpg)|
