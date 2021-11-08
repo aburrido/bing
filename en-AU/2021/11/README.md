@@ -8,3 +8,4 @@
 202111050700|PontRouge|Pont Rouge, Sainte-Agathe-de-Lotbinière, Quebec, Canada (© Jean Surprenant/Getty Images)|Info|![](/en-AU/2021/11/202111050700PontRouge.jpg)|
 202111060700|WANumbat|Female numbat, Brookton, Western Australia, Australia (© Martin Willis/Minden Pictures)|Info|![](/en-AU/2021/11/202111060700WANumbat.jpg)|
 202111070800|MackArch|Mack Arch Rock, Oregon, USA (© Dennis Frates/Alamy)|Info|![](/en-AU/2021/11/202111070800MackArch.jpg)|
+202111080800|ChurchillBears|Polar bear, Churchill, Manitoba, Canada (© Matthias Breiter/Minden Pictures)|Info|![](/en-AU/2021/11/202111080800ChurchillBears.jpg)|
