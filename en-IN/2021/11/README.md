@@ -9,3 +9,4 @@
 202111061830|MackArch|Mack Arch Rock at sunrise on the southern Oregon coast (© Dennis Frates/Alamy)|A rocky wildlife refuge|![](/en-IN/2021/11/202111061830MackArch.jpg)|
 202111071830|ChurchillBears|Polar bear investigating camera, Churchill, Manitoba, Canada (© Matthias Breiter/Minden Pictures)|Nosing in on a polar bear pair|![](/en-IN/2021/11/202111071830ChurchillBears.jpg)|
 202111081830|DalyanTombs|Ancient rock tombs carved into the cliff near Dalyan, Turkey (© Reinhard Schmid/eStock Photo)|The land that time almost forgot|![](/en-IN/2021/11/202111081830DalyanTombs.jpg)|
+202111091830|CumberlandSeashore|Cumberland Island National Seashore, Georgia (© Wilsilver77/Getty Images Plus)|Protecting an island wilderness|![](/en-IN/2021/11/202111091830CumberlandSeashore.jpg)|
