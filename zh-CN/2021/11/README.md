@@ -9,3 +9,4 @@
 202111061600|MackArch|日出时的麦克拱岩，俄勒冈南海岸 (© Dennis Frates/Alamy)||![](/zh-CN/2021/11/202111061600MackArch.jpg)|
 202111071600|ChurchillBears|好奇地看着相机的北极熊，加拿大丘吉尔镇 (© Matthias Breiter/Minden Pictures)||![](/zh-CN/2021/11/202111071600ChurchillBears.jpg)|
 202111081600|DalyanTombs|悬崖上雕刻的古老岩石墓葬，土耳其达利安附近 (© Reinhard Schmid/eStock Photo)||![](/zh-CN/2021/11/202111081600DalyanTombs.jpg)|
+202111091600|CumberlandSeashore|坎伯兰岛国家海岸，美国佐治亚州 (© Wilsilver77/Getty Images Plus)||![](/zh-CN/2021/11/202111091600CumberlandSeashore.jpg)|
