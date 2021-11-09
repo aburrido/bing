@@ -9,3 +9,4 @@
 202111060400|WANumbat|Femelle numbat in Bookton, Australie-Occidentale, Australie (© Martin Willis/Minden Pictures)||![](/fr-CA/2021/11/202111060400WANumbat.jpg)|
 202111070400|MackArch|L’arche Mack au lever du soleil sur la côte sud de l’Oregon, États-Unis (© Dennis Frates/Alamy)||![](/fr-CA/2021/11/202111070400MackArch.jpg)|
 202111080500|ChurchillBears|Ours blanc intrigué par un appareil photo, Churchill, Manitoba (© Matthias Breiter/Minden Pictures)||![](/fr-CA/2021/11/202111080500ChurchillBears.jpg)|
+202111090500|DalyanTombs|Anciennes tombes creusées dans la roche, Dalyan, Turquie (© Reinhard Schmid/eStock Photo)||![](/fr-CA/2021/11/202111090500DalyanTombs.jpg)|
