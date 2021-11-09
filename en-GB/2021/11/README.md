@@ -8,3 +8,4 @@
 202111060000|WANumbat|Female numbat in Brookton, Western Australia (© Martin Willis/Minden Pictures)|It's World Numbat Day!|![](/en-GB/2021/11/202111060000WANumbat.jpg)|
 202111070000|MackArch|Mack Arch Rock at sunrise, Oregon, USA (© Dennis Frates/Alamy)|A rocky wildlife refuge|![](/en-GB/2021/11/202111070000MackArch.jpg)|
 202111080000|ChurchillBears|Polar bear investigating camera, Churchill, Manitoba, Canada (© Matthias Breiter/Minden Pictures)|Nosing in on a polar bear pair|![](/en-GB/2021/11/202111080000ChurchillBears.jpg)|
+202111090000|DalyanTombs|Ancient rock tombs carved into the cliff near Dalyan, Turkey (© Reinhard Schmid/eStock Photo)|The land that time almost forgot|![](/en-GB/2021/11/202111090000DalyanTombs.jpg)|
