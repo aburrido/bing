@@ -9,3 +9,4 @@
 202111062300|MackArch|Sonnenaufgang am Mack Arch an der Südküste Oregons, USA (© Dennis Frates/Alamy Stock Photo)|Traumkulisse an der US-Pazifikküste|![](/de-DE/2021/11/202111062300MackArch.jpg)|
 202111072300|ChurchillBears|Ein Eisbär bei der Erkundung einer Kamera, Churchill, Manitoba, Kanada (© Matthias Breiter/Minden Pictures)|Ganz nah dran|![](/de-DE/2021/11/202111072300ChurchillBears.jpg)|
 202111082300|DalyanTombs|Antike Felsengräber in der Nähe von Dalyan, Türkei (© Reinhard Schmid/Huber/eStock Photo)|Eine von der Zeit fast vergessene antike Stadt|![](/de-DE/2021/11/202111082300DalyanTombs.jpg)|
+202111092300|JasmundBuchenHerbst|Rotbuchenwald im Nationalpark Jasmund, Rügen, Mecklenburg-Vorpommern (© Sandra Bartocha/NPL/Minden Pictures)|UNESCO-Weltnaturerbe in Mecklenburg-Vorpommern|![](/de-DE/2021/11/202111092300JasmundBuchenHerbst.jpg)|

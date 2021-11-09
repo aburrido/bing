@@ -9,3 +9,4 @@
 202111062300|MackArch|L’arche Mack au lever du soleil sur la côte sud de l’Oregon, États-Unis  (© Dennis Frates/Alamy)|Arche protégée|![](/fr-FR/2021/11/202111062300MackArch.jpg)|
 202111072300|ChurchillBears|Ours blanc intrigué par un appareil photo, Churchill, Manitoba, Canada (© Matthias Breiter/Minden Pictures)|Le retour des ours|![](/fr-FR/2021/11/202111072300ChurchillBears.jpg)|
 202111082300|DalyanTombs|Anciennes tombes creusées dans la roche, Dalyan, Turquie (© Reinhard Schmid/eStock Photo)|Société retrouvée|![](/fr-FR/2021/11/202111082300DalyanTombs.jpg)|
+202111092300|ParisPhoto|Carte stéréo Underwood & Underwood représentant l’avenue du Bois de Boulogne (Avenue Foch) prise depuis l’arc de Triomphe vers le mont Valérien (© JT Vintage/Glasshouse Images/Alamy Stock Photo)|Photo de Paris pour Paris Photo|![](/fr-FR/2021/11/202111092300ParisPhoto.jpg)|
