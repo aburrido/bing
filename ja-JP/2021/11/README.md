@@ -10,3 +10,4 @@
 202111071500|ChurchillBears|ホッキョクグマ, カナダ マニトバ州 （© Minden ）|今週は国際ホッキョクグマ週間|![](/ja-JP/2021/11/202111071500ChurchillBears.jpg)|
 202111081500|DalyanTombs|カウノス遺跡の岩窟墓,  トルコ （© eStock）|岸壁のネクロポリス|![](/ja-JP/2021/11/202111081500DalyanTombs.jpg)|
 202111091500|CumberlandSeashore|カンバーランド島国立海岸, 米国 ジョージア州 （© Wilsilver77/iStock/Getty Images Plus）|湿地帯に広がるオークの森|![](/ja-JP/2021/11/202111091500CumberlandSeashore.jpg)|
+202111101500|BeaversBend|ビーバーズ・ベンド・リゾートパーク, 米国 オクラホマ州 （© Inge Johnsson/Alamy Stock Photo）|ブロークン・ボウ湖の紅葉|![](/ja-JP/2021/11/202111101500BeaversBend.jpg)|
