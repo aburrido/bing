@@ -10,3 +10,4 @@
 202111072300|ChurchillBears|Ein Eisbär bei der Erkundung einer Kamera, Churchill, Manitoba, Kanada (© Matthias Breiter/Minden Pictures)|Ganz nah dran|![](/de-DE/2021/11/202111072300ChurchillBears.jpg)|
 202111082300|DalyanTombs|Antike Felsengräber in der Nähe von Dalyan, Türkei (© Reinhard Schmid/Huber/eStock Photo)|Eine von der Zeit fast vergessene antike Stadt|![](/de-DE/2021/11/202111082300DalyanTombs.jpg)|
 202111092300|JasmundBuchenHerbst|Rotbuchenwald im Nationalpark Jasmund, Rügen, Mecklenburg-Vorpommern (© Sandra Bartocha/NPL/Minden Pictures)|UNESCO-Weltnaturerbe in Mecklenburg-Vorpommern|![](/de-DE/2021/11/202111092300JasmundBuchenHerbst.jpg)|
+202111102300|NohsngithiangFalls|Nohsngithiang-Wasserfälle in Meghalaya, Indien (© Upamanyoo Das/Shutterstock)|Sieben-Schwestern-Wasserfälle in Nordostindien|![](/de-DE/2021/11/202111102300NohsngithiangFalls.jpg)|
