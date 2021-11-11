@@ -11,3 +11,4 @@
 202111080500|ChurchillBears|Ours blanc intrigué par un appareil photo, Churchill, Manitoba (© Matthias Breiter/Minden Pictures)||![](/fr-CA/2021/11/202111080500ChurchillBears.jpg)|
 202111090500|DalyanTombs|Anciennes tombes creusées dans la roche, Dalyan, Turquie (© Reinhard Schmid/eStock Photo)||![](/fr-CA/2021/11/202111090500DalyanTombs.jpg)|
 202111100500|QuebecFrost|Herbe recouverte de givre et arbres aux couleurs de l’automne, Québec (© plainpicture/Design Pics/David Chapman)||![](/fr-CA/2021/11/202111100500QuebecFrost.jpg)|
+202111110500|NohsngithiangFalls|Cascade de Nohsngithiang dans le Meghalaya, Inde (© Upamanyoo Das/Shutterstock)||![](/fr-CA/2021/11/202111110500NohsngithiangFalls.jpg)|
