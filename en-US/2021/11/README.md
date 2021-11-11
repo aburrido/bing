@@ -11,3 +11,4 @@
 202111080800|ChurchillBears|Polar bear investigating a camera, Churchill, Manitoba, Canada (© Matthias Breiter/Minden Pictures)|Nosing in on a polar bear pair|![](/en-US/2021/11/202111080800ChurchillBears.jpg)|
 202111090800|DalyanTombs|Ancient rock tombs carved into the cliff near Dalyan, Turkey (© Reinhard Schmid/eStock Photo)|The land that time almost forgot|![](/en-US/2021/11/202111090800DalyanTombs.jpg)|
 202111100800|CumberlandSeashore|Cumberland Island National Seashore, Georgia (© Wilsilver77/Getty Images Plus)|An island 'where nature and history meet'|![](/en-US/2021/11/202111100800CumberlandSeashore.jpg)|
+202111110800|Veterans2021|Sailors on the amphibious assault ship USS Iwo Jima on New York's Hudson River during Veterans Week, 2016 (© Apple White/Alamy)|Honoring our veterans|![](/en-US/2021/11/202111110800Veterans2021.jpg)|
