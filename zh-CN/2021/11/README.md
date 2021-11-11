@@ -11,3 +11,4 @@
 202111081600|DalyanTombs|悬崖上雕刻的古老岩石墓葬，土耳其达利安附近 (© Reinhard Schmid/eStock Photo)||![](/zh-CN/2021/11/202111081600DalyanTombs.jpg)|
 202111091600|CumberlandSeashore|坎伯兰岛国家海岸，美国佐治亚州 (© Wilsilver77/Getty Images Plus)||![](/zh-CN/2021/11/202111091600CumberlandSeashore.jpg)|
 202111101600|NohsngithiangFalls|梅加拉亚邦的七姐妹瀑布，印度 (© Upamanyoo Das/Shutterstock)||![](/zh-CN/2021/11/202111101600NohsngithiangFalls.jpg)|
+202111111600|BeaversBend|海狸湾度假公园, 美国俄克拉何马州 (© Inge Johnsson/Alamy)||![](/zh-CN/2021/11/202111111600BeaversBend.jpg)|
