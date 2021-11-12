@@ -12,3 +12,4 @@
 202111091500|CumberlandSeashore|カンバーランド島国立海岸, 米国 ジョージア州 （© Wilsilver77/iStock/Getty Images Plus）|湿地帯に広がるオークの森|![](/ja-JP/2021/11/202111091500CumberlandSeashore.jpg)|
 202111101500|BeaversBend|ビーバーズ・ベンド・リゾートパーク, 米国 オクラホマ州 （© Inge Johnsson/Alamy Stock Photo）|ブロークン・ボウ湖の紅葉|![](/ja-JP/2021/11/202111101500BeaversBend.jpg)|
 202111111500|ElTajo|エル・タホ渓谷とヌエボ橋, スペイン ロンダ （© Jude Newkirk/Amazing Aerial Agency）|アンダルシアの崖の街|![](/ja-JP/2021/11/202111111500ElTajo.jpg)|
+202111121500|FirstCliff|フィルスト・クリフウォーク, スイス （© Hans-Georg Eiben/Huber/eStock Photo）|世界遺産に臨む遊歩道|![](/ja-JP/2021/11/202111121500FirstCliff.jpg)|
