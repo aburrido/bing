@@ -12,3 +12,4 @@
 202111090800|DalyanTombs|Ancient rock tombs near Dalyan, Turkey (© Reinhard Schmid/eStock Photo)|Info|![](/en-AU/2021/11/202111090800DalyanTombs.jpg)|
 202111100800|CumberlandSeashore|Cumberland Island National Seashore, Georgia, USA (© Wilsilver77/Getty Images Plus)|Info|![](/en-AU/2021/11/202111100800CumberlandSeashore.jpg)|
 202111110800|NohsngithiangFalls|Nohsngithiang Falls, Meghalaya, India (© Upamanyoo Das/Shutterstock)|Info|![](/en-AU/2021/11/202111110800NohsngithiangFalls.jpg)|
+202111120800|BeaversBend|Beavers Bend Resort Park, Oklahoma, USA (© Inge Johnsson/Alamy)|Info|![](/en-AU/2021/11/202111120800BeaversBend.jpg)|
