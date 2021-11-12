@@ -12,3 +12,4 @@
 202111091830|CumberlandSeashore|Cumberland Island National Seashore, Georgia (© Wilsilver77/Getty Images Plus)|Protecting an island wilderness|![](/en-IN/2021/11/202111091830CumberlandSeashore.jpg)|
 202111101830|NohsngithiangFalls|Nohsngithiang Falls in Meghalaya, India (© Upamanyoo Das/Shutterstock)|The Seven Sisters Waterfalls in Northeast India|![](/en-IN/2021/11/202111101830NohsngithiangFalls.jpg)|
 202111111830|BeaversBend|Beavers Bend Resort Park near Broken Bow, Oklahoma (© Inge Johnsson/Alamy)|A vivid scene from Beavers Bend|![](/en-IN/2021/11/202111111830BeaversBend.jpg)|
+202111121830|ElTajo|Aerial view of El Tajo gorge and the Puente Nuevo bridge in Ronda, Málaga, Spain (© Jude Newkirk/Amazing Aerial Agency)|A gorge-ous town divided|![](/en-IN/2021/11/202111121830ElTajo.jpg)|
