@@ -12,3 +12,4 @@
 202111092300|JasmundBuchenHerbst|Rotbuchenwald im Nationalpark Jasmund, Rügen, Mecklenburg-Vorpommern (© Sandra Bartocha/NPL/Minden Pictures)|UNESCO-Weltnaturerbe in Mecklenburg-Vorpommern|![](/de-DE/2021/11/202111092300JasmundBuchenHerbst.jpg)|
 202111102300|NohsngithiangFalls|Nohsngithiang-Wasserfälle in Meghalaya, Indien (© Upamanyoo Das/Shutterstock)|Sieben-Schwestern-Wasserfälle in Nordostindien|![](/de-DE/2021/11/202111102300NohsngithiangFalls.jpg)|
 202111112300|BeaversBend|Beavers Bend Resort Park bei Broken Bow, Oklahoma, USA (© Inge Johnsson/Alamy Stock Photo)|Eine eindrucksvolle Szene aus Beavers Bend|![](/de-DE/2021/11/202111112300BeaversBend.jpg)|
+202111122300|ElTajo|Luftaufnahme der Schlucht El Tajo und der Brücke Puente Nuevo in Ronda, Málaga, Spanien (© Jude Newkirk/Amazing Aerial Agency)|Eine geteilte Stadt|![](/de-DE/2021/11/202111122300ElTajo.jpg)|

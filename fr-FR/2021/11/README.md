@@ -12,3 +12,4 @@
 202111092300|ParisPhoto|Carte stéréo Underwood & Underwood représentant l’avenue du Bois de Boulogne (Avenue Foch) prise depuis l’arc de Triomphe vers le mont Valérien (© JT Vintage/Glasshouse Images/Alamy Stock Photo)|Photo de Paris pour Paris Photo|![](/fr-FR/2021/11/202111092300ParisPhoto.jpg)|
 202111102300|NohsngithiangFalls|Lamentin en Floride, États-Unis (© Paul E Tessier/Cavan Images)|La vache !|![](/fr-FR/2021/11/202111102300NohsngithiangFalls.jpg)|
 202111112300|BeaversBend|Le parc d’État de Beavers Bend près du lac Broken Bow, Oklahoma, États-Unis (© Inge Johnsson/Alamy Stock Photo) (© Inge Johnsson/Alamy)|L’automne dans l’Oklahoma|![](/fr-FR/2021/11/202111112300BeaversBend.jpg)|
+202111122300|ElTajo|Vue aérienne de la Gorge d’El Tajo et le pont Puente Nuevo à Ronda, Málaga, Espagne (© Jude Newkirk/Amazing Aerial Agency)|Le grand fossé|![](/fr-FR/2021/11/202111122300ElTajo.jpg)|
