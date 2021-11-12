@@ -11,3 +11,4 @@
 202111090000|DalyanTombs|Ancient rock tombs carved into the cliff near Dalyan, Turkey (© Reinhard Schmid/eStock Photo)|The land that time almost forgot|![](/en-GB/2021/11/202111090000DalyanTombs.jpg)|
 202111100000|CumberlandSeashore|Cumberland Island National Seashore, Georgia, USA (© Wilsilver77/iStock/Getty Images Plus)|Protecting an island wilderness|![](/en-GB/2021/11/202111100000CumberlandSeashore.jpg)|
 202111110000|PoppyField|A field bursting with red poppies, Trowbridge, Wiltshire (© Tim Green/Moment/Getty Images)|100 years of the Poppy Appeal|![](/en-GB/2021/11/202111110000PoppyField.jpg)|
+202111120000|SpiritMaligne|Spirit Island in Maligne Lake, Jasper National Park, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|The glacial beauty of Spirit Island|![](/en-GB/2021/11/202111120000SpiritMaligne.jpg)|
