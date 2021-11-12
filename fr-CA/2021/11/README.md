@@ -12,3 +12,4 @@
 202111090500|DalyanTombs|Anciennes tombes creusées dans la roche, Dalyan, Turquie (© Reinhard Schmid/eStock Photo)||![](/fr-CA/2021/11/202111090500DalyanTombs.jpg)|
 202111100500|QuebecFrost|Herbe recouverte de givre et arbres aux couleurs de l’automne, Québec (© plainpicture/Design Pics/David Chapman)||![](/fr-CA/2021/11/202111100500QuebecFrost.jpg)|
 202111110500|NohsngithiangFalls|Cascade de Nohsngithiang dans le Meghalaya, Inde (© Upamanyoo Das/Shutterstock)||![](/fr-CA/2021/11/202111110500NohsngithiangFalls.jpg)|
+202111120500|BeaversBend|Le parc d’État de Beavers Bend près du lac Broken Bow, Oklahoma, États-Unis (© Inge Johnsson/Alamy)||![](/fr-CA/2021/11/202111120500BeaversBend.jpg)|

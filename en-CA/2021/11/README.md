@@ -12,3 +12,4 @@
 202111090500|DalyanTombs|Ancient rock tombs carved into the cliff near Dalyan, Turkey (© Reinhard Schmid/eStock Photo)|The land that time almost forgot|![](/en-CA/2021/11/202111090500DalyanTombs.jpg)|
 202111100500|NohsngithiangFalls|Nohsngithiang Falls in Meghalaya, India (© Upamanyoo Das/Shutterstock)|The Seven Sisters Waterfalls in Northeast India|![](/en-CA/2021/11/202111100500NohsngithiangFalls.jpg)|
 202111110500|YpresMemorial|The Canadian 'Brooding Soldier' memorial commemorating the second battle of Ypres, St. Julien, Belgium (© Richard Lautens/Toronto Star via Getty Images)|Lest we forget|![](/en-CA/2021/11/202111110500YpresMemorial.jpg)|
+202111120500|BeaversBend|Beavers Bend Resort Park near Broken Bow, Oklahoma (© Inge Johnsson/Alamy)|A vivid scene from Beavers Bend|![](/en-CA/2021/11/202111120500BeaversBend.jpg)|
