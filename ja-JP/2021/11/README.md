@@ -13,3 +13,4 @@
 202111101500|BeaversBend|ビーバーズ・ベンド・リゾートパーク, 米国 オクラホマ州 （© Inge Johnsson/Alamy Stock Photo）|ブロークン・ボウ湖の紅葉|![](/ja-JP/2021/11/202111101500BeaversBend.jpg)|
 202111111500|ElTajo|エル・タホ渓谷とヌエボ橋, スペイン ロンダ （© Jude Newkirk/Amazing Aerial Agency）|アンダルシアの崖の街|![](/ja-JP/2021/11/202111111500ElTajo.jpg)|
 202111121500|FirstCliff|フィルスト・クリフウォーク, スイス （© Hans-Georg Eiben/Huber/eStock Photo）|世界遺産に臨む遊歩道|![](/ja-JP/2021/11/202111121500FirstCliff.jpg)|
+202111131500|FloridaManatee|マナティー, 米国 フロリダ州 （© Paul E Tessier/Cavan Images）|今月はマナティー月間|![](/ja-JP/2021/11/202111131500FloridaManatee.jpg)|
