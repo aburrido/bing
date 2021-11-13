@@ -13,3 +13,4 @@
 202111100800|CumberlandSeashore|Cumberland Island National Seashore, Georgia (© Wilsilver77/Getty Images Plus)|An island 'where nature and history meet'|![](/en-US/2021/11/202111100800CumberlandSeashore.jpg)|
 202111110800|Veterans2021|Sailors on the amphibious assault ship USS Iwo Jima on New York's Hudson River during Veterans Week, 2016 (© Apple White/Alamy)|Honoring our veterans|![](/en-US/2021/11/202111110800Veterans2021.jpg)|
 202111120800|BeaversBend|Beavers Bend Resort Park near Broken Bow, Oklahoma (© Inge Johnsson/Alamy)|A vivid scene from Beavers Bend|![](/en-US/2021/11/202111120800BeaversBend.jpg)|
+202111130800|ElTajo|Aerial view of El Tajo gorge and the Puente Nuevo bridge in Ronda, Málaga, Spain (© Jude Newkirk/Amazing Aerial Agency)|A gorge-ous town divided|![](/en-US/2021/11/202111130800ElTajo.jpg)|
