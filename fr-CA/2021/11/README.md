@@ -13,3 +13,4 @@
 202111100500|QuebecFrost|Herbe recouverte de givre et arbres aux couleurs de l’automne, Québec (© plainpicture/Design Pics/David Chapman)||![](/fr-CA/2021/11/202111100500QuebecFrost.jpg)|
 202111110500|NohsngithiangFalls|Cascade de Nohsngithiang dans le Meghalaya, Inde (© Upamanyoo Das/Shutterstock)||![](/fr-CA/2021/11/202111110500NohsngithiangFalls.jpg)|
 202111120500|BeaversBend|Le parc d’État de Beavers Bend près du lac Broken Bow, Oklahoma, États-Unis (© Inge Johnsson/Alamy)||![](/fr-CA/2021/11/202111120500BeaversBend.jpg)|
+202111130500|ElTajo|Vue aérienne de la Gorge d’El Tajo et le pont Puente Nuevo à Ronda, Málaga, Espagne (© Jude Newkirk/Amazing Aerial Agency)||![](/fr-CA/2021/11/202111130500ElTajo.jpg)|
