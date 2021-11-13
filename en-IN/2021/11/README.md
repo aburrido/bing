@@ -13,3 +13,4 @@
 202111101830|NohsngithiangFalls|Nohsngithiang Falls in Meghalaya, India (© Upamanyoo Das/Shutterstock)|The Seven Sisters Waterfalls in Northeast India|![](/en-IN/2021/11/202111101830NohsngithiangFalls.jpg)|
 202111111830|BeaversBend|Beavers Bend Resort Park near Broken Bow, Oklahoma (© Inge Johnsson/Alamy)|A vivid scene from Beavers Bend|![](/en-IN/2021/11/202111111830BeaversBend.jpg)|
 202111121830|ElTajo|Aerial view of El Tajo gorge and the Puente Nuevo bridge in Ronda, Málaga, Spain (© Jude Newkirk/Amazing Aerial Agency)|A gorge-ous town divided|![](/en-IN/2021/11/202111121830ElTajo.jpg)|
+202111131830|FirstCliff|First Cliff Walk on First near Grindelwald, Switzerland (© Hans-Georg Eiben/eStock Photo)|Walking on air|![](/en-IN/2021/11/202111131830FirstCliff.jpg)|
