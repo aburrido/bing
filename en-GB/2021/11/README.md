@@ -13,3 +13,4 @@
 202111110000|PoppyField|A field bursting with red poppies, Trowbridge, Wiltshire (© Tim Green/Moment/Getty Images)|100 years of the Poppy Appeal|![](/en-GB/2021/11/202111110000PoppyField.jpg)|
 202111120000|SpiritMaligne|Spirit Island in Maligne Lake, Jasper National Park, Alberta, Canada (© Jeff Penner/EyeEm/Getty Images)|The glacial beauty of Spirit Island|![](/en-GB/2021/11/202111120000SpiritMaligne.jpg)|
 202111130000|ElTajo|Aerial view of El Tajo gorge and the Puente Nuevo bridge in Ronda, Málaga, Spain (© Jude Newkirk/Amazing Aerial Agency)|A gorge-ous town divided|![](/en-GB/2021/11/202111130000ElTajo.jpg)|
+202111140000|FirstCliff|First Cliff Walk near Grindelwald, Switzerland (© Hans-Georg Eiben/eStock Photo)|Walking on air|![](/en-GB/2021/11/202111140000FirstCliff.jpg)|
