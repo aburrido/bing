@@ -14,3 +14,4 @@
 202111112300|BeaversBend|Beavers Bend Resort Park bei Broken Bow, Oklahoma, USA (© Inge Johnsson/Alamy Stock Photo)|Eine eindrucksvolle Szene aus Beavers Bend|![](/de-DE/2021/11/202111112300BeaversBend.jpg)|
 202111122300|ElTajo|Luftaufnahme der Schlucht El Tajo und der Brücke Puente Nuevo in Ronda, Málaga, Spanien (© Jude Newkirk/Amazing Aerial Agency)|Eine geteilte Stadt|![](/de-DE/2021/11/202111122300ElTajo.jpg)|
 202111132300|FirstCliff|First Cliff Walk auf dem First bei Grindelwald, Schweiz (© Hans-Georg Eiben/Huber/eStock Photo)|Auf Luft gehen|![](/de-DE/2021/11/202111132300FirstCliff.jpg)|
+202111142300|FloridaManatee|Rundschwanzseekuh in Florida, USA (© Paul E Tessier/Cavan Images)|Die „Seekuh” im Rampenlicht|![](/de-DE/2021/11/202111142300FloridaManatee.jpg)|
