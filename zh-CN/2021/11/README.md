@@ -14,3 +14,4 @@
 202111111600|BeaversBend|海狸湾度假公园, 美国俄克拉何马州 (© Inge Johnsson/Alamy)||![](/zh-CN/2021/11/202111111600BeaversBend.jpg)|
 202111121600|ElTajo|鸟瞰埃尔塔霍峡谷, 西班牙龙达小镇 (© Jude Newkirk/Amazing Aerial Agency)||![](/zh-CN/2021/11/202111121600ElTajo.jpg)|
 202111131600|FirstCliff|第一悬崖步道，瑞士格林德瓦 (© Hans-Georg Eiben/eStock Photo)||![](/zh-CN/2021/11/202111131600FirstCliff.jpg)|
+202111141600|FloridaManatee|憨态可掬的海牛, 美国佛罗里达州 (© Paul E Tessier/Cavan Images/Offset by Shutterstock)||![](/zh-CN/2021/11/202111141600FloridaManatee.jpg)|
