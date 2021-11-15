@@ -15,3 +15,4 @@
 202111120500|BeaversBend|Le parc d’État de Beavers Bend près du lac Broken Bow, Oklahoma, États-Unis (© Inge Johnsson/Alamy)||![](/fr-CA/2021/11/202111120500BeaversBend.jpg)|
 202111130500|ElTajo|Vue aérienne de la Gorge d’El Tajo et le pont Puente Nuevo à Ronda, Málaga, Espagne (© Jude Newkirk/Amazing Aerial Agency)||![](/fr-CA/2021/11/202111130500ElTajo.jpg)|
 202111140500|FirstCliff|First Cliff Walk sur le sommet First près de Grindelwald, Suisse (© Hans-Georg Eiben/eStock Photo)||![](/fr-CA/2021/11/202111140500FirstCliff.jpg)|
+202111150500|FloridaManatee|Lamentin en Floride, États-Unis (© Paul E Tessier/Cavan Images/Offset by Shutterstock)||![](/fr-CA/2021/11/202111150500FloridaManatee.jpg)|
