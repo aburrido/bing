@@ -15,3 +15,4 @@
 202111120800|BeaversBend|Beavers Bend Resort Park near Broken Bow, Oklahoma (© Inge Johnsson/Alamy)|A vivid scene from Beavers Bend|![](/en-US/2021/11/202111120800BeaversBend.jpg)|
 202111130800|ElTajo|Aerial view of El Tajo gorge and the Puente Nuevo bridge in Ronda, Málaga, Spain (© Jude Newkirk/Amazing Aerial Agency)|A gorge-ous town divided|![](/en-US/2021/11/202111130800ElTajo.jpg)|
 202111140800|FirstCliff|First Cliff Walk on First near Grindelwald, Switzerland (© Hans-Georg Eiben/eStock Photo)|Walking on air|![](/en-US/2021/11/202111140800FirstCliff.jpg)|
+202111150800|FloridaManatee|Manatee in Florida (© Paul E Tessier/Cavan Images/Offset by Shutterstock)|Spotlight on the 'sea cow'|![](/en-US/2021/11/202111150800FloridaManatee.jpg)|
