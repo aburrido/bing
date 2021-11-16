@@ -16,3 +16,4 @@
 202111131600|FirstCliff|第一悬崖步道，瑞士格林德瓦 (© Hans-Georg Eiben/eStock Photo)||![](/zh-CN/2021/11/202111131600FirstCliff.jpg)|
 202111141600|FloridaManatee|憨态可掬的海牛, 美国佛罗里达州 (© Paul E Tessier/Cavan Images/Offset by Shutterstock)||![](/zh-CN/2021/11/202111141600FloridaManatee.jpg)|
 202111151600|HogwartsExpress|穿越格伦菲南高架桥的蒸汽火车，苏格兰因弗内斯郡 (© The Escape of Malee/Shutterstock)||![](/zh-CN/2021/11/202111151600HogwartsExpress.jpg)|
+202111161600|CorkscrewSwamp|螺旋沼泽鸟兽禁猎区的小径,佛罗里达州 (© Bill Gozansky/Alamy)||![](/zh-CN/2021/11/202111161600CorkscrewSwamp.jpg)|
