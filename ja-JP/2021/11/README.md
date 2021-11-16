@@ -16,3 +16,4 @@
 202111131500|FloridaManatee|マナティー, 米国 フロリダ州 （© Paul E Tessier/Cavan Images）|今月はマナティー月間|![](/ja-JP/2021/11/202111131500FloridaManatee.jpg)|
 202111141500|KimonoGirl|着物姿の女の子, 日本 （© Hakase_/Getty Images）|今日は七五三|![](/ja-JP/2021/11/202111141500KimonoGirl.jpg)|
 202111151500|HogwartsExpress|グレンフィナン高架橋を進むジャコバイト号, イギリス （© The Escape of Malee/Shutterstock）|ホグワーツ・エクスプレス|![](/ja-JP/2021/11/202111151500HogwartsExpress.jpg)|
+202111161500|CorkscrewSwamp|コークスクリュー湿原保護区, 米国 フロリダ州 （© Bill Gozansky/Alamy Stock Photo）|湿原の遊歩道|![](/ja-JP/2021/11/202111161500CorkscrewSwamp.jpg)|
