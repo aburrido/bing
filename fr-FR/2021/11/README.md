@@ -16,3 +16,4 @@
 202111132300|FirstCliff|First Cliff Walk sur le sommet First près de Grindelwald, Suisse (© Hans-Georg Eiben/Huber/eStock Photo)|Marcher sur l’air|![](/fr-FR/2021/11/202111132300FirstCliff.jpg)|
 202111142300|FloridaManatee|Lamentin en Floride, États-Unis (© Paul E Tessier/Cavan Images)|La vache !|![](/fr-FR/2021/11/202111142300FloridaManatee.jpg)|
 202111152300|HogwartsExpress|Le train à vapeur Jacobite traversant le Viaduc de Glenfinnan, Écosse (© The Escape of Malee/Shutterstock)|Tous à bord du Hogwarts Express|![](/fr-FR/2021/11/202111152300HogwartsExpress.jpg)|
+202111162300|CorkscrewSwamp|Sentier dans le sanctuaire Corkscrew Swamp, Floride, États-Unis (© Bill Gozansky/Alamy Stock Photo)|En route mauvais troupe !|![](/fr-FR/2021/11/202111162300CorkscrewSwamp.jpg)|
