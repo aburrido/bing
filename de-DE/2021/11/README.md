@@ -17,3 +17,4 @@
 202111142300|FloridaManatee|Rundschwanzseekuh in Florida, USA (© Paul E Tessier/Cavan Images)|Die „Seekuh” im Rampenlicht|![](/de-DE/2021/11/202111142300FloridaManatee.jpg)|
 202111152300|HogwartsExpress|Der Jacobite-Dampfzug beim Überqueren des Glenfinnan-Viadukts in Inverness-shire, Schottland (© The Escape of Malee/Shutterstock)|Einsteigen in den Hogwarts-Express|![](/de-DE/2021/11/202111152300HogwartsExpress.jpg)|
 202111162300|MuenchenResidenz|Fassadendetail der Residenz in München, Bayern, Deutschland (© Rüdiger Hess/geo-select FotoArt)|Alles nur Fassade?|![](/de-DE/2021/11/202111162300MuenchenResidenz.jpg)|
+202111172300|TisaBohemian|Nationalpark Böhmische Schweiz bei Tisá, Tschechien (© Amazing Aerial Agency/Offset)|Goldener Herbst|![](/de-DE/2021/11/202111172300TisaBohemian.jpg)|
