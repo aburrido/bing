@@ -17,3 +17,4 @@
 202111140500|FirstCliff|First Cliff Walk on First near Grindelwald, Switzerland (© Hans-Georg Eiben/eStock Photo)|Walking on air|![](/en-CA/2021/11/202111140500FirstCliff.jpg)|
 202111150500|FloridaManatee|Manatee in Florida (© Paul E Tessier/Cavan Images/Offset by Shutterstock)|Spotlight on the 'sea cow'|![](/en-CA/2021/11/202111150500FloridaManatee.jpg)|
 202111160500|HogwartsExpress|The Jacobite steam train crossing the Glenfinnan Viaduct in Inverness-shire, Scotland (© The Escape of Malee/Shutterstock)|All aboard the Hogwarts Express|![](/en-CA/2021/11/202111160500HogwartsExpress.jpg)|
+202111170500|QuebecFrost|A frost covered grass field with trees in autumn colours; Iron Hill, Quebec (© plainpicture/Design Pics/David Chapman)|An overlap of seasons|![](/en-CA/2021/11/202111170500QuebecFrost.jpg)|
