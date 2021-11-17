@@ -17,3 +17,4 @@
 202111140800|FirstCliff|First Cliff Walk on First near Grindelwald, Switzerland (© Hans-Georg Eiben/eStock Photo)|Walking on air|![](/en-US/2021/11/202111140800FirstCliff.jpg)|
 202111150800|FloridaManatee|Manatee in Florida (© Paul E Tessier/Cavan Images/Offset by Shutterstock)|Spotlight on the 'sea cow'|![](/en-US/2021/11/202111150800FloridaManatee.jpg)|
 202111160800|HogwartsExpress|The Jacobite steam train crossing the Glenfinnan Viaduct in Inverness-shire, Scotland (© The Escape of Malee/Shutterstock)|All aboard the Hogwarts Express|![](/en-US/2021/11/202111160800HogwartsExpress.jpg)|
+202111170800|CorkscrewSwamp|Boardwalk Trail at Corkscrew Swamp Sanctuary in Florida (© Bill Gozansky/Alamy)|Hey you: Take a hike!|![](/en-US/2021/11/202111170800CorkscrewSwamp.jpg)|
