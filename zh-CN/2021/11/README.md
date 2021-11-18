@@ -18,3 +18,4 @@
 202111151600|HogwartsExpress|穿越格伦菲南高架桥的蒸汽火车，苏格兰因弗内斯郡 (© The Escape of Malee/Shutterstock)||![](/zh-CN/2021/11/202111151600HogwartsExpress.jpg)|
 202111161600|CorkscrewSwamp|螺旋沼泽鸟兽禁猎区的小径,佛罗里达州 (© Bill Gozansky/Alamy)||![](/zh-CN/2021/11/202111161600CorkscrewSwamp.jpg)|
 202111171600|HyacinthMacaws|潘塔纳尔湿地的风信子金刚鹦鹉，巴西 (© David Pattyn/Minden Pictures)||![](/zh-CN/2021/11/202111171600HyacinthMacaws.jpg)|
+202111181600|LeftForkNorth|The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)||![](/zh-CN/2021/11/202111181600LeftForkNorth.jpg)|
