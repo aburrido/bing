@@ -18,3 +18,4 @@
 202111152300|HogwartsExpress|Le train à vapeur Jacobite traversant le Viaduc de Glenfinnan, Écosse (© The Escape of Malee/Shutterstock)|Tous à bord du Hogwarts Express|![](/fr-FR/2021/11/202111152300HogwartsExpress.jpg)|
 202111162300|CorkscrewSwamp|Sentier dans le sanctuaire Corkscrew Swamp, Floride, États-Unis (© Bill Gozansky/Alamy Stock Photo)|En route mauvais troupe !|![](/fr-FR/2021/11/202111162300CorkscrewSwamp.jpg)|
 202111172300|WineTime|Bouteilles de vin vides dans une cave dans le Beaujolais pour le Beaujolais Nouveau (© Arco/J Pfeiffer/Age Fotostock)|Le vin des copains|![](/fr-FR/2021/11/202111172300WineTime.jpg)|
+202111182300|FallFoliage|Forêt en automne (© Laud Nicolas/EyeEm/Getty Image)|L’automne, toujours|![](/fr-FR/2021/11/202111182300FallFoliage.jpg)|
