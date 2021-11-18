@@ -17,3 +17,4 @@
 202111150000|FloridaManatee|Manatee in Florida, USA (© Paul E Tessier/Cavan Images/Offset by Shutterstock)|Elephants of the sea|![](/en-GB/2021/11/202111150000FloridaManatee.jpg)|
 202111160000|HogwartsExpress|The Jacobite steam train crossing the Glenfinnan Viaduct in Inverness-shire (© The Escape of Malee/Shutterstock)|Next stop, Hogwarts|![](/en-GB/2021/11/202111160000HogwartsExpress.jpg)|
 202111170000|NohsngithiangFalls|Nohsngithiang Falls in Meghalaya, India (© Upamanyoo Das/Shutterstock)|Looking down on Seven Sisters|![](/en-GB/2021/11/202111170000NohsngithiangFalls.jpg)|
+202111180000|ElanValley|Pen y Garreg dam, Elan Valley, Rhayader (© Joe Daniel Price/Moment Open/Getty Images)|It’s all downhill from here|![](/en-GB/2021/11/202111180000ElanValley.jpg)|
