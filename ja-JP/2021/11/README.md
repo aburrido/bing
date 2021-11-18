@@ -18,3 +18,4 @@
 202111151500|HogwartsExpress|グレンフィナン高架橋を進むジャコバイト号, イギリス （© The Escape of Malee/Shutterstock）|ホグワーツ・エクスプレス|![](/ja-JP/2021/11/202111151500HogwartsExpress.jpg)|
 202111161500|CorkscrewSwamp|コークスクリュー湿原保護区, 米国 フロリダ州 （© Bill Gozansky/Alamy Stock Photo）|湿原の遊歩道|![](/ja-JP/2021/11/202111161500CorkscrewSwamp.jpg)|
 202111171500|TisaBohemian|ボヘミアン・スイス国立公園, チェコ共和国 （© Amazing Aerial Agency/Offset）|ヨーロッパの紅葉|![](/ja-JP/2021/11/202111171500TisaBohemian.jpg)|
+202111181500|LeftForkNorth|ザイオン国立公園, 米国 ユタ州 （© Stan Moniz/Tandem Stills + Motion）|サブウェイ・スロットキャニオン|![](/ja-JP/2021/11/202111181500LeftForkNorth.jpg)|
