@@ -19,3 +19,4 @@
 202111160500|HogwartsExpress|The Jacobite steam train crossing the Glenfinnan Viaduct in Inverness-shire, Scotland (© The Escape of Malee/Shutterstock)|All aboard the Hogwarts Express|![](/en-CA/2021/11/202111160500HogwartsExpress.jpg)|
 202111170500|QuebecFrost|A frost covered grass field with trees in autumn colours; Iron Hill, Quebec (© plainpicture/Design Pics/David Chapman)|An overlap of seasons|![](/en-CA/2021/11/202111170500QuebecFrost.jpg)|
 202111180500|TisaBohemian|Bohemian Switzerland National Park near Tisá, Czech Republic (© Amazing Aerial Agency/Offset)|Look down from the skies and see…|![](/en-CA/2021/11/202111180500TisaBohemian.jpg)|
+202111190500|WinterWaxwing|A Bohemian waxwing in Canada (© Mircea Costina/Alamy)|A sociable nomad in winter|![](/en-CA/2021/11/202111190500WinterWaxwing.jpg)|
