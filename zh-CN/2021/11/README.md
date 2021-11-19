@@ -19,3 +19,4 @@
 202111161600|CorkscrewSwamp|螺旋沼泽鸟兽禁猎区的小径,佛罗里达州 (© Bill Gozansky/Alamy)||![](/zh-CN/2021/11/202111161600CorkscrewSwamp.jpg)|
 202111171600|HyacinthMacaws|潘塔纳尔湿地的风信子金刚鹦鹉，巴西 (© David Pattyn/Minden Pictures)||![](/zh-CN/2021/11/202111171600HyacinthMacaws.jpg)|
 202111181600|LeftForkNorth|The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)||![](/zh-CN/2021/11/202111181600LeftForkNorth.jpg)|
+202111191600|FallAssiniboine|阿西尼博因山公园的秋叶，加拿大不列颠哥伦比亚省 (© Mitch Pittman/TANDEM Stills + Motion)||![](/zh-CN/2021/11/202111191600FallAssiniboine.jpg)|
