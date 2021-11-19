@@ -19,3 +19,4 @@
 202111161830|CorkscrewSwamp|Boardwalk Trail at Corkscrew Swamp Sanctuary in Florida (© Bill Gozansky/Alamy)|Hey you: Take a hike!|![](/en-IN/2021/11/202111161830CorkscrewSwamp.jpg)|
 202111171830|DrongoBird|Greater racket-tailed drongo in Tripura, India (© Bernard Castelein/Minden Pictures)|It’s all a one-bird orchestra…|![](/en-IN/2021/11/202111171830DrongoBird.jpg)|
 202111181830|GoldenTempleIndia|Morning view of the Golden Temple in Amritsar, India (© Adrian Pope/Getty Images)|Celebrating Guru Nanak Gurpurab|![](/en-IN/2021/11/202111181830GoldenTempleIndia.jpg)|
+202111191830|NewBreath|'A New Breath' by artist Saype in Moléson-sur-Gruyères, Switzerland (© Valentin Flauraud/Shutterstock)|'A New Breath'|![](/en-IN/2021/11/202111191830NewBreath.jpg)|
