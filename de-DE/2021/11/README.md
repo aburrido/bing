@@ -19,3 +19,4 @@
 202111162300|MuenchenResidenz|Fassadendetail der Residenz in München, Bayern, Deutschland (© Rüdiger Hess/geo-select FotoArt)|Alles nur Fassade?|![](/de-DE/2021/11/202111162300MuenchenResidenz.jpg)|
 202111172300|TisaBohemian|Nationalpark Böhmische Schweiz bei Tisá, Tschechien (© Amazing Aerial Agency/Offset)|Goldener Herbst|![](/de-DE/2021/11/202111172300TisaBohemian.jpg)|
 202111182300|LeftForkNorth|Subway Slot Canyon im Zion-Nationalpark, Utah, USA (© Stan Moniz/Tandem Stills + Motion)|Ein Nationalpark wird 102 Jahre alt|![](/de-DE/2021/11/202111182300LeftForkNorth.jpg)|
+202111192300|NewBreath|Monumentalbild „A New Breath“ des Künstlers Saype in Moléson-sur-Gruyères, Schweiz (© Valentin Flauraud/Shutterstock)|„Ein neuer Atemzug“|![](/de-DE/2021/11/202111192300NewBreath.jpg)|
