@@ -20,3 +20,4 @@
 202111171500|TisaBohemian|ボヘミアン・スイス国立公園, チェコ共和国 （© Amazing Aerial Agency/Offset）|ヨーロッパの紅葉|![](/ja-JP/2021/11/202111171500TisaBohemian.jpg)|
 202111181500|LeftForkNorth|ザイオン国立公園, 米国 ユタ州 （© Stan Moniz/Tandem Stills + Motion）|サブウェイ・スロットキャニオン|![](/ja-JP/2021/11/202111181500LeftForkNorth.jpg)|
 202111191500|NewBreath|[新たな息吹]サイープ, スイス （© Valentin Flauraud/Shutterstock）|「世界子どもの日」を祝おう|![](/ja-JP/2021/11/202111191500NewBreath.jpg)|
+202111201500|ElephantGiving|アフリカゾウの家族, ケニア （© Yva Momatiuk and John Eastcott/Minden Pictures）|今日は「家族の日」|![](/ja-JP/2021/11/202111201500ElephantGiving.jpg)|
