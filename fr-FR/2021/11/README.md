@@ -20,3 +20,4 @@
 202111172300|WineTime|Bouteilles de vin vides dans une cave dans le Beaujolais pour le Beaujolais Nouveau (© Arco/J Pfeiffer/Age Fotostock)|Le vin des copains|![](/fr-FR/2021/11/202111172300WineTime.jpg)|
 202111182300|FallFoliage|Forêt en automne (© Laud Nicolas/EyeEm/Getty Image)|L’automne, toujours|![](/fr-FR/2021/11/202111182300FallFoliage.jpg)|
 202111192300|NewBreath|“Un Nouveau Souffle » par Saype à Moléson-sur-Gruyères, Suisse (© Valentin Flauraud/Shutterstock)|Un nouveau souffle|![](/fr-FR/2021/11/202111192300NewBreath.jpg)|
+202111202300|Invergarry|Forêt près du village d’Invergarry, Écosse (© Matt Anderson Photography/Getty Images)|Forêt écossaise|![](/fr-FR/2021/11/202111202300Invergarry.jpg)|
