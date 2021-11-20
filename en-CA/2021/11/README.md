@@ -20,3 +20,4 @@
 202111170500|QuebecFrost|A frost covered grass field with trees in autumn colours; Iron Hill, Quebec (© plainpicture/Design Pics/David Chapman)|An overlap of seasons|![](/en-CA/2021/11/202111170500QuebecFrost.jpg)|
 202111180500|TisaBohemian|Bohemian Switzerland National Park near Tisá, Czech Republic (© Amazing Aerial Agency/Offset)|Look down from the skies and see…|![](/en-CA/2021/11/202111180500TisaBohemian.jpg)|
 202111190500|WinterWaxwing|A Bohemian waxwing in Canada (© Mircea Costina/Alamy)|A sociable nomad in winter|![](/en-CA/2021/11/202111190500WinterWaxwing.jpg)|
+202111200500|NewBreath|'A New Breath' by artist Saype in Moléson-sur-Gruyères, Switzerland (© Valentin Flauraud/Shutterstock)|'A New Breath'|![](/en-CA/2021/11/202111200500NewBreath.jpg)|
