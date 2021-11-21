@@ -21,3 +21,4 @@
 202111180800|TisaBohemian|Bohemian Switzerland National Park near Tisá, Czech Republic (© Amazing Aerial Agency/Offset)|Is this the real leaf? Is this just fantasy?|![](/en-US/2021/11/202111180800TisaBohemian.jpg)|
 202111190800|LeftForkNorth|The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)|Celebrating Zion's birthday|![](/en-US/2021/11/202111190800LeftForkNorth.jpg)|
 202111200800|NewBreath|'A New Breath' by artist Saype in Moléson-sur-Gruyères, Switzerland (© Valentin Flauraud/Shutterstock)|'A New Breath'|![](/en-US/2021/11/202111200800NewBreath.jpg)|
+202111210800|Invergarry|Forest near the village of Invergarry, Scotland (© Matt Anderson Photography/Getty Images)|The frosted forest|![](/en-US/2021/11/202111210800Invergarry.jpg)|
