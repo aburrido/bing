@@ -21,3 +21,4 @@
 202111182300|LeftForkNorth|Subway Slot Canyon im Zion-Nationalpark, Utah, USA (© Stan Moniz/Tandem Stills + Motion)|Ein Nationalpark wird 102 Jahre alt|![](/de-DE/2021/11/202111182300LeftForkNorth.jpg)|
 202111192300|NewBreath|Monumentalbild „A New Breath“ des Künstlers Saype in Moléson-sur-Gruyères, Schweiz (© Valentin Flauraud/Shutterstock)|„Ein neuer Atemzug“|![](/de-DE/2021/11/202111192300NewBreath.jpg)|
 202111202300|Invergarry|Wald in der Nähe des Dorfes Invergarry, Schottland (© Matt Anderson Photography/Getty Images)|Der gefrorene Wald|![](/de-DE/2021/11/202111202300Invergarry.jpg)|
+202111212300|DresdenAltstadt|Blick von der Frauenkirche auf die Altstadt und die Elbe, Dresden, Sachsen (© Michael Abid/Mapics/Adobe Stock)|„Florenz des Nordens“|![](/de-DE/2021/11/202111212300DresdenAltstadt.jpg)|
