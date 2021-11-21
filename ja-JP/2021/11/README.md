@@ -21,3 +21,4 @@
 202111181500|LeftForkNorth|ザイオン国立公園, 米国 ユタ州 （© Stan Moniz/Tandem Stills + Motion）|サブウェイ・スロットキャニオン|![](/ja-JP/2021/11/202111181500LeftForkNorth.jpg)|
 202111191500|NewBreath|[新たな息吹]サイープ, スイス （© Valentin Flauraud/Shutterstock）|「世界子どもの日」を祝おう|![](/ja-JP/2021/11/202111191500NewBreath.jpg)|
 202111201500|ElephantGiving|アフリカゾウの家族, ケニア （© Yva Momatiuk and John Eastcott/Minden Pictures）|今日は「家族の日」|![](/ja-JP/2021/11/202111201500ElephantGiving.jpg)|
+202111211500|IrohazakaRoad|いろは坂, 日光 （© LightRecords/Shutterstock）|今日は二十四節気「小雪」|![](/ja-JP/2021/11/202111211500IrohazakaRoad.jpg)|
