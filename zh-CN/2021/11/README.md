@@ -21,3 +21,4 @@
 202111181600|LeftForkNorth|The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)||![](/zh-CN/2021/11/202111181600LeftForkNorth.jpg)|
 202111191600|FallAssiniboine|阿西尼博因山公园的秋叶，加拿大不列颠哥伦比亚省 (© Mitch Pittman/TANDEM Stills + Motion)||![](/zh-CN/2021/11/202111191600FallAssiniboine.jpg)|
 202111201600|Invergarry|Invergarry村庄附近的森林，苏格兰 (© Matt Anderson Photography/Getty Images)||![](/zh-CN/2021/11/202111201600Invergarry.jpg)|
+202111211600|IrohazakaRoad|伊吕波坂山道，日本日光市 (© LightRecords/Shutterstock)||![](/zh-CN/2021/11/202111211600IrohazakaRoad.jpg)|
