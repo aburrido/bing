@@ -21,3 +21,4 @@
 202111180500|TisaBohemian|Parc national de la Suisse bohémienne près de Tisá, République Tchèque (© Amazing Aerial Agency/Offset)||![](/fr-CA/2021/11/202111180500TisaBohemian.jpg)|
 202111190500|LeftForkNorth|Canyon Le Subway dans le parc national de Zion, Utah, États-Unis (© Stan Moniz/Tandem Stills + Motion)||![](/fr-CA/2021/11/202111190500LeftForkNorth.jpg)|
 202111200500|ElanValley|Barrage Pen y Garreg dans la vallée Elan, Pays de Galles, Royaume-Uni (© Joe Daniel Price/Moment Open/Getty Images)||![](/fr-CA/2021/11/202111200500ElanValley.jpg)|
+202111210500|Invergarry|Forêt près du village d’Invergarry, Écosse (© Matt Anderson Photography/Getty Images)||![](/fr-CA/2021/11/202111210500Invergarry.jpg)|

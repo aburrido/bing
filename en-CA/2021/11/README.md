@@ -21,3 +21,4 @@
 202111180500|TisaBohemian|Bohemian Switzerland National Park near Tisá, Czech Republic (© Amazing Aerial Agency/Offset)|Look down from the skies and see…|![](/en-CA/2021/11/202111180500TisaBohemian.jpg)|
 202111190500|WinterWaxwing|A Bohemian waxwing in Canada (© Mircea Costina/Alamy)|A sociable nomad in winter|![](/en-CA/2021/11/202111190500WinterWaxwing.jpg)|
 202111200500|NewBreath|'A New Breath' by artist Saype in Moléson-sur-Gruyères, Switzerland (© Valentin Flauraud/Shutterstock)|'A New Breath'|![](/en-CA/2021/11/202111200500NewBreath.jpg)|
+202111210500|Invergarry|Forest near the village of Invergarry, Scotland (© Matt Anderson Photography/Getty Images)|The frosted forest|![](/en-CA/2021/11/202111210500Invergarry.jpg)|
