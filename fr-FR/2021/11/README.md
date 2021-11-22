@@ -22,3 +22,4 @@
 202111192300|NewBreath|“Un Nouveau Souffle » par Saype à Moléson-sur-Gruyères, Suisse (© Valentin Flauraud/Shutterstock)|Un nouveau souffle|![](/fr-FR/2021/11/202111192300NewBreath.jpg)|
 202111202300|Invergarry|Forêt près du village d’Invergarry, Écosse (© Matt Anderson Photography/Getty Images)|Forêt écossaise|![](/fr-FR/2021/11/202111202300Invergarry.jpg)|
 202111212300|IrohazakaRoad|Route Irohazaka près de Nikko au Japon (© LightRecords/Shutterstock)|Serpent d’asphalte|![](/fr-FR/2021/11/202111212300IrohazakaRoad.jpg)|
+202111222300|AmmoniteShell|Coquille d’ammonite fossilisée (© Marianna Armata/Getty Images)|Fibonacci a encore frappé !|![](/fr-FR/2021/11/202111222300AmmoniteShell.jpg)|
