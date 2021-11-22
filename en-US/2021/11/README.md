@@ -22,3 +22,4 @@
 202111190800|LeftForkNorth|The Subway slot canyon in Zion National Park, Utah (© Stan Moniz/Tandem Stills + Motion)|Celebrating Zion's birthday|![](/en-US/2021/11/202111190800LeftForkNorth.jpg)|
 202111200800|NewBreath|'A New Breath' by artist Saype in Moléson-sur-Gruyères, Switzerland (© Valentin Flauraud/Shutterstock)|'A New Breath'|![](/en-US/2021/11/202111200800NewBreath.jpg)|
 202111210800|Invergarry|Forest near the village of Invergarry, Scotland (© Matt Anderson Photography/Getty Images)|The frosted forest|![](/en-US/2021/11/202111210800Invergarry.jpg)|
+202111220800|IrohazakaRoad|Irohazaka road near Nikkō, Japan (© LightRecords/Shutterstock)|Reading and riding on Irohazaka road|![](/en-US/2021/11/202111220800IrohazakaRoad.jpg)|
