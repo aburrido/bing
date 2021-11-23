@@ -23,3 +23,4 @@
 202111200500|NewBreath|'A New Breath' by artist Saype in Moléson-sur-Gruyères, Switzerland (© Valentin Flauraud/Shutterstock)|'A New Breath'|![](/en-CA/2021/11/202111200500NewBreath.jpg)|
 202111210500|Invergarry|Forest near the village of Invergarry, Scotland (© Matt Anderson Photography/Getty Images)|The frosted forest|![](/en-CA/2021/11/202111210500Invergarry.jpg)|
 202111220500|IrohazakaRoad|Irohazaka road near Nikko, Japan (© LightRecords/Shutterstock)|Reading and riding on Irohazaka road|![](/en-CA/2021/11/202111220500IrohazakaRoad.jpg)|
+202111230500|AmmoniteShell|Cross-section of a fossilized ammonite shell (© Marianna Armata/Getty Images)|As easy as 1, 1, 2, 3…|![](/en-CA/2021/11/202111230500AmmoniteShell.jpg)|

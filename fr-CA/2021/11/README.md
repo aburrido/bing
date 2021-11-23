@@ -23,3 +23,4 @@
 202111200500|ElanValley|Barrage Pen y Garreg dans la vallée Elan, Pays de Galles, Royaume-Uni (© Joe Daniel Price/Moment Open/Getty Images)||![](/fr-CA/2021/11/202111200500ElanValley.jpg)|
 202111210500|Invergarry|Forêt près du village d’Invergarry, Écosse (© Matt Anderson Photography/Getty Images)||![](/fr-CA/2021/11/202111210500Invergarry.jpg)|
 202111220500|IrohazakaRoad|Route Irohazaka près de Nikko au Japon (© LightRecords/Shutterstock)||![](/fr-CA/2021/11/202111220500IrohazakaRoad.jpg)|
+202111230500|AmmoniteShell|Échantillon d’une coquille d’ammonite fossilisée (© Marianna Armata/Getty Images)||![](/fr-CA/2021/11/202111230500AmmoniteShell.jpg)|
