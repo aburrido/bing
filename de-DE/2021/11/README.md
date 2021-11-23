@@ -23,3 +23,4 @@
 202111202300|Invergarry|Wald in der Nähe des Dorfes Invergarry, Schottland (© Matt Anderson Photography/Getty Images)|Der gefrorene Wald|![](/de-DE/2021/11/202111202300Invergarry.jpg)|
 202111212300|DresdenAltstadt|Blick von der Frauenkirche auf die Altstadt und die Elbe, Dresden, Sachsen (© Michael Abid/Mapics/Adobe Stock)|„Florenz des Nordens“|![](/de-DE/2021/11/202111212300DresdenAltstadt.jpg)|
 202111222300|AmmoniteShell|Querschnitt des versteinerten Gehäuses eines Ammoniten (© Marianna Armata/Getty Images)|1, 1, 2, 3, 5, 8, 13… Heute ist Fibonacci-Tag!|![](/de-DE/2021/11/202111222300AmmoniteShell.jpg)|
+202111232300|ChocoHillBohol|Chocolate Hills („Schokoladenhügel“) auf der Insel Bohol, Philippinen (© Danita Delimont/Offset by Shutterstock)|Trocken und schokoladig im Abgang|![](/de-DE/2021/11/202111232300ChocoHillBohol.jpg)|
