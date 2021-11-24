@@ -24,3 +24,4 @@
 202111212300|IrohazakaRoad|Route Irohazaka près de Nikko au Japon (© LightRecords/Shutterstock)|Serpent d’asphalte|![](/fr-FR/2021/11/202111212300IrohazakaRoad.jpg)|
 202111222300|AmmoniteShell|Coquille d’ammonite fossilisée (© Marianna Armata/Getty Images)|Fibonacci a encore frappé !|![](/fr-FR/2021/11/202111222300AmmoniteShell.jpg)|
 202111232300|ChocoHillBohol|Chocolate Hills sur l’île de Bohol aux Philippines (© Danita Delimont/Offset by Shutterstock)|Qui a une cuillère ?|![](/fr-FR/2021/11/202111232300ChocoHillBohol.jpg)|
+202111242300|SquirrelsCairngorms|Écureuils roux dans le parc national de Cairngorms, Hautes-Terres, Écosse (© Scotland: The Big Picture/Minden Pictures)|À table !|![](/fr-FR/2021/11/202111242300SquirrelsCairngorms.jpg)|
