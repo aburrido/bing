@@ -24,3 +24,4 @@
 202111210800|Invergarry|Forest near the village of Invergarry, Scotland (© Matt Anderson Photography/Getty Images)|The frosted forest|![](/en-US/2021/11/202111210800Invergarry.jpg)|
 202111220800|IrohazakaRoad|Irohazaka road near Nikkō, Japan (© LightRecords/Shutterstock)|Reading and riding on Irohazaka road|![](/en-US/2021/11/202111220800IrohazakaRoad.jpg)|
 202111230800|AmmoniteShell|Cross-section of a fossilized ammonite shell (© Marianna Armata/Getty Images)|Fibonacci Day|![](/en-US/2021/11/202111230800AmmoniteShell.jpg)|
+202111240800|ChocoHillBohol|Chocolate Hills in Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Dry, with a chocolaty finish|![](/en-US/2021/11/202111240800ChocoHillBohol.jpg)|
