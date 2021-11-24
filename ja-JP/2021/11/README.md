@@ -24,3 +24,4 @@
 202111211500|IrohazakaRoad|いろは坂, 日光 （© LightRecords/Shutterstock）|今日は二十四節気「小雪」|![](/ja-JP/2021/11/202111211500IrohazakaRoad.jpg)|
 202111221500|AmmoniteShell|アンモナイトの化石 （© Marianna Armata/Getty Images）|今日は「フィボナッチ数列の日」|![](/ja-JP/2021/11/202111221500AmmoniteShell.jpg)|
 202111231500|Invergarry|インヴァーガリーの森, イギリス スコットランド （© Matt Anderson Photography/Getty Images）|グレート・グレン峡谷の妖精の森|![](/ja-JP/2021/11/202111231500Invergarry.jpg)|
+202111241500|SquirrelsCairngorms|キタリス, イギリス スコットランド  （© Scotland: The Big Picture/Minden Pictures）|冬支度をするキタリスたち|![](/ja-JP/2021/11/202111241500SquirrelsCairngorms.jpg)|
