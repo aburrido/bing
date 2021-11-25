@@ -25,3 +25,4 @@
 202111221600|AmmoniteShell|菊石亚纲壳体的横截面 (© Marianna Armata/Getty Images)||![](/zh-CN/2021/11/202111221600AmmoniteShell.jpg)|
 202111231600|ChocoHillBohol|独特的巧克力山，菲律宾薄荷岛 (© Danita Delimont/Offset by Shutterstock)||![](/zh-CN/2021/11/202111231600ChocoHillBohol.jpg)|
 202111241600|SquirrelsCairngorms|凯恩戈姆山国家公园的欧亚红松鼠，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)||![](/zh-CN/2021/11/202111241600SquirrelsCairngorms.jpg)|
+202111251600|WinterWaxwing|枝头上的太平鸟（北美亚种），加拿大 (© Mircea Costina/Alamy)||![](/zh-CN/2021/11/202111251600WinterWaxwing.jpg)|
