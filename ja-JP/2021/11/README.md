@@ -25,3 +25,4 @@
 202111221500|AmmoniteShell|アンモナイトの化石 （© Marianna Armata/Getty Images）|今日は「フィボナッチ数列の日」|![](/ja-JP/2021/11/202111221500AmmoniteShell.jpg)|
 202111231500|Invergarry|インヴァーガリーの森, イギリス スコットランド （© Matt Anderson Photography/Getty Images）|グレート・グレン峡谷の妖精の森|![](/ja-JP/2021/11/202111231500Invergarry.jpg)|
 202111241500|SquirrelsCairngorms|キタリス, イギリス スコットランド  （© Scotland: The Big Picture/Minden Pictures）|冬支度をするキタリスたち|![](/ja-JP/2021/11/202111241500SquirrelsCairngorms.jpg)|
+202111251500|Takaragawa|宝川温泉, 群馬 （© Marco Bottigelli/Moment/Getty images）|今日は「いい風呂の日」|![](/ja-JP/2021/11/202111251500Takaragawa.jpg)|
