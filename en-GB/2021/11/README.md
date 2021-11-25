@@ -24,3 +24,4 @@
 202111220000|IrohazakaRoad|Irohazaka road near Nikko, Japan (© LightRecords/Shutterstock)|Reading the road|![](/en-GB/2021/11/202111220000IrohazakaRoad.jpg)|
 202111230000|AmmoniteShell|Cross-section of a fossilised ammonite shell (© Marianna Armata/Getty Images)|As easy as 1, 1, 2, 3…|![](/en-GB/2021/11/202111230000AmmoniteShell.jpg)|
 202111240000|ChocoHillBohol|Chocolate Hills in Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Dry, with a chocolatey finish|![](/en-GB/2021/11/202111240000ChocoHillBohol.jpg)|
+202111250000|SquirrelsCairngorms|Red squirrels in Cairngorms National Park, Highlands (© Scotland: The Big Picture/Minden Pictures)|Enjoying fruits of the forest|![](/en-GB/2021/11/202111250000SquirrelsCairngorms.jpg)|
