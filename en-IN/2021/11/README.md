@@ -26,3 +26,4 @@
 202111231830|ChocoHillBohol|Chocolate Hills in Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Dry, with a chocolaty finish|![](/en-IN/2021/11/202111231830ChocoHillBohol.jpg)|
 202111241830|SquirrelsCairngorms|Red squirrels in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Say Hi to our fuzzy friends|![](/en-IN/2021/11/202111241830SquirrelsCairngorms.jpg)|
 202111251830|WinterWaxwing|A Bohemian waxwing in Canada (© Mircea Costina/Alamy)|A sociable nomad in winter|![](/en-IN/2021/11/202111251830WinterWaxwing.jpg)|
+202111261830|DemoiselleCranes|Demoiselle cranes come to Khichan village in Rajasthan, India (© Pinkesh Bhati/Shutterstock)|The demoiselle cranes of Khichan|![](/en-IN/2021/11/202111261830DemoiselleCranes.jpg)|
