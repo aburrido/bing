@@ -26,3 +26,4 @@
 202111230800|AmmoniteShell|Fossilised ammonite shell (© Marianna Armata/Getty Images)|Info|![](/en-AU/2021/11/202111230800AmmoniteShell.jpg)|
 202111240800|ChocoHillBohol|Chocolate Hills, Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Info|![](/en-AU/2021/11/202111240800ChocoHillBohol.jpg)|
 202111250800|SquirrelsCairngorms|Red squirrels, Cairngorms National Park, Scottish Highlands (© Scotland: The Big Picture/Minden Pictures)|Info|![](/en-AU/2021/11/202111250800SquirrelsCairngorms.jpg)|
+202111260800|WinterWaxwing|Bohemian waxwing, Canada (© Mircea Costina/Alamy)|Info|![](/en-AU/2021/11/202111260800WinterWaxwing.jpg)|

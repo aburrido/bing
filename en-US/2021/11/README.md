@@ -26,3 +26,4 @@
 202111230800|AmmoniteShell|Cross-section of a fossilized ammonite shell (© Marianna Armata/Getty Images)|Fibonacci Day|![](/en-US/2021/11/202111230800AmmoniteShell.jpg)|
 202111240800|ChocoHillBohol|Chocolate Hills in Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Dry, with a chocolaty finish|![](/en-US/2021/11/202111240800ChocoHillBohol.jpg)|
 202111250800|SquirrelsCairngorms|Red squirrels in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Wee mascots for today's feast|![](/en-US/2021/11/202111250800SquirrelsCairngorms.jpg)|
+202111260800|ZuniOlla|Zuni Olla Maidens at the annual Inter-Tribal Ceremonial in Gallup, New Mexico (© Julien McRoberts/Danita Delimont)|Preserving a 4,000-year-old culture|![](/en-US/2021/11/202111260800ZuniOlla.jpg)|
