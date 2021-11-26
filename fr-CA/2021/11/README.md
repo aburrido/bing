@@ -26,3 +26,4 @@
 202111230500|AmmoniteShell|Échantillon d’une coquille d’ammonite fossilisée (© Marianna Armata/Getty Images)||![](/fr-CA/2021/11/202111230500AmmoniteShell.jpg)|
 202111240500|ChocoHillBohol|Chocolate Hills sur l’île de Bohol aux Philippines (© Danita Delimont/Offset by Shutterstock)||![](/fr-CA/2021/11/202111240500ChocoHillBohol.jpg)|
 202111250500|SquirrelsCairngorms|Écureuils roux dans le parc national de  Cairngorms, Hautes-Terres, Écosse (© Scotland: The Big Picture/Minden Pictures)||![](/fr-CA/2021/11/202111250500SquirrelsCairngorms.jpg)|
+202111260500|WinterWaxwing|Un jaseur boréal au Canada (© Mircea Costina/Alamy)||![](/fr-CA/2021/11/202111260500WinterWaxwing.jpg)|
