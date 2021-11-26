@@ -26,3 +26,4 @@
 202111232300|ChocoHillBohol|Chocolate Hills („Schokoladenhügel“) auf der Insel Bohol, Philippinen (© Danita Delimont/Offset by Shutterstock)|Trocken und schokoladig im Abgang|![](/de-DE/2021/11/202111232300ChocoHillBohol.jpg)|
 202111242300|SquirrelsCairngorms|Eurasische Eichhörnchen im Cairngorms-Nationalpark, Schottland (© Scotland: The Big Picture/Minden Pictures)|Highlands-Bewohner|![](/de-DE/2021/11/202111242300SquirrelsCairngorms.jpg)|
 202111252300|VosgesBioReserve|Regionaler Naturpark Vosges du Nord, Frankreich (© Michel Rauch/Minden Pictures)|Wo verläuft dieser verschneite Weg?|![](/de-DE/2021/11/202111252300VosgesBioReserve.jpg)|
+202111262300|WinterWaxwing|Seidenschwanz (© Mircea Costina/Alamy)|Wintervorbote|![](/de-DE/2021/11/202111262300WinterWaxwing.jpg)|
