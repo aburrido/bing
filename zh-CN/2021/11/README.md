@@ -27,3 +27,4 @@
 202111241600|SquirrelsCairngorms|凯恩戈姆山国家公园的欧亚红松鼠，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)||![](/zh-CN/2021/11/202111241600SquirrelsCairngorms.jpg)|
 202111251600|WinterWaxwing|枝头上的太平鸟（北美亚种），加拿大 (© Mircea Costina/Alamy)||![](/zh-CN/2021/11/202111251600WinterWaxwing.jpg)|
 202111261600|ElanValley|伊兰谷中的Pen y Garreg水坝，威尔士 (© Joe Daniel Price/Moment Open/Getty Images)||![](/zh-CN/2021/11/202111261600ElanValley.jpg)|
+202111271600|BeechTrees|古老的水青冈树，英国北安普顿郡 (© Andrew Baskott/Alamy)||![](/zh-CN/2021/11/202111271600BeechTrees.jpg)|
