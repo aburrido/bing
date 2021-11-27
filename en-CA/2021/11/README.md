@@ -27,3 +27,4 @@
 202111240500|ChocoHillBohol|Chocolate Hills in Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Dry, with a chocolaty finish|![](/en-CA/2021/11/202111240500ChocoHillBohol.jpg)|
 202111250500|SquirrelsCairngorms|Red squirrels in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Small but prodigious eaters|![](/en-CA/2021/11/202111250500SquirrelsCairngorms.jpg)|
 202111260500|PennStation|Aerial view of Penn Station and the New York City skyline at night in the 1950s (© R. Gates -Staff/Getty Images)|A jewel glittering in the city|![](/en-CA/2021/11/202111260500PennStation.jpg)|
+202111270500|FestiveNathans|Celebration of the holiday season at Nathan Philips Square, Toronto (© CharlineXia Ontario Canada Collection/Alamy Stock Photo)|Cavalcade of Lights|![](/en-CA/2021/11/202111270500FestiveNathans.jpg)|
