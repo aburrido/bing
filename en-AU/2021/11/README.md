@@ -27,3 +27,4 @@
 202111240800|ChocoHillBohol|Chocolate Hills, Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Info|![](/en-AU/2021/11/202111240800ChocoHillBohol.jpg)|
 202111250800|SquirrelsCairngorms|Red squirrels, Cairngorms National Park, Scottish Highlands (© Scotland: The Big Picture/Minden Pictures)|Info|![](/en-AU/2021/11/202111250800SquirrelsCairngorms.jpg)|
 202111260800|WinterWaxwing|Bohemian waxwing, Canada (© Mircea Costina/Alamy)|Info|![](/en-AU/2021/11/202111260800WinterWaxwing.jpg)|
+202111270800|ElanValley|Pen y Garreg dam, Elan Valley, Wales (© Joe Daniel Price/Moment Open/Getty Images)|Info|![](/en-AU/2021/11/202111270800ElanValley.jpg)|

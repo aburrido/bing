@@ -27,3 +27,4 @@
 202111240800|ChocoHillBohol|Chocolate Hills in Bohol, Philippines (© Danita Delimont/Offset by Shutterstock)|Dry, with a chocolaty finish|![](/en-US/2021/11/202111240800ChocoHillBohol.jpg)|
 202111250800|SquirrelsCairngorms|Red squirrels in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Wee mascots for today's feast|![](/en-US/2021/11/202111250800SquirrelsCairngorms.jpg)|
 202111260800|ZuniOlla|Zuni Olla Maidens at the annual Inter-Tribal Ceremonial in Gallup, New Mexico (© Julien McRoberts/Danita Delimont)|Preserving a 4,000-year-old culture|![](/en-US/2021/11/202111260800ZuniOlla.jpg)|
+202111270800|PennStation|Aerial view of Penn Station and the New York City skyline at night in the 1950s (© R. Gates -Staff/Getty Images)|A jewel glittering in the city|![](/en-US/2021/11/202111270800PennStation.jpg)|
