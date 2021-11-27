@@ -27,3 +27,4 @@
 202111242300|SquirrelsCairngorms|Eurasische Eichhörnchen im Cairngorms-Nationalpark, Schottland (© Scotland: The Big Picture/Minden Pictures)|Highlands-Bewohner|![](/de-DE/2021/11/202111242300SquirrelsCairngorms.jpg)|
 202111252300|VosgesBioReserve|Regionaler Naturpark Vosges du Nord, Frankreich (© Michel Rauch/Minden Pictures)|Wo verläuft dieser verschneite Weg?|![](/de-DE/2021/11/202111252300VosgesBioReserve.jpg)|
 202111262300|WinterWaxwing|Seidenschwanz (© Mircea Costina/Alamy)|Wintervorbote|![](/de-DE/2021/11/202111262300WinterWaxwing.jpg)|
+202111272300|CentennialBridge|Die Puente Centenario (Jahrhundertbrücke) im Nationalpark Soberanía, Panama (© David Tipling/Universal Images Group via Getty Images)|Symbol der Unabhängigkeit|![](/de-DE/2021/11/202111272300CentennialBridge.jpg)|

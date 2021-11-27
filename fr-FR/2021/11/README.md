@@ -27,3 +27,4 @@
 202111242300|SquirrelsCairngorms|Écureuils roux dans le parc national de Cairngorms, Hautes-Terres, Écosse (© Scotland: The Big Picture/Minden Pictures)|À table !|![](/fr-FR/2021/11/202111242300SquirrelsCairngorms.jpg)|
 202111252300|StrasbourgMkt|Quai et église Saint-Nicolas à Strasbourg pendant la période des fêtes (© KavalenkavaVolha/iStock/Getty Images Plus)|Noël comme il se doit|![](/fr-FR/2021/11/202111252300StrasbourgMkt.jpg)|
 202111262300|PennStation|Aerial view of Penn Station and the New York City skyline at night in the 1950s (© R. Gates -Staff/Getty Images)|New York, New York|![](/fr-FR/2021/11/202111262300PennStation.jpg)|
+202111272300|CentennialBridge|Le Pont Centenaire au-dessus du parc national de Soberanía, Panama (© David Tipling/Universal Images Group via Getty Images)|Indépendance panaméenne|![](/fr-FR/2021/11/202111272300CentennialBridge.jpg)|
