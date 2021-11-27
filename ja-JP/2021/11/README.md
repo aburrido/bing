@@ -27,3 +27,4 @@
 202111241500|SquirrelsCairngorms|キタリス, イギリス スコットランド  （© Scotland: The Big Picture/Minden Pictures）|冬支度をするキタリスたち|![](/ja-JP/2021/11/202111241500SquirrelsCairngorms.jpg)|
 202111251500|Takaragawa|宝川温泉, 群馬 （© Marco Bottigelli/Moment/Getty images）|今日は「いい風呂の日」|![](/ja-JP/2021/11/202111251500Takaragawa.jpg)|
 202111261500|PennStation|ペンシルベニア駅, 米国 ニューヨーク  （© R. Gates -Staff/Getty Images）|今日はペン駅の誕生日|![](/ja-JP/2021/11/202111261500PennStation.jpg)|
+202111271500|WinterWaxwing|キレンジャク, カナダ （© Mircea Costina/Alamy）|赤い木の実と冬の野鳥|![](/ja-JP/2021/11/202111271500WinterWaxwing.jpg)|
