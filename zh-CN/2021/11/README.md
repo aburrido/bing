@@ -28,3 +28,4 @@
 202111251600|WinterWaxwing|枝头上的太平鸟（北美亚种），加拿大 (© Mircea Costina/Alamy)||![](/zh-CN/2021/11/202111251600WinterWaxwing.jpg)|
 202111261600|ElanValley|伊兰谷中的Pen y Garreg水坝，威尔士 (© Joe Daniel Price/Moment Open/Getty Images)||![](/zh-CN/2021/11/202111261600ElanValley.jpg)|
 202111271600|BeechTrees|古老的水青冈树，英国北安普顿郡 (© Andrew Baskott/Alamy)||![](/zh-CN/2021/11/202111271600BeechTrees.jpg)|
+202111281600|RainbowMountain|被白雪覆盖的彩虹山，秘鲁 (© Jude Newkirk/Amazing Aerial Agency)||![](/zh-CN/2021/11/202111281600RainbowMountain.jpg)|
