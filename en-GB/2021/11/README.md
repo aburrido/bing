@@ -27,3 +27,4 @@
 202111250000|SquirrelsCairngorms|Red squirrels in Cairngorms National Park, Highlands (© Scotland: The Big Picture/Minden Pictures)|Enjoying fruits of the forest|![](/en-GB/2021/11/202111250000SquirrelsCairngorms.jpg)|
 202111260000|BeechTrees|Ancient beech trees in Harlestone Firs, Northamptonshire (© Andrew Baskott/Alamy)|The queen of trees|![](/en-GB/2021/11/202111260000BeechTrees.jpg)|
 202111270000|PennStation|Aerial view of Penn Station, New York City, USA at night in the 1950s (© R. Gates -Staff/Getty Images)|A lost gem|![](/en-GB/2021/11/202111270000PennStation.jpg)|
+202111280000|CentennialBridge|Centennial Bridge towering above Soberanía National Park, Panama (© David Tipling/Universal Images Group via Getty Images)|Celebrating Panama's independence|![](/en-GB/2021/11/202111280000CentennialBridge.jpg)|
