@@ -28,3 +28,4 @@
 202111250800|SquirrelsCairngorms|Red squirrels, Cairngorms National Park, Scottish Highlands (© Scotland: The Big Picture/Minden Pictures)|Info|![](/en-AU/2021/11/202111250800SquirrelsCairngorms.jpg)|
 202111260800|WinterWaxwing|Bohemian waxwing, Canada (© Mircea Costina/Alamy)|Info|![](/en-AU/2021/11/202111260800WinterWaxwing.jpg)|
 202111270800|ElanValley|Pen y Garreg dam, Elan Valley, Wales (© Joe Daniel Price/Moment Open/Getty Images)|Info|![](/en-AU/2021/11/202111270800ElanValley.jpg)|
+202111280800|BeechTrees|Beech trees, Harlestone Firs, Northamptonshire, England (© Andrew Baskott/Alamy)|Info|![](/en-AU/2021/11/202111280800BeechTrees.jpg)|
