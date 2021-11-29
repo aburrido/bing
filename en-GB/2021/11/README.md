@@ -28,3 +28,4 @@
 202111260000|BeechTrees|Ancient beech trees in Harlestone Firs, Northamptonshire (© Andrew Baskott/Alamy)|The queen of trees|![](/en-GB/2021/11/202111260000BeechTrees.jpg)|
 202111270000|PennStation|Aerial view of Penn Station, New York City, USA at night in the 1950s (© R. Gates -Staff/Getty Images)|A lost gem|![](/en-GB/2021/11/202111270000PennStation.jpg)|
 202111280000|CentennialBridge|Centennial Bridge towering above Soberanía National Park, Panama (© David Tipling/Universal Images Group via Getty Images)|Celebrating Panama's independence|![](/en-GB/2021/11/202111280000CentennialBridge.jpg)|
+202111290000|RainbowMountain|Aerial view of snowy peaks of Vinicunca (aka Rainbow Mountain), Peru (© Jude Newkirk/Amazing Aerial Agency)|Over the Rainbow Mountain|![](/en-GB/2021/11/202111290000RainbowMountain.jpg)|
