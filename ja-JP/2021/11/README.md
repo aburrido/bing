@@ -29,3 +29,4 @@
 202111261500|PennStation|ペンシルベニア駅, 米国 ニューヨーク  （© R. Gates -Staff/Getty Images）|今日はペン駅の誕生日|![](/ja-JP/2021/11/202111261500PennStation.jpg)|
 202111271500|WinterWaxwing|キレンジャク, カナダ （© Mircea Costina/Alamy）|赤い木の実と冬の野鳥|![](/ja-JP/2021/11/202111271500WinterWaxwing.jpg)|
 202111281500|RainbowMountain|ヴィニクンカ山, ペルー  （© Jude Newkirk/Amazing Aerial Agency）|クスコのレインボーマウンテン|![](/ja-JP/2021/11/202111281500RainbowMountain.jpg)|
+202111291500|Chishakuin|紅葉の智積院鐘楼堂, 京都 （© Masataka Ishi/AFLO/4Corners）|京都の紅葉と鐘楼堂|![](/ja-JP/2021/11/202111291500Chishakuin.jpg)|
