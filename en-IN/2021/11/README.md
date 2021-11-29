@@ -29,3 +29,4 @@
 202111261830|DemoiselleCranes|Demoiselle cranes come to Khichan village in Rajasthan, India (© Pinkesh Bhati/Shutterstock)|The demoiselle cranes of Khichan|![](/en-IN/2021/11/202111261830DemoiselleCranes.jpg)|
 202111271830|CentennialBridge|Centennial Bridge towering above Soberanía National Park, Panama (© David Tipling/Universal Images Group via Getty Images)|Celebrating Panama's independence|![](/en-IN/2021/11/202111271830CentennialBridge.jpg)|
 202111281830|RainbowMountain|Aerial view of snowy peaks of Vinicunca (aka Rainbow Mountain), Peru (© Jude Newkirk/Amazing Aerial Agency)|Over the Rainbow Mountain|![](/en-IN/2021/11/202111281830RainbowMountain.jpg)|
+202111291830|ElephantGiving|African bush elephants at Masai Mara National Reserve in Kenya (© Yva Momatiuk and John Eastcott/Minden Pictures)|Lunch buddies|![](/en-IN/2021/11/202111291830ElephantGiving.jpg)|
