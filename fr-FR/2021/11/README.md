@@ -29,3 +29,4 @@
 202111262300|PennStation|Aerial view of Penn Station and the New York City skyline at night in the 1950s (© R. Gates -Staff/Getty Images)|New York, New York|![](/fr-FR/2021/11/202111262300PennStation.jpg)|
 202111272300|CentennialBridge|Le Pont Centenaire au-dessus du parc national de Soberanía, Panama (© David Tipling/Universal Images Group via Getty Images)|Indépendance panaméenne|![](/fr-FR/2021/11/202111272300CentennialBridge.jpg)|
 202111282300|RainbowMountain|Vue aérienne des sommets enneigés de Vinicuna au Pérou (© Jude Newkirk/Amazing Aerial Agency)|Montagne arc-en-ciel|![](/fr-FR/2021/11/202111282300RainbowMountain.jpg)|
+202111292300|ElephantGiving|Éléphants de savane d’Afrique dans la réserve nationale du Masai Mara au Kenya (© Yva Momatiuk and John Eastcott/Minden Pictures)|Câlin !|![](/fr-FR/2021/11/202111292300ElephantGiving.jpg)|
