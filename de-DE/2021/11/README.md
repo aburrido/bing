@@ -30,3 +30,4 @@
 202111272300|CentennialBridge|Die Puente Centenario (Jahrhundertbrücke) im Nationalpark Soberanía, Panama (© David Tipling/Universal Images Group via Getty Images)|Symbol der Unabhängigkeit|![](/de-DE/2021/11/202111272300CentennialBridge.jpg)|
 202111282300|RainbowMountain|Luftbild der verschneiten Hänge des Vinicunca (auch Regenbogen-Berg) bei Cusco, Peru (© Jude Newkirk/Amazing Aerial Agency)|Über dem Regenbogen-Berg|![](/de-DE/2021/11/202111282300RainbowMountain.jpg)|
 202111292300|ElephantGiving|Afrikanische Buschelefanten im Naturschutzgebiet Masai Mara, Kenia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Guten Appetit!|![](/de-DE/2021/11/202111292300ElephantGiving.jpg)|
+202111302300|CuvervilleIsland|Blaue Eisberge in der Nähe von Cuverville Island, Antarktische Halbinsel, Antarktika (© Mike Hill/Getty Images)|Der Kontinent, der uns allen gehört|![](/de-DE/2021/11/202111302300CuvervilleIsland.jpg)|
