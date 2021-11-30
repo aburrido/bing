@@ -30,3 +30,4 @@
 202111271500|WinterWaxwing|キレンジャク, カナダ （© Mircea Costina/Alamy）|赤い木の実と冬の野鳥|![](/ja-JP/2021/11/202111271500WinterWaxwing.jpg)|
 202111281500|RainbowMountain|ヴィニクンカ山, ペルー  （© Jude Newkirk/Amazing Aerial Agency）|クスコのレインボーマウンテン|![](/ja-JP/2021/11/202111281500RainbowMountain.jpg)|
 202111291500|Chishakuin|紅葉の智積院鐘楼堂, 京都 （© Masataka Ishi/AFLO/4Corners）|京都の紅葉と鐘楼堂|![](/ja-JP/2021/11/202111291500Chishakuin.jpg)|
+202111301500|CuvervilleIsland|氷山, 南極 クーバービル島沖合  （© Mike Hill/Getty Images）|今日は「南極条約の日」|![](/ja-JP/2021/11/202111301500CuvervilleIsland.jpg)|
