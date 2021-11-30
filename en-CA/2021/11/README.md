@@ -30,3 +30,4 @@
 202111270500|FestiveNathans|Celebration of the holiday season at Nathan Philips Square, Toronto (© CharlineXia Ontario Canada Collection/Alamy Stock Photo)|Cavalcade of Lights|![](/en-CA/2021/11/202111270500FestiveNathans.jpg)|
 202111280500|CentennialBridge|Centennial Bridge towering above Soberanía National Park, Panama (© David Tipling/Universal Images Group via Getty Images)|Celebrating Panama's independence|![](/en-CA/2021/11/202111280500CentennialBridge.jpg)|
 202111290500|RainbowMountain|Aerial view of snowy peaks of Vinicunca (aka Rainbow Mountain), Peru (© Jude Newkirk/Amazing Aerial Agency)|Over the Rainbow Mountain|![](/en-CA/2021/11/202111290500RainbowMountain.jpg)|
+202111300500|ElephantGiving|African bush elephants at Masai Mara National Reserve in Kenya (© Yva Momatiuk and John Eastcott/Minden Pictures)|Lunch buddies|![](/en-CA/2021/11/202111300500ElephantGiving.jpg)|

@@ -30,3 +30,4 @@
 202111270500|SahyadriRange|Chaîne de montagnes Sahyadri pendant la saison de la mousson en Inde (© Bhushan Patil Photography/Moment Open Collection/Getty Images)||![](/fr-CA/2021/11/202111270500SahyadriRange.jpg)|
 202111280500|BeechTrees|Vieux hêtre à Harlestone Firs dans le Northamptonshire, Angleterre (© Andrew Baskott/Alamy)||![](/fr-CA/2021/11/202111280500BeechTrees.jpg)|
 202111290500|RainbowMountain|Vue aérienne des sommets enneigés de Vinicuna au Pérou (© Jude Newkirk/Amazing Aerial Agency)||![](/fr-CA/2021/11/202111290500RainbowMountain.jpg)|
+202111300500|ElephantGiving|Éléphants de savane d’Afrique dans la réserve nationale du Masai Mara au Kenya (© Yva Momatiuk and John Eastcott/Minden Pictures)||![](/fr-CA/2021/11/202111300500ElephantGiving.jpg)|
