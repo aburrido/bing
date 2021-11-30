@@ -30,3 +30,4 @@
 202111270800|ElanValley|Pen y Garreg dam, Elan Valley, Wales (© Joe Daniel Price/Moment Open/Getty Images)|Info|![](/en-AU/2021/11/202111270800ElanValley.jpg)|
 202111280800|BeechTrees|Beech trees, Harlestone Firs, Northamptonshire, England (© Andrew Baskott/Alamy)|Info|![](/en-AU/2021/11/202111280800BeechTrees.jpg)|
 202111290800|RainbowMountain|Vinicunca (Rainbow Mountain), Peru (© Jude Newkirk/Amazing Aerial Agency)|Info|![](/en-AU/2021/11/202111290800RainbowMountain.jpg)|
+202111300800|ElephantGiving|African bush elephants, Masai Mara National Reserve, Kenya (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2021/11/202111300800ElephantGiving.jpg)|

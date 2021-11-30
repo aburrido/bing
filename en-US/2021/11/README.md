@@ -30,3 +30,4 @@
 202111270800|PennStation|Aerial view of Penn Station and the New York City skyline at night in the 1950s (© R. Gates -Staff/Getty Images)|A jewel glittering in the city|![](/en-US/2021/11/202111270800PennStation.jpg)|
 202111280800|CentennialBridge|Centennial Bridge towering above Soberanía National Park, Panama (© David Tipling/Universal Images Group via Getty Images)|Bridge of the world, heart of the universe|![](/en-US/2021/11/202111280800CentennialBridge.jpg)|
 202111290800|RainbowMountain|Aerial view of snowy peaks of Vinicunca (aka Rainbow Mountain), Peru (© Jude Newkirk/Amazing Aerial Agency)|Over the Rainbow Mountain|![](/en-US/2021/11/202111290800RainbowMountain.jpg)|
+202111300800|ElephantGiving|African bush elephants at Masai Mara National Reserve in Kenya (© Yva Momatiuk and John Eastcott/Minden Pictures)|Lunch buddies|![](/en-US/2021/11/202111300800ElephantGiving.jpg)|
