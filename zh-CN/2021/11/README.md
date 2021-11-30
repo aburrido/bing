@@ -30,3 +30,4 @@
 202111271600|BeechTrees|古老的水青冈树，英国北安普顿郡 (© Andrew Baskott/Alamy)||![](/zh-CN/2021/11/202111271600BeechTrees.jpg)|
 202111281600|RainbowMountain|被白雪覆盖的彩虹山，秘鲁 (© Jude Newkirk/Amazing Aerial Agency)||![](/zh-CN/2021/11/202111281600RainbowMountain.jpg)|
 202111291600|ElephantGiving|马赛马拉国家保护区中的非洲草原象，肯尼亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)||![](/zh-CN/2021/11/202111291600ElephantGiving.jpg)|
+202111301600|CuvervilleIsland|库佛维尔岛附近的蓝色冰山，南极洲 (© Mike Hill/Getty Images)||![](/zh-CN/2021/11/202111301600CuvervilleIsland.jpg)|
