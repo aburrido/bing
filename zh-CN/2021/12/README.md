@@ -4,3 +4,4 @@
 202112011600|DenaliDall|迪纳利国家公园里的白大角羊，阿拉斯加 (© Patrick J. Endres/Getty Images)||![](/zh-CN/2021/12/202112011600DenaliDall.jpg)|
 202112021600|FrostLeaves|Autumn leaves coated with frost (© sagarmanis/Getty Images)||![](/zh-CN/2021/12/202112021600FrostLeaves.jpg)|
 202112031600|MotherCheetah|马赛马拉国家保护区中的猎豹母子，肯尼亚 (© gudkovandrey/Adobe Stock)||![](/zh-CN/2021/12/202112031600MotherCheetah.jpg)|
+202112041600|SalzburgKrampus|夜幕下的萨尔察赫河，奥地利萨尔茨堡 (© MacEaton/Alamy)||![](/zh-CN/2021/12/202112041600SalzburgKrampus.jpg)|
