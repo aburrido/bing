@@ -4,3 +4,4 @@
 202112010500|CuvervilleIsland|Icebergs bleus près de l’île de Cuverville, Antarctique (© Mike Hill/Getty Images)||![](/fr-CA/2021/12/202112010500CuvervilleIsland.jpg)|
 202112020500|DenaliDall|Mouflons de Dall sur le polychrome pass dans le parc national du Denali en Alaska (© Patrick J. Endres/Getty Images)||![](/fr-CA/2021/12/202112020500DenaliDall.jpg)|
 202112030500|FrostLeaves|Feuilles d’automne recouvertes de givre (© sagarmanis/Getty Images)||![](/fr-CA/2021/12/202112030500FrostLeaves.jpg)|
+202112040500|MotherCheetah|Maman guépard et son petit dans le parc national et réserve du Masai Mara, Kenya (© gudkovandrey/Adobe Stock)||![](/fr-CA/2021/12/202112040500MotherCheetah.jpg)|

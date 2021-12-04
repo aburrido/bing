@@ -4,3 +4,4 @@
 202112010500|CuvervilleIsland|Blue icebergs near Cuverville Island, Antarctica (© Mike Hill/Getty Images)|The continent that belongs to all of us|![](/en-CA/2021/12/202112010500CuvervilleIsland.jpg)|
 202112020500|DenaliDall|Dall sheep rams at Polychrome Pass, Denali National Park, Alaska (© Patrick J. Endres/Getty Images)|Home to North America's tallest peak|![](/en-CA/2021/12/202112020500DenaliDall.jpg)|
 202112030500|FrostLeaves|Autumn leaves coated with frost (© sagarmanis/Getty Images)|Frost on autumn leaves|![](/en-CA/2021/12/202112030500FrostLeaves.jpg)|
+202112040500|MotherCheetah|Mother cheetah and her cub in the Maasai Mara nature reserve, Kenya (© gudkovandrey/Adobe Stock)|Elegant felines of the savannah|![](/en-CA/2021/12/202112040500MotherCheetah.jpg)|
