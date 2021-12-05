@@ -5,3 +5,4 @@
 202112022300|FrostLeaves|Mit Reif überzogenes Herbstlaub (© sagarmanis/Getty Images)|Reif für den Winter?|![](/de-DE/2021/12/202112022300FrostLeaves.jpg)|
 202112032300|MotherCheetah|Gepardenweibchen mit seinem Jungen, Naturschutzgebiet Masai Mara, Kenia (© gudkovandrey/Adobe Stock)|Das schnellste Landtier der Welt|![](/de-DE/2021/12/202112032300MotherCheetah.jpg)|
 202112042300|MinistryofFun|„Schüler“ der Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|Schule für Nikoläuse und Weihnachtsmänner|![](/de-DE/2021/12/202112042300MinistryofFun.jpg)|
+202112052300|SalzburgKrampus|Salzburg, Österreich (© MacEaton/Alamy)|Mozartstadt und UNESCO-Weltkulturerbe|![](/de-DE/2021/12/202112052300SalzburgKrampus.jpg)|
