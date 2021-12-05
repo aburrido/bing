@@ -5,3 +5,4 @@
 202112020800|DenaliDall|Denali National Park, Alaska, USA (© Patrick J. Endres/Getty Images)|Info|![](/en-AU/2021/12/202112020800DenaliDall.jpg)|
 202112030800|EastbournePier|Eastbourne Pier, East Sussex, England (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/12/202112030800EastbournePier.jpg)|
 202112040800|MotherCheetah|Mother cheetah and cub, Maasai Mara National Reserve, Kenya (© gudkovandrey/Adobe Stock)|Info|![](/en-AU/2021/12/202112040800MotherCheetah.jpg)|
+202112050800|SalzburgKrampus|Salzburg with Salzach river, Austria (© MacEaton/Alamy)|Info|![](/en-AU/2021/12/202112050800SalzburgKrampus.jpg)|
