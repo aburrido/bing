@@ -5,3 +5,4 @@
 202112021830|FrostLeaves|Autumn leaves coated with frost (© sagarmanis/Getty Images)|Frost on autumn leaves|![](/en-IN/2021/12/202112021830FrostLeaves.jpg)|
 202112031830|NavyDayIndia|Navy Day celebration at Gateway of India, Mumbai (© Dinodia Photos/Alamy Stock Photo)|Navy Day celebrations|![](/en-IN/2021/12/202112031830NavyDayIndia.jpg)|
 202112041830|SalzburgKrampus|Salzburg with Salzach river, Austria (© MacEaton/Alamy)|Cheers and fears in Salzburg|![](/en-IN/2021/12/202112041830SalzburgKrampus.jpg)|
+202112051830|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th century technology|![](/en-IN/2021/12/202112051830DesignDrawing.jpg)|
