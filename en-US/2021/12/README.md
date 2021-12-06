@@ -6,3 +6,4 @@
 202112030800|FrostLeaves|Autumn leaves coated with frost (© sagarmanis/Getty Images)|Frost on autumn leaves|![](/en-US/2021/12/202112030800FrostLeaves.jpg)|
 202112040800|MotherCheetah|Mother cheetah and her cub in the Masai Mara National Reserve, Kenya (© gudkovandrey/Adobe Stock)|Elegant felines of the savannah|![](/en-US/2021/12/202112040800MotherCheetah.jpg)|
 202112050800|SalzburgKrampus|The Salzach River in Salzburg, Austria (© MacEaton/Alamy)|Winter in Salzburg|![](/en-US/2021/12/202112050800SalzburgKrampus.jpg)|
+202112060800|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th-century technology|![](/en-US/2021/12/202112060800DesignDrawing.jpg)|

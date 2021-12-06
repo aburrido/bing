@@ -6,3 +6,4 @@
 202112030800|EastbournePier|Eastbourne Pier, East Sussex, England (© Robert Harding World Imagery/Offset by Shutterstock)|Info|![](/en-AU/2021/12/202112030800EastbournePier.jpg)|
 202112040800|MotherCheetah|Mother cheetah and cub, Maasai Mara National Reserve, Kenya (© gudkovandrey/Adobe Stock)|Info|![](/en-AU/2021/12/202112040800MotherCheetah.jpg)|
 202112050800|SalzburgKrampus|Salzburg with Salzach river, Austria (© MacEaton/Alamy)|Info|![](/en-AU/2021/12/202112050800SalzburgKrampus.jpg)|
+202112060800|MistyTor|Glastonbury Tor, Somerset, England (© DEEPOL by plainpicture/Adam Burton)|Info|![](/en-AU/2021/12/202112060800MistyTor.jpg)|
