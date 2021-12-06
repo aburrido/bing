@@ -6,3 +6,4 @@
 202112031600|MotherCheetah|马赛马拉国家保护区中的猎豹母子，肯尼亚 (© gudkovandrey/Adobe Stock)||![](/zh-CN/2021/12/202112031600MotherCheetah.jpg)|
 202112041600|SalzburgKrampus|夜幕下的萨尔察赫河，奥地利萨尔茨堡 (© MacEaton/Alamy)||![](/zh-CN/2021/12/202112041600SalzburgKrampus.jpg)|
 202112051600|MistyTor|薄雾中的格拉斯顿伯里托尔，英格兰萨默塞特郡 (© DEEPOL by plainpicture/Adam Burton)||![](/zh-CN/2021/12/202112051600MistyTor.jpg)|
+202112061600|Koenigsbourg|孚日山脉上的国王城堡，法国阿尔萨斯 (© Leonid Andronov/Shutterstock)||![](/zh-CN/2021/12/202112061600Koenigsbourg.jpg)|
