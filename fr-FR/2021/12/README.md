@@ -6,3 +6,4 @@
 202112032300|MotherCheetah|Maman guépard et son petit dans la réserve nationale du Masai Mara, Kenya (© gudkovandrey/Adobe Stock)|Les félins de la savane|![](/fr-FR/2021/12/202112032300MotherCheetah.jpg)|
 202112042300|SalzburgKrampus|Salzbourg et le Salzach en Autriche (© MacEaton/Alamy)|Démon de minuit|![](/fr-FR/2021/12/202112042300SalzburgKrampus.jpg)|
 202112052300|DesignDrawing|Le design de la machine analytique de Charles Babbage (© Science & Society Picture Library/Getty Images)|Math moi ça|![](/fr-FR/2021/12/202112052300DesignDrawing.jpg)|
+202112062300|Koenigsbourg|Château du Haut-Koenigsbourg dans les Vosges, Alsace (© Leonid Andronov/Shutterstock)|Forteresse de montagne|![](/fr-FR/2021/12/202112062300Koenigsbourg.jpg)|
