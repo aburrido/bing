@@ -5,3 +5,4 @@
 202112030000|MistyTor|A frosty winter morning at Glastonbury Tor, Somerset (© DEEPOL by plainpicture/Adam Burton)|Top of the tor|![](/en-GB/2021/12/202112030000MistyTor.jpg)|
 202112040000|MotherCheetah|Mother cheetah and her cub in the Maasai Mara nature reserve, Kenya (© gudkovandrey/Adobe Stock)|Speedsters of the savannah|![](/en-GB/2021/12/202112040000MotherCheetah.jpg)|
 202112050000|SalzburgKrampus|Salzburg with Salzach river, Austria (© MacEaton/Alamy)|Silent night in Salzburg|![](/en-GB/2021/12/202112050000SalzburgKrampus.jpg)|
+202112060000|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th century tech|![](/en-GB/2021/12/202112060000DesignDrawing.jpg)|
