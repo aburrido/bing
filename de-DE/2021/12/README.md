@@ -7,3 +7,4 @@
 202112042300|MinistryofFun|„Schüler“ der Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|Schule für Nikoläuse und Weihnachtsmänner|![](/de-DE/2021/12/202112042300MinistryofFun.jpg)|
 202112052300|SalzburgKrampus|Salzburg, Österreich (© MacEaton/Alamy)|Mozartstadt und UNESCO-Weltkulturerbe|![](/de-DE/2021/12/202112052300SalzburgKrampus.jpg)|
 202112062300|AmericanRobin|Wanderdrossel auf einem Zweig, Kanada (© marcophotos/Getty Images)|Nordamerikas größte Drosselart|![](/de-DE/2021/12/202112062300AmericanRobin.jpg)|
+202112072300|PFNPAZ|Petrified-Forest-National-Park, Arizona, USA (© Ian Shive/Tandem Stills + Motion)|Der „Versteinerte Wald“|![](/de-DE/2021/12/202112072300PFNPAZ.jpg)|

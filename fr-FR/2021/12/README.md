@@ -7,3 +7,4 @@
 202112042300|SalzburgKrampus|Salzbourg et le Salzach en Autriche (© MacEaton/Alamy)|Démon de minuit|![](/fr-FR/2021/12/202112042300SalzburgKrampus.jpg)|
 202112052300|DesignDrawing|Le design de la machine analytique de Charles Babbage (© Science & Society Picture Library/Getty Images)|Math moi ça|![](/fr-FR/2021/12/202112052300DesignDrawing.jpg)|
 202112062300|Koenigsbourg|Château du Haut-Koenigsbourg dans les Vosges, Alsace (© Leonid Andronov/Shutterstock)|Forteresse de montagne|![](/fr-FR/2021/12/202112062300Koenigsbourg.jpg)|
+202112072300|PFNPAZ|Parc national de Petrified Forest, Arizona, États-Unis  (© Ian Shive/Tandem Stills + Motion)|Arbres pétrifiés|![](/fr-FR/2021/12/202112072300PFNPAZ.jpg)|
