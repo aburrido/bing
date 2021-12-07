@@ -7,3 +7,4 @@
 202112041830|SalzburgKrampus|Salzburg with Salzach river, Austria (© MacEaton/Alamy)|Cheers and fears in Salzburg|![](/en-IN/2021/12/202112041830SalzburgKrampus.jpg)|
 202112051830|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th century technology|![](/en-IN/2021/12/202112051830DesignDrawing.jpg)|
 202112061830|MotherCheetah|Mother cheetah and her cub in the Maasai Mara nature reserve, Kenya (© gudkovandrey/Adobe Stock)|Elegant felines of the savannah|![](/en-IN/2021/12/202112061830MotherCheetah.jpg)|
+202112071830|PFNPAZ|Petrified Forest National Park, Arizona (© Ian Shive/Tandem Stills + Motion)|Party in the petrified forest|![](/en-IN/2021/12/202112071830PFNPAZ.jpg)|
