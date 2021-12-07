@@ -7,3 +7,4 @@
 202112041500|SalzburgKrampus|ザルツァハ川, オーストリア ザルツブルグ (© MacEaton/Alamy)|今夜、聖ニコラウスが現れます|![](/ja-JP/2021/12/202112041500SalzburgKrampus.jpg)|
 202112051500|Koenigsbourg|オークニグスブール城, フランス アルザス地域圏 (© Leonid Andronov/Shutterstock)|アルザスの古城|![](/ja-JP/2021/12/202112051500Koenigsbourg.jpg)|
 202112061500|FrostLeaves|霜の降りた落ち葉 (© sagarmanis/Getty Images)|今日は「大雪」|![](/ja-JP/2021/12/202112061500FrostLeaves.jpg)|
+202112071500|PFNPAZ|化石の森国立公園, 米国 アリゾナ州 (© Ian Shive/Tandem Stills + Motion)|アリゾナの珪化木の森|![](/ja-JP/2021/12/202112071500PFNPAZ.jpg)|
