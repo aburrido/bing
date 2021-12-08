@@ -8,3 +8,4 @@
 202112050500|SalzburgKrampus|Salzbourg et le Salzach (© MacEaton/Alamy)||![](/fr-CA/2021/12/202112050500SalzburgKrampus.jpg)|
 202112060500|VanChristmas|Marché de noël de Vancouver sur Jack Poole Plaza (© Michael Wheatley/Alamy Stock Photo)||![](/fr-CA/2021/12/202112060500VanChristmas.jpg)|
 202112070500|YellowknifeStar|Filé d’étoiles au-dessus de Yellowknife (© Seong-won Jang/EyeEm/Getty Images)||![](/fr-CA/2021/12/202112070500YellowknifeStar.jpg)|
+202112080500|PFNPAZ|Parc national de Petrified Forest (© Ian Shive/Tandem Stills + Motion)||![](/fr-CA/2021/12/202112080500PFNPAZ.jpg)|
