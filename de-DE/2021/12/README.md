@@ -8,3 +8,4 @@
 202112052300|SalzburgKrampus|Salzburg, Österreich (© MacEaton/Alamy)|Mozartstadt und UNESCO-Weltkulturerbe|![](/de-DE/2021/12/202112052300SalzburgKrampus.jpg)|
 202112062300|AmericanRobin|Wanderdrossel auf einem Zweig, Kanada (© marcophotos/Getty Images)|Nordamerikas größte Drosselart|![](/de-DE/2021/12/202112062300AmericanRobin.jpg)|
 202112072300|PFNPAZ|Petrified-Forest-National-Park, Arizona, USA (© Ian Shive/Tandem Stills + Motion)|Der „Versteinerte Wald“|![](/de-DE/2021/12/202112072300PFNPAZ.jpg)|
+202112082300|GlowWormBMNP|Glühwürmchen im Blue-Mountains-Nationalpark, New South Wales, Australien (© Leelakajonkij/Getty Images)|Vorhang auf, Spot an!|![](/de-DE/2021/12/202112082300GlowWormBMNP.jpg)|
