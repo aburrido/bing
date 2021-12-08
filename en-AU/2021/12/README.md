@@ -8,3 +8,4 @@
 202112050800|SalzburgKrampus|Salzburg with Salzach river, Austria (© MacEaton/Alamy)|Info|![](/en-AU/2021/12/202112050800SalzburgKrampus.jpg)|
 202112060800|MistyTor|Glastonbury Tor, Somerset, England (© DEEPOL by plainpicture/Adam Burton)|Info|![](/en-AU/2021/12/202112060800MistyTor.jpg)|
 202112070800|Koenigsbourg|Château du Haut-Kœnigsbourg, Alsace, France (© Leonid Andronov/Shutterstock)|Info|![](/en-AU/2021/12/202112070800Koenigsbourg.jpg)|
+202112080800|PFNPAZ|Petrified Forest National Park, Arizona, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2021/12/202112080800PFNPAZ.jpg)|

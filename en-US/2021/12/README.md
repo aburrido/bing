@@ -8,3 +8,4 @@
 202112050800|SalzburgKrampus|The Salzach River in Salzburg, Austria (© MacEaton/Alamy)|Winter in Salzburg|![](/en-US/2021/12/202112050800SalzburgKrampus.jpg)|
 202112060800|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th-century technology|![](/en-US/2021/12/202112060800DesignDrawing.jpg)|
 202112070800|USSBowfin|US Navy sailors on the WWII museum ship USS Bowfin in Honolulu, Hawaii (© US Navy Photo/Alamy)|Remembering Pearl Harbor|![](/en-US/2021/12/202112070800USSBowfin.jpg)|
+202112080800|PFNPAZ|Petrified Forest National Park, Arizona (© Ian Shive/Tandem Stills + Motion)|Party in the petrified forest|![](/en-US/2021/12/202112080800PFNPAZ.jpg)|
