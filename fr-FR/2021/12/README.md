@@ -9,3 +9,4 @@
 202112062300|Koenigsbourg|Château du Haut-Koenigsbourg dans les Vosges, Alsace (© Leonid Andronov/Shutterstock)|Forteresse de montagne|![](/fr-FR/2021/12/202112062300Koenigsbourg.jpg)|
 202112072300|PFNPAZ|Parc national de Petrified Forest, Arizona, États-Unis  (© Ian Shive/Tandem Stills + Motion)|Arbres pétrifiés|![](/fr-FR/2021/12/202112072300PFNPAZ.jpg)|
 202112082300|GlowWormBMNP|Vers luisants dans le parc national des Blue Mountains, Australie (© Leelakajonkij/Getty Images)|Voie lactée souterraine|![](/fr-FR/2021/12/202112082300GlowWormBMNP.jpg)|
+202112092300|FoxDovrefjell|Renard polaire dans le parc national de Dovrefjell-Sunndalsfjella, Norvège (© Andy Trowbridge/Minden Pictures)|L’art du camouflage|![](/fr-FR/2021/12/202112092300FoxDovrefjell.jpg)|
