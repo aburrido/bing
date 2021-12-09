@@ -9,3 +9,4 @@
 202112060500|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th century technology|![](/en-CA/2021/12/202112060500DesignDrawing.jpg)|
 202112070500|VanChristmas|Vancouver Christmas Market, Jack Poole Plaza, Vancouver (© Michael Wheatley/Alamy Stock Photo)|'Tis the season|![](/en-CA/2021/12/202112070500VanChristmas.jpg)|
 202112080500|PFNPAZ|Petrified Forest National Park, Arizona (© Ian Shive/Tandem Stills + Motion)|Party in the petrified forest|![](/en-CA/2021/12/202112080500PFNPAZ.jpg)|
+202112090500|GlowWormBMNP|Glowworms in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|It's glow time|![](/en-CA/2021/12/202112090500GlowWormBMNP.jpg)|
