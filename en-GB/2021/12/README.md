@@ -8,3 +8,4 @@
 202112060000|DesignDrawing|An 1840 design for the Analytical Engine by Charles Babbage (© Science & Society Picture Library/Getty Images)|Visionary 19th century tech|![](/en-GB/2021/12/202112060000DesignDrawing.jpg)|
 202112070000|FountainsAbbey|Fountains Abbey cellarium, North Yorkshire (© k33adr/iStock/Getty Images Plus)|Aglow at the abbey|![](/en-GB/2021/12/202112070000FountainsAbbey.jpg)|
 202112080000|PFNPAZ|Petrified Forest National Park, Arizona, USA (© Ian Shive/Tandem Stills + Motion)|A petrified forest|![](/en-GB/2021/12/202112080000PFNPAZ.jpg)|
+202112090000|GlowWormBMNP|Glow worms in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|It's glow time|![](/en-GB/2021/12/202112090000GlowWormBMNP.jpg)|
