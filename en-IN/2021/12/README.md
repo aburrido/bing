@@ -10,3 +10,4 @@
 202112071830|PFNPAZ|Petrified Forest National Park, Arizona (© Ian Shive/Tandem Stills + Motion)|Party in the petrified forest|![](/en-IN/2021/12/202112071830PFNPAZ.jpg)|
 202112081830|GlowWormBMNP|Glowworms in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|It's glow time|![](/en-IN/2021/12/202112081830GlowWormBMNP.jpg)|
 202112091830|FoxDovrefjell|Arctic fox in Dovrefjell-Sunndalsfjella National Park, Norway (© Andy Trowbridge/Minden Pictures)|Preparing to change its colour|![](/en-IN/2021/12/202112091830FoxDovrefjell.jpg)|
+202112101830|ShadowEverest|The shadow of Mount Everest over the western Himalayas in Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|Summiting sustainably|![](/en-IN/2021/12/202112101830ShadowEverest.jpg)|
