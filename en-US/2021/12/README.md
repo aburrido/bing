@@ -10,3 +10,4 @@
 202112070800|USSBowfin|US Navy sailors on the WWII museum ship USS Bowfin in Honolulu, Hawaii (© US Navy Photo/Alamy)|Remembering Pearl Harbor|![](/en-US/2021/12/202112070800USSBowfin.jpg)|
 202112080800|PFNPAZ|Petrified Forest National Park, Arizona (© Ian Shive/Tandem Stills + Motion)|Party in the petrified forest|![](/en-US/2021/12/202112080800PFNPAZ.jpg)|
 202112090800|GlowWormBMNP|Glowworms in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|Subterranean stargazing|![](/en-US/2021/12/202112090800GlowWormBMNP.jpg)|
+202112100800|FoxDovrefjell|Arctic fox in Dovrefjell-Sunndalsfjella National Park, Norway (© Andy Trowbridge/Minden Pictures)|A change of seasons means a change of color|![](/en-US/2021/12/202112100800FoxDovrefjell.jpg)|
