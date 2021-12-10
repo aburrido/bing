@@ -10,3 +10,4 @@
 202112071600|PFNPAZ|有着丰富石化木材的石化林国家公园，美国亚利桑那州 (© Ian Shive/Tandem Stills + Motion)||![](/zh-CN/2021/12/202112071600PFNPAZ.jpg)|
 202112081600|GlowWormBMNP|蓝山国家公园里的萤火虫，澳大利亚 (© Leelakajonkij/Getty Images)||![](/zh-CN/2021/12/202112081600GlowWormBMNP.jpg)|
 202112091600|FoxDovrefjell|北极狐，挪威多弗勒山-松达尔国家 (© Andy Trowbridge/Minden Pictures)||![](/zh-CN/2021/12/202112091600FoxDovrefjell.jpg)|
+202112101600|ShadowEverest|珠穆朗玛峰的影子，尼泊尔喜马拉雅西部 (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)||![](/zh-CN/2021/12/202112101600ShadowEverest.jpg)|
