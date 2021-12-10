@@ -10,3 +10,4 @@
 202112070500|YellowknifeStar|Filé d’étoiles au-dessus de Yellowknife (© Seong-won Jang/EyeEm/Getty Images)||![](/fr-CA/2021/12/202112070500YellowknifeStar.jpg)|
 202112080500|PFNPAZ|Parc national de Petrified Forest (© Ian Shive/Tandem Stills + Motion)||![](/fr-CA/2021/12/202112080500PFNPAZ.jpg)|
 202112090500|GlowWormBMNP|Vers luisants dans le parc national des Blue Mountains, Australie (© Leelakajonkij/Getty Images)||![](/fr-CA/2021/12/202112090500GlowWormBMNP.jpg)|
+202112100500|FoxDovrefjell|Renard polaire dans le parc national de Dovrefjell-Sunndalsfjella, Norvège (© Andy Trowbridge/Minden Pictures)||![](/fr-CA/2021/12/202112100500FoxDovrefjell.jpg)|

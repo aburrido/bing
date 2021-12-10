@@ -10,3 +10,4 @@
 202112070500|VanChristmas|Vancouver Christmas Market, Jack Poole Plaza, Vancouver (© Michael Wheatley/Alamy Stock Photo)|'Tis the season|![](/en-CA/2021/12/202112070500VanChristmas.jpg)|
 202112080500|PFNPAZ|Petrified Forest National Park, Arizona (© Ian Shive/Tandem Stills + Motion)|Party in the petrified forest|![](/en-CA/2021/12/202112080500PFNPAZ.jpg)|
 202112090500|GlowWormBMNP|Glowworms in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|It's glow time|![](/en-CA/2021/12/202112090500GlowWormBMNP.jpg)|
+202112100500|FoxDovrefjell|Arctic fox in Dovrefjell-Sunndalsfjella National Park, Norway (© Andy Trowbridge/Minden Pictures)|A change of seasons means a change of colour|![](/en-CA/2021/12/202112100500FoxDovrefjell.jpg)|
