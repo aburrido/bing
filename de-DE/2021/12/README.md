@@ -10,3 +10,4 @@
 202112072300|PFNPAZ|Petrified-Forest-National-Park, Arizona, USA (© Ian Shive/Tandem Stills + Motion)|Der „Versteinerte Wald“|![](/de-DE/2021/12/202112072300PFNPAZ.jpg)|
 202112082300|GlowWormBMNP|Glühwürmchen im Blue-Mountains-Nationalpark, New South Wales, Australien (© Leelakajonkij/Getty Images)|Vorhang auf, Spot an!|![](/de-DE/2021/12/202112082300GlowWormBMNP.jpg)|
 202112092300|Siguniangshan|Morgenfrost auf Nadelbäumen im Mount-Siguniang-Nationalpark in der Provinz Sichuan, China (© Robert Harding World Imagery/Offset by Shutterstock)|Vier Schwestern, Tausende von Bäumen|![](/de-DE/2021/12/202112092300Siguniangshan.jpg)|
+202112102300|ShadowEverest|Der Schatten des Mount Everest über den westlichen Himalaya, Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|Nachhaltige Gipfelerlebnisse|![](/de-DE/2021/12/202112102300ShadowEverest.jpg)|
