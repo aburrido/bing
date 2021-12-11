@@ -11,3 +11,4 @@
 202112081600|GlowWormBMNP|蓝山国家公园里的萤火虫，澳大利亚 (© Leelakajonkij/Getty Images)||![](/zh-CN/2021/12/202112081600GlowWormBMNP.jpg)|
 202112091600|FoxDovrefjell|北极狐，挪威多弗勒山-松达尔国家 (© Andy Trowbridge/Minden Pictures)||![](/zh-CN/2021/12/202112091600FoxDovrefjell.jpg)|
 202112101600|ShadowEverest|珠穆朗玛峰的影子，尼泊尔喜马拉雅西部 (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)||![](/zh-CN/2021/12/202112101600ShadowEverest.jpg)|
+202112111600|WickerCultivation|别致的柳条田野，西班牙Cañamares (© David Santiago Garcia/Alamy)||![](/zh-CN/2021/12/202112111600WickerCultivation.jpg)|
