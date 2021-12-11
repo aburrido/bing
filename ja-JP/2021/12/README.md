@@ -11,3 +11,4 @@
 202112081500|GlowWormBMNP|グローワーム洞窟, オーストラリア (© Leelakajonkij/Getty Images)|ブルー・マウンテンズのツチボタル|![](/ja-JP/2021/12/202112081500GlowWormBMNP.jpg)|
 202112091500|Arashiyama|大堰川の紅葉, 京都 嵐山 (© Anupong Sakoolchai/Moment/Getty Images)|京都、嵐山の晩秋|![](/ja-JP/2021/12/202112091500Arashiyama.jpg)|
 202112101500|ShadowEverest|ヒマラヤ山脈に落ちるエベレストの影, ネパール (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|今日は「国際山岳デー」|![](/ja-JP/2021/12/202112101500ShadowEverest.jpg)|
+202112111500|WickerCultivation|セイヨウキヌヤナギの紅葉, スペイン クエンカ (© David Santiago Garcia/Alamy)|スペイン、カラマレスの紅葉|![](/ja-JP/2021/12/202112111500WickerCultivation.jpg)|
