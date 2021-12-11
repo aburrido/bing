@@ -11,3 +11,4 @@
 202112081830|GlowWormBMNP|Glowworms in Blue Mountains National Park, Australia (© Leelakajonkij/Getty Images)|It's glow time|![](/en-IN/2021/12/202112081830GlowWormBMNP.jpg)|
 202112091830|FoxDovrefjell|Arctic fox in Dovrefjell-Sunndalsfjella National Park, Norway (© Andy Trowbridge/Minden Pictures)|Preparing to change its colour|![](/en-IN/2021/12/202112091830FoxDovrefjell.jpg)|
 202112101830|ShadowEverest|The shadow of Mount Everest over the western Himalayas in Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|Summiting sustainably|![](/en-IN/2021/12/202112101830ShadowEverest.jpg)|
+202112111830|WickerCultivation|Wicker fields in Cañamares, Spain (© David Santiago Garcia/Alamy)|Weaving through wicker fields|![](/en-IN/2021/12/202112111830WickerCultivation.jpg)|
