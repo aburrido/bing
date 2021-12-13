@@ -13,3 +13,4 @@
 202112100800|FoxDovrefjell|Arctic fox in Dovrefjell-Sunndalsfjella National Park, Norway (© Andy Trowbridge/Minden Pictures)|A change of seasons means a change of color|![](/en-US/2021/12/202112100800FoxDovrefjell.jpg)|
 202112110800|ShadowEverest|The shadow of Mount Everest over the western Himalayas in Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|Summiting sustainably|![](/en-US/2021/12/202112110800ShadowEverest.jpg)|
 202112120800|WickerCultivation|Wicker fields in Cañamares, Spain (© David Santiago Garcia/Alamy)|Weaving through fields|![](/en-US/2021/12/202112120800WickerCultivation.jpg)|
+202112130800|ElPanecilloHill|Old Town and El Panecillo Hill in Quito, Ecuador (© Karol Kozlowski/plainpicture)|¿Qué pasa, Quito?|![](/en-US/2021/12/202112130800ElPanecilloHill.jpg)|
