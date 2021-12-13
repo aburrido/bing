@@ -13,3 +13,4 @@
 202112100500|FoxDovrefjell|Renard polaire dans le parc national de Dovrefjell-Sunndalsfjella, Norvège (© Andy Trowbridge/Minden Pictures)||![](/fr-CA/2021/12/202112100500FoxDovrefjell.jpg)|
 202112110500|ShadowEverest|Ombre de l’Everest au-dessus de l’Himalaya au Népal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)||![](/fr-CA/2021/12/202112110500ShadowEverest.jpg)|
 202112120500|WickerCultivation|Champ d’osier près de Cañamares en Espagne (© David Santiago Garcia/Alamy)||![](/fr-CA/2021/12/202112120500WickerCultivation.jpg)|
+202112130500|ElPanecilloHill|La vieille ville et la colline El Panecillo à Quito, Équateur (© Karol Kozlowski/plainpicture)||![](/fr-CA/2021/12/202112130500ElPanecilloHill.jpg)|
