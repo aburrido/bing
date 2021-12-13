@@ -13,3 +13,4 @@
 202112101500|ShadowEverest|ヒマラヤ山脈に落ちるエベレストの影, ネパール (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|今日は「国際山岳デー」|![](/ja-JP/2021/12/202112101500ShadowEverest.jpg)|
 202112111500|WickerCultivation|セイヨウキヌヤナギの紅葉, スペイン クエンカ (© David Santiago Garcia/Alamy)|スペイン、カラマレスの紅葉|![](/ja-JP/2021/12/202112111500WickerCultivation.jpg)|
 202112121500|FoxDovrefjell|ホッキョクギツネ, ノルウェー (© Andy Trowbridge/Minden Pictures)|ドブレフエル山地のホッキョクギツネ|![](/ja-JP/2021/12/202112121500FoxDovrefjell.jpg)|
+202112131500|AmericanRobin|コマツグミ, カナダ  (© marcophotos/Getty Images)|今日から「クリスマス・バード・カウント」|![](/ja-JP/2021/12/202112131500AmericanRobin.jpg)|
