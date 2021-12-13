@@ -12,3 +12,4 @@
 202112100000|FoxDovrefjell|Arctic fox in Dovrefjell-Sunndalsfjella National Park, Norway (© Andy Trowbridge/Minden Pictures)|Winter coat weather|![](/en-GB/2021/12/202112100000FoxDovrefjell.jpg)|
 202112110000|ShadowEverest|The shadow of Mount Everest over the western Himalayas in Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|In Everest’s shadow|![](/en-GB/2021/12/202112110000ShadowEverest.jpg)|
 202112120000|WickerCultivation|Wicker fields in Cañamares, Spain (© David Santiago Garcia/Alamy)|Weaving through wicker fields|![](/en-GB/2021/12/202112120000WickerCultivation.jpg)|
+202112130000|ElPanecilloHill|Old Town and El Panecillo Hill in Quito, Ecuador (© Karol Kozlowski/plainpicture)|Towering over Quito|![](/en-GB/2021/12/202112130000ElPanecilloHill.jpg)|
