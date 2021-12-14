@@ -14,3 +14,4 @@
 202112110800|ShadowEverest|The shadow of Mount Everest over the western Himalayas in Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|Summiting sustainably|![](/en-US/2021/12/202112110800ShadowEverest.jpg)|
 202112120800|WickerCultivation|Wicker fields in Cañamares, Spain (© David Santiago Garcia/Alamy)|Weaving through fields|![](/en-US/2021/12/202112120800WickerCultivation.jpg)|
 202112130800|ElPanecilloHill|Old Town and El Panecillo Hill in Quito, Ecuador (© Karol Kozlowski/plainpicture)|¿Qué pasa, Quito?|![](/en-US/2021/12/202112130800ElPanecilloHill.jpg)|
+202112140800|AmericanRobin|American robin perched on a branch in Canada (© marcophotos/Getty Images)|Making every bird count|![](/en-US/2021/12/202112140800AmericanRobin.jpg)|

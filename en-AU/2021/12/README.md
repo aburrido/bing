@@ -14,3 +14,4 @@
 202112110800|ShadowEverest|Mount Everest's shadow over the Himalayas, Nepal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)|Info|![](/en-AU/2021/12/202112110800ShadowEverest.jpg)|
 202112120800|WickerCultivation|Wicker fields, Cañamares, Spain (© David Santiago Garcia/Alamy)|Info|![](/en-AU/2021/12/202112120800WickerCultivation.jpg)|
 202112130800|ElPanecilloHill|El Panecillo, Quito, Ecuador (© Karol Kozlowski/plainpicture)|Info|![](/en-AU/2021/12/202112130800ElPanecilloHill.jpg)|
+202112140800|AmericanRobin|American robin in Canada (© marcophotos/Getty Images)|Info|![](/en-AU/2021/12/202112140800AmericanRobin.jpg)|
