@@ -14,3 +14,4 @@
 202112112300|WickerCultivation|Champ d’osier près de Cañamares en Espagne (© David Santiago Garcia/Alamy)|L’osier avant qu’il ne soit osier|![](/fr-FR/2021/12/202112112300WickerCultivation.jpg)|
 202112122300|ElPanecilloHill|La vieille ville et la colline El Panecillo à Quito, Équateur (© Karol Kozlowski/plainpicture)|Encore plus haut|![](/fr-FR/2021/12/202112122300ElPanecilloHill.jpg)|
 202112132300|RedWinter|Le Rougier de Camarès en Aveyron (© Eric Teissedre/Photononstop/Alamy Banque d'Images)|Terre de passion|![](/fr-FR/2021/12/202112132300RedWinter.jpg)|
+202112142300|SantaJusta|Ermita de Santa Justa en Cantabrie, Espagne (© Luis Miguel Martin/Getty Images)|Seul au monde|![](/fr-FR/2021/12/202112142300SantaJusta.jpg)|
