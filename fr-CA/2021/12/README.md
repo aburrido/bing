@@ -14,3 +14,4 @@
 202112110500|ShadowEverest|Ombre de l’Everest au-dessus de l’Himalaya au Népal (© Kent Karvey/KH Films, Inc./Tandem Stills + Motion)||![](/fr-CA/2021/12/202112110500ShadowEverest.jpg)|
 202112120500|WickerCultivation|Champ d’osier près de Cañamares en Espagne (© David Santiago Garcia/Alamy)||![](/fr-CA/2021/12/202112120500WickerCultivation.jpg)|
 202112130500|ElPanecilloHill|La vieille ville et la colline El Panecillo à Quito, Équateur (© Karol Kozlowski/plainpicture)||![](/fr-CA/2021/12/202112130500ElPanecilloHill.jpg)|
+202112140500|AmericanRobin|Merle d’Amérique perché sur une branche au Canada (© marcophotos/Getty Images)||![](/fr-CA/2021/12/202112140500AmericanRobin.jpg)|
