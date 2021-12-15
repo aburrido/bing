@@ -15,3 +15,4 @@
 202112121600|ElPanecilloHill|暮色中的面包山和老城区，厄瓜多尔基多 (© Karol Kozlowski/plainpicture)||![](/zh-CN/2021/12/202112121600ElPanecilloHill.jpg)|
 202112131600|AmericanRobin|伫立枝头的旅鸫鸟，加拿大 (© marcophotos/Getty Images)||![](/zh-CN/2021/12/202112131600AmericanRobin.jpg)|
 202112141600|SantaJusta|坎塔布里亚的小教堂，西班牙 (© Luis Miguel Martin/Getty Images)||![](/zh-CN/2021/12/202112141600SantaJusta.jpg)|
+202112151600|WernigerodeWeihnachtsmarkt|韦尼格罗德的圣诞市场，德国萨克森-安哈尔特州 (© Krzysztof Baranowski/Moment/Getty Images)||![](/zh-CN/2021/12/202112151600WernigerodeWeihnachtsmarkt.jpg)|
