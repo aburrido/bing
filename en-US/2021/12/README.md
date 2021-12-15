@@ -15,3 +15,4 @@
 202112120800|WickerCultivation|Wicker fields in Cañamares, Spain (© David Santiago Garcia/Alamy)|Weaving through fields|![](/en-US/2021/12/202112120800WickerCultivation.jpg)|
 202112130800|ElPanecilloHill|Old Town and El Panecillo Hill in Quito, Ecuador (© Karol Kozlowski/plainpicture)|¿Qué pasa, Quito?|![](/en-US/2021/12/202112130800ElPanecilloHill.jpg)|
 202112140800|AmericanRobin|American robin perched on a branch in Canada (© marcophotos/Getty Images)|Making every bird count|![](/en-US/2021/12/202112140800AmericanRobin.jpg)|
+202112150800|SantaJusta|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Luis Miguel Martin/Getty Images)|On the coast of Cantabria|![](/en-US/2021/12/202112150800SantaJusta.jpg)|
