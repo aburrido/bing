@@ -15,3 +15,4 @@
 202112122300|ElPanecilloHill|Altstadt und El Panecillo, Quito, Ecuador (© Karol Kozlowski/plainpicture)|¿Qué pasa, Quito?|![](/de-DE/2021/12/202112122300ElPanecilloHill.jpg)|
 202112132300|Koenigsbourg|Château du Haut-Kœnigsbourg (Hohkönigsburg) in den Vogesen, Elsass, Frankreich (© Leonid Andronov/Shutterstock)|Besuchermagnet in den Vogesen|![](/de-DE/2021/12/202112132300Koenigsbourg.jpg)|
 202112142300|SantaJusta|Einsiedelei von Santa Justa, Kantabrien, Spanien (© Luis Miguel Martin/Getty Images)|Einsiedelei am Golf von Biskaya|![](/de-DE/2021/12/202112142300SantaJusta.jpg)|
+202112152300|FoxDovrefjell|Polarfuchs im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Andy Trowbridge/Minden Pictures)|Jahreszeitenwechsel bedeutet Fellwechsel|![](/de-DE/2021/12/202112152300FoxDovrefjell.jpg)|
