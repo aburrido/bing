@@ -16,3 +16,4 @@
 202112132300|RedWinter|Le Rougier de Camarès en Aveyron (© Eric Teissedre/Photononstop/Alamy Banque d'Images)|Terre de passion|![](/fr-FR/2021/12/202112132300RedWinter.jpg)|
 202112142300|SantaJusta|Ermita de Santa Justa en Cantabrie, Espagne (© Luis Miguel Martin/Getty Images)|Seul au monde|![](/fr-FR/2021/12/202112142300SantaJusta.jpg)|
 202112152300|AmericanRobin|Merle d’Amérique sur une branche au Canada (© marcophotos/Getty Images)|Imperturbable|![](/fr-FR/2021/12/202112152300AmericanRobin.jpg)|
+202112162300|XmasBeachHuts|Cabines de plage à Bournemouth décorées pour Noël, Angleterre (© Allouphoto/Alamy)|Noël à la plage !|![](/fr-FR/2021/12/202112162300XmasBeachHuts.jpg)|
