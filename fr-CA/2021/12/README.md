@@ -16,3 +16,4 @@
 202112130500|ElPanecilloHill|La vieille ville et la colline El Panecillo à Quito, Équateur (© Karol Kozlowski/plainpicture)||![](/fr-CA/2021/12/202112130500ElPanecilloHill.jpg)|
 202112140500|AmericanRobin|Merle d’Amérique perché sur une branche au Canada (© marcophotos/Getty Images)||![](/fr-CA/2021/12/202112140500AmericanRobin.jpg)|
 202112150500|SantaJusta|Ermita de Santa Justa en Cantabrie, Espagne (© Luis Miguel Martin/Getty Images)||![](/fr-CA/2021/12/202112150500SantaJusta.jpg)|
+202112160500|WernigerodeWeihnachtsmarkt|Marché de noël à Wernigerode en Saxe-Anhalt, Allemagne (© Krzysztof Baranowski/Moment/Getty Images)||![](/fr-CA/2021/12/202112160500WernigerodeWeihnachtsmarkt.jpg)|
