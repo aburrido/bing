@@ -17,3 +17,4 @@
 202112140800|AmericanRobin|American robin in Canada (© marcophotos/Getty Images)|Info|![](/en-AU/2021/12/202112140800AmericanRobin.jpg)|
 202112150800|SantaJusta|Santa Justa hermitage and chapel, Cantabria, Spain (© Luis Miguel Martin/Getty Images)|Info|![](/en-AU/2021/12/202112150800SantaJusta.jpg)|
 202112160800|RhinocerosIndia|Indian rhinoceros, Kaziranga National Park, India (© Abhishek Singh/Moment/Getty Images)|Info|![](/en-AU/2021/12/202112160800RhinocerosIndia.jpg)|
+202112170800|QuebecFrost|Iron Hill, Town of Brome Lake, Quebec, Canada (© plainpicture/Design Pics/David Chapman)|Info|![](/en-AU/2021/12/202112170800QuebecFrost.jpg)|
