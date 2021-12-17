@@ -18,3 +18,4 @@
 202112151500|WernigerodeWeihnachtsmarkt|クリスマス・マーケット, ドイツ ヴェルニゲローデ (© Krzysztof Baranowski/Moment/Getty Images)|ドイツのクリスマス・マーケット|![](/ja-JP/2021/12/202112151500WernigerodeWeihnachtsmarkt.jpg)|
 202112161500|AnnecyFrance|パレ・ド・リール, フランス アヌシー (© blickwinkel/Alamy)|運河の街のライトアップ|![](/ja-JP/2021/12/202112161500AnnecyFrance.jpg)|
 ||||![](/ja-JP/2021/12/.jpg)|
+202112171500|MoonBeforeYule|イルミネーションと満月 (© Jesus Merida/Getty Images)|今日は「コールドムーン」|![](/ja-JP/2021/12/202112171500MoonBeforeYule.jpg)|
