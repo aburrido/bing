@@ -17,3 +17,4 @@
 202112142300|SantaJusta|Ermita de Santa Justa en Cantabrie, Espagne (© Luis Miguel Martin/Getty Images)|Seul au monde|![](/fr-FR/2021/12/202112142300SantaJusta.jpg)|
 202112152300|AmericanRobin|Merle d’Amérique sur une branche au Canada (© marcophotos/Getty Images)|Imperturbable|![](/fr-FR/2021/12/202112152300AmericanRobin.jpg)|
 202112162300|XmasBeachHuts|Cabines de plage à Bournemouth décorées pour Noël, Angleterre (© Allouphoto/Alamy)|Noël à la plage !|![](/fr-FR/2021/12/202112162300XmasBeachHuts.jpg)|
+202112172300|MoonBeforeYule|La pleine lune du mois de décembre au milieu des lumières de Noël (© Jesus Merida/Getty Images)|Lune et lumières|![](/fr-FR/2021/12/202112172300MoonBeforeYule.jpg)|

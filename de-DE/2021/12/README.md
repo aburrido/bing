@@ -17,3 +17,4 @@
 202112142300|SantaJusta|Einsiedelei von Santa Justa, Kantabrien, Spanien (© Luis Miguel Martin/Getty Images)|Einsiedelei am Golf von Biskaya|![](/de-DE/2021/12/202112142300SantaJusta.jpg)|
 202112152300|FoxDovrefjell|Polarfuchs im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Andy Trowbridge/Minden Pictures)|Jahreszeitenwechsel bedeutet Fellwechsel|![](/de-DE/2021/12/202112152300FoxDovrefjell.jpg)|
 202112162300|XmasBeachHuts|Weihnachtlich dekorierte Strandhütten in Bournemouth, England (© Allouphoto/Alamy)|Vorweihnachtszeit am Strand|![](/de-DE/2021/12/202112162300XmasBeachHuts.jpg)|
+202112172300|MoonBeforeYule|Dezember-Vollmond im Licht der Weihnachtsbeleuchtung (© Jesus Merida/Getty Images)|Vollmond im Dezember|![](/de-DE/2021/12/202112172300MoonBeforeYule.jpg)|
