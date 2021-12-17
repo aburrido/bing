@@ -17,3 +17,4 @@
 202112141600|SantaJusta|坎塔布里亚的小教堂，西班牙 (© Luis Miguel Martin/Getty Images)||![](/zh-CN/2021/12/202112141600SantaJusta.jpg)|
 202112151600|WernigerodeWeihnachtsmarkt|韦尼格罗德的圣诞市场，德国萨克森-安哈尔特州 (© Krzysztof Baranowski/Moment/Getty Images)||![](/zh-CN/2021/12/202112151600WernigerodeWeihnachtsmarkt.jpg)|
 202112161600|XmasBeachHuts|圣诞主题的海滩小屋，英国伯恩茅斯 (© Allouphoto/Alamy)||![](/zh-CN/2021/12/202112161600XmasBeachHuts.jpg)|
+202112171600|WinterRoofs|阿尔萨斯的葡萄酒村，法国上莱茵省 (© Walter Bibikow/eStock Photo)||![](/zh-CN/2021/12/202112171600WinterRoofs.jpg)|
