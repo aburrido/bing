@@ -17,3 +17,4 @@
 202112141500|SantaJusta|サンタ・フスタ海岸の遺構, スペイン カンタブリア (© Luis Miguel Martin/Getty Images)|サン・テルモの塔とサンタ・フスタ教会|![](/ja-JP/2021/12/202112141500SantaJusta.jpg)|
 202112151500|WernigerodeWeihnachtsmarkt|クリスマス・マーケット, ドイツ ヴェルニゲローデ (© Krzysztof Baranowski/Moment/Getty Images)|ドイツのクリスマス・マーケット|![](/ja-JP/2021/12/202112151500WernigerodeWeihnachtsmarkt.jpg)|
 202112161500|AnnecyFrance|パレ・ド・リール, フランス アヌシー (© blickwinkel/Alamy)|運河の街のライトアップ|![](/ja-JP/2021/12/202112161500AnnecyFrance.jpg)|
+||||![](/ja-JP/2021/12/.jpg)|
