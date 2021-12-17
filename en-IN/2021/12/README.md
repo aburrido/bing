@@ -17,3 +17,4 @@
 202112141830|SantaJusta|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Luis Miguel Martin/Getty Images)|The Hermitage of Santa Justa|![](/en-IN/2021/12/202112141830SantaJusta.jpg)|
 202112151830|RhinocerosIndia|Indian rhinoceros in Kaziranga National Park, India (© Abhishek Singh/Moment/Getty Images)|The rare one-horned rhinoceros|![](/en-IN/2021/12/202112151830RhinocerosIndia.jpg)|
 202112161830|XmasBeachHuts|Christmas-themed beach huts in Bournemouth, England (© Allouphoto/Alamy)|Life’s a beach... hut|![](/en-IN/2021/12/202112161830XmasBeachHuts.jpg)|
+202112171830|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-IN/2021/12/202112171830MoonBeforeYule.jpg)|
