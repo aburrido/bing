@@ -17,3 +17,4 @@
 202112140500|AmericanRobin|American robin perched on a branch in Canada (© marcophotos/Getty Images)|Making every bird count|![](/en-CA/2021/12/202112140500AmericanRobin.jpg)|
 202112150500|SantaJusta|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Luis Miguel Martin/Getty Images)|The Hermitage of Santa Justa|![](/en-CA/2021/12/202112150500SantaJusta.jpg)|
 202112160500|YellowknifeStar|Star trail photography taken in Yellowknife (© Seong-won Jang/EyeEm/Getty Images)|Celestial arcs in the sky|![](/en-CA/2021/12/202112160500YellowknifeStar.jpg)|
+202112170500|DistilleryDistrict|Toronto Christmas Market at the Distillery District (© robertharding/Alamy Stock Photo)|Merry and bright|![](/en-CA/2021/12/202112170500DistilleryDistrict.jpg)|

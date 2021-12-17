@@ -17,3 +17,4 @@
 202112140500|AmericanRobin|Merle d’Amérique perché sur une branche au Canada (© marcophotos/Getty Images)||![](/fr-CA/2021/12/202112140500AmericanRobin.jpg)|
 202112150500|SantaJusta|Ermita de Santa Justa en Cantabrie, Espagne (© Luis Miguel Martin/Getty Images)||![](/fr-CA/2021/12/202112150500SantaJusta.jpg)|
 202112160500|WernigerodeWeihnachtsmarkt|Marché de noël à Wernigerode en Saxe-Anhalt, Allemagne (© Krzysztof Baranowski/Moment/Getty Images)||![](/fr-CA/2021/12/202112160500WernigerodeWeihnachtsmarkt.jpg)|
+202112170500|XmasBeachHuts|Cabines de plage décorées pour Noël à Bournemouth, Angleterre (© Allouphoto/Alamy)||![](/fr-CA/2021/12/202112170500XmasBeachHuts.jpg)|
