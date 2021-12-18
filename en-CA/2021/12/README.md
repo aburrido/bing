@@ -18,3 +18,4 @@
 202112150500|SantaJusta|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Luis Miguel Martin/Getty Images)|The Hermitage of Santa Justa|![](/en-CA/2021/12/202112150500SantaJusta.jpg)|
 202112160500|YellowknifeStar|Star trail photography taken in Yellowknife (© Seong-won Jang/EyeEm/Getty Images)|Celestial arcs in the sky|![](/en-CA/2021/12/202112160500YellowknifeStar.jpg)|
 202112170500|DistilleryDistrict|Toronto Christmas Market at the Distillery District (© robertharding/Alamy Stock Photo)|Merry and bright|![](/en-CA/2021/12/202112170500DistilleryDistrict.jpg)|
+202112180500|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-CA/2021/12/202112180500MoonBeforeYule.jpg)|

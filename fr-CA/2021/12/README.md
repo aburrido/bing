@@ -18,3 +18,4 @@
 202112150500|SantaJusta|Ermita de Santa Justa en Cantabrie, Espagne (© Luis Miguel Martin/Getty Images)||![](/fr-CA/2021/12/202112150500SantaJusta.jpg)|
 202112160500|WernigerodeWeihnachtsmarkt|Marché de noël à Wernigerode en Saxe-Anhalt, Allemagne (© Krzysztof Baranowski/Moment/Getty Images)||![](/fr-CA/2021/12/202112160500WernigerodeWeihnachtsmarkt.jpg)|
 202112170500|XmasBeachHuts|Cabines de plage décorées pour Noël à Bournemouth, Angleterre (© Allouphoto/Alamy)||![](/fr-CA/2021/12/202112170500XmasBeachHuts.jpg)|
+202112180500|DistilleryDistrict|Marché de Noël de Toronto dans le Distillery District à Toronto (© robertharding/Alamy Stock Photo)||![](/fr-CA/2021/12/202112180500DistilleryDistrict.jpg)|
