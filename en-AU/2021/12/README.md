@@ -19,3 +19,4 @@
 202112160800|RhinocerosIndia|Indian rhinoceros, Kaziranga National Park, India (© Abhishek Singh/Moment/Getty Images)|Info|![](/en-AU/2021/12/202112160800RhinocerosIndia.jpg)|
 202112170800|QuebecFrost|Iron Hill, Town of Brome Lake, Quebec, Canada (© plainpicture/Design Pics/David Chapman)|Info|![](/en-AU/2021/12/202112170800QuebecFrost.jpg)|
 ||||![](/en-AU/2021/12/.jpg)|
+202112180800|WinterRoofs|Riquewihr, Haut-Rhin, France (© Walter Bibikow/eStock Photo)|Info|![](/en-AU/2021/12/202112180800WinterRoofs.jpg)|
