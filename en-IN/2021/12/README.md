@@ -18,3 +18,4 @@
 202112151830|RhinocerosIndia|Indian rhinoceros in Kaziranga National Park, India (© Abhishek Singh/Moment/Getty Images)|The rare one-horned rhinoceros|![](/en-IN/2021/12/202112151830RhinocerosIndia.jpg)|
 202112161830|XmasBeachHuts|Christmas-themed beach huts in Bournemouth, England (© Allouphoto/Alamy)|Life’s a beach... hut|![](/en-IN/2021/12/202112161830XmasBeachHuts.jpg)|
 202112171830|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-IN/2021/12/202112171830MoonBeforeYule.jpg)|
+202112181830|AnjunaBeachGoa|Anjuna Beach in Goa, India (© Dmitry Rukhlenko/Shutterstock)|Celebrating Goa Liberation Day!|![](/en-IN/2021/12/202112181830AnjunaBeachGoa.jpg)|
