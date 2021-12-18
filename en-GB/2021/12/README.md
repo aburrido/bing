@@ -17,3 +17,4 @@
 202112150000|SantaJusta|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Luis Miguel Martin/Getty Images)|The hermitage of Santa Justa|![](/en-GB/2021/12/202112150000SantaJusta.jpg)|
 202112160000|Koenigsbourg|The Château du Haut-Kœnigsbourg in the Vosges mountains, Alsace, France (© Leonid Andronov/Shutterstock)|The mountain fortress of Alsace|![](/en-GB/2021/12/202112160000Koenigsbourg.jpg)|
 202112170000|XmasBeachHuts|Christmas-themed beach huts in Bournemouth (© Allouphoto/Alamy)|Christmas by the beach|![](/en-GB/2021/12/202112170000XmasBeachHuts.jpg)|
+202112180000|MoonBeforeYule|The December full moon seen through Christmas lights (© Jesus Merida/Getty Images)|The 'cold moon' glitters|![](/en-GB/2021/12/202112180000MoonBeforeYule.jpg)|
