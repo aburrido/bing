@@ -18,3 +18,4 @@
 202112152300|FoxDovrefjell|Polarfuchs im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Andy Trowbridge/Minden Pictures)|Jahreszeitenwechsel bedeutet Fellwechsel|![](/de-DE/2021/12/202112152300FoxDovrefjell.jpg)|
 202112162300|XmasBeachHuts|Weihnachtlich dekorierte Strandhütten in Bournemouth, England (© Allouphoto/Alamy)|Vorweihnachtszeit am Strand|![](/de-DE/2021/12/202112162300XmasBeachHuts.jpg)|
 202112172300|MoonBeforeYule|Dezember-Vollmond im Licht der Weihnachtsbeleuchtung (© Jesus Merida/Getty Images)|Vollmond im Dezember|![](/de-DE/2021/12/202112172300MoonBeforeYule.jpg)|
+202112182300|AtigunPassAurora|Polarlichter über der Brooks Range in Alaska, USA (© Noppawat Tom Charoensinphon/Getty Images)|Lichtspiele auf einer einsamen Landstraße|![](/de-DE/2021/12/202112182300AtigunPassAurora.jpg)|
