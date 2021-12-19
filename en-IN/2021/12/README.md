@@ -19,3 +19,4 @@
 202112161830|XmasBeachHuts|Christmas-themed beach huts in Bournemouth, England (© Allouphoto/Alamy)|Life’s a beach... hut|![](/en-IN/2021/12/202112161830XmasBeachHuts.jpg)|
 202112171830|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-IN/2021/12/202112171830MoonBeforeYule.jpg)|
 202112181830|AnjunaBeachGoa|Anjuna Beach in Goa, India (© Dmitry Rukhlenko/Shutterstock)|Celebrating Goa Liberation Day!|![](/en-IN/2021/12/202112181830AnjunaBeachGoa.jpg)|
+202112191830|MinistryofFun|Performers dressed as Santa Claus from the Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-IN/2021/12/202112191830MinistryofFun.jpg)|
