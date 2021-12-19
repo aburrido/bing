@@ -19,3 +19,4 @@
 202112162300|XmasBeachHuts|Cabines de plage à Bournemouth décorées pour Noël, Angleterre (© Allouphoto/Alamy)|Noël à la plage !|![](/fr-FR/2021/12/202112162300XmasBeachHuts.jpg)|
 202112172300|MoonBeforeYule|La pleine lune du mois de décembre au milieu des lumières de Noël (© Jesus Merida/Getty Images)|Lune et lumières|![](/fr-FR/2021/12/202112172300MoonBeforeYule.jpg)|
 202112182300|AtigunPassAurora|Aurore boréale au-dessus de la chaîne de Brooks en Alaska (© Noppawat Tom Charoensinphon/Getty Images)|Lumière divine|![](/fr-FR/2021/12/202112182300AtigunPassAurora.jpg)|
+202112192300|MinistryofFun|Acteurs habillés en père Noël devant le ministère du fun du père Noël, Londres, Angleterre (© Matt Dunham/AP Photo)|Classe de pères Noël|![](/fr-FR/2021/12/202112192300MinistryofFun.jpg)|
