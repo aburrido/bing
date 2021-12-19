@@ -19,3 +19,4 @@
 202112160800|ENBNutcracker|The English National Ballet's 2016 production of 'The Nutcracker' at the London Coliseum in London, England (© Robbie Jack/Corbis via Getty Images)|A holiday tradition endures|![](/en-US/2021/12/202112160800ENBNutcracker.jpg)|
 202112170800|XmasBeachHuts|Christmas-themed beach huts in Bournemouth, England (© Allouphoto/Alamy)|Life's a beach...hut|![](/en-US/2021/12/202112170800XmasBeachHuts.jpg)|
 202112180800|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-US/2021/12/202112180800MoonBeforeYule.jpg)|
+202112190800|AtigunPassAurora|Aurora borealis above the Brooks Range in Alaska (© Noppawat Tom Charoensinphon/Getty Images)|Light show on a lonesome highway|![](/en-US/2021/12/202112190800AtigunPassAurora.jpg)|
