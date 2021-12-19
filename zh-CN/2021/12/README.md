@@ -19,3 +19,4 @@
 202112161600|XmasBeachHuts|圣诞主题的海滩小屋，英国伯恩茅斯 (© Allouphoto/Alamy)||![](/zh-CN/2021/12/202112161600XmasBeachHuts.jpg)|
 202112171600|WinterRoofs|阿尔萨斯的葡萄酒村，法国上莱茵省 (© Walter Bibikow/eStock Photo)||![](/zh-CN/2021/12/202112171600WinterRoofs.jpg)|
 202112181600|AtigunPassAurora|布鲁克斯山脉上空的极光，美国阿拉斯加州 (© Noppawat Tom Charoensinphon/Getty Images)||![](/zh-CN/2021/12/202112181600AtigunPassAurora.jpg)|
+202112191600|QuoichBowl|Linn of Quoich瀑布旁的碗状岩石洞，苏格兰阿伯丁郡 (© AWL Images/Danita Delimont)||![](/zh-CN/2021/12/202112191600QuoichBowl.jpg)|
