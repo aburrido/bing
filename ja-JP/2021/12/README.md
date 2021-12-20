@@ -21,3 +21,4 @@
 202112171500|MoonBeforeYule|イルミネーションと満月 (© Jesus Merida/Getty Images)|今日は「コールドムーン」|![](/ja-JP/2021/12/202112171500MoonBeforeYule.jpg)|
 202112181500|RPIR|ロイヤル・パビリオン, イギリス ブライトン (© Chris Gorman/Getty Images)|ブライトンのアイス・リンク|![](/ja-JP/2021/12/202112181500RPIR.jpg)|
 202112191500|KhomyakMountain|コミャック山の雪の森, ウクライナ (© panaramka/Getty Images)|カルパティア山脈のクリスマス|![](/ja-JP/2021/12/202112191500KhomyakMountain.jpg)|
+202112201500|XmasBeachHuts|クリスマスのビーチ小屋, イギリス ボーンマス (© Allouphoto/Alamy)|浜辺のクリスマス|![](/ja-JP/2021/12/202112201500XmasBeachHuts.jpg)|
