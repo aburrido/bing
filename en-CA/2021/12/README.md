@@ -20,3 +20,4 @@
 202112170500|DistilleryDistrict|Toronto Christmas Market at the Distillery District (© robertharding/Alamy Stock Photo)|Merry and bright|![](/en-CA/2021/12/202112170500DistilleryDistrict.jpg)|
 202112180500|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-CA/2021/12/202112180500MoonBeforeYule.jpg)|
 202112190500|AtigunPassAurora|Aurora borealis above the Brooks Range in Alaska (© Noppawat Tom Charoensinphon/Getty Images)|Light show on a lonesome highway|![](/en-CA/2021/12/202112190500AtigunPassAurora.jpg)|
+202112200500|MinistryofFun|Performers dressed as Santa Claus from the Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-CA/2021/12/202112200500MinistryofFun.jpg)|

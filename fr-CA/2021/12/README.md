@@ -20,3 +20,4 @@
 202112170500|XmasBeachHuts|Cabines de plage décorées pour Noël à Bournemouth, Angleterre (© Allouphoto/Alamy)||![](/fr-CA/2021/12/202112170500XmasBeachHuts.jpg)|
 202112180500|DistilleryDistrict|Marché de Noël de Toronto dans le Distillery District à Toronto (© robertharding/Alamy Stock Photo)||![](/fr-CA/2021/12/202112180500DistilleryDistrict.jpg)|
 202112190500|AtigunPassAurora|Aurore boréale au-dessus de la chaîne de Brooks en Alaska (© Noppawat Tom Charoensinphon/Getty Images)||![](/fr-CA/2021/12/202112190500AtigunPassAurora.jpg)|
+202112200500|QuoichBowl|La cascade Linn of Quoich dans l’Aberdeenshire en Ecosse (© AWL Images/Danita Delimont)||![](/fr-CA/2021/12/202112200500QuoichBowl.jpg)|
