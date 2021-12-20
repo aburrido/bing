@@ -20,3 +20,4 @@
 202112171600|WinterRoofs|阿尔萨斯的葡萄酒村，法国上莱茵省 (© Walter Bibikow/eStock Photo)||![](/zh-CN/2021/12/202112171600WinterRoofs.jpg)|
 202112181600|AtigunPassAurora|布鲁克斯山脉上空的极光，美国阿拉斯加州 (© Noppawat Tom Charoensinphon/Getty Images)||![](/zh-CN/2021/12/202112181600AtigunPassAurora.jpg)|
 202112191600|QuoichBowl|Linn of Quoich瀑布旁的碗状岩石洞，苏格兰阿伯丁郡 (© AWL Images/Danita Delimont)||![](/zh-CN/2021/12/202112191600QuoichBowl.jpg)|
+202112201600|SiberianSunset|西西伯利亚森林中的阳光，俄罗斯拉杜日内市附近 (© Leonid Ikan/Shutterstock)||![](/zh-CN/2021/12/202112201600SiberianSunset.jpg)|
