@@ -19,3 +19,4 @@
 202112170000|XmasBeachHuts|Christmas-themed beach huts in Bournemouth (© Allouphoto/Alamy)|Christmas by the beach|![](/en-GB/2021/12/202112170000XmasBeachHuts.jpg)|
 202112180000|MoonBeforeYule|The December full moon seen through Christmas lights (© Jesus Merida/Getty Images)|The 'cold moon' glitters|![](/en-GB/2021/12/202112180000MoonBeforeYule.jpg)|
 202112190000|AtigunPassAurora|Aurora Borealis above the Brooks Range in Alaska, USA (© Noppawat Tom Charoensinphon/Getty Images)|The light fantastic|![](/en-GB/2021/12/202112190000AtigunPassAurora.jpg)|
+202112200000|MinistryofFun|Performers dressed as Father Christmas from the Ministry of Fun Santa School in London (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-GB/2021/12/202112200000MinistryofFun.jpg)|
