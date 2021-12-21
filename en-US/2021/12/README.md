@@ -21,3 +21,4 @@
 202112180800|MoonBeforeYule|The December full moon seen through holiday lights (© Jesus Merida/Getty Images)|Full moon in December|![](/en-US/2021/12/202112180800MoonBeforeYule.jpg)|
 202112190800|AtigunPassAurora|Aurora borealis above the Brooks Range in Alaska (© Noppawat Tom Charoensinphon/Getty Images)|Light show on a lonesome highway|![](/en-US/2021/12/202112190800AtigunPassAurora.jpg)|
 202112200800|MinistryofFun|Performers from the Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-US/2021/12/202112200800MinistryofFun.jpg)|
+202112210800|SiberianSunset|Sunlight in the forest of Western Siberia, near the city of Raduzhny, Russia (© Leonid Ikan/Shutterstock)|A Siberian solstice|![](/en-US/2021/12/202112210800SiberianSunset.jpg)|
