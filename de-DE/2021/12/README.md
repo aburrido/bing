@@ -21,3 +21,4 @@
 202112182300|AtigunPassAurora|Polarlichter über der Brooks Range in Alaska, USA (© Noppawat Tom Charoensinphon/Getty Images)|Lichtspiele auf einer einsamen Landstraße|![](/de-DE/2021/12/202112182300AtigunPassAurora.jpg)|
 202112192300|SiberianSunset|Sonnenlicht im Wald von Westsibirien, in der Nähe der Stadt Raduschny, Russland (© Leonid Ikan/Shutterstock)|Sonnenstrahlen auf sibirischem Schnee|![](/de-DE/2021/12/202112192300SiberianSunset.jpg)|
 202112202300|SonnenuhrHoheward|Sonnenuhr auf der Halde Hoheward, Herten, Nordrhein-Westfalen (© Hans Blossey/imageBROKER/Alamy Stock Photo)|Heute ist der kürzeste Tag des Jahres|![](/de-DE/2021/12/202112202300SonnenuhrHoheward.jpg)|
+202112212300|AnnecyFrance|Projizierte Winterszene auf der Fassade des Palais de l’Isle, Annecy, Département Haute-Savoie, Frankreich (© blickwinkel/Alamy)|Alpenstadt in vorweihnachtlichem Glanz|![](/de-DE/2021/12/202112212300AnnecyFrance.jpg)|
