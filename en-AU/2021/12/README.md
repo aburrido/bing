@@ -23,3 +23,4 @@
 202112190800|AtigunPassAurora|Aurora borealis, Brooks Range, Alaska, USA (© Noppawat Tom Charoensinphon/Getty Images)|Info|![](/en-AU/2021/12/202112190800AtigunPassAurora.jpg)|
 202112200800|QuoichBowl|Linn of Quoich, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)|Info|![](/en-AU/2021/12/202112200800QuoichBowl.jpg)|
 202112210800|SiberianSunset|Western Siberia, near Raduzhny, Russia (© Leonid Ikan/Shutterstock)|Info|![](/en-AU/2021/12/202112210800SiberianSunset.jpg)|
+202112220800|AnnecyFrance|Palais de l'Isle, Annecy, Haute-Savoie, France (© blickwinkel/Alamy)|Info|![](/en-AU/2021/12/202112220800AnnecyFrance.jpg)|
