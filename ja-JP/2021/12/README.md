@@ -23,3 +23,4 @@
 202112191500|KhomyakMountain|コミャック山の雪の森, ウクライナ (© panaramka/Getty Images)|カルパティア山脈のクリスマス|![](/ja-JP/2021/12/202112191500KhomyakMountain.jpg)|
 202112201500|XmasBeachHuts|クリスマスのビーチ小屋, イギリス ボーンマス (© Allouphoto/Alamy)|浜辺のクリスマス|![](/ja-JP/2021/12/202112201500XmasBeachHuts.jpg)|
 202112211500|SiberianSunset|西シベリアのタイガの森, ロシア ラードゥジヌイ (© Leonid Ikan/Shutterstock)|今日は「冬至」|![](/ja-JP/2021/12/202112211500SiberianSunset.jpg)|
+202112221500|TowerXmas|六本木けやき坂のイルミネーション, 東京 (© YUJISTYLE/iStock/Getty Images Plus)|今日は「東京タワー完工の日」|![](/ja-JP/2021/12/202112221500TowerXmas.jpg)|
