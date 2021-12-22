@@ -22,3 +22,4 @@
 202112192300|MinistryofFun|Acteurs habillés en père Noël devant le ministère du fun du père Noël, Londres, Angleterre (© Matt Dunham/AP Photo)|Classe de pères Noël|![](/fr-FR/2021/12/202112192300MinistryofFun.jpg)|
 202112202300|SiberianSunset|Rayons de soleil entre les arbres d’une forêt de Sibérie, près de la ville de Radoujny, Russie (© Leonid Ikan/Shutterstock)|Hiver sibérien|![](/fr-FR/2021/12/202112202300SiberianSunset.jpg)|
 202112212300|AnnecyFrance|Lumières de Noël sur le Palais de l’Isle, Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Noël à Annecy|![](/fr-FR/2021/12/202112212300AnnecyFrance.jpg)|
+202112222300|ManitobaBears|Deux jeunes ours polaires, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|Bataille d’ours|![](/fr-FR/2021/12/202112222300ManitobaBears.jpg)|
