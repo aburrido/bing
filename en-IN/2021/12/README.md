@@ -22,3 +22,4 @@
 202112191830|MinistryofFun|Performers dressed as Santa Claus from the Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-IN/2021/12/202112191830MinistryofFun.jpg)|
 202112201830|AtigunPassAurora|Aurora borealis above the Brooks Range in Alaska (© Noppawat Tom Charoensinphon/Getty Images)|Light show on a lonesome highway|![](/en-IN/2021/12/202112201830AtigunPassAurora.jpg)|
 202112211830|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-IN/2021/12/202112211830AnnecyFrance.jpg)|
+202112221830|ManitobaBears|Two young male polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|A Festivus for the fuzziest of us|![](/en-IN/2021/12/202112221830ManitobaBears.jpg)|
