@@ -22,3 +22,4 @@
 202112191600|QuoichBowl|Linn of Quoich瀑布旁的碗状岩石洞，苏格兰阿伯丁郡 (© AWL Images/Danita Delimont)||![](/zh-CN/2021/12/202112191600QuoichBowl.jpg)|
 202112201600|SiberianSunset|西西伯利亚森林中的阳光，俄罗斯拉杜日内市附近 (© Leonid Ikan/Shutterstock)||![](/zh-CN/2021/12/202112201600SiberianSunset.jpg)|
 202112211600|AnnecyFrance|投射在安纳西中皇岛墙上的雪景影像，法国上萨瓦省 (© blickwinkel/Alamy)||![](/zh-CN/2021/12/202112211600AnnecyFrance.jpg)|
+202112221600|ManitobaBears|两只玩耍的北极熊，加拿大丘吉尔镇 (© Cheryl Ramalho/Getty Images)||![](/zh-CN/2021/12/202112221600ManitobaBears.jpg)|
