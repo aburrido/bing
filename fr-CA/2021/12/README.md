@@ -22,3 +22,4 @@
 202112190500|AtigunPassAurora|Aurore boréale au-dessus de la chaîne de Brooks en Alaska (© Noppawat Tom Charoensinphon/Getty Images)||![](/fr-CA/2021/12/202112190500AtigunPassAurora.jpg)|
 202112200500|QuoichBowl|La cascade Linn of Quoich dans l’Aberdeenshire en Ecosse (© AWL Images/Danita Delimont)||![](/fr-CA/2021/12/202112200500QuoichBowl.jpg)|
 202112210500|SiberianSunset|Rayons de soleil entre les arbres d’une forêt de Sibérie près de la ville de Radoujny, Russie (© Leonid Ikan/Shutterstock)||![](/fr-CA/2021/12/202112210500SiberianSunset.jpg)|
+202112220500|AnnecyFrance|Décorations de Noël sur le Palais de l’Isle à Annecy en Haute Savoie, France (© blickwinkel/Alamy)||![](/fr-CA/2021/12/202112220500AnnecyFrance.jpg)|
