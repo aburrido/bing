@@ -21,3 +21,4 @@
 202112190000|AtigunPassAurora|Aurora Borealis above the Brooks Range in Alaska, USA (© Noppawat Tom Charoensinphon/Getty Images)|The light fantastic|![](/en-GB/2021/12/202112190000AtigunPassAurora.jpg)|
 202112200000|MinistryofFun|Performers dressed as Father Christmas from the Ministry of Fun Santa School in London (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-GB/2021/12/202112200000MinistryofFun.jpg)|
 202112210000|SiberianSunset|Sunlight in the forest of Western Siberia, near the city of Raduzhny, Russia (© Leonid Ikan/Shutterstock)|A Siberian solstice|![](/en-GB/2021/12/202112210000SiberianSunset.jpg)|
+202112220000|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-GB/2021/12/202112220000AnnecyFrance.jpg)|
