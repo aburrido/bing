@@ -23,3 +23,4 @@
 202112200800|MinistryofFun|Performers from the Ministry of Fun Santa School in London, England (© Matt Dunham/AP Photo)|A class of Clauses|![](/en-US/2021/12/202112200800MinistryofFun.jpg)|
 202112210800|SiberianSunset|Sunlight in the forest of Western Siberia, near the city of Raduzhny, Russia (© Leonid Ikan/Shutterstock)|A Siberian solstice|![](/en-US/2021/12/202112210800SiberianSunset.jpg)|
 202112220800|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-US/2021/12/202112220800AnnecyFrance.jpg)|
+202112230800|ManitobaBears|Two young male polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|A Festivus for the fuzziest of us|![](/en-US/2021/12/202112230800ManitobaBears.jpg)|

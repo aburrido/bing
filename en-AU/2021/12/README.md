@@ -24,3 +24,4 @@
 202112200800|QuoichBowl|Linn of Quoich, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)|Info|![](/en-AU/2021/12/202112200800QuoichBowl.jpg)|
 202112210800|SiberianSunset|Western Siberia, near Raduzhny, Russia (© Leonid Ikan/Shutterstock)|Info|![](/en-AU/2021/12/202112210800SiberianSunset.jpg)|
 202112220800|AnnecyFrance|Palais de l'Isle, Annecy, Haute-Savoie, France (© blickwinkel/Alamy)|Info|![](/en-AU/2021/12/202112220800AnnecyFrance.jpg)|
+202112230800|ManitobaBears|Polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|Info|![](/en-AU/2021/12/202112230800ManitobaBears.jpg)|
