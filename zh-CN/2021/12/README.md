@@ -23,3 +23,4 @@
 202112201600|SiberianSunset|西西伯利亚森林中的阳光，俄罗斯拉杜日内市附近 (© Leonid Ikan/Shutterstock)||![](/zh-CN/2021/12/202112201600SiberianSunset.jpg)|
 202112211600|AnnecyFrance|投射在安纳西中皇岛墙上的雪景影像，法国上萨瓦省 (© blickwinkel/Alamy)||![](/zh-CN/2021/12/202112211600AnnecyFrance.jpg)|
 202112221600|ManitobaBears|两只玩耍的北极熊，加拿大丘吉尔镇 (© Cheryl Ramalho/Getty Images)||![](/zh-CN/2021/12/202112221600ManitobaBears.jpg)|
+202112231600|Rauchnachte|湖畔的一棵小圣诞树，奥地利魏森湖 (© nagelestock/Alamy)||![](/zh-CN/2021/12/202112231600Rauchnachte.jpg)|
