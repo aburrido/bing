@@ -23,3 +23,4 @@
 202112201830|AtigunPassAurora|Aurora borealis above the Brooks Range in Alaska (© Noppawat Tom Charoensinphon/Getty Images)|Light show on a lonesome highway|![](/en-IN/2021/12/202112201830AtigunPassAurora.jpg)|
 202112211830|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-IN/2021/12/202112211830AnnecyFrance.jpg)|
 202112221830|ManitobaBears|Two young male polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|A Festivus for the fuzziest of us|![](/en-IN/2021/12/202112221830ManitobaBears.jpg)|
+202112231830|JogFalls|Jog Falls in Karnataka, India (© Rajesh Vijayarajan Photography/Moment Open/Getty Images)|Witness the majesty of nature|![](/en-IN/2021/12/202112231830JogFalls.jpg)|
