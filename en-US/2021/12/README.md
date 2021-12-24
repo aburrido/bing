@@ -24,3 +24,4 @@
 202112210800|SiberianSunset|Sunlight in the forest of Western Siberia, near the city of Raduzhny, Russia (© Leonid Ikan/Shutterstock)|A Siberian solstice|![](/en-US/2021/12/202112210800SiberianSunset.jpg)|
 202112220800|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-US/2021/12/202112220800AnnecyFrance.jpg)|
 202112230800|ManitobaBears|Two young male polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|A Festivus for the fuzziest of us|![](/en-US/2021/12/202112230800ManitobaBears.jpg)|
+202112240800|Rauchnachte|Christmas tree at Weissensee, a small lake near Ehrwald in Tyrol, Austria (© nagelestock/Alamy)|O Tannenbaum|![](/en-US/2021/12/202112240800Rauchnachte.jpg)|
