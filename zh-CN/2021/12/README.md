@@ -24,3 +24,4 @@
 202112211600|AnnecyFrance|投射在安纳西中皇岛墙上的雪景影像，法国上萨瓦省 (© blickwinkel/Alamy)||![](/zh-CN/2021/12/202112211600AnnecyFrance.jpg)|
 202112221600|ManitobaBears|两只玩耍的北极熊，加拿大丘吉尔镇 (© Cheryl Ramalho/Getty Images)||![](/zh-CN/2021/12/202112221600ManitobaBears.jpg)|
 202112231600|Rauchnachte|湖畔的一棵小圣诞树，奥地利魏森湖 (© nagelestock/Alamy)||![](/zh-CN/2021/12/202112231600Rauchnachte.jpg)|
+202112241600|KhomyakMountain|宛如圣诞精灵的树干，乌克兰喀尔巴阡山脉 (© panaramka/Getty Images)||![](/zh-CN/2021/12/202112241600KhomyakMountain.jpg)|
