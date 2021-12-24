@@ -24,3 +24,4 @@
 202112212300|AnnecyFrance|Lumières de Noël sur le Palais de l’Isle, Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Noël à Annecy|![](/fr-FR/2021/12/202112212300AnnecyFrance.jpg)|
 202112222300|ManitobaBears|Deux jeunes ours polaires, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|Bataille d’ours|![](/fr-FR/2021/12/202112222300ManitobaBears.jpg)|
 202112232300|Rauchnachte|Sapin près du lac Weissensee et de la ville d’Ehrwald dans le Tyrol en Autriche (© nagelestock/Alamy)|Sapin autrichien|![](/fr-FR/2021/12/202112232300Rauchnachte.jpg)|
+202112242300|KhomyakMountain|Arbres dans une forêt du Mont Khomyak dans les montagnes Carpates, Ukraine (© panaramka/Getty Images)|Noël dans les Carpates|![](/fr-FR/2021/12/202112242300KhomyakMountain.jpg)|

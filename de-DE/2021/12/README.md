@@ -24,3 +24,4 @@
 202112212300|AnnecyFrance|Projizierte Winterszene auf der Fassade des Palais de l’Isle, Annecy, Département Haute-Savoie, Frankreich (© blickwinkel/Alamy)|Alpenstadt in vorweihnachtlichem Glanz|![](/de-DE/2021/12/202112212300AnnecyFrance.jpg)|
 202112222300|KhomyakMountain|Bäume am Nordhang des Berges Khomyak in den Karpaten, Ukraine (© panaramka/Getty Images)|„Weihnachtsbäume“ in den Karpaten|![](/de-DE/2021/12/202112222300KhomyakMountain.jpg)|
 202112232300|Rauchnachte|Weihnachtsbaum am Weissensee in der Nähe von Ehrwald in Tirol, Österreich (© nagelestock/Alamy)|„O Tannenbaum, o Tannenbaum“|![](/de-DE/2021/12/202112232300Rauchnachte.jpg)|
+202112242300|CarolinensielChristmas|Schwimmender Weihnachtsbaum im Museumshafen Carolinensiel, Niedersachsen (© Manfred Habel/mauritius images GmbH/Alamy Stock Photo)|Frohe Weihnachten!|![](/de-DE/2021/12/202112242300CarolinensielChristmas.jpg)|
