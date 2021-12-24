@@ -25,3 +25,4 @@
 202112211500|SiberianSunset|西シベリアのタイガの森, ロシア ラードゥジヌイ (© Leonid Ikan/Shutterstock)|今日は「冬至」|![](/ja-JP/2021/12/202112211500SiberianSunset.jpg)|
 202112221500|TowerXmas|六本木けやき坂のイルミネーション, 東京 (© YUJISTYLE/iStock/Getty Images Plus)|今日は「東京タワー完工の日」|![](/ja-JP/2021/12/202112221500TowerXmas.jpg)|
 202112231500|MinistryofFun|サンタクロース学校, イギリス ロンドン (© Matt Dunham/AP Photo)|今日はクリスマス・イブ|![](/ja-JP/2021/12/202112231500MinistryofFun.jpg)|
+202112241500|Rauchnachte|ヴァイセンゼーのクリスマスツリー, オーストリア エールヴァルト (© nagelestock/Alamy)|チロル地方のクリスマス|![](/ja-JP/2021/12/202112241500Rauchnachte.jpg)|
