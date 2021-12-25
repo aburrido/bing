@@ -26,3 +26,4 @@
 202112221500|TowerXmas|六本木けやき坂のイルミネーション, 東京 (© YUJISTYLE/iStock/Getty Images Plus)|今日は「東京タワー完工の日」|![](/ja-JP/2021/12/202112221500TowerXmas.jpg)|
 202112231500|MinistryofFun|サンタクロース学校, イギリス ロンドン (© Matt Dunham/AP Photo)|今日はクリスマス・イブ|![](/ja-JP/2021/12/202112231500MinistryofFun.jpg)|
 202112241500|Rauchnachte|ヴァイセンゼーのクリスマスツリー, オーストリア エールヴァルト (© nagelestock/Alamy)|チロル地方のクリスマス|![](/ja-JP/2021/12/202112241500Rauchnachte.jpg)|
+202112251500|DesignDrawing|解析機関の設計図, イギリス ロンドン (© Science & Society Picture Library/Getty Images)|今日はチャールズ・バベッジの誕生日|![](/ja-JP/2021/12/202112251500DesignDrawing.jpg)|
