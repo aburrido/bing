@@ -26,3 +26,4 @@
 202112220800|AnnecyFrance|Palais de l'Isle, Annecy, Haute-Savoie, France (© blickwinkel/Alamy)|Info|![](/en-AU/2021/12/202112220800AnnecyFrance.jpg)|
 202112230800|ManitobaBears|Polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|Info|![](/en-AU/2021/12/202112230800ManitobaBears.jpg)|
 202112240800|RedWinter|The Rougier de Camarès, Aveyron, France (© Eric Teissedre/Photononstop/Alamy Banque d'Images)|Info|![](/en-AU/2021/12/202112240800RedWinter.jpg)|
+202112250800|KhomyakMountain|Mount Khomyak, Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Info|![](/en-AU/2021/12/202112250800KhomyakMountain.jpg)|

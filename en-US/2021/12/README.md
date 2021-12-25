@@ -25,3 +25,4 @@
 202112220800|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-US/2021/12/202112220800AnnecyFrance.jpg)|
 202112230800|ManitobaBears|Two young male polar bears, Churchill, Manitoba, Canada (© Cheryl Ramalho/Getty Images)|A Festivus for the fuzziest of us|![](/en-US/2021/12/202112230800ManitobaBears.jpg)|
 202112240800|Rauchnachte|Christmas tree at Weissensee, a small lake near Ehrwald in Tyrol, Austria (© nagelestock/Alamy)|O Tannenbaum|![](/en-US/2021/12/202112240800Rauchnachte.jpg)|
+202112250800|KhomyakMountain|Trees on the northern slope of Mount Khomyak in the Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Not your average Christmas tree|![](/en-US/2021/12/202112250800KhomyakMountain.jpg)|
