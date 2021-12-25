@@ -24,3 +24,4 @@
 202112220000|AnnecyFrance|Winter scene illuminated on the Palais de l'Isle in Annecy, Haute Savoie, France (© blickwinkel/Alamy)|Illuminating the Alps|![](/en-GB/2021/12/202112220000AnnecyFrance.jpg)|
 202112230000|HornseyRooftops|Aerial view of Hornsey, Crouch End and the City of London (© Matt Cooper/Gallery Stock)|Dreaming of a white Christmas|![](/en-GB/2021/12/202112230000HornseyRooftops.jpg)|
 202112240000|Rauchnachte|Christmas tree at Weissensee, a small lake near Ehrwald in Tyrol, Austria (© nagelestock/Alamy)|O Tannenbaum|![](/en-GB/2021/12/202112240000Rauchnachte.jpg)|
+202112250000|KhomyakMountain|Trees on the northern slope of Mount Khomyak in the Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Merry Christmas!|![](/en-GB/2021/12/202112250000KhomyakMountain.jpg)|
