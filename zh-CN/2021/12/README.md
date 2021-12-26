@@ -26,3 +26,4 @@
 202112231600|Rauchnachte|湖畔的一棵小圣诞树，奥地利魏森湖 (© nagelestock/Alamy)||![](/zh-CN/2021/12/202112231600Rauchnachte.jpg)|
 202112241600|KhomyakMountain|宛如圣诞精灵的树干，乌克兰喀尔巴阡山脉 (© panaramka/Getty Images)||![](/zh-CN/2021/12/202112241600KhomyakMountain.jpg)|
 202112251600|SalehurstChurch|日光下的村落，英格兰东萨塞克斯郡 (© JohnnyPowell/iStock/Getty Images Plus)||![](/zh-CN/2021/12/202112251600SalehurstChurch.jpg)|
+202112261600|SnowBuntings|暴雪中成群的雪鹀，美国纽约 (© Marie Read/Minden Pictures)||![](/zh-CN/2021/12/202112261600SnowBuntings.jpg)|
