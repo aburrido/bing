@@ -26,3 +26,4 @@
 202112231830|JogFalls|Jog Falls in Karnataka, India (© Rajesh Vijayarajan Photography/Moment Open/Getty Images)|Witness the majesty of nature|![](/en-IN/2021/12/202112231830JogFalls.jpg)|
 202112241830|KhomyakMountain|Trees on the northern slope of Mount Khomyak in the Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Not your average Christmas tree|![](/en-IN/2021/12/202112241830KhomyakMountain.jpg)|
 202112251830|RPIR|Royal Pavilion Ice Rink in Brighton, England (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/en-IN/2021/12/202112251830RPIR.jpg)|
+202112261830|SnowBuntings|Snow buntings flock during a snowstorm in New York (© Marie Read/Minden Pictures)|A flurry of snowflakes|![](/en-IN/2021/12/202112261830SnowBuntings.jpg)|
