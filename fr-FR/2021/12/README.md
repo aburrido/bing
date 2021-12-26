@@ -26,3 +26,4 @@
 202112232300|Rauchnachte|Sapin près du lac Weissensee et de la ville d’Ehrwald dans le Tyrol en Autriche (© nagelestock/Alamy)|Sapin autrichien|![](/fr-FR/2021/12/202112232300Rauchnachte.jpg)|
 202112242300|KhomyakMountain|Arbres dans une forêt du Mont Khomyak dans les montagnes Carpates, Ukraine (© panaramka/Getty Images)|Noël dans les Carpates|![](/fr-FR/2021/12/202112242300KhomyakMountain.jpg)|
 202112252300|RPIR|La patinoire du Pavillon Royal, Brighton, Angleterre (© Chris Gorman/Getty Images)|Patinage royal|![](/fr-FR/2021/12/202112252300RPIR.jpg)|
+202112262300|Goldfinch|Chardonnerets élégants perchés sur des branches couvertes de neige (© Christophe Sidamon-Pesson/Minden)|L’élégance des oiseaux|![](/fr-FR/2021/12/202112262300Goldfinch.jpg)|

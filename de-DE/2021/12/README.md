@@ -26,3 +26,4 @@
 202112232300|Rauchnachte|Weihnachtsbaum am Weissensee in der Nähe von Ehrwald in Tirol, Österreich (© nagelestock/Alamy)|„O Tannenbaum, o Tannenbaum“|![](/de-DE/2021/12/202112232300Rauchnachte.jpg)|
 202112242300|CarolinensielChristmas|Schwimmender Weihnachtsbaum im Museumshafen Carolinensiel, Niedersachsen (© Manfred Habel/mauritius images GmbH/Alamy Stock Photo)|Frohe Weihnachten!|![](/de-DE/2021/12/202112242300CarolinensielChristmas.jpg)|
 202112252300|RPIR|Eisbahn am Royal Pavilion in Brighton, England (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/de-DE/2021/12/202112252300RPIR.jpg)|
+202112262300|SnowBuntings|Ein Schwarm Schneeammern in einem Schneesturm, New York, USA (© Marie Read/Minden Pictures)|Schlechte Sicht? Abstand halten!|![](/de-DE/2021/12/202112262300SnowBuntings.jpg)|
