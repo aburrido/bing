@@ -26,3 +26,4 @@
 202112230500|ManitobaBears|Deux jeunes ours polaires près de Churchill, Manitoba (© Cheryl Ramalho/Getty Images)||![](/fr-CA/2021/12/202112230500ManitobaBears.jpg)|
 202112240500|Rauchnachte|Sapin près du lac Weissensee et de la ville de Ehrwald dans le Tyrol, Autriche (© nagelestock/Alamy)||![](/fr-CA/2021/12/202112240500Rauchnachte.jpg)|
 202112250500|KhomyakMountain|Arbres dans une forêt du Mont Khomyak dans les montagnes Carpates, Ukraine (© panaramka/Getty Images)||![](/fr-CA/2021/12/202112250500KhomyakMountain.jpg)|
+202112260500|WinterRoofs|Petit village de Riquewihr dans le Haut-Rhin, Alsace, France (© Walter Bibikow/eStock Photo)||![](/fr-CA/2021/12/202112260500WinterRoofs.jpg)|
