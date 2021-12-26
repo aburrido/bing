@@ -25,3 +25,4 @@
 202112230000|HornseyRooftops|Aerial view of Hornsey, Crouch End and the City of London (© Matt Cooper/Gallery Stock)|Dreaming of a white Christmas|![](/en-GB/2021/12/202112230000HornseyRooftops.jpg)|
 202112240000|Rauchnachte|Christmas tree at Weissensee, a small lake near Ehrwald in Tyrol, Austria (© nagelestock/Alamy)|O Tannenbaum|![](/en-GB/2021/12/202112240000Rauchnachte.jpg)|
 202112250000|KhomyakMountain|Trees on the northern slope of Mount Khomyak in the Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Merry Christmas!|![](/en-GB/2021/12/202112250000KhomyakMountain.jpg)|
+202112260000|RPIR|Royal Pavilion Ice Rink in Brighton, East Sussex (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/en-GB/2021/12/202112260000RPIR.jpg)|
