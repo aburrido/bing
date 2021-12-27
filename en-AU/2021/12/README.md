@@ -28,3 +28,4 @@
 202112240800|RedWinter|The Rougier de Camarès, Aveyron, France (© Eric Teissedre/Photononstop/Alamy Banque d'Images)|Info|![](/en-AU/2021/12/202112240800RedWinter.jpg)|
 202112250800|KhomyakMountain|Mount Khomyak, Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Info|![](/en-AU/2021/12/202112250800KhomyakMountain.jpg)|
 202112260800|SalehurstChurch|Salehurst, East Sussex, England (© JohnnyPowell/iStock/Getty Images Plus)|Info|![](/en-AU/2021/12/202112260800SalehurstChurch.jpg)|
+202112270800|SnowBuntings|Snow buntings, New York, USA (© Marie Read/Minden Pictures)|Info|![](/en-AU/2021/12/202112270800SnowBuntings.jpg)|
