@@ -27,3 +27,4 @@
 202112242300|KhomyakMountain|Arbres dans une forêt du Mont Khomyak dans les montagnes Carpates, Ukraine (© panaramka/Getty Images)|Noël dans les Carpates|![](/fr-FR/2021/12/202112242300KhomyakMountain.jpg)|
 202112252300|RPIR|La patinoire du Pavillon Royal, Brighton, Angleterre (© Chris Gorman/Getty Images)|Patinage royal|![](/fr-FR/2021/12/202112252300RPIR.jpg)|
 202112262300|Goldfinch|Chardonnerets élégants perchés sur des branches couvertes de neige (© Christophe Sidamon-Pesson/Minden)|L’élégance des oiseaux|![](/fr-FR/2021/12/202112262300Goldfinch.jpg)|
+202112272300|KjellHenriksen|L’observatoire Kjell Henriksen dans le Svalbard, Norvège (© Vincent Fournier/Gallery Stock)|Maisons de verre|![](/fr-FR/2021/12/202112272300KjellHenriksen.jpg)|
