@@ -27,3 +27,4 @@
 202112240500|Rauchnachte|Holiday tree at Weissensee, a small lake near Ehrwald in Tyrol, Austria (© nagelestock/Alamy)|O Tannenbaum|![](/en-CA/2021/12/202112240500Rauchnachte.jpg)|
 202112250500|KhomyakMountain|Trees on the northern slope of Mount Khomyak in the Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Not your average Christmas tree|![](/en-CA/2021/12/202112250500KhomyakMountain.jpg)|
 202112260500|RPIR|Royal Pavilion Ice Rink in Brighton, England (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/en-CA/2021/12/202112260500RPIR.jpg)|
+202112270500|SnowBuntings|Snow buntings flock during a snowstorm in New York (© Marie Read/Minden Pictures)|A flurry of snowflakes|![](/en-CA/2021/12/202112270500SnowBuntings.jpg)|
