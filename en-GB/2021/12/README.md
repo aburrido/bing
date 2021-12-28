@@ -27,3 +27,4 @@
 202112250000|KhomyakMountain|Trees on the northern slope of Mount Khomyak in the Carpathian Mountains, Ukraine (© panaramka/Getty Images)|Merry Christmas!|![](/en-GB/2021/12/202112250000KhomyakMountain.jpg)|
 202112260000|RPIR|Royal Pavilion Ice Rink in Brighton, East Sussex (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/en-GB/2021/12/202112260000RPIR.jpg)|
 202112270000|SalehurstChurch|St Mary's church and oast houses in Salehurst, East Sussex (© JohnnyPowell/iStock/Getty Images Plus)|A medieval landscape|![](/en-GB/2021/12/202112270000SalehurstChurch.jpg)|
+202112280000|KjellHenriksen|Kjell Henriksen Observatory in Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Sky gazing in Svalbard|![](/en-GB/2021/12/202112280000KjellHenriksen.jpg)|
