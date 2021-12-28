@@ -28,3 +28,4 @@
 202112252300|RPIR|Eisbahn am Royal Pavilion in Brighton, England (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/de-DE/2021/12/202112252300RPIR.jpg)|
 202112262300|SnowBuntings|Ein Schwarm Schneeammern in einem Schneesturm, New York, USA (© Marie Read/Minden Pictures)|Schlechte Sicht? Abstand halten!|![](/de-DE/2021/12/202112262300SnowBuntings.jpg)|
 202112272300|KjellHenriksen|Kjell-Henriksen-Observatorium auf Spitzbergen, Norwegen (© Vincent Fournier/Gallery Stock)|Himmelsbeobachtungen auf Spitzbergen|![](/de-DE/2021/12/202112272300KjellHenriksen.jpg)|
+202112282300|OreamnosAmericanus|Schneeziegen im Yukon, Kanada (© Mark Newman/Getty Images)|Flauschige Bergsteiger|![](/de-DE/2021/12/202112282300OreamnosAmericanus.jpg)|
