@@ -28,3 +28,4 @@
 202112250500|KhomyakMountain|Arbres dans une forêt du Mont Khomyak dans les montagnes Carpates, Ukraine (© panaramka/Getty Images)||![](/fr-CA/2021/12/202112250500KhomyakMountain.jpg)|
 202112260500|WinterRoofs|Petit village de Riquewihr dans le Haut-Rhin, Alsace, France (© Walter Bibikow/eStock Photo)||![](/fr-CA/2021/12/202112260500WinterRoofs.jpg)|
 202112270500|SnowBuntings|Nuée de plectrophanes des neiges pendant une tempête de neige à New York (© Marie Read/Minden Pictures)||![](/fr-CA/2021/12/202112270500SnowBuntings.jpg)|
+202112280500|KjellHenriksen|L’observatoire Kjell Henriksen dans le Svalbard, Norvège (© Vincent Fournier/Gallery Stock)||![](/fr-CA/2021/12/202112280500KjellHenriksen.jpg)|
