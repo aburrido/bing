@@ -29,3 +29,4 @@
 202112251500|DesignDrawing|解析機関の設計図, イギリス ロンドン (© Science & Society Picture Library/Getty Images)|今日はチャールズ・バベッジの誕生日|![](/ja-JP/2021/12/202112251500DesignDrawing.jpg)|
 202112261500|ManitobaBears|ホッキョクグマの子どもたち, カナダ チャーチル (© Cheryl Ramalho/Getty Images)|スノーダストとホッキョクグマ|![](/ja-JP/2021/12/202112261500ManitobaBears.jpg)|
 202112271500|KjellHenriksen|チェル・ヘンリクセン観測所, ノルウェー (© Vincent Fournier/Gallery Stock)|スヴァールバル諸島のオーロラ観測所|![](/ja-JP/2021/12/202112271500KjellHenriksen.jpg)|
+202112281500|OreamnosAmericanus|シロイワヤギ, カナダ ユーコン準州 (© Mark Newman/Getty Images)|雪の中のシロイワヤギ|![](/ja-JP/2021/12/202112281500OreamnosAmericanus.jpg)|
