@@ -29,3 +29,4 @@
 202112260500|RPIR|Royal Pavilion Ice Rink in Brighton, England (© Chris Gorman/Getty Images)|Happy Boxing Day!|![](/en-CA/2021/12/202112260500RPIR.jpg)|
 202112270500|SnowBuntings|Snow buntings flock during a snowstorm in New York (© Marie Read/Minden Pictures)|A flurry of snowflakes|![](/en-CA/2021/12/202112270500SnowBuntings.jpg)|
 202112280500|KjellHenriksen|Kjell Henriksen Observatory in Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Studying the skies in Svalbard|![](/en-CA/2021/12/202112280500KjellHenriksen.jpg)|
+202112290500|PetitChamplain|Rue du Petit-Champlain at Lower Old Town (Basse-Ville), Quebec City (© Diego Grandi/Shutterstock)|A page from a fairytale|![](/en-CA/2021/12/202112290500PetitChamplain.jpg)|
