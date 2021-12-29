@@ -30,3 +30,4 @@
 202112261500|ManitobaBears|ホッキョクグマの子どもたち, カナダ チャーチル (© Cheryl Ramalho/Getty Images)|スノーダストとホッキョクグマ|![](/ja-JP/2021/12/202112261500ManitobaBears.jpg)|
 202112271500|KjellHenriksen|チェル・ヘンリクセン観測所, ノルウェー (© Vincent Fournier/Gallery Stock)|スヴァールバル諸島のオーロラ観測所|![](/ja-JP/2021/12/202112271500KjellHenriksen.jpg)|
 202112281500|OreamnosAmericanus|シロイワヤギ, カナダ ユーコン準州 (© Mark Newman/Getty Images)|雪の中のシロイワヤギ|![](/ja-JP/2021/12/202112281500OreamnosAmericanus.jpg)|
+202112291500|JoyaBell|知恩院大鐘楼, 京都 東山区 (© Zoonar/olga demchishina/Zoonar GmbH/Alamy Stock Photo)|明日は大晦日|![](/ja-JP/2021/12/202112291500JoyaBell.jpg)|
