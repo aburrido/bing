@@ -29,3 +29,4 @@
 202112262300|Goldfinch|Chardonnerets élégants perchés sur des branches couvertes de neige (© Christophe Sidamon-Pesson/Minden)|L’élégance des oiseaux|![](/fr-FR/2021/12/202112262300Goldfinch.jpg)|
 202112272300|KjellHenriksen|L’observatoire Kjell Henriksen dans le Svalbard, Norvège (© Vincent Fournier/Gallery Stock)|Maisons de verre|![](/fr-FR/2021/12/202112272300KjellHenriksen.jpg)|
 202112282300|OreamnosAmericanus|Chèvres des montagnes Rocheuses, Canada (© Mark Newman/Getty Images)|À vous rendre chèvre|![](/fr-FR/2021/12/202112282300OreamnosAmericanus.jpg)|
+202112292300|WinterRoofs|Petit village de Riquewihr dans le Haut-Rhin en Alsace (© Walter Bibikow/eStock Photo)|L’hiver sur les toits|![](/fr-FR/2021/12/202112292300WinterRoofs.jpg)|
