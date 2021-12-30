@@ -30,3 +30,4 @@
 202112271830|KjellHenriksen|Kjell Henriksen Observatory in Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Studying the skies in Svalbard|![](/en-IN/2021/12/202112271830KjellHenriksen.jpg)|
 202112281830|OreamnosAmericanus|Mountain goats in the Yukon, Canada (© Mark Newman/Getty Images)|Nature's fluffy mountaineers|![](/en-IN/2021/12/202112281830OreamnosAmericanus.jpg)|
 202112291830|WesterheverLight|Westerheversand Lighthouse in Westerhever, Germany (© Sandra Bartocha/Minden Pictures)|Stargazing by the shore|![](/en-IN/2021/12/202112291830WesterheverLight.jpg)|
+202112301830|IcelandBonfire|Bonfire to celebrate New Year's Eve in 2014 in Reykjavik, Iceland (© Ragnar Th Sigurdsson/Alamy)|Roaring into 2022|![](/en-IN/2021/12/202112301830IcelandBonfire.jpg)|
