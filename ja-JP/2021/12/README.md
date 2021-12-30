@@ -31,3 +31,4 @@
 202112271500|KjellHenriksen|チェル・ヘンリクセン観測所, ノルウェー (© Vincent Fournier/Gallery Stock)|スヴァールバル諸島のオーロラ観測所|![](/ja-JP/2021/12/202112271500KjellHenriksen.jpg)|
 202112281500|OreamnosAmericanus|シロイワヤギ, カナダ ユーコン準州 (© Mark Newman/Getty Images)|雪の中のシロイワヤギ|![](/ja-JP/2021/12/202112281500OreamnosAmericanus.jpg)|
 202112291500|JoyaBell|知恩院大鐘楼, 京都 東山区 (© Zoonar/olga demchishina/Zoonar GmbH/Alamy Stock Photo)|明日は大晦日|![](/ja-JP/2021/12/202112291500JoyaBell.jpg)|
+202112301500|IcelandBonfire|大晦日の焚き火, アイスランド レイキャビク (© Ragnar Th Sigurdsson/Alamy)|レイキャビクの年越し|![](/ja-JP/2021/12/202112301500IcelandBonfire.jpg)|
