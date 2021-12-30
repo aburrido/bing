@@ -30,3 +30,4 @@
 202112270800|SnowBuntings|Snow buntings flock during a snowstorm in New York (© Marie Read/Minden Pictures)|A flurry of 'snowflakes'|![](/en-US/2021/12/202112270800SnowBuntings.jpg)|
 202112280800|KjellHenriksen|Kjell Henriksen Observatory in Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Studying the skies in Svalbard|![](/en-US/2021/12/202112280800KjellHenriksen.jpg)|
 202112290800|OreamnosAmericanus|Mountain goats in the Yukon, Canada (© Mark Newman/Getty Images)|Nature's fluffy mountaineers|![](/en-US/2021/12/202112290800OreamnosAmericanus.jpg)|
+202112300800|WesterheverLight|Westerheversand Lighthouse in Westerhever, Germany (© Sandra Bartocha/Minden Pictures)|Stargazing by the shore|![](/en-US/2021/12/202112300800WesterheverLight.jpg)|
