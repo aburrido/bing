@@ -29,3 +29,4 @@
 202112270000|SalehurstChurch|St Mary's church and oast houses in Salehurst, East Sussex (© JohnnyPowell/iStock/Getty Images Plus)|A medieval landscape|![](/en-GB/2021/12/202112270000SalehurstChurch.jpg)|
 202112280000|KjellHenriksen|Kjell Henriksen Observatory in Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Sky gazing in Svalbard|![](/en-GB/2021/12/202112280000KjellHenriksen.jpg)|
 202112290000|OreamnosAmericanus|Mountain goats in the Yukon, Canada (© Mark Newman/Getty Images)|Nature's fluffy mountaineers|![](/en-GB/2021/12/202112290000OreamnosAmericanus.jpg)|
+202112300000|WesterheverLight|Westerheversand Lighthouse in Westerhever, Germany (© Sandra Bartocha/Minden Pictures)|A guiding light|![](/en-GB/2021/12/202112300000WesterheverLight.jpg)|
