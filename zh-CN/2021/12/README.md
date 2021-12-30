@@ -30,3 +30,4 @@
 202112271600|KjellHenriksen|半球形的谢尔亨里克森天文台，挪威斯瓦尔巴群岛 (© Vincent Fournier/Gallery Stock)||![](/zh-CN/2021/12/202112271600KjellHenriksen.jpg)|
 202112281600|OreamnosAmericanus|育空地区的落基山羊，加拿大 (© Mark Newman/Getty Images)||![](/zh-CN/2021/12/202112281600OreamnosAmericanus.jpg)|
 202112291600|WesterheverLight|星空下的灯塔，德国Westerhever镇 (© Sandra Bartocha/Minden Pictures)||![](/zh-CN/2021/12/202112291600WesterheverLight.jpg)|
+202112301600|IcelandBonfire|跨年夜的篝火晚会，冰岛雷克雅未克 (© Ragnar Th Sigurdsson/Alamy)||![](/zh-CN/2021/12/202112301600IcelandBonfire.jpg)|
