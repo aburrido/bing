@@ -31,3 +31,4 @@
 202112280500|KjellHenriksen|Kjell Henriksen Observatory in Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Studying the skies in Svalbard|![](/en-CA/2021/12/202112280500KjellHenriksen.jpg)|
 202112290500|PetitChamplain|Rue du Petit-Champlain at Lower Old Town (Basse-Ville), Quebec City (© Diego Grandi/Shutterstock)|A page from a fairytale|![](/en-CA/2021/12/202112290500PetitChamplain.jpg)|
 202112300500|WesterheverLight|Westerheversand Lighthouse in Westerhever, Germany (© Sandra Bartocha/Minden Pictures)|Stargazing by the shore|![](/en-CA/2021/12/202112300500WesterheverLight.jpg)|
+202112310500|IcelandBonfire|Bonfire to celebrate New Year's Eve in 2014 in Reykjavik, Iceland (© Ragnar Th Sigurdsson/Alamy)|Roaring into 2022|![](/en-CA/2021/12/202112310500IcelandBonfire.jpg)|

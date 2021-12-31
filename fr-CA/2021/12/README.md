@@ -31,3 +31,4 @@
 202112280500|KjellHenriksen|L’observatoire Kjell Henriksen dans le Svalbard, Norvège (© Vincent Fournier/Gallery Stock)||![](/fr-CA/2021/12/202112280500KjellHenriksen.jpg)|
 202112290500|OreamnosAmericanus|Chèvres des montagnes Rocheuses (© Mark Newman/Getty Images)||![](/fr-CA/2021/12/202112290500OreamnosAmericanus.jpg)|
 202112300500|WesterheverLight|Phare de Westerheversand près de la ville de Westerhever en Allemagne (© Sandra Bartocha/Minden Pictures)||![](/fr-CA/2021/12/202112300500WesterheverLight.jpg)|
+202112310500|IcelandBonfire|Grand feu pour célébrer la nouvelle année en 2014 à Reykjavik, Islande (© Ragnar Th Sigurdsson/Alamy)||![](/fr-CA/2021/12/202112310500IcelandBonfire.jpg)|
