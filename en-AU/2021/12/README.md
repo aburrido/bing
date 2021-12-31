@@ -32,3 +32,4 @@
 202112280800|KjellHenriksen|Kjell Henriksen Observatory, Svalbard, Norway (© Vincent Fournier/Gallery Stock)|Info|![](/en-AU/2021/12/202112280800KjellHenriksen.jpg)|
 202112290800|OreamnosAmericanus|Mountain goats, Yukon, Canada (© Mark Newman/Getty Images)|Info|![](/en-AU/2021/12/202112290800OreamnosAmericanus.jpg)|
 202112300800|WesterheverLight|Westerheversand Lighthouse, Schleswig-Holstein, Germany (© Sandra Bartocha/Minden Pictures)|Info|![](/en-AU/2021/12/202112300800WesterheverLight.jpg)|
+202112310800|MehrangarhFortIndia|Mehrangarh Fort, Rajasthan, India (© Avigator Fortuner/Shutterstock)|Info|![](/en-AU/2021/12/202112310800MehrangarhFortIndia.jpg)|
