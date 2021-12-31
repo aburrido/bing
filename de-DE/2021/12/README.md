@@ -31,3 +31,4 @@
 202112282300|OreamnosAmericanus|Schneeziegen im Yukon, Kanada (© Mark Newman/Getty Images)|Flauschige Bergsteiger|![](/de-DE/2021/12/202112282300OreamnosAmericanus.jpg)|
 202112292300|WesterheverLight|Leuchtturm Westerheversand, Westerhever, Schleswig-Holstein (© Sandra Bartocha/Minden Pictures)|Sternenbeobachtung an der Küste|![](/de-DE/2021/12/202112292300WesterheverLight.jpg)|
 202112302300|EisseglerWoerthsee|Eissegler auf dem Wörthsee, Bayern (© PK-Photos/iStock/Getty Images Plus/Getty Images)|Highlight auf dem Eis|![](/de-DE/2021/12/202112302300EisseglerWoerthsee.jpg)|
+202112312300|JonesBeachHarpSeal|Schlafende Sattelrobbe am Jones Beach, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Nickerchen am Neujahrstag|![](/de-DE/2021/12/202112312300JonesBeachHarpSeal.jpg)|

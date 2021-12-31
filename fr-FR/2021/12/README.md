@@ -31,3 +31,4 @@
 202112282300|OreamnosAmericanus|Chèvres des montagnes Rocheuses, Canada (© Mark Newman/Getty Images)|À vous rendre chèvre|![](/fr-FR/2021/12/202112282300OreamnosAmericanus.jpg)|
 202112292300|WinterRoofs|Petit village de Riquewihr dans le Haut-Rhin en Alsace (© Walter Bibikow/eStock Photo)|L’hiver sur les toits|![](/fr-FR/2021/12/202112292300WinterRoofs.jpg)|
 202112302300|IcelandBonfire|Grand feu pour célébrer la nouvelle année en 2014 à Reykjavik, Islande (© Ragnar Th Sigurdsson/Alamy)|Nouvel an en feu|![](/fr-FR/2021/12/202112302300IcelandBonfire.jpg)|
+202112312300|FranceEU|Drapeaux de la France et de l’Europe flottant sous l’Arc de Triomphe, Paris (© genekrebs/iStock/Getty Images Plus/Getty Images)|La France au sommet de l’Europe|![](/fr-FR/2021/12/202112312300FranceEU.jpg)|
