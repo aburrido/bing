@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202112310500|IcelandBonfire|Bonfire to celebrate New Year's Eve in 2014 in Reykjavik, Iceland (© Ragnar Th Sigurdsson/Alamy)|Roaring into 2022|![](/en-CA/2022/01/202112310500IcelandBonfire.jpg)|
 202201010500|JonesBeachHarpSeal|Harp seal sleeping at Jones Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Napping away New Year’s Day|![](/en-CA/2022/01/202201010500JonesBeachHarpSeal.jpg)|
+202201020500|SnowyPrague|Skyline of Prague, Czech Republic (© benkrut/Getty Images)|Inspiring spires|![](/en-CA/2022/01/202201020500SnowyPrague.jpg)|
