@@ -4,3 +4,4 @@
 202201012300|SnowyPrague|Prague sous la neige, République Tchèque (© benkrut/Getty Images)|La ville aux 100 flèches|![](/fr-FR/2022/01/202201012300SnowyPrague.jpg)|
 202201022300|LickObservatory|L’observatoire Lick sur le mont Hamilton près de San José, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Dans la neige et dans les étoiles|![](/fr-FR/2022/01/202201022300LickObservatory.jpg)|
 202201032300|BorregoBadlands|Badlands Borrego dans le parc d’état du désert d’Anza-Borrego, Californie, États-Unis (© Tom Hogan/plainpicture)|Soleil couchant sur les badlands|![](/fr-FR/2022/01/202201032300BorregoBadlands.jpg)|
+202201042300|MountainToucan|Toucan Montagnard dans la réserve Bellavista Cloud Forest, Équateur (© Tui De Roy/Minden Pictures)|Toucan des montagnes|![](/fr-FR/2022/01/202201042300MountainToucan.jpg)|
