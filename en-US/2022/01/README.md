@@ -4,3 +4,4 @@
 202201010800|JonesBeachHarpSeal|Harp seal sleeping at Jones Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Napping away New Year's Day|![](/en-US/2022/01/202201010800JonesBeachHarpSeal.jpg)|
 202201020800|SnowyPrague|Skyline of Prague, Czech Republic (© benkrut/Getty Images)|Inspiring spires|![](/en-US/2022/01/202201020800SnowyPrague.jpg)|
 202201030800|LickObservatory|The Lick Observatory on Mount Hamilton, near San Jose, California (© Jeffrey Lewis/Tandem Stills + Motion)|Legacy of light|![](/en-US/2022/01/202201030800LickObservatory.jpg)|
+202201040800|BorregoBadlands|Borrego Badlands in Anza-Borrego Desert State Park, California (© Tom Hogan/plainpicture)|Beautiful badlands|![](/en-US/2022/01/202201040800BorregoBadlands.jpg)|
