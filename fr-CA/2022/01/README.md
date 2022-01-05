@@ -5,3 +5,4 @@
 202201020500|SnowyPrague|Prague, République Tchèque (© benkrut/Getty Images)||![](/fr-CA/2022/01/202201020500SnowyPrague.jpg)|
 202201030500|LickObservatory|L’observatoire Lick sur le mont Hamilton près de San José, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)||![](/fr-CA/2022/01/202201030500LickObservatory.jpg)|
 202201040500|BorregoBadlands|Badlands Borrego dans le parc d’état du désert d’Anza-Borrego, Californie, États-Unis (© Tom Hogan/plainpicture)||![](/fr-CA/2022/01/202201040500BorregoBadlands.jpg)|
+202201050500|MountainToucan|Toucan montagnard dans la réserve Bellavista Cloud Forest, Équateur (© Tui De Roy/Minden Pictures)||![](/fr-CA/2022/01/202201050500MountainToucan.jpg)|
