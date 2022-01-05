@@ -4,3 +4,4 @@
 202201020000|SnowyPrague|Skyline of Prague, Czech Republic (© benkrut/Getty Images)|Inspiring spires|![](/en-GB/2022/01/202201020000SnowyPrague.jpg)|
 202201030000|SevenSistersCliffs|Coastguard cottages and Seven Sisters cliffs outside Eastbourne, East Sussex (© Paul Daniels/Alamy Stock Photo)|The white cliffs of... East Sussex|![](/en-GB/2022/01/202201030000SevenSistersCliffs.jpg)|
 202201040000|BorregoBadlands|Borrego Badlands in Anza-Borrego Desert State Park, California, USA (© Tom Hogan/plainpicture)|Sunset in the badlands|![](/en-GB/2022/01/202201040000BorregoBadlands.jpg)|
+202201050000|SnowPtarmigan|Ptarmigan (lagopus muta) in snow, Scotland (© David Chapman/Alamy Stock Photo)|Winter coat weather|![](/en-GB/2022/01/202201050000SnowPtarmigan.jpg)|
