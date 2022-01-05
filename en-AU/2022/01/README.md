@@ -5,3 +5,4 @@
 202201020800|SnowyPrague|Prague, Czech Republic (© benkrut/Getty Images)|Info|![](/en-AU/2022/01/202201020800SnowyPrague.jpg)|
 202201030800|LickObservatory|The Lick Observatory, Mount Hamilton, California, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2022/01/202201030800LickObservatory.jpg)|
 202201040800|BorregoBadlands|Borrego Badlands, Anza-Borrego Desert State Park, California, USA (© Tom Hogan/plainpicture)|Info|![](/en-AU/2022/01/202201040800BorregoBadlands.jpg)|
+202201050800|MountainToucan|Plate-billed mountain toucan, Bellavista Cloud Forest Reserve, Ecuador (© Tui De Roy/Minden Pictures)|Info|![](/en-AU/2022/01/202201050800MountainToucan.jpg)|

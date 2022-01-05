@@ -5,3 +5,4 @@
 202201020800|SnowyPrague|Skyline of Prague, Czech Republic (© benkrut/Getty Images)|Inspiring spires|![](/en-US/2022/01/202201020800SnowyPrague.jpg)|
 202201030800|LickObservatory|The Lick Observatory on Mount Hamilton, near San Jose, California (© Jeffrey Lewis/Tandem Stills + Motion)|Legacy of light|![](/en-US/2022/01/202201030800LickObservatory.jpg)|
 202201040800|BorregoBadlands|Borrego Badlands in Anza-Borrego Desert State Park, California (© Tom Hogan/plainpicture)|Beautiful badlands|![](/en-US/2022/01/202201040800BorregoBadlands.jpg)|
+202201050800|MountainToucan|Plate-billed mountain toucan in Bellavista Cloud Forest Reserve, Ecuador (© Tui De Roy/Minden Pictures)|A plate-billed mountain toucan|![](/en-US/2022/01/202201050800MountainToucan.jpg)|
