@@ -6,3 +6,4 @@
 202201030800|LickObservatory|The Lick Observatory, Mount Hamilton, California, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2022/01/202201030800LickObservatory.jpg)|
 202201040800|BorregoBadlands|Borrego Badlands, Anza-Borrego Desert State Park, California, USA (© Tom Hogan/plainpicture)|Info|![](/en-AU/2022/01/202201040800BorregoBadlands.jpg)|
 202201050800|MountainToucan|Plate-billed mountain toucan, Bellavista Cloud Forest Reserve, Ecuador (© Tui De Roy/Minden Pictures)|Info|![](/en-AU/2022/01/202201050800MountainToucan.jpg)|
+202201060800|LakeKochelsee|Kochelsee and Heimgarten mountain, Bavaria, Germany (© Reinhard Schmid/eStock Photo)|Info|![](/en-AU/2022/01/202201060800LakeKochelsee.jpg)|
