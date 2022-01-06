@@ -6,3 +6,4 @@
 202201030500|SkiTouring|Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)|Ski touring in Austria|![](/en-CA/2022/01/202201030500SkiTouring.jpg)|
 202201040500|BorregoBadlands|Borrego Badlands in Anza-Borrego Desert State Park, California (© Tom Hogan/plainpicture)|California's badlands|![](/en-CA/2022/01/202201040500BorregoBadlands.jpg)|
 202201050500|ChickadeeNS|Black-capped Chickadee (Poecile atricapillus) in snowfall, Nova Scotia (© Scott Leslie/Minden Pictures)|Chick-a-dee-dee-dee|![](/en-CA/2022/01/202201050500ChickadeeNS.jpg)|
+202201060500|LakeKochelsee|Kochelsee and Heimgarten Mountain in Bavaria, Germany (© Reinhard Schmid/eStock Photo)|Cold winter days on Kochelsee|![](/en-CA/2022/01/202201060500LakeKochelsee.jpg)|
