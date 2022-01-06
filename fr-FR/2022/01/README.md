@@ -6,3 +6,4 @@
 202201032300|BorregoBadlands|Badlands Borrego dans le parc d’état du désert d’Anza-Borrego, Californie, États-Unis (© Tom Hogan/plainpicture)|Soleil couchant sur les badlands|![](/fr-FR/2022/01/202201032300BorregoBadlands.jpg)|
 202201042300|MountainToucan|Toucan Montagnard dans la réserve Bellavista Cloud Forest, Équateur (© Tui De Roy/Minden Pictures)|Toucan des montagnes|![](/fr-FR/2022/01/202201042300MountainToucan.jpg)|
 202201052300|LakeKochelsee|Le lac de Kochel et le Heimgarten en Bavière, Allemagne (© Reinhard Schmid/eStock Photo)|Un hiver digne de son nom|![](/fr-FR/2022/01/202201052300LakeKochelsee.jpg)|
+202201062300|FortedeSao|Phare du fort de São Miguel Arcanjo, Nazaré, Portugal (© Richard A Lock/Getty Images)|Contre vents et marées|![](/fr-FR/2022/01/202201062300FortedeSao.jpg)|
