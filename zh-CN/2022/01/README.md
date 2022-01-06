@@ -6,3 +6,4 @@
 202201031600|BorregoBadlands|安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Tom Hogan/plainpicture)||![](/zh-CN/2022/01/202201031600BorregoBadlands.jpg)|
 202201041600|MountainToucan|树干上的扁嘴山巨嘴鸟，厄瓜多尔 (© Tui De Roy/Minden Pictures)||![](/zh-CN/2022/01/202201041600MountainToucan.jpg)|
 202201051600|LakeKochelsee|冬日里的科赫尔湖，德国巴伐利亚州 (© Reinhard Schmid/eStock Photo)||![](/zh-CN/2022/01/202201051600LakeKochelsee.jpg)|
+202201061600|FortedeSao|纳扎雷灯塔，葡萄牙 (© Richard A Lock/Getty Images)||![](/zh-CN/2022/01/202201061600FortedeSao.jpg)|
