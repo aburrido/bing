@@ -6,3 +6,4 @@
 202201031500|BorregoBadlands|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Tom Hogan/plainpicture)|バラ色に染まるカリフォルニアの砂漠|![](/ja-JP/2022/01/202201031500BorregoBadlands.jpg)|
 202201041500|MountainToucan|イタハシヤマオオハシ, エクアドル (© Tui De Roy/Minden Pictures)|ベラビスタ雲霧林保護区の野鳥|![](/ja-JP/2022/01/202201041500MountainToucan.jpg)|
 202201051500|LakeKochelsee|コッヘル湖とハイムガルテン山, ドイツ バイエルン (© Reinhard Schmid/eStock Photo)|バイエルン・アルプスの冬景色|![](/ja-JP/2022/01/202201051500LakeKochelsee.jpg)|
+202201061500|FortedeSao|ナザレ灯台とビック・ウェーブ, ポルトガル (© Richard A Lock/Getty Images)|コスタ・デ・プラタの高波|![](/ja-JP/2022/01/202201061500FortedeSao.jpg)|
