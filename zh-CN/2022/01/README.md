@@ -8,3 +8,4 @@
 202201051600|LakeKochelsee|冬日里的科赫尔湖，德国巴伐利亚州 (© Reinhard Schmid/eStock Photo)||![](/zh-CN/2022/01/202201051600LakeKochelsee.jpg)|
 202201061600|FortedeSao|纳扎雷灯塔，葡萄牙 (© Richard A Lock/Getty Images)||![](/zh-CN/2022/01/202201061600FortedeSao.jpg)|
 202201071600|WinterBison|黄石国家公园的美洲野牛，美国怀俄明州 (© Steve Gettle/Minden Pictures)||![](/zh-CN/2022/01/202201071600WinterBison.jpg)|
+202201081600|RiceBangladesh|正在晾晒的大米，孟加拉国达卡 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2022/01/202201081600RiceBangladesh.jpg)|
