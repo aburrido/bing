@@ -7,3 +7,4 @@
 202201050000|SnowPtarmigan|Ptarmigan (lagopus muta) in snow, Scotland (© David Chapman/Alamy Stock Photo)|Winter coat weather|![](/en-GB/2022/01/202201050000SnowPtarmigan.jpg)|
 202201060000|WinterRoofs|The village of Riquewihr in Haut-Rhin, Alsace, France (© Walter Bibikow/eStock Photo)|Rooftops of Riquewihr|![](/en-GB/2022/01/202201060000WinterRoofs.jpg)|
 202201070000|FortedeSao|Nazaré Lighthouse at Forte de São, Nazaré, Portugal (© Richard A Lock/Getty Images)|Big wave season|![](/en-GB/2022/01/202201070000FortedeSao.jpg)|
+202201080000|WinterBison|American bison in Yellowstone National Park, Wyoming, USA (© Steve Gettle/Minden Pictures)|Bundle up, bison|![](/en-GB/2022/01/202201080000WinterBison.jpg)|
