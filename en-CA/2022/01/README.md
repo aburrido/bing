@@ -8,3 +8,4 @@
 202201050500|ChickadeeNS|Black-capped Chickadee (Poecile atricapillus) in snowfall, Nova Scotia (© Scott Leslie/Minden Pictures)|Chick-a-dee-dee-dee|![](/en-CA/2022/01/202201050500ChickadeeNS.jpg)|
 202201060500|LakeKochelsee|Kochelsee and Heimgarten Mountain in Bavaria, Germany (© Reinhard Schmid/eStock Photo)|Cold winter days on Kochelsee|![](/en-CA/2022/01/202201060500LakeKochelsee.jpg)|
 202201070500|FortedeSao|Nazaré Lighthouse atop Forte de São, Nazaré, Portugal (© Richard A Lock/Getty Images)|How do you say 'gnarly' in Nazaré?|![](/en-CA/2022/01/202201070500FortedeSao.jpg)|
+202201080500|WinterBison|American bison in Yellowstone National Park, Wyoming (© Steve Gettle/Minden Pictures)|Bundle up, bison|![](/en-CA/2022/01/202201080500WinterBison.jpg)|

@@ -8,3 +8,4 @@
 202201050500|MountainToucan|Toucan montagnard dans la réserve Bellavista Cloud Forest, Équateur (© Tui De Roy/Minden Pictures)||![](/fr-CA/2022/01/202201050500MountainToucan.jpg)|
 202201060500|LakeKochelsee|Le lac de Kochel et le Heimgarten en Bavière, Allemagne (© Reinhard Schmid/eStock Photo)||![](/fr-CA/2022/01/202201060500LakeKochelsee.jpg)|
 202201070500|ChickadeeNS|Mésange à tête noire dans une tempête de neige, Nouvelle-Écosse (© Scott Leslie/Minden Pictures)||![](/fr-CA/2022/01/202201070500ChickadeeNS.jpg)|
+202201080500|WinterBison|Bison d’Amérique du Nord dans le parc national de Yellowstone, Wyoming, États-Unis (© Steve Gettle/Minden Pictures)||![](/fr-CA/2022/01/202201080500WinterBison.jpg)|
