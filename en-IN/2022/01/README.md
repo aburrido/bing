@@ -9,3 +9,4 @@
 202201061830|MehrangarhFortIndia|Mehrangarh Fort in Rajasthan, India (© Avigator Fortuner/Shutterstock)|The Citadel of the Sun|![](/en-IN/2022/01/202201061830MehrangarhFortIndia.jpg)|
 202201071830|WinterBison|American bison in Yellowstone National Park, Wyoming (© Steve Gettle/Minden Pictures)|Bundle up, bison|![](/en-IN/2022/01/202201071830WinterBison.jpg)|
 202201081830|RiceBangladesh|Rice laid out to dry in Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Have a rice day|![](/en-IN/2022/01/202201081830RiceBangladesh.jpg)|
+202201091830|SkiTouring|Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)|Ski touring in Austria|![](/en-IN/2022/01/202201091830SkiTouring.jpg)|
