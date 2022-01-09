@@ -9,3 +9,4 @@
 202201060800|LakeKochelsee|Kochelsee and Heimgarten mountain, Bavaria, Germany (© Reinhard Schmid/eStock Photo)|Info|![](/en-AU/2022/01/202201060800LakeKochelsee.jpg)|
 202201070800|FortedeSao|Fort of São Miguel Arcanjo, Nazaré, Portugal (© Richard A Lock/Getty Images)|Info|![](/en-AU/2022/01/202201070800FortedeSao.jpg)|
 202201080800|WinterBison|American bison, Yellowstone National Park, Wyoming, USA (© Steve Gettle/Minden Pictures)|Info|![](/en-AU/2022/01/202201080800WinterBison.jpg)|
+202201090800|RiceBangladesh|Rice field, Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2022/01/202201090800RiceBangladesh.jpg)|

@@ -9,3 +9,4 @@
 202201060800|LakeKochelsee|Kochelsee and Heimgarten Mountain in Bavaria, Germany (© Reinhard Schmid/eStock Photo)|Cold winter days on Kochelsee|![](/en-US/2022/01/202201060800LakeKochelsee.jpg)|
 202201070800|FortedeSao|Nazaré Lighthouse atop Forte de São Miguel Arcanjo, Nazaré, Portugal (© Richard A Lock/Getty Images)|How do you say 'gnarly' in Nazaré?|![](/en-US/2022/01/202201070800FortedeSao.jpg)|
 202201080800|WinterBison|American bison in Yellowstone National Park, Wyoming (© Steve Gettle/Minden Pictures)|Bundle up, bison|![](/en-US/2022/01/202201080800WinterBison.jpg)|
+202201090800|RiceBangladesh|Rice laid out to dry in Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Rice basking in the sun|![](/en-US/2022/01/202201090800RiceBangladesh.jpg)|
