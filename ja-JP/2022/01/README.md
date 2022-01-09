@@ -9,3 +9,4 @@
 202201061500|FortedeSao|ナザレ灯台とビック・ウェーブ, ポルトガル (© Richard A Lock/Getty Images)|コスタ・デ・プラタの高波|![](/ja-JP/2022/01/202201061500FortedeSao.jpg)|
 202201071500|WinterBison|雪の中のアメリカバイソン, 米国 ワイオミング州 (© Steve Gettle/Minden Pictures)|イエローストーン国立公園のバイソン|![](/ja-JP/2022/01/202201071500WinterBison.jpg)|
 202201081500|SnowyPrague|プラハの夜景, チェコ (© benkrut/Getty Images)|世界遺産の雪景色|![](/ja-JP/2022/01/202201081500SnowyPrague.jpg)|
+202201091500|SkiTouring|ホーエ・タウエルンのスキーヤー, オーストリア (© RooM the Agency/Alamy)|オーストリア・アルプスでアルペンスキー|![](/ja-JP/2022/01/202201091500SkiTouring.jpg)|
