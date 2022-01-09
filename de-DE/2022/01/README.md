@@ -9,3 +9,4 @@
 202201062300|FortedeSao|Leuchtturm von Nazaré auf dem Forte de São, Nazaré, Portugal (© Richard A Lock/Getty Images)|Epische Wellen in Portugal|![](/de-DE/2022/01/202201062300FortedeSao.jpg)|
 202201072300|WinterBison|Amerikanischer Bison im Yellowstone-Nationalpark, Wyoming, USA (© Steve Gettle/Minden Pictures)|Zieh dich warm an, Bison!|![](/de-DE/2022/01/202201072300WinterBison.jpg)|
 202201082300|RiceBangladesh|Zum Trocknen ausgelegter Reis in Dhamrai, Dhaka, Bangladesch (© Amazing Aerial Agency/Offset by Shutterstock)|Baby, es gibt Reis!|![](/de-DE/2022/01/202201082300RiceBangladesh.jpg)|
+202201092300|SkiTouring|Skitourengeher in den Hohen Tauern bei Bad Gastein, Österreich (© RooM the Agency/Alamy)|Skitourengeher in Österreich|![](/de-DE/2022/01/202201092300SkiTouring.jpg)|

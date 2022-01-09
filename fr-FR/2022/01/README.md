@@ -9,3 +9,4 @@
 202201062300|FortedeSao|Phare du fort de São Miguel Arcanjo, Nazaré, Portugal (© Richard A Lock/Getty Images)|Contre vents et marées|![](/fr-FR/2022/01/202201062300FortedeSao.jpg)|
 202201072300|GrandeOdyssee|Vue depuis un traîneau tiré par des chiens au milieux des montagnes, Les Cabannes, Occitanie, France (© Cavan Images/Alamy Stock Photo)|La Grande Odyssée|![](/fr-FR/2022/01/202201072300GrandeOdyssee.jpg)|
 202201082300|RiceBangladesh|Des travailleurs étalent le riz pour le faire sécher, Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Culture du riz|![](/fr-FR/2022/01/202201082300RiceBangladesh.jpg)|
+202201092300|SkiTouring|Ski de randonnée dans les Hohe Tauern près de Bad Gastein, Autriche (© RooM the Agency/Alamy)|Ski de rando dans les Hohe Tauern|![](/fr-FR/2022/01/202201092300SkiTouring.jpg)|
