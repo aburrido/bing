@@ -10,3 +10,4 @@
 202201070500|ChickadeeNS|Mésange à tête noire dans une tempête de neige, Nouvelle-Écosse (© Scott Leslie/Minden Pictures)||![](/fr-CA/2022/01/202201070500ChickadeeNS.jpg)|
 202201080500|WinterBison|Bison d’Amérique du Nord dans le parc national de Yellowstone, Wyoming, États-Unis (© Steve Gettle/Minden Pictures)||![](/fr-CA/2022/01/202201080500WinterBison.jpg)|
 202201090500|RiceBangladesh|Travailleurs étalant le riz pour le faire sécher, Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)||![](/fr-CA/2022/01/202201090500RiceBangladesh.jpg)|
+202201100500|WhistlerSkier|Skieur négociant un virage sur la neige immaculée à Whistler, B.C. (© stockstudioX/Getty Images)||![](/fr-CA/2022/01/202201100500WhistlerSkier.jpg)|
