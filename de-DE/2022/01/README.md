@@ -10,3 +10,4 @@
 202201072300|WinterBison|Amerikanischer Bison im Yellowstone-Nationalpark, Wyoming, USA (© Steve Gettle/Minden Pictures)|Zieh dich warm an, Bison!|![](/de-DE/2022/01/202201072300WinterBison.jpg)|
 202201082300|RiceBangladesh|Zum Trocknen ausgelegter Reis in Dhamrai, Dhaka, Bangladesch (© Amazing Aerial Agency/Offset by Shutterstock)|Baby, es gibt Reis!|![](/de-DE/2022/01/202201082300RiceBangladesh.jpg)|
 202201092300|SkiTouring|Skitourengeher in den Hohen Tauern bei Bad Gastein, Österreich (© RooM the Agency/Alamy)|Skitourengeher in Österreich|![](/de-DE/2022/01/202201092300SkiTouring.jpg)|
+202201102300|PorcupineWillow|Baumstachler auf einem Weidenbaumzweig, Alaska, USA (© Design Pics/Danita Delimont)|Abhängen in Alaska|![](/de-DE/2022/01/202201102300PorcupineWillow.jpg)|
