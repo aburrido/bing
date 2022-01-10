@@ -10,3 +10,4 @@
 202201071500|WinterBison|雪の中のアメリカバイソン, 米国 ワイオミング州 (© Steve Gettle/Minden Pictures)|イエローストーン国立公園のバイソン|![](/ja-JP/2022/01/202201071500WinterBison.jpg)|
 202201081500|SnowyPrague|プラハの夜景, チェコ (© benkrut/Getty Images)|世界遺産の雪景色|![](/ja-JP/2022/01/202201081500SnowyPrague.jpg)|
 202201091500|SkiTouring|ホーエ・タウエルンのスキーヤー, オーストリア (© RooM the Agency/Alamy)|オーストリア・アルプスでアルペンスキー|![](/ja-JP/2022/01/202201091500SkiTouring.jpg)|
+202201101500|PorcupineWillow|ヤナギの枝とアメリカヤマアラシ, 米国 アラスカ州 (© Design Pics/Danita Delimont)|アメリカヤマアラシの冬支度|![](/ja-JP/2022/01/202201101500PorcupineWillow.jpg)|
