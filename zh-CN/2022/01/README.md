@@ -10,3 +10,4 @@
 202201071600|WinterBison|黄石国家公园的美洲野牛，美国怀俄明州 (© Steve Gettle/Minden Pictures)||![](/zh-CN/2022/01/202201071600WinterBison.jpg)|
 202201081600|RiceBangladesh|正在晾晒的大米，孟加拉国达卡 (© Amazing Aerial Agency/Offset by Shutterstock)||![](/zh-CN/2022/01/202201081600RiceBangladesh.jpg)|
 202201091600|SkiTouring|在高地陶恩山脉的滑雪旅行，奥地利巴德加斯坦 (© RooM the Agency/Alamy)||![](/zh-CN/2022/01/202201091600SkiTouring.jpg)|
+202201101600|PorcupineWillow|爬上柳树枝头的豪猪，美国阿拉斯加 (© Design Pics/Danita Delimont)||![](/zh-CN/2022/01/202201101600PorcupineWillow.jpg)|
