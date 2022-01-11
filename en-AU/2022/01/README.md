@@ -11,3 +11,4 @@
 202201080800|WinterBison|American bison, Yellowstone National Park, Wyoming, USA (© Steve Gettle/Minden Pictures)|Info|![](/en-AU/2022/01/202201080800WinterBison.jpg)|
 202201090800|RiceBangladesh|Rice field, Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Info|![](/en-AU/2022/01/202201090800RiceBangladesh.jpg)|
 202201100800|SkiTouring|Ski touring, High Tauern mountain range, Austria (© RooM the Agency/Alamy)|Info|![](/en-AU/2022/01/202201100800SkiTouring.jpg)|
+202201110800|PorcupineWillow|Porcupine, Alaska, USA (© Design Pics/Danita Delimont)|Info|![](/en-AU/2022/01/202201110800PorcupineWillow.jpg)|
