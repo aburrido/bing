@@ -11,3 +11,4 @@
 202201080500|WinterBison|American bison in Yellowstone National Park, Wyoming (© Steve Gettle/Minden Pictures)|Bundle up, bison|![](/en-CA/2022/01/202201080500WinterBison.jpg)|
 202201090500|RiceBangladesh|Rice laid out to dry in Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Have a rice day|![](/en-CA/2022/01/202201090500RiceBangladesh.jpg)|
 202201100500|WhistlerSkier|Skier making a turn in pristine snow in Whistler, B.C. (© stockstudioX/Getty Images)|Destination adrenaline|![](/en-CA/2022/01/202201100500WhistlerSkier.jpg)|
+202201110500|PorcupineWillow|Porcupine hangs on a willow tree branch, Alaska (© Design Pics/Danita Delimont)|Psycho quiller!|![](/en-CA/2022/01/202201110500PorcupineWillow.jpg)|
