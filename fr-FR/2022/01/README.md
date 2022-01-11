@@ -11,3 +11,4 @@
 202201082300|RiceBangladesh|Des travailleurs étalent le riz pour le faire sécher, Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Culture du riz|![](/fr-FR/2022/01/202201082300RiceBangladesh.jpg)|
 202201092300|SkiTouring|Ski de randonnée dans les Hohe Tauern près de Bad Gastein, Autriche (© RooM the Agency/Alamy)|Ski de rando dans les Hohe Tauern|![](/fr-FR/2022/01/202201092300SkiTouring.jpg)|
 202201102300|PorcupineWillow|Un porc-épic sur une branche de saule en Alaska (© Design Pics/Danita Delimont)|Qui s’y frotte s’y pique !|![](/fr-FR/2022/01/202201102300PorcupineWillow.jpg)|
+202201112300|FanjingStairs|Mont Fanjing dans le sud-ouest de la Chine (© zhuxiaophotography/Shutterstock)|Au-dessus des nuages|![](/fr-FR/2022/01/202201112300FanjingStairs.jpg)|
