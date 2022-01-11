@@ -11,3 +11,4 @@
 202201081500|SnowyPrague|プラハの夜景, チェコ (© benkrut/Getty Images)|世界遺産の雪景色|![](/ja-JP/2022/01/202201081500SnowyPrague.jpg)|
 202201091500|SkiTouring|ホーエ・タウエルンのスキーヤー, オーストリア (© RooM the Agency/Alamy)|オーストリア・アルプスでアルペンスキー|![](/ja-JP/2022/01/202201091500SkiTouring.jpg)|
 202201101500|PorcupineWillow|ヤナギの枝とアメリカヤマアラシ, 米国 アラスカ州 (© Design Pics/Danita Delimont)|アメリカヤマアラシの冬支度|![](/ja-JP/2022/01/202201101500PorcupineWillow.jpg)|
+202201111500|FanjingStairs|梵浄山, 中国 貴州省 (© zhuxiaophotography/Shutterstock)|中国貴州省の世界遺産|![](/ja-JP/2022/01/202201111500FanjingStairs.jpg)|
