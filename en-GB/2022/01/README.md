@@ -11,3 +11,4 @@
 202201090000|RiceBangladesh|Rice laid out to dry in Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)|Sun-dried rice|![](/en-GB/2022/01/202201090000RiceBangladesh.jpg)|
 202201100000|SkiTouring|Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)|Off-piste in Austria|![](/en-GB/2022/01/202201100000SkiTouring.jpg)|
 202201110000|PorcupineWillow|Porcupine hangs on a willow tree branch, Alaska, USA (© Design Pics/Danita Delimont)|Quills in the willow|![](/en-GB/2022/01/202201110000PorcupineWillow.jpg)|
+202201120000|FanjingStairs|Mount Fanjing in south-west China (© zhuxiaophotography/Shutterstock)|Building temples in the sky|![](/en-GB/2022/01/202201120000FanjingStairs.jpg)|
