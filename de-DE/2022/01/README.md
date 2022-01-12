@@ -12,3 +12,4 @@
 202201092300|SkiTouring|Skitourengeher in den Hohen Tauern bei Bad Gastein, Österreich (© RooM the Agency/Alamy)|Skitourengeher in Österreich|![](/de-DE/2022/01/202201092300SkiTouring.jpg)|
 202201102300|PorcupineWillow|Baumstachler auf einem Weidenbaumzweig, Alaska, USA (© Design Pics/Danita Delimont)|Abhängen in Alaska|![](/de-DE/2022/01/202201102300PorcupineWillow.jpg)|
 202201112300|LakeKochelsee|Kochelsee und der Gipfel des Heimgartens, Bayern, (© Reinhard Schmid/eStock Photo)|Kalte Wintertage am Kochelsee|![](/de-DE/2022/01/202201112300LakeKochelsee.jpg)|
+202201122300|TasiilaqAurora|Nordlicht über einem gestrandeten Boot in Tasiilaq, Grönland (© Shane P. White/Minden Pictures)|Wonach ist dieser Ort benannt?|![](/de-DE/2022/01/202201122300TasiilaqAurora.jpg)|
