@@ -12,3 +12,4 @@
 202201091500|SkiTouring|ホーエ・タウエルンのスキーヤー, オーストリア (© RooM the Agency/Alamy)|オーストリア・アルプスでアルペンスキー|![](/ja-JP/2022/01/202201091500SkiTouring.jpg)|
 202201101500|PorcupineWillow|ヤナギの枝とアメリカヤマアラシ, 米国 アラスカ州 (© Design Pics/Danita Delimont)|アメリカヤマアラシの冬支度|![](/ja-JP/2022/01/202201101500PorcupineWillow.jpg)|
 202201111500|FanjingStairs|梵浄山, 中国 貴州省 (© zhuxiaophotography/Shutterstock)|中国貴州省の世界遺産|![](/ja-JP/2022/01/202201111500FanjingStairs.jpg)|
+202201121500|TasiilaqAurora|タシーラクのオーロラ, グリーンランド (© Shane P. White/Minden Pictures)|グリーンランドの極光|![](/ja-JP/2022/01/202201121500TasiilaqAurora.jpg)|
