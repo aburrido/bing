@@ -13,3 +13,4 @@
 202201101600|PorcupineWillow|爬上柳树枝头的豪猪，美国阿拉斯加 (© Design Pics/Danita Delimont)||![](/zh-CN/2022/01/202201101600PorcupineWillow.jpg)|
 202201111600|FanjingStairs|梵净山，中国西南部 (© zhuxiaophotography/Shutterstock)||![](/zh-CN/2022/01/202201111600FanjingStairs.jpg)|
 202201121600|TasiilaqAurora|搁浅船只上空的极光，格陵兰岛塔西拉克 (© Shane P. White/Minden Pictures)||![](/zh-CN/2022/01/202201121600TasiilaqAurora.jpg)|
+202201131600|SaCalobra|通往萨卡洛布拉湾的路，西班牙马约卡岛 (© Tolo Balaguer/agefotostock)||![](/zh-CN/2022/01/202201131600SaCalobra.jpg)|
