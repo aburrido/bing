@@ -13,3 +13,4 @@
 202201100800|SkiTouring|Ski touring, High Tauern mountain range, Austria (© RooM the Agency/Alamy)|Info|![](/en-AU/2022/01/202201100800SkiTouring.jpg)|
 202201110800|PorcupineWillow|Porcupine, Alaska, USA (© Design Pics/Danita Delimont)|Info|![](/en-AU/2022/01/202201110800PorcupineWillow.jpg)|
 202201120800|FanjingStairs|Mount Fanjing, Guizhou province, China (© zhuxiaophotography/Shutterstock)|Info|![](/en-AU/2022/01/202201120800FanjingStairs.jpg)|
+202201130800|TasiilaqAurora|Aurora borealis, Tasiilaq, Greenland (© Shane P. White/Minden Pictures)|Info|![](/en-AU/2022/01/202201130800TasiilaqAurora.jpg)|

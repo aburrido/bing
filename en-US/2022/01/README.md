@@ -13,3 +13,4 @@
 202201100800|SkiTouring|Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)|Winter in the backcountry|![](/en-US/2022/01/202201100800SkiTouring.jpg)|
 202201110800|PorcupineWillow|A porcupine hangs on a willow tree branch, Alaska (© Design Pics/Danita Delimont)|Psycho quiller!|![](/en-US/2022/01/202201110800PorcupineWillow.jpg)|
 202201120800|FanjingStairs|Mount Fanjing in southwest China (© zhuxiaophotography/Shutterstock)|Cloudy with a chance of enlightenment|![](/en-US/2022/01/202201120800FanjingStairs.jpg)|
+202201130800|TasiilaqAurora|Northern lights over a stranded boat in Tasiilaq, Greenland (© Shane P. White/Minden Pictures)|Northern lights aglow|![](/en-US/2022/01/202201130800TasiilaqAurora.jpg)|
