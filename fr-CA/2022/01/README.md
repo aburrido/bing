@@ -13,3 +13,4 @@
 202201100500|WhistlerSkier|Skieur négociant un virage sur la neige immaculée à Whistler, B.C. (© stockstudioX/Getty Images)||![](/fr-CA/2022/01/202201100500WhistlerSkier.jpg)|
 202201110500|PorcupineWillow|Un porc-épic sur une branche de saule en Alaska (© Design Pics/Danita Delimont)||![](/fr-CA/2022/01/202201110500PorcupineWillow.jpg)|
 202201120500|FanjingStairs|Mont Fanjing dans le sud-ouest de la Chine (© zhuxiaophotography/Shutterstock)||![](/fr-CA/2022/01/202201120500FanjingStairs.jpg)|
+202201130500|TasiilaqAurora|Aurores polaires au-dessus d’un bateau échoué à Tasiilaq, Groenland (© Shane P. White/Minden Pictures)||![](/fr-CA/2022/01/202201130500TasiilaqAurora.jpg)|
