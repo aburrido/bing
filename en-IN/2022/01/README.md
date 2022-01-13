@@ -13,3 +13,4 @@
 202201101830|PorcupineWillow|Porcupine hangs on a willow tree branch, Alaska (© Design Pics/Danita Delimont)|Psycho quiller!|![](/en-IN/2022/01/202201101830PorcupineWillow.jpg)|
 202201111830|FanjingStairs|Mount Fanjing in southwest China (© zhuxiaophotography/Shutterstock)|Cloudy with a chance of enlightenment|![](/en-IN/2022/01/202201111830FanjingStairs.jpg)|
 202201121830|IndianDhol|Musician playing a traditional Indian dhol (© Nelson Art/Alamy Stock Photo)|Dancing to the beats of dhol|![](/en-IN/2022/01/202201121830IndianDhol.jpg)|
+202201131830|SaCalobra|The road leading to Sa Calobra on the Spanish Balearic island of Majorca (© Tolo Balaguer/agefotostock)|Majorca has its ups and downs|![](/en-IN/2022/01/202201131830SaCalobra.jpg)|
