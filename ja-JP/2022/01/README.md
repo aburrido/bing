@@ -13,3 +13,4 @@
 202201101500|PorcupineWillow|ヤナギの枝とアメリカヤマアラシ, 米国 アラスカ州 (© Design Pics/Danita Delimont)|アメリカヤマアラシの冬支度|![](/ja-JP/2022/01/202201101500PorcupineWillow.jpg)|
 202201111500|FanjingStairs|梵浄山, 中国 貴州省 (© zhuxiaophotography/Shutterstock)|中国貴州省の世界遺産|![](/ja-JP/2022/01/202201111500FanjingStairs.jpg)|
 202201121500|TasiilaqAurora|タシーラクのオーロラ, グリーンランド (© Shane P. White/Minden Pictures)|グリーンランドの極光|![](/ja-JP/2022/01/202201121500TasiilaqAurora.jpg)|
+202201131500|SaCalobra|サ・カロブラへの峠道, スペイン マヨルカ島 (© Tolo Balaguer/agefotostock)|マヨルカ島の峠道|![](/ja-JP/2022/01/202201131500SaCalobra.jpg)|
