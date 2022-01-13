@@ -13,3 +13,4 @@
 202201102300|PorcupineWillow|Un porc-épic sur une branche de saule en Alaska (© Design Pics/Danita Delimont)|Qui s’y frotte s’y pique !|![](/fr-FR/2022/01/202201102300PorcupineWillow.jpg)|
 202201112300|FanjingStairs|Mont Fanjing dans le sud-ouest de la Chine (© zhuxiaophotography/Shutterstock)|Au-dessus des nuages|![](/fr-FR/2022/01/202201112300FanjingStairs.jpg)|
 202201122300|TasiilaqAurora|Aurores polaires au-dessus d’un bateau échoué à Tasiilaq, Groenland (© Shane P. White/Minden Pictures)|Lumières du nord|![](/fr-FR/2022/01/202201122300TasiilaqAurora.jpg)|
+202201132300|SaCalobra|Route menant à Sa Calobra sur l’île de Majorque, Baléares, Espagne (© Tolo Balaguer/agefotostock)|Rien ne sert de courir|![](/fr-FR/2022/01/202201132300SaCalobra.jpg)|
