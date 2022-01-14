@@ -14,3 +14,4 @@
 202201111500|FanjingStairs|梵浄山, 中国 貴州省 (© zhuxiaophotography/Shutterstock)|中国貴州省の世界遺産|![](/ja-JP/2022/01/202201111500FanjingStairs.jpg)|
 202201121500|TasiilaqAurora|タシーラクのオーロラ, グリーンランド (© Shane P. White/Minden Pictures)|グリーンランドの極光|![](/ja-JP/2022/01/202201121500TasiilaqAurora.jpg)|
 202201131500|SaCalobra|サ・カロブラへの峠道, スペイン マヨルカ島 (© Tolo Balaguer/agefotostock)|マヨルカ島の峠道|![](/ja-JP/2022/01/202201131500SaCalobra.jpg)|
+202201141500|BoguraChili|唐辛子の選定, バングラデシュ ボグラ (© Amazing Aerial Agency/Offset/Shutterstock)|コロンブスが唐辛子に出会った日|![](/ja-JP/2022/01/202201141500BoguraChili.jpg)|
