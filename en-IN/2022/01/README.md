@@ -14,3 +14,4 @@
 202201111830|FanjingStairs|Mount Fanjing in southwest China (© zhuxiaophotography/Shutterstock)|Cloudy with a chance of enlightenment|![](/en-IN/2022/01/202201111830FanjingStairs.jpg)|
 202201121830|IndianDhol|Musician playing a traditional Indian dhol (© Nelson Art/Alamy Stock Photo)|Dancing to the beats of dhol|![](/en-IN/2022/01/202201121830IndianDhol.jpg)|
 202201131830|SaCalobra|The road leading to Sa Calobra on the Spanish Balearic island of Majorca (© Tolo Balaguer/agefotostock)|Majorca has its ups and downs|![](/en-IN/2022/01/202201131830SaCalobra.jpg)|
+202201141830|BigHole|To Sua Ocean Trench on the south coast of Upolu Island in Samoa (© Chris McLennan/Alamy)|A crown jewel in the Pacific Islands|![](/en-IN/2022/01/202201141830BigHole.jpg)|
