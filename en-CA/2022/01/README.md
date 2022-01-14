@@ -14,3 +14,4 @@
 202201110500|PorcupineWillow|Porcupine hangs on a willow tree branch, Alaska (© Design Pics/Danita Delimont)|Psycho quiller!|![](/en-CA/2022/01/202201110500PorcupineWillow.jpg)|
 202201120500|FanjingStairs|Mount Fanjing in southwest China (© zhuxiaophotography/Shutterstock)|Cloudy with a chance of enlightenment|![](/en-CA/2022/01/202201120500FanjingStairs.jpg)|
 202201130500|TasiilaqAurora|Northern lights over a stranded boat in Tasiilaq, Greenland (© Shane P. White/Minden Pictures)|Is this place named for the aurora's glow?|![](/en-CA/2022/01/202201130500TasiilaqAurora.jpg)|
+202201140500|SaCalobra|The road leading to Sa Calobra on the Spanish Balearic island of Majorca (© Tolo Balaguer/agefotostock)|Majorca has its ups and downs|![](/en-CA/2022/01/202201140500SaCalobra.jpg)|
