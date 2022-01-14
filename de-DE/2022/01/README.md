@@ -14,3 +14,4 @@
 202201112300|LakeKochelsee|Kochelsee und der Gipfel des Heimgartens, Bayern, (© Reinhard Schmid/eStock Photo)|Kalte Wintertage am Kochelsee|![](/de-DE/2022/01/202201112300LakeKochelsee.jpg)|
 202201122300|TasiilaqAurora|Nordlicht über einem gestrandeten Boot in Tasiilaq, Grönland (© Shane P. White/Minden Pictures)|Wonach ist dieser Ort benannt?|![](/de-DE/2022/01/202201122300TasiilaqAurora.jpg)|
 202201132300|SaCalobra|Straße nach Sa Calobra auf der spanischen Baleareninsel Mallorca (© Tolo Balaguer/agefotostock)|Mallorca hat Höhen und Tiefen|![](/de-DE/2022/01/202201132300SaCalobra.jpg)|
+202201142300|BigHole|To Sua Ocean Trench an der Südküste der Insel Upolu in Samoa (© Chris McLennan/Alamy)|Ein Kronjuwel im Pazifik|![](/de-DE/2022/01/202201142300BigHole.jpg)|
