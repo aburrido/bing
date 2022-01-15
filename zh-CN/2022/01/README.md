@@ -15,3 +15,4 @@
 202201121600|TasiilaqAurora|搁浅船只上空的极光，格陵兰岛塔西拉克 (© Shane P. White/Minden Pictures)||![](/zh-CN/2022/01/202201121600TasiilaqAurora.jpg)|
 202201131600|SaCalobra|通往萨卡洛布拉湾的路，西班牙马约卡岛 (© Tolo Balaguer/agefotostock)||![](/zh-CN/2022/01/202201131600SaCalobra.jpg)|
 202201141600|BigHole|苏阿海沟，萨摩亚乌波卢岛南海岸 (© Chris McLennan/Alamy)||![](/zh-CN/2022/01/202201141600BigHole.jpg)|
+202201151600|BoguraChili|农场上晾晒的红辣椒，孟加拉国博格拉县 (© Amazing Aerial Agency/Offset/Shutterstock)||![](/zh-CN/2022/01/202201151600BoguraChili.jpg)|
