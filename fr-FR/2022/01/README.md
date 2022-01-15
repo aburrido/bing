@@ -15,3 +15,4 @@
 202201122300|TasiilaqAurora|Aurores polaires au-dessus d’un bateau échoué à Tasiilaq, Groenland (© Shane P. White/Minden Pictures)|Lumières du nord|![](/fr-FR/2022/01/202201122300TasiilaqAurora.jpg)|
 202201132300|SaCalobra|Route menant à Sa Calobra sur l’île de Majorque, Baléares, Espagne (© Tolo Balaguer/agefotostock)|Rien ne sert de courir|![](/fr-FR/2022/01/202201132300SaCalobra.jpg)|
 202201142300|BigHole|To Sua Ocean Trench sur la côte sud de l’île d’Upolu, État indépendant des Samoa (© Chris McLennan/Alamy)|Plouf !|![](/fr-FR/2022/01/202201142300BigHole.jpg)|
+202201152300|BoguraChili|Tri des piments dans un champ à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|Ça pique !|![](/fr-FR/2022/01/202201152300BoguraChili.jpg)|
