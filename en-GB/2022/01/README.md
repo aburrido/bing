@@ -14,3 +14,4 @@
 202201120000|FanjingStairs|Mount Fanjing in south-west China (© zhuxiaophotography/Shutterstock)|Building temples in the sky|![](/en-GB/2022/01/202201120000FanjingStairs.jpg)|
 202201130000|TasiilaqAurora|Northern Lights over a stranded boat in Tasiilaq, Greenland (© Shane P. White/Minden Pictures)|Emerald skies over Greenland|![](/en-GB/2022/01/202201130000TasiilaqAurora.jpg)|
 202201140000|SaCalobra|The road leading to Sa Calobra, Majorca (© Tolo Balaguer/agefotostock)|The ups and downs of Majorca|![](/en-GB/2022/01/202201140000SaCalobra.jpg)|
+202201150000|BigHole|To Sua Ocean Trench on the south coast of Upolu Island in Samoa (© Chris McLennan/Alamy)|An inland ocean|![](/en-GB/2022/01/202201150000BigHole.jpg)|
