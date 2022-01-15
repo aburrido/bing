@@ -15,3 +15,4 @@
 202201120800|FanjingStairs|Mount Fanjing, Guizhou province, China (© zhuxiaophotography/Shutterstock)|Info|![](/en-AU/2022/01/202201120800FanjingStairs.jpg)|
 202201130800|TasiilaqAurora|Aurora borealis, Tasiilaq, Greenland (© Shane P. White/Minden Pictures)|Info|![](/en-AU/2022/01/202201130800TasiilaqAurora.jpg)|
 202201140800|SaCalobra|Road to Sa Calobra, Majorca, Spain (© Tolo Balaguer/agefotostock)|Info|![](/en-AU/2022/01/202201140800SaCalobra.jpg)|
+202201150800|BigHole|To Sua Ocean Trench, Upolu island, Samoa (© Chris McLennan/Alamy)|Info|![](/en-AU/2022/01/202201150800BigHole.jpg)|
