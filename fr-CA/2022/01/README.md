@@ -15,3 +15,4 @@
 202201120500|FanjingStairs|Mont Fanjing dans le sud-ouest de la Chine (© zhuxiaophotography/Shutterstock)||![](/fr-CA/2022/01/202201120500FanjingStairs.jpg)|
 202201130500|TasiilaqAurora|Aurores polaires au-dessus d’un bateau échoué à Tasiilaq, Groenland (© Shane P. White/Minden Pictures)||![](/fr-CA/2022/01/202201130500TasiilaqAurora.jpg)|
 202201140500|SaCalobra|La route menant à Sa Calobra sur l'île espagnole de Majorque dans les Baléares (© Tolo Balaguer/agefotostock)||![](/fr-CA/2022/01/202201140500SaCalobra.jpg)|
+202201150500|BigHole|Une piscine naturelle sur la côte sud de l'île d'Upolu aux Samoa (© Chris McLennan/Alamy)||![](/fr-CA/2022/01/202201150500BigHole.jpg)|
