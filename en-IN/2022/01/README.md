@@ -16,3 +16,4 @@
 202201131830|SaCalobra|The road leading to Sa Calobra on the Spanish Balearic island of Majorca (© Tolo Balaguer/agefotostock)|Majorca has its ups and downs|![](/en-IN/2022/01/202201131830SaCalobra.jpg)|
 202201141830|BigHole|To Sua Ocean Trench on the south coast of Upolu Island in Samoa (© Chris McLennan/Alamy)|A crown jewel in the Pacific Islands|![](/en-IN/2022/01/202201141830BigHole.jpg)|
 202201151830|BoguraChili|Sorting chili peppers at a farm in Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|An extra-spicy extravaganza|![](/en-IN/2022/01/202201151830BoguraChili.jpg)|
+202201161830|RydalWater|Rydal Water in the Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Winter on Rydal Water|![](/en-IN/2022/01/202201161830RydalWater.jpg)|
