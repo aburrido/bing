@@ -16,3 +16,4 @@
 202201131500|SaCalobra|サ・カロブラへの峠道, スペイン マヨルカ島 (© Tolo Balaguer/agefotostock)|マヨルカ島の峠道|![](/ja-JP/2022/01/202201131500SaCalobra.jpg)|
 202201141500|BoguraChili|唐辛子の選定, バングラデシュ ボグラ (© Amazing Aerial Agency/Offset/Shutterstock)|コロンブスが唐辛子に出会った日|![](/ja-JP/2022/01/202201141500BoguraChili.jpg)|
 202201151500|BigHole|トスア・オーシャン・トレンチ, サモア ウポル島 (© Chris McLennan/Alamy)|ウポル島の天然海水プール|![](/ja-JP/2022/01/202201151500BigHole.jpg)|
+202201161500|RydalWater|ライダル湖, イギリス カンブリア郡 (© Tranquillian1/iStock/Getty Images Plus)|イギリス湖水地方の冬景色|![](/ja-JP/2022/01/202201161500RydalWater.jpg)|
