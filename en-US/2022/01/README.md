@@ -16,3 +16,4 @@
 202201130800|TasiilaqAurora|Northern lights over a stranded boat in Tasiilaq, Greenland (© Shane P. White/Minden Pictures)|Northern lights aglow|![](/en-US/2022/01/202201130800TasiilaqAurora.jpg)|
 202201140800|SaCalobra|The road leading to Sa Calobra on the Spanish Balearic island of Majorca (© Tolo Balaguer/agefotostock)|Majorca has its ups and downs|![](/en-US/2022/01/202201140800SaCalobra.jpg)|
 202201150800|BigHole|To Sua Ocean Trench on the south coast of Upolu Island in Samoa (© Chris McLennan/Alamy)|A crown jewel in the Pacific|![](/en-US/2022/01/202201150800BigHole.jpg)|
+202201160800|BoguraChili|Sorting chili peppers at a farm in Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|An extra-spicy extravaganza|![](/en-US/2022/01/202201160800BoguraChili.jpg)|
