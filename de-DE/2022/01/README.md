@@ -16,3 +16,4 @@
 202201132300|SaCalobra|Straße nach Sa Calobra auf der spanischen Baleareninsel Mallorca (© Tolo Balaguer/agefotostock)|Mallorca hat Höhen und Tiefen|![](/de-DE/2022/01/202201132300SaCalobra.jpg)|
 202201142300|BigHole|To Sua Ocean Trench an der Südküste der Insel Upolu in Samoa (© Chris McLennan/Alamy)|Ein Kronjuwel im Pazifik|![](/de-DE/2022/01/202201142300BigHole.jpg)|
 202201152300|BoguraChili|Ernte von Chilischoten auf einer Farm in Bogra, Bangladesch (© Amazing Aerial Agency/Offset/Shutterstock)|Eine besonders würzige Spezialität|![](/de-DE/2022/01/202201152300BoguraChili.jpg)|
+202201162300|RydalWater|Rydal Water im Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Frostiger Montag|![](/de-DE/2022/01/202201162300RydalWater.jpg)|

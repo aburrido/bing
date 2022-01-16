@@ -16,3 +16,4 @@
 202201132300|SaCalobra|Route menant à Sa Calobra sur l’île de Majorque, Baléares, Espagne (© Tolo Balaguer/agefotostock)|Rien ne sert de courir|![](/fr-FR/2022/01/202201132300SaCalobra.jpg)|
 202201142300|BigHole|To Sua Ocean Trench sur la côte sud de l’île d’Upolu, État indépendant des Samoa (© Chris McLennan/Alamy)|Plouf !|![](/fr-FR/2022/01/202201142300BigHole.jpg)|
 202201152300|BoguraChili|Tri des piments dans un champ à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|Ça pique !|![](/fr-FR/2022/01/202201152300BoguraChili.jpg)|
+202201162300|WinterAubrac|Église Notre-Dame-des-Pauvres, Aubrac, Aveyron (© CAVALIER Michel/hemis.fr/Alamy photo stock)|Sur la route de Compostelle|![](/fr-FR/2022/01/202201162300WinterAubrac.jpg)|
