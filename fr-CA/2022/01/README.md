@@ -17,3 +17,4 @@
 202201140500|SaCalobra|La route menant à Sa Calobra sur l'île espagnole de Majorque dans les Baléares (© Tolo Balaguer/agefotostock)||![](/fr-CA/2022/01/202201140500SaCalobra.jpg)|
 202201150500|BigHole|Une piscine naturelle sur la côte sud de l'île d'Upolu aux Samoa (© Chris McLennan/Alamy)||![](/fr-CA/2022/01/202201150500BigHole.jpg)|
 202201160500|BoguraChili|Triage de piments dans une ferme à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)||![](/fr-CA/2022/01/202201160500BoguraChili.jpg)|
+202201170500|TorontoWinter|Vue aérienne du paysage urbain de Toronto par un matin d'hiver (© Katrin Ray Shumakov/Getty Images)||![](/fr-CA/2022/01/202201170500TorontoWinter.jpg)|
