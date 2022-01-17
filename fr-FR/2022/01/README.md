@@ -17,3 +17,4 @@
 202201142300|BigHole|To Sua Ocean Trench sur la côte sud de l’île d’Upolu, État indépendant des Samoa (© Chris McLennan/Alamy)|Plouf !|![](/fr-FR/2022/01/202201142300BigHole.jpg)|
 202201152300|BoguraChili|Tri des piments dans un champ à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|Ça pique !|![](/fr-FR/2022/01/202201152300BoguraChili.jpg)|
 202201162300|WinterAubrac|Église Notre-Dame-des-Pauvres, Aubrac, Aveyron (© CAVALIER Michel/hemis.fr/Alamy photo stock)|Sur la route de Compostelle|![](/fr-FR/2022/01/202201162300WinterAubrac.jpg)|
+202201172300|ApolloFountain|Le bassin d’Apollon sous la neige dans le parc du château de Versailles, photographié le 6 février 2018 (© FRANCOIS GUILLOT/AFP via Getty Images)|Toute la grandeur de Versailles|![](/fr-FR/2022/01/202201172300ApolloFountain.jpg)|
