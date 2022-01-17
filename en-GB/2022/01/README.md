@@ -16,3 +16,4 @@
 202201140000|SaCalobra|The road leading to Sa Calobra, Majorca (© Tolo Balaguer/agefotostock)|The ups and downs of Majorca|![](/en-GB/2022/01/202201140000SaCalobra.jpg)|
 202201150000|BigHole|To Sua Ocean Trench on the south coast of Upolu Island in Samoa (© Chris McLennan/Alamy)|An inland ocean|![](/en-GB/2022/01/202201150000BigHole.jpg)|
 202201160000|BoguraChili|Sorting chilli peppers at a farm in Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|An extra-spicy extravaganza|![](/en-GB/2022/01/202201160000BoguraChili.jpg)|
+202201170000|RydalWater|Rydal Water in the Lake District, Cumbria (© Tranquillian1/iStock/Getty Images Plus)|Winter on Rydal Water|![](/en-GB/2022/01/202201170000RydalWater.jpg)|
