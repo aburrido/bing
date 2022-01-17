@@ -17,3 +17,4 @@
 202201140800|SaCalobra|Road to Sa Calobra, Majorca, Spain (© Tolo Balaguer/agefotostock)|Info|![](/en-AU/2022/01/202201140800SaCalobra.jpg)|
 202201150800|BigHole|To Sua Ocean Trench, Upolu island, Samoa (© Chris McLennan/Alamy)|Info|![](/en-AU/2022/01/202201150800BigHole.jpg)|
 202201160800|BoguraChili|Chilli peppers, Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|Info|![](/en-AU/2022/01/202201160800BoguraChili.jpg)|
+202201170800|RydalWater|Rydal Water, Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Info|![](/en-AU/2022/01/202201170800RydalWater.jpg)|
