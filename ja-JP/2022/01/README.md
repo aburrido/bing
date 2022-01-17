@@ -17,3 +17,4 @@
 202201141500|BoguraChili|唐辛子の選定, バングラデシュ ボグラ (© Amazing Aerial Agency/Offset/Shutterstock)|コロンブスが唐辛子に出会った日|![](/ja-JP/2022/01/202201141500BoguraChili.jpg)|
 202201151500|BigHole|トスア・オーシャン・トレンチ, サモア ウポル島 (© Chris McLennan/Alamy)|ウポル島の天然海水プール|![](/ja-JP/2022/01/202201151500BigHole.jpg)|
 202201161500|RydalWater|ライダル湖, イギリス カンブリア郡 (© Tranquillian1/iStock/Getty Images Plus)|イギリス湖水地方の冬景色|![](/ja-JP/2022/01/202201161500RydalWater.jpg)|
+202201171500|BurghausenWinter|ザルツァハ川とブルクハウゼン, ドイツ バイエルン州 (© Harald Nachtmann/Moment/Getty Images)|バイエルンの世界一長い城|![](/ja-JP/2022/01/202201171500BurghausenWinter.jpg)|
