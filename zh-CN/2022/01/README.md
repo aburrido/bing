@@ -18,3 +18,4 @@
 202201151600|BoguraChili|农场上晾晒的红辣椒，孟加拉国博格拉县 (© Amazing Aerial Agency/Offset/Shutterstock)||![](/zh-CN/2022/01/202201151600BoguraChili.jpg)|
 202201161600|RydalWater|莱达尔湖, 英格兰坎布里亚郡湖区 (© Tranquillian1/iStock/Getty Images Plus)||![](/zh-CN/2022/01/202201161600RydalWater.jpg)|
 202201171600|BurghausenWinter|博格豪森镇和萨尔察赫河，德国巴伐利亚州 (© Harald Nachtmann/Moment/Getty Images)||![](/zh-CN/2022/01/202201171600BurghausenWinter.jpg)|
+202201181600|SaintElias|克卢恩国家公园保护区的山脉和冰川，加拿大育空地区 (© Design Pics Inc/Alamy)||![](/zh-CN/2022/01/202201181600SaintElias.jpg)|
