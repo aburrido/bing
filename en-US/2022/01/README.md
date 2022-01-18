@@ -18,3 +18,4 @@
 202201150800|BigHole|To Sua Ocean Trench on the south coast of Upolu Island in Samoa (© Chris McLennan/Alamy)|A crown jewel in the Pacific|![](/en-US/2022/01/202201150800BigHole.jpg)|
 202201160800|BoguraChili|Sorting chili peppers at a farm in Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|An extra-spicy extravaganza|![](/en-US/2022/01/202201160800BoguraChili.jpg)|
 202201170800|TarrMemorial|MLK memorial sculpture by William Tarr outside of Martin Luther King Jr. Educational Campus in New York City (© Randy Duchaine/Alamy)|It's MLK Day|![](/en-US/2022/01/202201170800TarrMemorial.jpg)|
+202201180800|AshdownForest|Ashdown Forest, home of Winnie-the-Pooh, England (© Mark Phillips/Alamy)|In a little corner of Hundred Acre Wood…|![](/en-US/2022/01/202201180800AshdownForest.jpg)|
