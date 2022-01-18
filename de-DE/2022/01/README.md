@@ -18,3 +18,4 @@
 202201152300|BoguraChili|Ernte von Chilischoten auf einer Farm in Bogra, Bangladesch (© Amazing Aerial Agency/Offset/Shutterstock)|Eine besonders würzige Spezialität|![](/de-DE/2022/01/202201152300BoguraChili.jpg)|
 202201162300|RydalWater|Rydal Water im Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Frostiger Montag|![](/de-DE/2022/01/202201162300RydalWater.jpg)|
 202201172300|BurghausenWinter|Burghausen an der Salzach, Bayern (© Harald Nachtmann/Moment/Getty Images)|Herzogstadt an der Salzach|![](/de-DE/2022/01/202201172300BurghausenWinter.jpg)|
+202201182300|SaintElias|Saint Elias Mountains und Kaskawulsh-Gletscher im Kluane-Nationalpark, Yukon, Kanada (© Design Pics Inc/Alamy)|Eisiges UNESCO-Weltnaturerbe|![](/de-DE/2022/01/202201182300SaintElias.jpg)|

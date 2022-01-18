@@ -18,3 +18,4 @@
 202201152300|BoguraChili|Tri des piments dans un champ à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|Ça pique !|![](/fr-FR/2022/01/202201152300BoguraChili.jpg)|
 202201162300|WinterAubrac|Église Notre-Dame-des-Pauvres, Aubrac, Aveyron (© CAVALIER Michel/hemis.fr/Alamy photo stock)|Sur la route de Compostelle|![](/fr-FR/2022/01/202201162300WinterAubrac.jpg)|
 202201172300|ApolloFountain|Le bassin d’Apollon sous la neige dans le parc du château de Versailles, photographié le 6 février 2018 (© FRANCOIS GUILLOT/AFP via Getty Images)|Toute la grandeur de Versailles|![](/fr-FR/2022/01/202201172300ApolloFountain.jpg)|
+202201182300|SaintElias|La chaîne Saint-Élie et le glacier Kaskawulsh Glacier dans le parc national et réserve de Kluane dans le Yukon, Canada (© Design Pics Inc/Alamy)|Chaussez vos patins !|![](/fr-FR/2022/01/202201182300SaintElias.jpg)|
