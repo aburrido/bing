@@ -18,3 +18,4 @@
 202201151830|BoguraChili|Sorting chili peppers at a farm in Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)|An extra-spicy extravaganza|![](/en-IN/2022/01/202201151830BoguraChili.jpg)|
 202201161830|RydalWater|Rydal Water in the Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Winter on Rydal Water|![](/en-IN/2022/01/202201161830RydalWater.jpg)|
 202201171830|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|The mighty fort at Jodhpur|![](/en-IN/2022/01/202201171830MehrangarhCourtyard.jpg)|
+202201181830|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon, Canada (© Design Pics Inc/Alamy)|A grand view of the great white north|![](/en-IN/2022/01/202201181830SaintElias.jpg)|
