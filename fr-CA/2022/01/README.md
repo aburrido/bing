@@ -18,3 +18,4 @@
 202201150500|BigHole|Une piscine naturelle sur la côte sud de l'île d'Upolu aux Samoa (© Chris McLennan/Alamy)||![](/fr-CA/2022/01/202201150500BigHole.jpg)|
 202201160500|BoguraChili|Triage de piments dans une ferme à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)||![](/fr-CA/2022/01/202201160500BoguraChili.jpg)|
 202201170500|TorontoWinter|Vue aérienne du paysage urbain de Toronto par un matin d'hiver (© Katrin Ray Shumakov/Getty Images)||![](/fr-CA/2022/01/202201170500TorontoWinter.jpg)|
+202201180500|ReindeerNWT|Une famille de caribous dans un paysage enneigé,Territoires du Nord-Ouest (© Geoffrey Reynaud/Getty Images)||![](/fr-CA/2022/01/202201180500ReindeerNWT.jpg)|
