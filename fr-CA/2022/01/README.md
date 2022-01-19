@@ -19,3 +19,4 @@
 202201160500|BoguraChili|Triage de piments dans une ferme à Bogra, Bangladesh (© Amazing Aerial Agency/Offset/Shutterstock)||![](/fr-CA/2022/01/202201160500BoguraChili.jpg)|
 202201170500|TorontoWinter|Vue aérienne du paysage urbain de Toronto par un matin d'hiver (© Katrin Ray Shumakov/Getty Images)||![](/fr-CA/2022/01/202201170500TorontoWinter.jpg)|
 202201180500|ReindeerNWT|Une famille de caribous dans un paysage enneigé,Territoires du Nord-Ouest (© Geoffrey Reynaud/Getty Images)||![](/fr-CA/2022/01/202201180500ReindeerNWT.jpg)|
+202201190500|SaintElias|La chaîne Saint-Élie et le glacier Kaskawulsh, Parc national Kluane, Yukon (© Design Pics Inc/Alamy)||![](/fr-CA/2022/01/202201190500SaintElias.jpg)|
