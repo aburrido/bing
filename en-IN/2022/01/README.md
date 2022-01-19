@@ -19,3 +19,4 @@
 202201161830|RydalWater|Rydal Water in the Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Winter on Rydal Water|![](/en-IN/2022/01/202201161830RydalWater.jpg)|
 202201171830|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|The mighty fort at Jodhpur|![](/en-IN/2022/01/202201171830MehrangarhCourtyard.jpg)|
 202201181830|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon, Canada (© Design Pics Inc/Alamy)|A grand view of the great white north|![](/en-IN/2022/01/202201181830SaintElias.jpg)|
+202201191830|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-IN/2022/01/202201191830GrahamAdelie.jpg)|
