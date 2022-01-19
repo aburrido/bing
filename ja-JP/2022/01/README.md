@@ -19,3 +19,4 @@
 202201161500|RydalWater|ライダル湖, イギリス カンブリア郡 (© Tranquillian1/iStock/Getty Images Plus)|イギリス湖水地方の冬景色|![](/ja-JP/2022/01/202201161500RydalWater.jpg)|
 202201171500|BurghausenWinter|ザルツァハ川とブルクハウゼン, ドイツ バイエルン州 (© Harald Nachtmann/Moment/Getty Images)|バイエルンの世界一長い城|![](/ja-JP/2022/01/202201171500BurghausenWinter.jpg)|
 202201181500|GrahamAdelie|アデリーペンギン, 南極半島 グラハム・パッセージ (© Nick Garbutt/Minden Pictures)|南極のアデリーペンギン|![](/ja-JP/2022/01/202201181500GrahamAdelie.jpg)|
+202201191500|MeotoIwa|夫婦岩, 三重県 伊勢市 (© Marco Gaiotti/plainpicture)|大寒の夫婦岩|![](/ja-JP/2022/01/202201191500MeotoIwa.jpg)|
