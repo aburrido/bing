@@ -20,3 +20,4 @@
 202201172300|BurghausenWinter|Burghausen an der Salzach, Bayern (© Harald Nachtmann/Moment/Getty Images)|Herzogstadt an der Salzach|![](/de-DE/2022/01/202201172300BurghausenWinter.jpg)|
 202201182300|SaintElias|Saint Elias Mountains und Kaskawulsh-Gletscher im Kluane-Nationalpark, Yukon, Kanada (© Design Pics Inc/Alamy)|Eisiges UNESCO-Weltnaturerbe|![](/de-DE/2022/01/202201182300SaintElias.jpg)|
 202201192300|GrahamAdelie|Adeliepinguin in der Graham Passage, Antarktische Halbinsel, Antarktika (© Nick Garbutt/Minden Pictures)|Frostige Grüße aus der Antarktis|![](/de-DE/2022/01/202201192300GrahamAdelie.jpg)|
+202201202300|HuggingDay|Ein Löwenjunges mit seiner Mutter im Wildreservat Sabi Sabi, Südafrika (© Andrew Coleman/Getty Images)|Zeit für eine Umarmung|![](/de-DE/2022/01/202201202300HuggingDay.jpg)|

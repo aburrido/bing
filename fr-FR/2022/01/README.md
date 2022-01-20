@@ -21,3 +21,4 @@
 202201182300|SaintElias|La chaîne Saint-Élie et le glacier Kaskawulsh Glacier dans le parc national et réserve de Kluane dans le Yukon, Canada (© Design Pics Inc/Alamy)|Chaussez vos patins !|![](/fr-FR/2022/01/202201182300SaintElias.jpg)|
 202201192300|GrahamAdelie|Manchot Adélie sur le passage de Graham, Péninsule Antarctique, Antarctique (© Nick Garbutt/Minden Pictures)|Don’t worry, be happy|![](/fr-FR/2022/01/202201192300GrahamAdelie.jpg)|
 ||||![](/fr-FR/2022/01/.jpg)|
+202201202300|HuggingDay|Un lionceau et une lionne dans la réserve privée de Sabi Sabi, Afrique du Sud (© Andrew Coleman/Getty Images)|Le meilleur câlin|![](/fr-FR/2022/01/202201202300HuggingDay.jpg)|
