@@ -20,3 +20,4 @@
 202201170800|RydalWater|Rydal Water, Lake District, Cumbria, England (© Tranquillian1/iStock/Getty Images Plus)|Info|![](/en-AU/2022/01/202201170800RydalWater.jpg)|
 202201180800|BurghausenWinter|Burghausen town and Salzach river, Bavaria, Germany (© Harald Nachtmann/Moment/Getty Images)|Info|![](/en-AU/2022/01/202201180800BurghausenWinter.jpg)|
 202201190800|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier, Kluane National Park and Reserve, Yukon, Canada (© Design Pics Inc/Alamy)|Info|![](/en-AU/2022/01/202201190800SaintElias.jpg)|
+202201200800|GrahamAdelie|Adélie penguin, Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Info|![](/en-AU/2022/01/202201200800GrahamAdelie.jpg)|
