@@ -20,3 +20,4 @@
 202201171600|BurghausenWinter|博格豪森镇和萨尔察赫河，德国巴伐利亚州 (© Harald Nachtmann/Moment/Getty Images)||![](/zh-CN/2022/01/202201171600BurghausenWinter.jpg)|
 202201181600|SaintElias|克卢恩国家公园保护区的山脉和冰川，加拿大育空地区 (© Design Pics Inc/Alamy)||![](/zh-CN/2022/01/202201181600SaintElias.jpg)|
 202201191600|GrahamAdelie|格雷厄姆海峡的阿德利企鹅，南极洲南极半岛 (© Nick Garbutt/Minden Pictures)||![](/zh-CN/2022/01/202201191600GrahamAdelie.jpg)|
+202201201600|HuggingDay|草丛中的母狮和它的幼崽，南非 (© Andrew Coleman/Getty Images)||![](/zh-CN/2022/01/202201201600HuggingDay.jpg)|
