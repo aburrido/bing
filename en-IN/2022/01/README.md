@@ -20,3 +20,4 @@
 202201171830|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|The mighty fort at Jodhpur|![](/en-IN/2022/01/202201171830MehrangarhCourtyard.jpg)|
 202201181830|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon, Canada (© Design Pics Inc/Alamy)|A grand view of the great white north|![](/en-IN/2022/01/202201181830SaintElias.jpg)|
 202201191830|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-IN/2022/01/202201191830GrahamAdelie.jpg)|
+202201201830|HuggingDay|A lion cub and mother in Sabi Sabi Game Reserve, South Africa (© Andrew Coleman/Getty Images)|Who said bears do all the hugging?|![](/en-IN/2022/01/202201201830HuggingDay.jpg)|
