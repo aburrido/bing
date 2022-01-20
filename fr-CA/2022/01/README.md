@@ -21,3 +21,4 @@
 202201180500|ReindeerNWT|Une famille de caribous dans un paysage enneigé,Territoires du Nord-Ouest (© Geoffrey Reynaud/Getty Images)||![](/fr-CA/2022/01/202201180500ReindeerNWT.jpg)|
 202201190500|SaintElias|La chaîne Saint-Élie et le glacier Kaskawulsh, Parc national Kluane, Yukon (© Design Pics Inc/Alamy)||![](/fr-CA/2022/01/202201190500SaintElias.jpg)|
 202201200500|GrahamAdelie|Un Manchot Adélie devant le passage Graham, Péninsule Antarctique, Antarctique (© Nick Garbutt/Minden Pictures)||![](/fr-CA/2022/01/202201200500GrahamAdelie.jpg)|
+||||![](/fr-CA/2022/01/.jpg)|
