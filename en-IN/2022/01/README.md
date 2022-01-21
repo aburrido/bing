@@ -21,3 +21,4 @@
 202201181830|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon, Canada (© Design Pics Inc/Alamy)|A grand view of the great white north|![](/en-IN/2022/01/202201181830SaintElias.jpg)|
 202201191830|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-IN/2022/01/202201191830GrahamAdelie.jpg)|
 202201201830|HuggingDay|A lion cub and mother in Sabi Sabi Game Reserve, South Africa (© Andrew Coleman/Getty Images)|Who said bears do all the hugging?|![](/en-IN/2022/01/202201201830HuggingDay.jpg)|
+202201211830|NahargarhFort|Aerial view of Jaipur from Nahargarh Fort in Rajasthan, India (© Sean3810/iStock/Getty Images Plus)|The pride of Aravalli Hills|![](/en-IN/2022/01/202201211830NahargarhFort.jpg)|
