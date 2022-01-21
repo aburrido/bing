@@ -22,3 +22,4 @@
 202201190500|SaintElias|La chaîne Saint-Élie et le glacier Kaskawulsh, Parc national Kluane, Yukon (© Design Pics Inc/Alamy)||![](/fr-CA/2022/01/202201190500SaintElias.jpg)|
 202201200500|GrahamAdelie|Un Manchot Adélie devant le passage Graham, Péninsule Antarctique, Antarctique (© Nick Garbutt/Minden Pictures)||![](/fr-CA/2022/01/202201200500GrahamAdelie.jpg)|
 ||||![](/fr-CA/2022/01/.jpg)|
+202201210500|HuggingDay|Un lionceau et sa mère dans la réserve de Sabi Sabi, Afrique du Sud (© Andrew Coleman/Getty Images)||![](/fr-CA/2022/01/202201210500HuggingDay.jpg)|

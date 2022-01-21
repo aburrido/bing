@@ -21,3 +21,4 @@
 202201180500|TorontoWinter|Areal view of Toronto cityscapes on a winter morning (© Katrin Ray Shumakov/Getty Images)|Picturesque winter mornings|![](/en-CA/2022/01/202201180500TorontoWinter.jpg)|
 202201190500|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon (© Design Pics Inc/Alamy)|A grand view of the great white north|![](/en-CA/2022/01/202201190500SaintElias.jpg)|
 202201200500|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-CA/2022/01/202201200500GrahamAdelie.jpg)|
+202201210500|ReindeerNWT|A family of caribou in a snowy landscape, Northwest Territories (© Geoffrey Reynaud/Getty Images)|A stroll in the snow|![](/en-CA/2022/01/202201210500ReindeerNWT.jpg)|
