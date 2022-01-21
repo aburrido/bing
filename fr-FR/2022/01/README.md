@@ -22,3 +22,4 @@
 202201192300|GrahamAdelie|Manchot Adélie sur le passage de Graham, Péninsule Antarctique, Antarctique (© Nick Garbutt/Minden Pictures)|Don’t worry, be happy|![](/fr-FR/2022/01/202201192300GrahamAdelie.jpg)|
 ||||![](/fr-FR/2022/01/.jpg)|
 202201202300|HuggingDay|Un lionceau et une lionne dans la réserve privée de Sabi Sabi, Afrique du Sud (© Andrew Coleman/Getty Images)|Le meilleur câlin|![](/fr-FR/2022/01/202201202300HuggingDay.jpg)|
+202201212300|LesserAntilles|Martinique, Petites Antilles,  Mer des Caraïbes (© Airpano LLC/Amazing Aerial Agency)|Bonjour le Paradis !|![](/fr-FR/2022/01/202201212300LesserAntilles.jpg)|
