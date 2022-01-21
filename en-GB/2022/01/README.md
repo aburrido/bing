@@ -20,3 +20,4 @@
 202201180000|LakeKochelsee|Kochelsee and Heimgarten Mountain in Bavaria, Germany (© Reinhard Schmid/eStock Photo)|Frosty days in Bavaria|![](/en-GB/2022/01/202201180000LakeKochelsee.jpg)|
 202201190000|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon, Canada (© Design Pics Inc/Alamy)|An ice road for giants?|![](/en-GB/2022/01/202201190000SaintElias.jpg)|
 202201200000|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-GB/2022/01/202201200000GrahamAdelie.jpg)|
+202201210000|SnowBuntings|Snow buntings flock during a snowstorm in New York, USA (© Marie Read/Minden Pictures)|A flurry of snowflakes|![](/en-GB/2022/01/202201210000SnowBuntings.jpg)|
