@@ -22,3 +22,4 @@
 202201191600|GrahamAdelie|格雷厄姆海峡的阿德利企鹅，南极洲南极半岛 (© Nick Garbutt/Minden Pictures)||![](/zh-CN/2022/01/202201191600GrahamAdelie.jpg)|
 202201201600|HuggingDay|草丛中的母狮和它的幼崽，南非 (© Andrew Coleman/Getty Images)||![](/zh-CN/2022/01/202201201600HuggingDay.jpg)|
 202201211600|LesserAntilles|蔚蓝海域中的马提尼克岛，加勒比海 (© Airpano LLC/Amazing Aerial Agency)||![](/zh-CN/2022/01/202201211600LesserAntilles.jpg)|
+202201221600|MeotoIwa|海岸旁的二见浦夫妇岩，日本三重县 (© Marco Gaiotti/plainpicture)||![](/zh-CN/2022/01/202201221600MeotoIwa.jpg)|
