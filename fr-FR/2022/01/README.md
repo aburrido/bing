@@ -23,3 +23,4 @@
 ||||![](/fr-FR/2022/01/.jpg)|
 202201202300|HuggingDay|Un lionceau et une lionne dans la réserve privée de Sabi Sabi, Afrique du Sud (© Andrew Coleman/Getty Images)|Le meilleur câlin|![](/fr-FR/2022/01/202201202300HuggingDay.jpg)|
 202201212300|LesserAntilles|Martinique, Petites Antilles,  Mer des Caraïbes (© Airpano LLC/Amazing Aerial Agency)|Bonjour le Paradis !|![](/fr-FR/2022/01/202201212300LesserAntilles.jpg)|
+202201222300|MeotoIwa|Meoto Iwa (Les rochers mariés) au large de la côte d’Ise, préfecture de Mie, Honshu, Japon (© Marco Gaiotti/plainpicture)|Pour le meilleur et pour le pire|![](/fr-FR/2022/01/202201222300MeotoIwa.jpg)|
