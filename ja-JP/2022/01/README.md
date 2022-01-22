@@ -22,3 +22,4 @@
 202201191500|MeotoIwa|夫婦岩, 三重県 伊勢市 (© Marco Gaiotti/plainpicture)|大寒の夫婦岩|![](/ja-JP/2022/01/202201191500MeotoIwa.jpg)|
 202201201500|LickObservatory|ハミルトン山のリック天文台, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)|サンノゼの天文台|![](/ja-JP/2022/01/202201201500LickObservatory.jpg)|
 202201211500|SaintElias|クルアニ国立公園, カナダ ユーコン準州 (© Design Pics Inc/Alamy)|カナダの世界遺産|![](/ja-JP/2022/01/202201211500SaintElias.jpg)|
+202201221500|LesserAntilles|マルティニークとセントルシア, カリブ海 (© Airpano LLC/Amazing Aerial Agency)|カリブ海に散らばるウィンドワード諸島|![](/ja-JP/2022/01/202201221500LesserAntilles.jpg)|
