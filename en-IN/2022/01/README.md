@@ -22,3 +22,4 @@
 202201191830|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-IN/2022/01/202201191830GrahamAdelie.jpg)|
 202201201830|HuggingDay|A lion cub and mother in Sabi Sabi Game Reserve, South Africa (© Andrew Coleman/Getty Images)|Who said bears do all the hugging?|![](/en-IN/2022/01/202201201830HuggingDay.jpg)|
 202201211830|NahargarhFort|Aerial view of Jaipur from Nahargarh Fort in Rajasthan, India (© Sean3810/iStock/Getty Images Plus)|The pride of Aravalli Hills|![](/en-IN/2022/01/202201211830NahargarhFort.jpg)|
+202201221830|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Sacred stones|![](/en-IN/2022/01/202201221830MeotoIwa.jpg)|
