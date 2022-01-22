@@ -22,3 +22,4 @@
 202201190500|SaintElias|Saint Elias Mountains and Kaskawulsh Glacier in Kluane National Park and Reserve, Yukon (© Design Pics Inc/Alamy)|A grand view of the great white north|![](/en-CA/2022/01/202201190500SaintElias.jpg)|
 202201200500|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-CA/2022/01/202201200500GrahamAdelie.jpg)|
 202201210500|ReindeerNWT|A family of caribou in a snowy landscape, Northwest Territories (© Geoffrey Reynaud/Getty Images)|A stroll in the snow|![](/en-CA/2022/01/202201210500ReindeerNWT.jpg)|
+202201220500|LesserAntilles|Martinique, Lesser Antilles, Caribbean Sea (© Airpano LLC/Amazing Aerial Agency)|Say bonjour to paradise|![](/en-CA/2022/01/202201220500LesserAntilles.jpg)|

@@ -23,3 +23,4 @@
 202201200500|GrahamAdelie|Un Manchot Adélie devant le passage Graham, Péninsule Antarctique, Antarctique (© Nick Garbutt/Minden Pictures)||![](/fr-CA/2022/01/202201200500GrahamAdelie.jpg)|
 ||||![](/fr-CA/2022/01/.jpg)|
 202201210500|HuggingDay|Un lionceau et sa mère dans la réserve de Sabi Sabi, Afrique du Sud (© Andrew Coleman/Getty Images)||![](/fr-CA/2022/01/202201210500HuggingDay.jpg)|
+202201220500|LesserAntilles|Martinique, Petites Antilles, mer des Caraïbes (© Airpano LLC/Amazing Aerial Agency)||![](/fr-CA/2022/01/202201220500LesserAntilles.jpg)|
