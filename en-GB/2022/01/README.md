@@ -22,3 +22,4 @@
 202201200000|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-GB/2022/01/202201200000GrahamAdelie.jpg)|
 202201210000|SnowBuntings|Snow buntings flock during a snowstorm in New York, USA (© Marie Read/Minden Pictures)|A flurry of snowflakes|![](/en-GB/2022/01/202201210000SnowBuntings.jpg)|
 202201220000|LesserAntilles|Martinique, Lesser Antilles, Caribbean Sea (© Airpano LLC/Amazing Aerial Agency)|Paradise found|![](/en-GB/2022/01/202201220000LesserAntilles.jpg)|
+202201230000|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Stone soulmates|![](/en-GB/2022/01/202201230000MeotoIwa.jpg)|
