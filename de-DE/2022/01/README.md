@@ -23,3 +23,4 @@
 202201202300|HuggingDay|Ein Löwenjunges mit seiner Mutter im Wildreservat Sabi Sabi, Südafrika (© Andrew Coleman/Getty Images)|Zeit für eine Umarmung|![](/de-DE/2022/01/202201202300HuggingDay.jpg)|
 202201212300|LesserAntilles|Martinique, Kleine Antillen, Karibik (© Airpano LLC/Amazing Aerial Agency)|Karibisches Inselparadies|![](/de-DE/2022/01/202201212300LesserAntilles.jpg)|
 202201222300|MeotoIwa|Meoto-Iwa (Die vermählten Felsen) vor der Küste von Ise, Präfektur Mie, Honshu, Japan (© Marco Gaiotti/plainpicture)|Heilige Felsen|![](/de-DE/2022/01/202201222300MeotoIwa.jpg)|
+202201232300|RebhuehnerSchnee|Eine Schar Rebhühner kuschelt sich im Schnee zusammen, um sich zu wärmen (© Duncan Usher/Minden Pictures)|Auf die Plätze, fertig, kuscheln!|![](/de-DE/2022/01/202201232300RebhuehnerSchnee.jpg)|
