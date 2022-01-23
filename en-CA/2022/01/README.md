@@ -23,3 +23,4 @@
 202201200500|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-CA/2022/01/202201200500GrahamAdelie.jpg)|
 202201210500|ReindeerNWT|A family of caribou in a snowy landscape, Northwest Territories (© Geoffrey Reynaud/Getty Images)|A stroll in the snow|![](/en-CA/2022/01/202201210500ReindeerNWT.jpg)|
 202201220500|LesserAntilles|Martinique, Lesser Antilles, Caribbean Sea (© Airpano LLC/Amazing Aerial Agency)|Say bonjour to paradise|![](/en-CA/2022/01/202201220500LesserAntilles.jpg)|
+202201230500|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Sacred stones|![](/en-CA/2022/01/202201230500MeotoIwa.jpg)|

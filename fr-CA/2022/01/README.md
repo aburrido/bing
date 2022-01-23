@@ -24,3 +24,4 @@
 ||||![](/fr-CA/2022/01/.jpg)|
 202201210500|HuggingDay|Un lionceau et sa mère dans la réserve de Sabi Sabi, Afrique du Sud (© Andrew Coleman/Getty Images)||![](/fr-CA/2022/01/202201210500HuggingDay.jpg)|
 202201220500|LesserAntilles|Martinique, Petites Antilles, mer des Caraïbes (© Airpano LLC/Amazing Aerial Agency)||![](/fr-CA/2022/01/202201220500LesserAntilles.jpg)|
+202201230500|MeotoIwa|Meoto Iwa (Rochers Mariés) au large de la côte d'Ise, préfecture de Mie, Honshū, Japon (© Marco Gaiotti/plainpicture)||![](/fr-CA/2022/01/202201230500MeotoIwa.jpg)|
