@@ -23,3 +23,4 @@
 202201200800|GrahamAdelie|Adélie penguin in Graham Passage, Antarctic Peninsula, Antarctica (© Nick Garbutt/Minden Pictures)|Flightless fancy|![](/en-US/2022/01/202201200800GrahamAdelie.jpg)|
 202201210800|HuggingDay|A lion cub and mother in Sabi Sabi Game Reserve, South Africa (© Andrew Coleman/Getty Images)|Who said bears do all the hugging?|![](/en-US/2022/01/202201210800HuggingDay.jpg)|
 202201220800|LesserAntilles|Martinique, Lesser Antilles, Caribbean Sea (© Airpano LLC/Amazing Aerial Agency)|Say bonjour to paradise|![](/en-US/2022/01/202201220800LesserAntilles.jpg)|
+202201230800|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Futami, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Sacred stones|![](/en-US/2022/01/202201230800MeotoIwa.jpg)|
