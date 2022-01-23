@@ -23,3 +23,4 @@
 202201201600|HuggingDay|草丛中的母狮和它的幼崽，南非 (© Andrew Coleman/Getty Images)||![](/zh-CN/2022/01/202201201600HuggingDay.jpg)|
 202201211600|LesserAntilles|蔚蓝海域中的马提尼克岛，加勒比海 (© Airpano LLC/Amazing Aerial Agency)||![](/zh-CN/2022/01/202201211600LesserAntilles.jpg)|
 202201221600|MeotoIwa|海岸旁的二见浦夫妇岩，日本三重县 (© Marco Gaiotti/plainpicture)||![](/zh-CN/2022/01/202201221600MeotoIwa.jpg)|
+202201231600|ManhattanView|灯光璀璨的曼哈顿下城，美国纽约 (© New York On Air/Offset/Shutterstock)||![](/zh-CN/2022/01/202201231600ManhattanView.jpg)|
