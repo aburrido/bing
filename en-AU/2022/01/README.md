@@ -24,3 +24,4 @@
 202201210800|HuggingDay|Lion cub and mother, Sabi Sabi, South Africa (© Andrew Coleman/Getty Images)|Info|![](/en-AU/2022/01/202201210800HuggingDay.jpg)|
 202201220800|LesserAntilles|Martinique, Lesser Antilles, Caribbean Sea (© Airpano LLC/Amazing Aerial Agency)|Info|![](/en-AU/2022/01/202201220800LesserAntilles.jpg)|
 202201230800|MeotoIwa|Meoto Iwa (Wedded Rocks), Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Info|![](/en-AU/2022/01/202201230800MeotoIwa.jpg)|
+202201240800|ManhattanView|Lower Manhattan, New York City, USA (© New York On Air/Offset/Shutterstock)|Info|![](/en-AU/2022/01/202201240800ManhattanView.jpg)|
