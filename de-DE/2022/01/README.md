@@ -25,3 +25,4 @@
 202201222300|MeotoIwa|Meoto-Iwa (Die vermählten Felsen) vor der Küste von Ise, Präfektur Mie, Honshu, Japan (© Marco Gaiotti/plainpicture)|Heilige Felsen|![](/de-DE/2022/01/202201222300MeotoIwa.jpg)|
 202201232300|RebhuehnerSchnee|Eine Schar Rebhühner kuschelt sich im Schnee zusammen, um sich zu wärmen (© Duncan Usher/Minden Pictures)|Auf die Plätze, fertig, kuscheln!|![](/de-DE/2022/01/202201232300RebhuehnerSchnee.jpg)|
 202201242300|StDwynwensDay|Der Leuchtturm Tŵr Mawr auf Llanddwyn Island, Anglesey, Wales (© Joe Daniel Price/Getty Images)|Eine Insel für Romantiker|![](/de-DE/2022/01/202201242300StDwynwensDay.jpg)|
+202201252300|MehrangarhCourtyard|Die Festung Mehrangarh in Jodhpur, Rajasthan, Indien (© Jayakumar/Shutterstock)|Zu Ehren von 72 Jahren Demokratie|![](/de-DE/2022/01/202201252300MehrangarhCourtyard.jpg)|

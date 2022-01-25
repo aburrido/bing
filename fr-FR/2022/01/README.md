@@ -26,3 +26,4 @@
 202201222300|MeotoIwa|Meoto Iwa (Les rochers mariés) au large de la côte d’Ise, préfecture de Mie, Honshu, Japon (© Marco Gaiotti/plainpicture)|Pour le meilleur et pour le pire|![](/fr-FR/2022/01/202201222300MeotoIwa.jpg)|
 202201232300|ManhattanView|Bas de Manhattan à New York, États-Unis (© New York On Air/Offset/Shutterstock)|New York, New York|![](/fr-FR/2022/01/202201232300ManhattanView.jpg)|
 202201242300|StDwynwensDay|Le phare de Tŵr Mawr sur Ynys Llanddwyn, Anglesey, Pays de Galles (© Joe Daniel Price/Getty Images)|L’autre saint-valentin|![](/fr-FR/2022/01/202201242300StDwynwensDay.jpg)|
+202201252300|MehrangarhCourtyard|Le fort de Mehrangarh à Jodhpur, Rajasthan, Inde (© Jayakumar/Shutterstock)|72 ans de démocratie|![](/fr-FR/2022/01/202201252300MehrangarhCourtyard.jpg)|
