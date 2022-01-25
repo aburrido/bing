@@ -25,3 +25,4 @@
 202201220800|LesserAntilles|Martinique, Lesser Antilles, Caribbean Sea (© Airpano LLC/Amazing Aerial Agency)|Info|![](/en-AU/2022/01/202201220800LesserAntilles.jpg)|
 202201230800|MeotoIwa|Meoto Iwa (Wedded Rocks), Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Info|![](/en-AU/2022/01/202201230800MeotoIwa.jpg)|
 202201240800|ManhattanView|Lower Manhattan, New York City, USA (© New York On Air/Offset/Shutterstock)|Info|![](/en-AU/2022/01/202201240800ManhattanView.jpg)|
+202201250800|StDwynwensDay|Tŵr Mawr lighthouse, Llanddwyn Island, Anglesey, Wales (© Joe Daniel Price/Getty Images)|Info|![](/en-AU/2022/01/202201250800StDwynwensDay.jpg)|
