@@ -25,3 +25,4 @@
 202201221830|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Sacred stones|![](/en-IN/2022/01/202201221830MeotoIwa.jpg)|
 202201231830|ManhattanView|Lower Manhattan in New York City (© New York On Air/Offset/Shutterstock)|The city that doesn’t sleep|![](/en-IN/2022/01/202201231830ManhattanView.jpg)|
 202201241830|StDwynwensDay|Tŵr Mawr lighthouse on Llanddwyn Island, Anglesey, Wales (© Joe Daniel Price/Getty Images)|Love at first light|![](/en-IN/2022/01/202201241830StDwynwensDay.jpg)|
+202201251830|GatewayOfIndia|Gateway of India illuminated with Tricolour lights (© Sourabh Kumar/500px/Getty Images)|India's 73rd Republic Day|![](/en-IN/2022/01/202201251830GatewayOfIndia.jpg)|
