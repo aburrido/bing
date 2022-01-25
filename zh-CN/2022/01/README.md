@@ -25,3 +25,4 @@
 202201221600|MeotoIwa|海岸旁的二见浦夫妇岩，日本三重县 (© Marco Gaiotti/plainpicture)||![](/zh-CN/2022/01/202201221600MeotoIwa.jpg)|
 202201231600|ManhattanView|灯光璀璨的曼哈顿下城，美国纽约 (© New York On Air/Offset/Shutterstock)||![](/zh-CN/2022/01/202201231600ManhattanView.jpg)|
 202201241600|StDwynwensDay|安格尔西岛上的Tŵr Mawr 灯塔，英国威尔士 (© Joe Daniel Price/Getty Images)||![](/zh-CN/2022/01/202201241600StDwynwensDay.jpg)|
+202201251600|MehrangarhCourtyard|梅兰加尔堡，印度焦特布尔 (© Jayakumar/Shutterstock)||![](/zh-CN/2022/01/202201251600MehrangarhCourtyard.jpg)|
