@@ -26,3 +26,4 @@
 202201230500|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Sacred stones|![](/en-CA/2022/01/202201230500MeotoIwa.jpg)|
 202201240500|ManhattanView|Lower Manhattan in New York City (© New York On Air/Offset/Shutterstock)|The city that doesn’t sleep|![](/en-CA/2022/01/202201240500ManhattanView.jpg)|
 202201250500|StDwynwensDay|Tŵr Mawr lighthouse on Llanddwyn Island, Anglesey, Wales (© Joe Daniel Price/Getty Images)|Love at first light|![](/en-CA/2022/01/202201250500StDwynwensDay.jpg)|
+202201260500|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|Honouring 72 years of democracy|![](/en-CA/2022/01/202201260500MehrangarhCourtyard.jpg)|

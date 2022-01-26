@@ -27,3 +27,4 @@
 202201230500|MeotoIwa|Meoto Iwa (Rochers Mariés) au large de la côte d'Ise, préfecture de Mie, Honshū, Japon (© Marco Gaiotti/plainpicture)||![](/fr-CA/2022/01/202201230500MeotoIwa.jpg)|
 202201240500|ManhattanView|Le quartier de Lower Manhattan à New York (© New York On Air/Offset/Shutterstock)||![](/fr-CA/2022/01/202201240500ManhattanView.jpg)|
 202201250500|StDwynwensDay|Phare de Tŵr Mawr sur l’île d'Ynys Llanddwyn, Anglesey, Pays de Galles (© Joe Daniel Price/Getty Images)||![](/fr-CA/2022/01/202201250500StDwynwensDay.jpg)|
+202201260500|MehrangarhCourtyard|Fort de Mehrangarh, Rajasthan, Inde (© Jayakumar/Shutterstock)||![](/fr-CA/2022/01/202201260500MehrangarhCourtyard.jpg)|
