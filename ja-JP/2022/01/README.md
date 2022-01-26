@@ -26,3 +26,4 @@
 202201231500|ManhattanView|ロウアー・マンハッタン, 米国 ニューヨーク市 (© New York On Air/Offset/Shutterstock)|マンハッタンの夜景|![](/ja-JP/2022/01/202201231500ManhattanView.jpg)|
 202201241500|StDwynwensDay|トゥル・マウル灯台, イギリス ウェールズ (© Joe Daniel Price/Getty Images)|ウェールズの灯台|![](/ja-JP/2022/01/202201241500StDwynwensDay.jpg)|
 202201251500|MehrangarhCourtyard|メヘラーンガル城, インド ジョードプル (© Jayakumar/Shutterstock)|今日はインド共和国記念日|![](/ja-JP/2022/01/202201251500MehrangarhCourtyard.jpg)|
+202201261500|BohemianWaxwing|キレンジャク (© sandpiper/adobe stock)|冬の梢のおちびさん|![](/ja-JP/2022/01/202201261500BohemianWaxwing.jpg)|
