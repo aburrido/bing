@@ -25,3 +25,4 @@
 202201230000|MeotoIwa|Meoto Iwa (Wedded Rocks) off the coast of Ise, Mie Prefecture, Honshu, Japan (© Marco Gaiotti/plainpicture)|Stone soulmates|![](/en-GB/2022/01/202201230000MeotoIwa.jpg)|
 202201240000|ManhattanView|Lower Manhattan in New York City, USA (© New York On Air/Offset/Shutterstock)|The city that doesn’t sleep|![](/en-GB/2022/01/202201240000ManhattanView.jpg)|
 202201250000|BurnsMoon|Museum Of Moon Installation Launches The Burns & Beyond Festival, Edinburgh. (© Jeff J Mitchell/Staff/Getty Images Entertainment)|Beneath the Moon’s pale beams|![](/en-GB/2022/01/202201250000BurnsMoon.jpg)|
+202201260000|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|Citadel of the Sun|![](/en-GB/2022/01/202201260000MehrangarhCourtyard.jpg)|
