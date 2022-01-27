@@ -27,3 +27,4 @@
 202201241600|StDwynwensDay|安格尔西岛上的Tŵr Mawr 灯塔，英国威尔士 (© Joe Daniel Price/Getty Images)||![](/zh-CN/2022/01/202201241600StDwynwensDay.jpg)|
 202201251600|MehrangarhCourtyard|梅兰加尔堡，印度焦特布尔 (© Jayakumar/Shutterstock)||![](/zh-CN/2022/01/202201251600MehrangarhCourtyard.jpg)|
 202201261600|RibbontailStingray|珀斯附近海域的蓝斑条尾魟，澳大利亚 (© Jeff Rotman/Minden Pictures)||![](/zh-CN/2022/01/202201261600RibbontailStingray.jpg)|
+202201271600|WinteringFowl|正在狩猎的短耳鸮，英格兰林肯郡 (© Ben Hall/Minden Pictures)||![](/zh-CN/2022/01/202201271600WinteringFowl.jpg)|
