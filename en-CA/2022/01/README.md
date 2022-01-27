@@ -27,3 +27,4 @@
 202201240500|ManhattanView|Lower Manhattan in New York City (© New York On Air/Offset/Shutterstock)|The city that doesn’t sleep|![](/en-CA/2022/01/202201240500ManhattanView.jpg)|
 202201250500|StDwynwensDay|Tŵr Mawr lighthouse on Llanddwyn Island, Anglesey, Wales (© Joe Daniel Price/Getty Images)|Love at first light|![](/en-CA/2022/01/202201250500StDwynwensDay.jpg)|
 202201260500|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|Honouring 72 years of democracy|![](/en-CA/2022/01/202201260500MehrangarhCourtyard.jpg)|
+202201270500|RibbontailStingray|Bluespotted ribbontail ray near Perth, Australia (© Jeff Rotman/Minden Pictures)|Stingray spotted!|![](/en-CA/2022/01/202201270500RibbontailStingray.jpg)|
