@@ -28,3 +28,4 @@
 202201242300|StDwynwensDay|Le phare de Tŵr Mawr sur Ynys Llanddwyn, Anglesey, Pays de Galles (© Joe Daniel Price/Getty Images)|L’autre saint-valentin|![](/fr-FR/2022/01/202201242300StDwynwensDay.jpg)|
 202201252300|MehrangarhCourtyard|Le fort de Mehrangarh à Jodhpur, Rajasthan, Inde (© Jayakumar/Shutterstock)|72 ans de démocratie|![](/fr-FR/2022/01/202201252300MehrangarhCourtyard.jpg)|
 202201262300|RibbontailStingray|Raie pastenague à taches bleues près de Perth, Australie (© Jeff Rotman/Minden Pictures)|Ne pas toucher !|![](/fr-FR/2022/01/202201262300RibbontailStingray.jpg)|
+202201272300|WinteringFowl|Hibou des marais chassant à l’aube à Worlaby Carrs, Lincolnshire, Angleterre (© Ben Hall/Minden Pictures)|À table !|![](/fr-FR/2022/01/202201272300WinteringFowl.jpg)|
