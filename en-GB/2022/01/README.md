@@ -27,3 +27,4 @@
 202201250000|BurnsMoon|Museum Of Moon Installation Launches The Burns & Beyond Festival, Edinburgh. (© Jeff J Mitchell/Staff/Getty Images Entertainment)|Beneath the Moon’s pale beams|![](/en-GB/2022/01/202201250000BurnsMoon.jpg)|
 202201260000|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|Citadel of the Sun|![](/en-GB/2022/01/202201260000MehrangarhCourtyard.jpg)|
 202201270000|MountainToucan|Plate-billed mountain toucan in Bellavista Cloud Forest Reserve, Ecuador (© Tui De Roy/Minden Pictures)|Life in the cloud forests|![](/en-GB/2022/01/202201270000MountainToucan.jpg)|
+202201280000|WinteringFowl|Short-eared owl hunting at dusk in Worlaby Carrs, Lincolnshire (© Ben Hall/Minden Pictures)|On the hunt|![](/en-GB/2022/01/202201280000WinteringFowl.jpg)|
