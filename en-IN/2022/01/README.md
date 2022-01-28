@@ -28,3 +28,4 @@
 202201251830|GatewayOfIndia|Gateway of India illuminated with Tricolour lights (© Sourabh Kumar/500px/Getty Images)|India's 73rd Republic Day|![](/en-IN/2022/01/202201251830GatewayOfIndia.jpg)|
 202201261830|RibbontailStingray|Bluespotted ribbontail ray near Perth, Australia (© Jeff Rotman/Minden Pictures)|Stingray spotted!|![](/en-IN/2022/01/202201261830RibbontailStingray.jpg)|
 202201271830|WinteringFowl|Short-eared owl hunting at dusk in Worlaby Carrs, Lincolnshire, England (© Ben Hall/Minden Pictures)|Winter birdwatching|![](/en-IN/2022/01/202201271830WinteringFowl.jpg)|
+202201281830|BrainCoral|Symmetrical brain coral on a reef in the Caribbean Sea near Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|This is your brain on puzzles|![](/en-IN/2022/01/202201281830BrainCoral.jpg)|
