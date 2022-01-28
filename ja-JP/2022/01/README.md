@@ -28,3 +28,4 @@
 202201251500|MehrangarhCourtyard|メヘラーンガル城, インド ジョードプル (© Jayakumar/Shutterstock)|今日はインド共和国記念日|![](/ja-JP/2022/01/202201251500MehrangarhCourtyard.jpg)|
 202201261500|BohemianWaxwing|キレンジャク (© sandpiper/adobe stock)|冬の梢のおちびさん|![](/ja-JP/2022/01/202201261500BohemianWaxwing.jpg)|
 202201271500|WinteringFowl|夕暮れのコミミズク, イギリス リンカンシャー (© Ben Hall/Minden Pictures)|ワーラビー・カーズの野鳥|![](/ja-JP/2022/01/202201271500WinteringFowl.jpg)|
+202201281500|FortCorjuem|コルジェム砦, インド ゴア (© Ingvar Kuznetsov/Shutterstock)|インドに残された18世紀の要塞|![](/ja-JP/2022/01/202201281500FortCorjuem.jpg)|
