@@ -30,3 +30,4 @@
 202201260500|MehrangarhCourtyard|Fort de Mehrangarh, Rajasthan, Inde (© Jayakumar/Shutterstock)||![](/fr-CA/2022/01/202201260500MehrangarhCourtyard.jpg)|
 202201270500|RibbontailStingray|Raie pastenague à taches bleues près de Perth, Australie (© Jeff Rotman/Minden Pictures)||![](/fr-CA/2022/01/202201270500RibbontailStingray.jpg)|
 202201280500|WinteringFowl|Hibou des marais chassant à l’aube à Worlaby Carrs, Lincolnshire, Angleterre (© Ben Hall/Minden Pictures)||![](/fr-CA/2022/01/202201280500WinteringFowl.jpg)|
+202201290500|BrainCoral|Corail Diploria strigose dans la mer des Caraïbes près de l’île Grand Cayman, Îles Caïmans (© Alex Mustard/Minden Pictures)||![](/fr-CA/2022/01/202201290500BrainCoral.jpg)|
