@@ -29,3 +29,4 @@
 202201262300|RibbontailStingray|Blaupunktrochen in der Nähe von Perth, Australien (© Jeff Rotman/Minden Pictures)|Begegnung in der Tiefe|![](/de-DE/2022/01/202201262300RibbontailStingray.jpg)|
 202201272300|WinteringFowl|Eine Sumpfohreule geht in der Abenddämmerung auf die Jagd, Worlaby Carrs, Lincolnshire, England (© Ben Hall/Minden Pictures)|Auf Beutezug in der Abenddämmerung|![](/de-DE/2022/01/202201272300WinteringFowl.jpg)|
 202201282300|BrainCoral|Hirnkoralle auf einem Riff im Karibischen Meer nahe Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|So sieht Ihr Gehirn beim Puzzeln aus|![](/de-DE/2022/01/202201282300BrainCoral.jpg)|
+202201292300|WinterHalo|Halo-Effekt der Sonne, Erzgebirge, Sachsen (© Martin Ruegner/Getty Images)|Faszinierende Lichteffekte|![](/de-DE/2022/01/202201292300WinterHalo.jpg)|
