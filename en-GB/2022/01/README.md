@@ -28,3 +28,4 @@
 202201260000|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|Citadel of the Sun|![](/en-GB/2022/01/202201260000MehrangarhCourtyard.jpg)|
 202201270000|MountainToucan|Plate-billed mountain toucan in Bellavista Cloud Forest Reserve, Ecuador (© Tui De Roy/Minden Pictures)|Life in the cloud forests|![](/en-GB/2022/01/202201270000MountainToucan.jpg)|
 202201280000|WinteringFowl|Short-eared owl hunting at dusk in Worlaby Carrs, Lincolnshire (© Ben Hall/Minden Pictures)|On the hunt|![](/en-GB/2022/01/202201280000WinteringFowl.jpg)|
+202201290000|LickObservatory|The Lick Observatory on Mount Hamilton, near San Jose, California, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Legacy of light|![](/en-GB/2022/01/202201290000LickObservatory.jpg)|
