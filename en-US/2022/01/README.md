@@ -29,3 +29,4 @@
 202201260800|MehrangarhCourtyard|Mehrangarh Fort in Jodhpur, Rajasthan, India (© Jayakumar/Shutterstock)|Honoring 72 years of democracy|![](/en-US/2022/01/202201260800MehrangarhCourtyard.jpg)|
 202201270800|RibbontailStingray|Bluespotted ribbontail ray near Perth, Australia (© Jeff Rotman/Minden Pictures)|Stingray spotted!|![](/en-US/2022/01/202201270800RibbontailStingray.jpg)|
 202201280800|WinteringFowl|Short-eared owl hunting at dusk in Worlaby Carrs, Lincolnshire, England (© Ben Hall/Minden Pictures)|Winter birdwatching|![](/en-US/2022/01/202201280800WinteringFowl.jpg)|
+202201290800|BrainCoral|Symmetrical brain coral on a reef in the Caribbean Sea near Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|This is your brain on puzzles|![](/en-US/2022/01/202201290800BrainCoral.jpg)|
