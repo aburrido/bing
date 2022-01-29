@@ -29,3 +29,4 @@
 202201261600|RibbontailStingray|珀斯附近海域的蓝斑条尾魟，澳大利亚 (© Jeff Rotman/Minden Pictures)||![](/zh-CN/2022/01/202201261600RibbontailStingray.jpg)|
 202201271600|WinteringFowl|正在狩猎的短耳鸮，英格兰林肯郡 (© Ben Hall/Minden Pictures)||![](/zh-CN/2022/01/202201271600WinteringFowl.jpg)|
 202201281600|BrainCoral|加勒比海的片脑纹珊瑚，开曼群岛 (© Alex Mustard/Minden Pictures)||![](/zh-CN/2022/01/202201281600BrainCoral.jpg)|
+202201291600|WinterHalo|厄尔士山脉上的光晕，德国萨克森州 (© Martin Ruegner/Getty Images)||![](/zh-CN/2022/01/202201291600WinterHalo.jpg)|
