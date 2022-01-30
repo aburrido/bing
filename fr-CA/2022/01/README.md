@@ -31,3 +31,4 @@
 202201270500|RibbontailStingray|Raie pastenague à taches bleues près de Perth, Australie (© Jeff Rotman/Minden Pictures)||![](/fr-CA/2022/01/202201270500RibbontailStingray.jpg)|
 202201280500|WinteringFowl|Hibou des marais chassant à l’aube à Worlaby Carrs, Lincolnshire, Angleterre (© Ben Hall/Minden Pictures)||![](/fr-CA/2022/01/202201280500WinteringFowl.jpg)|
 202201290500|BrainCoral|Corail Diploria strigose dans la mer des Caraïbes près de l’île Grand Cayman, Îles Caïmans (© Alex Mustard/Minden Pictures)||![](/fr-CA/2022/01/202201290500BrainCoral.jpg)|
+202201300500|WinterHalo|Halo solaire dans les monts Métalifères, Saxe, Allemagne (© Martin Ruegner/Getty Images)||![](/fr-CA/2022/01/202201300500WinterHalo.jpg)|
