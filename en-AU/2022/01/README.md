@@ -30,3 +30,4 @@
 202201270800|RibbontailStingray|Bluespotted ribbontail ray near Perth, Australia (© Jeff Rotman/Minden Pictures)|Info|![](/en-AU/2022/01/202201270800RibbontailStingray.jpg)|
 202201280800|WinteringFowl|Short-eared owl, Worlaby Carrs, Lincolnshire, England (© Ben Hall/Minden Pictures)|Info|![](/en-AU/2022/01/202201280800WinteringFowl.jpg)|
 202201290800|BrainCoral|Brain coral, Caribbean Sea near Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|Info|![](/en-AU/2022/01/202201290800BrainCoral.jpg)|
+202201300800|WinterHalo|Halo around the Sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Info|![](/en-AU/2022/01/202201300800WinterHalo.jpg)|
