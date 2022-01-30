@@ -31,3 +31,4 @@
 202201272300|WinteringFowl|Hibou des marais chassant à l’aube à Worlaby Carrs, Lincolnshire, Angleterre (© Ben Hall/Minden Pictures)|À table !|![](/fr-FR/2022/01/202201272300WinteringFowl.jpg)|
 202201282300|BerryCanal|Le Canal de Berry après une chute de neige, Loir-et-Cher, Centre (© robertharding/Alamy Stock Photo)|Un canal éternel|![](/fr-FR/2022/01/202201282300BerryCanal.jpg)|
 202201292300|WinterHalo|Halo solaire dans les monts Métallifères, Saxe, Allemagne (© Martin Ruegner/Getty Images)|Magie naturelle|![](/fr-FR/2022/01/202201292300WinterHalo.jpg)|
+202201302300|IncenseFieldVietnam|Travailleurs dans un champ d’encens dans le district de Ung Hoa, Hanoï, Vietnam (© Azim Khan Ronnie/Amazing Aerial Agency)|Le Nouvel An Lunaire|![](/fr-FR/2022/01/202201302300IncenseFieldVietnam.jpg)|
