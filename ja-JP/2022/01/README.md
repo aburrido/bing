@@ -30,3 +30,4 @@
 202201271500|WinteringFowl|夕暮れのコミミズク, イギリス リンカンシャー (© Ben Hall/Minden Pictures)|ワーラビー・カーズの野鳥|![](/ja-JP/2022/01/202201271500WinteringFowl.jpg)|
 202201281500|FortCorjuem|コルジェム砦, インド ゴア (© Ingvar Kuznetsov/Shutterstock)|インドに残された18世紀の要塞|![](/ja-JP/2022/01/202201281500FortCorjuem.jpg)|
 202201291500|WinterHalo|エルツ山地の光輪, ドイツ ザクセン州 (© Martin Ruegner/Getty Images)|ザクセンを照らす雪山の光|![](/ja-JP/2022/01/202201291500WinterHalo.jpg)|
+202201301500|BengalTigerIndia|ベンガルトラ, インド ラジャスタン (© eROMAZe/E+/Getty Images)|今日は「晦日正月」|![](/ja-JP/2022/01/202201301500BengalTigerIndia.jpg)|
