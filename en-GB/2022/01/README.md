@@ -30,3 +30,4 @@
 202201280000|WinteringFowl|Short-eared owl hunting at dusk in Worlaby Carrs, Lincolnshire (© Ben Hall/Minden Pictures)|On the hunt|![](/en-GB/2022/01/202201280000WinteringFowl.jpg)|
 202201290000|LickObservatory|The Lick Observatory on Mount Hamilton, near San Jose, California, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Legacy of light|![](/en-GB/2022/01/202201290000LickObservatory.jpg)|
 202201300000|WinterHalo|Halo around the sun in the Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Why, halo there|![](/en-GB/2022/01/202201300000WinterHalo.jpg)|
+202201310000|IncenseFieldVietnam|Workers in an incense field in the Huyện Ứng Hòa district of Hanoi, Vietnam (© Azim Khan Ronnie/Amazing Aerial Agency)|Get set for Tết|![](/en-GB/2022/01/202201310000IncenseFieldVietnam.jpg)|
