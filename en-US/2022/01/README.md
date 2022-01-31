@@ -31,3 +31,4 @@
 202201280800|WinteringFowl|Short-eared owl hunting at dusk in Worlaby Carrs, Lincolnshire, England (© Ben Hall/Minden Pictures)|Winter birdwatching|![](/en-US/2022/01/202201280800WinteringFowl.jpg)|
 202201290800|BrainCoral|Symmetrical brain coral on a reef in the Caribbean Sea near Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|This is your brain on puzzles|![](/en-US/2022/01/202201290800BrainCoral.jpg)|
 202201300800|WinterHalo|Halo around the sun in the Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Why, halo there|![](/en-US/2022/01/202201300800WinterHalo.jpg)|
+202201310800|IncenseFieldVietnam|Workers sorting incense in the Huyện Ứng Hòa district of Hanoi, Vietnam (© Azim Khan Ronnie/Amazing Aerial Agency)|Get set for Tết|![](/en-US/2022/01/202201310800IncenseFieldVietnam.jpg)|
