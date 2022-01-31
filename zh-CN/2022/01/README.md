@@ -31,3 +31,4 @@
 202201281600|BrainCoral|加勒比海的片脑纹珊瑚，开曼群岛 (© Alex Mustard/Minden Pictures)||![](/zh-CN/2022/01/202201281600BrainCoral.jpg)|
 202201291600|WinterHalo|厄尔士山脉上的光晕，德国萨克森州 (© Martin Ruegner/Getty Images)||![](/zh-CN/2022/01/202201291600WinterHalo.jpg)|
 202201301600|ChineseNewYearEve|烟花绽放的除夕夜，中国 (© MediaProduction/E+/Getty Images)||![](/zh-CN/2022/01/202201301600ChineseNewYearEve.jpg)|
+202201311600|ChineseNewYear|寓意幸福和团圆的春节灯笼，中国 (© d3sign/Moment/Getty Images)|新春快乐|![](/zh-CN/2022/01/202201311600ChineseNewYear.jpg)|
