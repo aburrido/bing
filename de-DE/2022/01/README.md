@@ -31,3 +31,4 @@
 202201282300|BrainCoral|Hirnkoralle auf einem Riff im Karibischen Meer nahe Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|So sieht Ihr Gehirn beim Puzzeln aus|![](/de-DE/2022/01/202201282300BrainCoral.jpg)|
 202201292300|WinterHalo|Halo-Effekt der Sonne, Erzgebirge, Sachsen (© Martin Ruegner/Getty Images)|Faszinierende Lichteffekte|![](/de-DE/2022/01/202201292300WinterHalo.jpg)|
 202201302300|IncenseFieldVietnam|Herstellung von Räucherstäbchen im Bezirk Ứng Hòa, Hanoi, Vietnam (© Azim Khan Ronnie/Amazing Aerial Agency)|Vorbereitungen auf das Mond-Neujahr|![](/de-DE/2022/01/202201302300IncenseFieldVietnam.jpg)|
+202201312300|BengalTigerIndia|Königstiger im Ranthambore-Nationalpark, Rajasthan, Indien (© eROMAZe/E+/Getty Images)|Das Jahr des Tigers|![](/de-DE/2022/01/202201312300BengalTigerIndia.jpg)|
