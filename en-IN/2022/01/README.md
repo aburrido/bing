@@ -31,3 +31,4 @@
 202201281830|BrainCoral|Symmetrical brain coral on a reef in the Caribbean Sea near Grand Cayman, Cayman Islands (© Alex Mustard/Minden Pictures)|This is your brain on puzzles|![](/en-IN/2022/01/202201281830BrainCoral.jpg)|
 202201291830|WinterHalo|Halo around the sun in the Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Why, halo there|![](/en-IN/2022/01/202201291830WinterHalo.jpg)|
 202201301830|IncenseFieldVietnam|Workers in an incense field in the Huyện Ứng Hòa district of Hanoi, Vietnam (© Azim Khan Ronnie/Amazing Aerial Agency)|Get set for Tết|![](/en-IN/2022/01/202201301830IncenseFieldVietnam.jpg)|
+202201311830|BengalTigerIndia|Bengal tiger in Ranthambore National Park, Rajasthan, India (© eROMAZe/E+/Getty Images)|The year of the Tiger|![](/en-IN/2022/01/202201311830BengalTigerIndia.jpg)|
