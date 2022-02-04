@@ -4,3 +4,4 @@
 202202011600|GHDMarmot|阿尔卑斯旱獭，奥地利陶恩山国家公园 (© Misja Smits/Minden Pictures)|土拨鼠日快乐(又来了?)|![](/zh-CN/2022/02/202202011600GHDMarmot.jpg)|
 202202021600|FortCorjuem|Corjuem堡垒，印度果阿邦 (© Ingvar Kuznetsov/Shutterstock)|自森林中开垦出的堡垒|![](/zh-CN/2022/02/202202021600FortCorjuem.jpg)|
 202202031600|WinterOlymics|亚运村夜景，北京 (© ViewStock/Getty Images)|2022年北京冬奥会开幕！|![](/zh-CN/2022/02/202202031600WinterOlymics.jpg)|
+202202041600|MexicoMonarchs|漫天飞舞的黑脉金斑蝶，墨西哥 (© Sylvain Cordier/Minden Pictures)|蝴蝶之王|![](/zh-CN/2022/02/202202041600MexicoMonarchs.jpg)|
