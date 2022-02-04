@@ -5,3 +5,4 @@
 202202022300|FortCorjuem|Fort de Corjuem à Goa, Inde (© Ingvar Kuznetsov/Shutterstock)|Vestiges d’un autre temps|![](/fr-FR/2022/02/202202022300FortCorjuem.jpg)|
 202202032300|SpeloncatoSnow|Speloncato enneigé, Corse (© Jon Ingall/Alamy Stock Photo)|Tout là-haut|![](/fr-FR/2022/02/202202032300SpeloncatoSnow.jpg)|
 ||||![](/fr-FR/2022/02/.jpg)|
+202202042300|MexicoMonarchs|Monarques dans la réserve de biosphère du papillon monarque, Angangueo, Mexique (© Sylvain Cordier/Minden Pictures)|Papillonnez !|![](/fr-FR/2022/02/202202042300MexicoMonarchs.jpg)|
