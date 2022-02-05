@@ -5,3 +5,4 @@
 202202020500|GHDMarmot|Alpine marmot in Hohe Tauern National Park, Austria (© Misja Smits/Minden Pictures)|Happy Groundhog Day (again?)!|![](/en-CA/2022/02/202202020500GHDMarmot.jpg)|
 202202030500|FortCorjuem|Corjuem Fort in Goa, India (© Ingvar Kuznetsov/Shutterstock)|The forest reclaims a fortress|![](/en-CA/2022/02/202202030500FortCorjuem.jpg)|
 202202040500|BigAir|Big Air Shougang venue in Shijingshan District, Beijing, China (© Gao Zehong/VCG via Getty Images)|Beijing goes big|![](/en-CA/2022/02/202202040500BigAir.jpg)|
+202202050500|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-CA/2022/02/202202050500MexicoMonarchs.jpg)|
