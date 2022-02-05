@@ -6,3 +6,4 @@
 202202032300|SpeloncatoSnow|Speloncato enneigé, Corse (© Jon Ingall/Alamy Stock Photo)|Tout là-haut|![](/fr-FR/2022/02/202202032300SpeloncatoSnow.jpg)|
 ||||![](/fr-FR/2022/02/.jpg)|
 202202042300|MexicoMonarchs|Monarques dans la réserve de biosphère du papillon monarque, Angangueo, Mexique (© Sylvain Cordier/Minden Pictures)|Papillonnez !|![](/fr-FR/2022/02/202202042300MexicoMonarchs.jpg)|
+202202052300|Oymyakon|L’hiver à Oïmiakon, Russie (© Alexandr Berdicevschi/Getty Images)|Le vrai froid|![](/fr-FR/2022/02/202202052300Oymyakon.jpg)|
