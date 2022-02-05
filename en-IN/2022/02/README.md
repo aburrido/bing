@@ -5,3 +5,4 @@
 202202021830|FortCorjuem|Corjuem Fort in Goa, India (© Ingvar Kuznetsov/Shutterstock)|The forest reclaims a fortress|![](/en-IN/2022/02/202202021830FortCorjuem.jpg)|
 202202031830|BigAir|Big Air Shougang venue in Shijingshan District, Beijing, China (© Gao Zehong/VCG via Getty Images)|Beijing goes big|![](/en-IN/2022/02/202202031830BigAir.jpg)|
 202202041830|PaperKites|A bundle of colourful paper kites in India (© Anand Purohit/Moment/Getty Images)|A colourful bundle of joy|![](/en-IN/2022/02/202202041830PaperKites.jpg)|
+202202051830|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Northern 'Pole of Cold'|![](/en-IN/2022/02/202202051830Oymyakon.jpg)|
