@@ -6,3 +6,4 @@
 202202030500|FortCorjuem|Corjuem Fort in Goa, India (© Ingvar Kuznetsov/Shutterstock)|The forest reclaims a fortress|![](/en-CA/2022/02/202202030500FortCorjuem.jpg)|
 202202040500|BigAir|Big Air Shougang venue in Shijingshan District, Beijing, China (© Gao Zehong/VCG via Getty Images)|Beijing goes big|![](/en-CA/2022/02/202202040500BigAir.jpg)|
 202202050500|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-CA/2022/02/202202050500MexicoMonarchs.jpg)|
+202202060500|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Brrrrrrrr.|![](/en-CA/2022/02/202202060500Oymyakon.jpg)|
