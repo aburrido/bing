@@ -6,3 +6,4 @@
 202202040000|BigAir|Big Air Shougang venue in Shijingshan District, Beijing, China (© Gao Zehong/VCG via Getty Images)|Beijing goes big|![](/en-GB/2022/02/202202040000BigAir.jpg)|
 202202050000|RugbyCatch|Bronze statue of a rugby line-out by British sculptor Gerald Laing outside Twickenham Stadium, south-west London (© Glyn Kirk/AFP/Getty Images)|Reach for the sky|![](/en-GB/2022/02/202202050000RugbyCatch.jpg)|
 202202060000|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Brrrrrrrr|![](/en-GB/2022/02/202202060000Oymyakon.jpg)|
+202202070000|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-GB/2022/02/202202070000MexicoMonarchs.jpg)|
