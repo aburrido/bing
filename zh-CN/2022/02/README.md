@@ -7,3 +7,4 @@
 202202041600|MexicoMonarchs|漫天飞舞的黑脉金斑蝶，墨西哥 (© Sylvain Cordier/Minden Pictures)|蝴蝶之王|![](/zh-CN/2022/02/202202041600MexicoMonarchs.jpg)|
 202202051600|Oymyakon|奥伊米亚康的冬天，俄罗斯 (© Alexandr Berdicevschi/Getty Images)|太太太太太冷了|![](/zh-CN/2022/02/202202051600Oymyakon.jpg)|
 202202061600|WinterludeIce|冰雪节上的冰雕艺术作品，加拿大渥太华 (© S. Garcia Cournoyer/Alamy)|冬天的一切都值得庆祝|![](/zh-CN/2022/02/202202061600WinterludeIce.jpg)|
+202202071600|SpeloncatoSnow|科西嘉岛上的Speloncato市，法国 (© Jon Ingall/Alamy)|拿破仑在这里出生|![](/zh-CN/2022/02/202202071600SpeloncatoSnow.jpg)|
