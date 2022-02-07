@@ -7,3 +7,4 @@
 202202041500|FinlandBrownBear|ユーラシアヒグマ, フィンランド (© Jules Cox/Minden Pictures)|子グマとタイガの森|![](/ja-JP/2022/02/202202041500FinlandBrownBear.jpg)|
 202202051500|Oymyakon|冬のオイミャコン, ロシア サハ (© Alexandr Berdicevschi/Getty Images)|世界で最も寒い村|![](/ja-JP/2022/02/202202051500Oymyakon.jpg)|
 202202061500|WinterludeIce|ウィンタールードの氷の彫刻, カナダ オタワ (© S. Garcia Cournoyer/Alamy)|ウィンタールード開催中！|![](/ja-JP/2022/02/202202061500WinterludeIce.jpg)|
+202202071500|UFOPetroglyphs|UFOの岩絵, 米国 ニューメキシコ (© Scott Warren/Cavan)|今日は「地球外文化の日」|![](/ja-JP/2022/02/202202071500UFOPetroglyphs.jpg)|
