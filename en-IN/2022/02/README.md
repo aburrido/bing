@@ -7,3 +7,4 @@
 202202041830|PaperKites|A bundle of colourful paper kites in India (© Anand Purohit/Moment/Getty Images)|A colourful bundle of joy|![](/en-IN/2022/02/202202041830PaperKites.jpg)|
 202202051830|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Northern 'Pole of Cold'|![](/en-IN/2022/02/202202051830Oymyakon.jpg)|
 202202061830|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-IN/2022/02/202202061830MexicoMonarchs.jpg)|
+202202071830|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-IN/2022/02/202202071830UFOPetroglyphs.jpg)|
