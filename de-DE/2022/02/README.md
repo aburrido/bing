@@ -7,3 +7,4 @@
 202202042300|MexicoMonarchs|Monarchfalter im Biosphärenreservat Mariposa Monarca, Angangueo, Mexiko (© Sylvain Cordier/Minden Pictures)|König der Schmetterlinge|![](/de-DE/2022/02/202202042300MexicoMonarchs.jpg)|
 202202052300|WinterludeIce|Eisskulpturen auf dem Winterlude-Festival 2013 in Ottawa, Kanada (© S. Garcia Cournoyer/Alamy)|Hier wird der Winter gefeiert!|![](/de-DE/2022/02/202202052300WinterludeIce.jpg)|
 202202062300|GlassForest|Gläserner Wald, Regen, Bayerischer Wald, Bayern (© Rüdiger Hess/geo-select FotoArt)|Ein Wald aus Glas|![](/de-DE/2022/02/202202062300GlassForest.jpg)|
+||||![](/de-DE/2022/02/.jpg)|
