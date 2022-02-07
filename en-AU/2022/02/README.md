@@ -7,3 +7,4 @@
 202202040800|SpeloncatoSnow|Speloncato, Corsica, France (© Jon Ingall/Alamy)|Info|![](/en-AU/2022/02/202202040800SpeloncatoSnow.jpg)|
 202202050800|MexicoMonarchs|Monarch butterflies, Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|Info|![](/en-AU/2022/02/202202050800MexicoMonarchs.jpg)|
 202202060800|Oymyakon|Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Info|![](/en-AU/2022/02/202202060800Oymyakon.jpg)|
+202202070800|WinterludeIce|Ice sculpture, Ottawa, Canada (© S. Garcia Cournoyer/Alamy)|Info|![](/en-AU/2022/02/202202070800WinterludeIce.jpg)|
