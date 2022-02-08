@@ -8,3 +8,4 @@
 202202050500|MexicoMonarchs|Monarques dans la réserve de biosphère du papillon monarque, Angangueo, Mexique (© Sylvain Cordier/Minden Pictures)||![](/fr-CA/2022/02/202202050500MexicoMonarchs.jpg)|
 202202060500|Oymyakon|L’hiver à Oïmiakon, Russie (© Alexandr Berdicevschi/Getty Images)||![](/fr-CA/2022/02/202202060500Oymyakon.jpg)|
 202202070500|WinterludeIce|Sculptures de glace lors de l’édition 2013 du Winterlude à Ottawa (© S. Garcia Cournoyer/Alamy)||![](/fr-CA/2022/02/202202070500WinterludeIce.jpg)|
+202202080500|SpeloncatoSnow|Speloncato en Haute-Corse, Corse, France (© Jon Ingall/Alamy)||![](/fr-CA/2022/02/202202080500SpeloncatoSnow.jpg)|

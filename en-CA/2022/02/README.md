@@ -8,3 +8,4 @@
 202202050500|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-CA/2022/02/202202050500MexicoMonarchs.jpg)|
 202202060500|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Brrrrrrrr.|![](/en-CA/2022/02/202202060500Oymyakon.jpg)|
 202202070500|WinterludeIce|Ice sculptures from the 2013 edition of Winterlude in Ottawa (© S. Garcia Cournoyer/Alamy)|Celebrating all things winter|![](/en-CA/2022/02/202202070500WinterludeIce.jpg)|
+202202080500|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-CA/2022/02/202202080500UFOPetroglyphs.jpg)|
