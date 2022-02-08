@@ -9,3 +9,4 @@
 202202062300|GlassForest|Gläserner Wald, Regen, Bayerischer Wald, Bayern (© Rüdiger Hess/geo-select FotoArt)|Ein Wald aus Glas|![](/de-DE/2022/02/202202062300GlassForest.jpg)|
 ||||![](/de-DE/2022/02/.jpg)|
 202202072300|UFOPetroglyphs|Felskunst in der Nähe von Santa Fe, New Mexico, USA (© Scott Warren/Cavan)|Die Wahrheit ist irgendwo da draußen …|![](/de-DE/2022/02/202202072300UFOPetroglyphs.jpg)|
+202202082300|SevenSistersCliffs|Küstenwache-Häuschen und Seven Sisters nahe Eastbourne, East Sussex, England (© Paul Daniels/Alamy Stock Photo)|Eine bröckelnde Küste|![](/de-DE/2022/02/202202082300SevenSistersCliffs.jpg)|

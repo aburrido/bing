@@ -9,3 +9,4 @@
 202202052300|Oymyakon|L’hiver à Oïmiakon, Russie (© Alexandr Berdicevschi/Getty Images)|Le vrai froid|![](/fr-FR/2022/02/202202052300Oymyakon.jpg)|
 202202062300|WinterludeIce|Ice sculptures from the 2013 edition of Winterlude in Ottawa (© S. Garcia Cournoyer/Alamy)|Le Canada fête l’hiver|![](/fr-FR/2022/02/202202062300WinterludeIce.jpg)|
 202202072300|UFOPetroglyphs|Pétroglyphe près de Santa Fe, Nouveau Mexique, États-Unis (© Scott Warren/Cavan)|Nous ne sommes pas seuls|![](/fr-FR/2022/02/202202072300UFOPetroglyphs.jpg)|
+202202082300|SevenSistersCliffs|Maisons des garde-côtes sur les falaises Seven Sisters, Sussex de l’Est, Angleterre (© Paul Daniels/Alamy)|Sur une pente glissante|![](/fr-FR/2022/02/202202082300SevenSistersCliffs.jpg)|
