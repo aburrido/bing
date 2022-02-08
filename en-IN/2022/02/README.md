@@ -8,3 +8,4 @@
 202202051830|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Northern 'Pole of Cold'|![](/en-IN/2022/02/202202051830Oymyakon.jpg)|
 202202061830|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-IN/2022/02/202202061830MexicoMonarchs.jpg)|
 202202071830|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-IN/2022/02/202202071830UFOPetroglyphs.jpg)|
+202202081830|SevenSistersCliffs|Coastguard cottages on Seven Sisters cliffs, East Sussex, England (© Paul Daniels/Alamy)|The white cliffs of... East Sussex|![](/en-IN/2022/02/202202081830SevenSistersCliffs.jpg)|
