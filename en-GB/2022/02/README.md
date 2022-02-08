@@ -7,3 +7,4 @@
 202202050000|RugbyCatch|Bronze statue of a rugby line-out by British sculptor Gerald Laing outside Twickenham Stadium, south-west London (© Glyn Kirk/AFP/Getty Images)|Reach for the sky|![](/en-GB/2022/02/202202050000RugbyCatch.jpg)|
 202202060000|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Brrrrrrrr|![](/en-GB/2022/02/202202060000Oymyakon.jpg)|
 202202070000|MexicoMonarchs|Monarch butterflies in the Monarch Butterfly Biosphere Reserve, Angangueo, Mexico (© Sylvain Cordier/Minden Pictures)|King of the butterflies|![](/en-GB/2022/02/202202070000MexicoMonarchs.jpg)|
+202202080000|UFOPetroglyphs|Rock art near Santa Fe, New Mexico, USA (© Scott Warren/Cavan)|The truth is out there…|![](/en-GB/2022/02/202202080000UFOPetroglyphs.jpg)|
