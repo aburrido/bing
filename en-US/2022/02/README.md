@@ -10,3 +10,4 @@
 202202060800|Oymyakon|Winter in Oymyakon, Russia (© Alexandr Berdicevschi/Getty Images)|Brrrrrrrr|![](/en-US/2022/02/202202060800Oymyakon.jpg)|
 202202070800|RideauSkating|Rideau Canal Skateway during Winterlude in Ottawa, Canada (© Preappy/Getty Images)|Gliding through winter|![](/en-US/2022/02/202202070800RideauSkating.jpg)|
 202202080800|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-US/2022/02/202202080800UFOPetroglyphs.jpg)|
+202202090800|JukkasjarviIcehotel|The Ceremony Hall of Icehotel in Jukkasjarvi, Sweden (© Wolfgang Kaehler/LightRocket via Getty Images)|Northern hospitality|![](/en-US/2022/02/202202090800JukkasjarviIcehotel.jpg)|
