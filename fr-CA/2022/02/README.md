@@ -9,3 +9,4 @@
 202202060500|Oymyakon|L’hiver à Oïmiakon, Russie (© Alexandr Berdicevschi/Getty Images)||![](/fr-CA/2022/02/202202060500Oymyakon.jpg)|
 202202070500|WinterludeIce|Sculptures de glace lors de l’édition 2013 du Winterlude à Ottawa (© S. Garcia Cournoyer/Alamy)||![](/fr-CA/2022/02/202202070500WinterludeIce.jpg)|
 202202080500|SpeloncatoSnow|Speloncato en Haute-Corse, Corse, France (© Jon Ingall/Alamy)||![](/fr-CA/2022/02/202202080500SpeloncatoSnow.jpg)|
+202202090500|SevenSistersCliffs|Maisons des garde-côtes sur les falaises Seven Sisters, Sussex de l’Est, Angleterre (© Paul Daniels/Alamy)||![](/fr-CA/2022/02/202202090500SevenSistersCliffs.jpg)|
