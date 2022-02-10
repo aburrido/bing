@@ -10,3 +10,4 @@
 202202070500|WinterludeIce|Ice sculptures from the 2013 edition of Winterlude in Ottawa (© S. Garcia Cournoyer/Alamy)|Celebrating all things winter|![](/en-CA/2022/02/202202070500WinterludeIce.jpg)|
 202202080500|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-CA/2022/02/202202080500UFOPetroglyphs.jpg)|
 202202090500|GranvilleBC|Granville Island marina in Vancouver (© Albert Pego/Shutterstock)|Calming coastal scenery|![](/en-CA/2022/02/202202090500GranvilleBC.jpg)|
+202202100500|SnowyBern|Old Town section of Bern, Switzerland (© Xantana/Getty Images)|The lights of Old Town|![](/en-CA/2022/02/202202100500SnowyBern.jpg)|
