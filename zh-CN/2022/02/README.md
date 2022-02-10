@@ -10,3 +10,4 @@
 202202071600|SpeloncatoSnow|科西嘉岛上的Speloncato市，法国 (© Jon Ingall/Alamy)|拿破仑在这里出生|![](/zh-CN/2022/02/202202071600SpeloncatoSnow.jpg)|
 202202081600|SevenSistersCliffs|七姐妹悬崖上的警卫小屋，英国东萨塞克斯郡 (© Paul Daniels/Alamy)|东萨塞克斯郡的白色悬崖|![](/zh-CN/2022/02/202202081600SevenSistersCliffs.jpg)|
 202202091600|SnowyBern|静谧的伯尔尼古城区，瑞士 (© Xantana/Getty Images)|古城区的灯火|![](/zh-CN/2022/02/202202091600SnowyBern.jpg)|
+202202101600|TeaGardensMunnar|慕那尔山区的茶园，印度喀拉拉邦 (© SvitlanaBelinska/iStock/Getty Images Plus)|印度慕纳尔|![](/zh-CN/2022/02/202202101600TeaGardensMunnar.jpg)|
