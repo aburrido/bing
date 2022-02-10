@@ -11,3 +11,4 @@
 202202072300|UFOPetroglyphs|Felskunst in der Nähe von Santa Fe, New Mexico, USA (© Scott Warren/Cavan)|Die Wahrheit ist irgendwo da draußen …|![](/de-DE/2022/02/202202072300UFOPetroglyphs.jpg)|
 202202082300|SevenSistersCliffs|Küstenwache-Häuschen und Seven Sisters nahe Eastbourne, East Sussex, England (© Paul Daniels/Alamy Stock Photo)|Eine bröckelnde Küste|![](/de-DE/2022/02/202202082300SevenSistersCliffs.jpg)|
 202202092300|SnowyBern|Berner Altstadt, Schweiz (© Xantana/Getty Images)|Die Lichter der Altstadt|![](/de-DE/2022/02/202202092300SnowyBern.jpg)|
+202202102300|TeaGardensMunnar|Teeplantagen in den Bergen von Munnar in Kerala, Indien (© SvitlanaBelinska/iStock/Getty Images Plus)|Tee so weit das Auge reicht|![](/de-DE/2022/02/202202102300TeaGardensMunnar.jpg)|
