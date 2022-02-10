@@ -10,3 +10,4 @@
 202202071500|UFOPetroglyphs|UFOの岩絵, 米国 ニューメキシコ (© Scott Warren/Cavan)|今日は「地球外文化の日」|![](/ja-JP/2022/02/202202071500UFOPetroglyphs.jpg)|
 202202081500|SevenSistersCliffs|セブン・シスターズ, イギリス イースト・サセックス (© Paul Daniels/Alamy)|イギリス海峡を望む七姉妹|![](/ja-JP/2022/02/202202081500SevenSistersCliffs.jpg)|
 202202091500|SnowyBern|ベルンの夜景, スイス (© Xantana/Getty Images)|世界遺産の夜景|![](/ja-JP/2022/02/202202091500SnowyBern.jpg)|
+||||![](/ja-JP/2022/02/.jpg)|
