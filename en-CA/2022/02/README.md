@@ -11,3 +11,4 @@
 202202080500|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-CA/2022/02/202202080500UFOPetroglyphs.jpg)|
 202202090500|GranvilleBC|Granville Island marina in Vancouver (© Albert Pego/Shutterstock)|Calming coastal scenery|![](/en-CA/2022/02/202202090500GranvilleBC.jpg)|
 202202100500|SnowyBern|Old Town section of Bern, Switzerland (© Xantana/Getty Images)|The lights of Old Town|![](/en-CA/2022/02/202202100500SnowyBern.jpg)|
+202202110500|TeaGardensMunnar|Tea plantations in the mountains of Munnar in Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Ravishing tea plantations in Munnar|![](/en-CA/2022/02/202202110500TeaGardensMunnar.jpg)|

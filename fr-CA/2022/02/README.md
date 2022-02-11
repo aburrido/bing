@@ -11,3 +11,4 @@
 202202080500|SpeloncatoSnow|Speloncato en Haute-Corse, Corse, France (© Jon Ingall/Alamy)||![](/fr-CA/2022/02/202202080500SpeloncatoSnow.jpg)|
 202202090500|SevenSistersCliffs|Maisons des garde-côtes sur les falaises Seven Sisters, Sussex de l’Est, Angleterre (© Paul Daniels/Alamy)||![](/fr-CA/2022/02/202202090500SevenSistersCliffs.jpg)|
 202202100500|SnowyBern|Vieille ville de Bern, Suisse (© Xantana/Getty Images)||![](/fr-CA/2022/02/202202100500SnowyBern.jpg)|
+202202110500|TeaGardensMunnar|Plantations de thé sur les collines de Munnar, Kerala, Inde (© SvitlanaBelinska/iStock/Getty Images Plus)||![](/fr-CA/2022/02/202202110500TeaGardensMunnar.jpg)|
