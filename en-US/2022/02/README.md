@@ -12,3 +12,4 @@
 202202080800|UFOPetroglyphs|Rock art near Santa Fe, New Mexico (© Scott Warren/Cavan)|The truth is out there…but not on this rock|![](/en-US/2022/02/202202080800UFOPetroglyphs.jpg)|
 202202090800|JukkasjarviIcehotel|The Ceremony Hall of Icehotel in Jukkasjarvi, Sweden (© Wolfgang Kaehler/LightRocket via Getty Images)|Northern hospitality|![](/en-US/2022/02/202202090800JukkasjarviIcehotel.jpg)|
 202202100800|SnowyBern|The Old City of Bern, Switzerland (© Xantana/Getty Images)|Lights of the Old City|![](/en-US/2022/02/202202100800SnowyBern.jpg)|
+202202110800|TriptychGo|'Go' by Kehinde Wiley, displayed inside Moynihan Train Hall at New York City's Penn Station (© Spencer Platt/Getty Images)|Look up to Black pride|![](/en-US/2022/02/202202110800TriptychGo.jpg)|
