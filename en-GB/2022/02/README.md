@@ -10,3 +10,4 @@
 202202080000|UFOPetroglyphs|Rock art near Santa Fe, New Mexico, USA (© Scott Warren/Cavan)|The truth is out there…|![](/en-GB/2022/02/202202080000UFOPetroglyphs.jpg)|
 202202090000|StCwyfans|St Cwyfans Church, Anglesey at low tide. (© David Henderson/DEEPOL by plainpicture)|The little church in the sea|![](/en-GB/2022/02/202202090000StCwyfans.jpg)|
 202202100000|SnowyBern|Old Town section of Bern, Switzerland (© Xantana/Getty Images)|Dusk falls on Old Town|![](/en-GB/2022/02/202202100000SnowyBern.jpg)|
+202202110000|TeaGardensMunnar|Tea plantations in the mountains of Munnar in Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Tea and serenity|![](/en-GB/2022/02/202202110000TeaGardensMunnar.jpg)|
