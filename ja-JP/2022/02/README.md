@@ -12,3 +12,4 @@
 202202091500|SnowyBern|ベルンの夜景, スイス (© Xantana/Getty Images)|世界遺産の夜景|![](/ja-JP/2022/02/202202091500SnowyBern.jpg)|
 ||||![](/ja-JP/2022/02/.jpg)|
 202202101500|Rissyun2022|雪中の白梅 (© sakasyou/iStock/Getty Images Plus)|今日から水戸の梅まつり|![](/ja-JP/2022/02/202202101500Rissyun2022.jpg)|
+202202111500|DarwinsArch|ダーウィンのアーチ, エクアドル ガラパゴス諸島 (© miralex/Getty Images)|今日は「ダーウィンの日」|![](/ja-JP/2022/02/202202111500DarwinsArch.jpg)|
