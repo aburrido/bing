@@ -12,3 +12,4 @@
 202202091600|SnowyBern|静谧的伯尔尼古城区，瑞士 (© Xantana/Getty Images)|古城区的灯火|![](/zh-CN/2022/02/202202091600SnowyBern.jpg)|
 202202101600|TeaGardensMunnar|慕那尔山区的茶园，印度喀拉拉邦 (© SvitlanaBelinska/iStock/Getty Images Plus)|印度慕纳尔|![](/zh-CN/2022/02/202202101600TeaGardensMunnar.jpg)|
 ||||![](/zh-CN/2022/02/.jpg)|
+202202111600|DarwinsArch|达尔文岛的达尔文拱门，厄瓜多尔加拉帕戈斯 (© miralex/Getty Images)|著名海拱门的末日|![](/zh-CN/2022/02/202202111600DarwinsArch.jpg)|
