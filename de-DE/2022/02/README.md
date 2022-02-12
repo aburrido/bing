@@ -13,3 +13,4 @@
 202202092300|SnowyBern|Berner Altstadt, Schweiz (© Xantana/Getty Images)|Die Lichter der Altstadt|![](/de-DE/2022/02/202202092300SnowyBern.jpg)|
 202202102300|TeaGardensMunnar|Teeplantagen in den Bergen von Munnar in Kerala, Indien (© SvitlanaBelinska/iStock/Getty Images Plus)|Tee so weit das Auge reicht|![](/de-DE/2022/02/202202102300TeaGardensMunnar.jpg)|
 202202112300|DarwinsArch|Darwins Bogen mit der Isla Darwin im Hintergrund, Galapagosinseln, Ecuador (© miralex/Getty Images)|Die letzten Tage eines berühmten Felsentors|![](/de-DE/2022/02/202202112300DarwinsArch.jpg)|
+202202122300|SchlossBellevue|Schloss Bellevue, Berlin (© Zoonar GmbH/Alamy Stock Photo)|„Schöne Aussicht“ auf einen Amtssitz|![](/de-DE/2022/02/202202122300SchlossBellevue.jpg)|
