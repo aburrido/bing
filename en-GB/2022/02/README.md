@@ -11,3 +11,4 @@
 202202090000|StCwyfans|St Cwyfans Church, Anglesey at low tide. (© David Henderson/DEEPOL by plainpicture)|The little church in the sea|![](/en-GB/2022/02/202202090000StCwyfans.jpg)|
 202202100000|SnowyBern|Old Town section of Bern, Switzerland (© Xantana/Getty Images)|Dusk falls on Old Town|![](/en-GB/2022/02/202202100000SnowyBern.jpg)|
 202202110000|TeaGardensMunnar|Tea plantations in the mountains of Munnar in Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Tea and serenity|![](/en-GB/2022/02/202202110000TeaGardensMunnar.jpg)|
+202202120000|DarwinsArch|Darwin's Arch with Darwin Island in background, Galápagos, Ecuador (© miralex/Getty Images)|Last days of a famous sea arch|![](/en-GB/2022/02/202202120000DarwinsArch.jpg)|
