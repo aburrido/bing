@@ -13,3 +13,4 @@
 202202101600|TeaGardensMunnar|慕那尔山区的茶园，印度喀拉拉邦 (© SvitlanaBelinska/iStock/Getty Images Plus)|印度慕纳尔|![](/zh-CN/2022/02/202202101600TeaGardensMunnar.jpg)|
 ||||![](/zh-CN/2022/02/.jpg)|
 202202111600|DarwinsArch|达尔文岛的达尔文拱门，厄瓜多尔加拉帕戈斯 (© miralex/Getty Images)|著名海拱门的末日|![](/zh-CN/2022/02/202202111600DarwinsArch.jpg)|
+202202121600|FaceOff|黄石国家公园的美洲野牛，美国怀俄明州 (© Gerald Corsi/Getty Images)|美洲巨兽们的正面交锋|![](/zh-CN/2022/02/202202121600FaceOff.jpg)|
