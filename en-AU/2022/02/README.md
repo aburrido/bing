@@ -12,3 +12,4 @@
 202202090800|SevenSistersCliffs|Seven Sisters cliffs, East Sussex, England (© Paul Daniels/Alamy)|Info|![](/en-AU/2022/02/202202090800SevenSistersCliffs.jpg)|
 202202100800|SnowyBern|Old Town, Bern, Switzerland (© Xantana/Getty Images)|Info|![](/en-AU/2022/02/202202100800SnowyBern.jpg)|
 202202110800|TeaGardensMunnar|Tea plantations, Munnar, Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Info|![](/en-AU/2022/02/202202110800TeaGardensMunnar.jpg)|
+202202120800|DarwinsArch|Darwin's Arch, Galápagos, Ecuador (© miralex/Getty Images)|Info|![](/en-AU/2022/02/202202120800DarwinsArch.jpg)|

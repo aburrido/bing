@@ -13,3 +13,4 @@
 202202090800|JukkasjarviIcehotel|The Ceremony Hall of Icehotel in Jukkasjarvi, Sweden (© Wolfgang Kaehler/LightRocket via Getty Images)|Northern hospitality|![](/en-US/2022/02/202202090800JukkasjarviIcehotel.jpg)|
 202202100800|SnowyBern|The Old City of Bern, Switzerland (© Xantana/Getty Images)|Lights of the Old City|![](/en-US/2022/02/202202100800SnowyBern.jpg)|
 202202110800|TriptychGo|'Go' by Kehinde Wiley, displayed inside Moynihan Train Hall at New York City's Penn Station (© Spencer Platt/Getty Images)|Look up to Black pride|![](/en-US/2022/02/202202110800TriptychGo.jpg)|
+202202120800|DarwinsArch|Darwin's Arch with Darwin Island in background, Galápagos, Ecuador (© miralex/Getty Images)|Last days of a famous sea arch|![](/en-US/2022/02/202202120800DarwinsArch.jpg)|
