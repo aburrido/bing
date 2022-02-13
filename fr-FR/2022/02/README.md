@@ -14,3 +14,4 @@
 202202102300|TeaGardensMunnar|Plantations de thé sur les collines de Munnar, Kerala, Inde (© SvitlanaBelinska/iStock/Getty Images Plus)|Avec un nuage de lait|![](/fr-FR/2022/02/202202102300TeaGardensMunnar.jpg)|
 202202112300|DarwinsArch|L’Arche de Darwin et l’île de Darwin en arrière-plan, Galápagos, Équateur (© miralex/Getty Images)|Allégorie de l’évolution|![](/fr-FR/2022/02/202202112300DarwinsArch.jpg)|
 202202122300|FaceOff|Bisons d’Amérique du Nord dans le parc national de Yellowstone, Wyoming, États-Unis (© Gerald Corsi/Getty Images)|Conflit d’intérêts|![](/fr-FR/2022/02/202202122300FaceOff.jpg)|
+202202132300|MaldivesHeart|Île en forme de coeur et plage de sable blanc, océan Indien, Maldives (© Willyam Bradberry/Shutterstock)|Le cœur des Maldives|![](/fr-FR/2022/02/202202132300MaldivesHeart.jpg)|
