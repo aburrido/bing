@@ -14,3 +14,4 @@
 ||||![](/zh-CN/2022/02/.jpg)|
 202202111600|DarwinsArch|达尔文岛的达尔文拱门，厄瓜多尔加拉帕戈斯 (© miralex/Getty Images)|著名海拱门的末日|![](/zh-CN/2022/02/202202111600DarwinsArch.jpg)|
 202202121600|FaceOff|黄石国家公园的美洲野牛，美国怀俄明州 (© Gerald Corsi/Getty Images)|美洲巨兽们的正面交锋|![](/zh-CN/2022/02/202202121600FaceOff.jpg)|
+202202131600|MaldivesHeart|心形小岛和白沙滩，印度洋马尔代夫 (© Willyam Bradberry/Shutterstock)|阿拉伯海的情人节|![](/zh-CN/2022/02/202202131600MaldivesHeart.jpg)|
