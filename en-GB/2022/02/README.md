@@ -12,3 +12,4 @@
 202202100000|SnowyBern|Old Town section of Bern, Switzerland (© Xantana/Getty Images)|Dusk falls on Old Town|![](/en-GB/2022/02/202202100000SnowyBern.jpg)|
 202202110000|TeaGardensMunnar|Tea plantations in the mountains of Munnar in Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Tea and serenity|![](/en-GB/2022/02/202202110000TeaGardensMunnar.jpg)|
 202202120000|DarwinsArch|Darwin's Arch with Darwin Island in background, Galápagos, Ecuador (© miralex/Getty Images)|Last days of a famous sea arch|![](/en-GB/2022/02/202202120000DarwinsArch.jpg)|
+202202130000|FaceOff|American bison in Yellowstone National Park, Wyoming, USA (© Gerald Corsi/Getty Images)|American goliaths go head-to-head|![](/en-GB/2022/02/202202130000FaceOff.jpg)|
