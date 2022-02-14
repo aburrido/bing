@@ -15,3 +15,4 @@
 202202110800|TriptychGo|'Go' by Kehinde Wiley, displayed inside Moynihan Train Hall at New York City's Penn Station (© Spencer Platt/Getty Images)|Look up to Black pride|![](/en-US/2022/02/202202110800TriptychGo.jpg)|
 202202120800|DarwinsArch|Darwin's Arch with Darwin Island in background, Galápagos, Ecuador (© miralex/Getty Images)|Last days of a famous sea arch|![](/en-US/2022/02/202202120800DarwinsArch.jpg)|
 202202130800|FaceOff|American bison in Yellowstone National Park, Wyoming (© Gerald Corsi/Getty Images)|American goliaths go head-to-head|![](/en-US/2022/02/202202130800FaceOff.jpg)|
+202202140800|MaldivesHeart|Heart-shaped island with sandy beach, offshore coral reef, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|A Valentine in the Arabian Sea|![](/en-US/2022/02/202202140800MaldivesHeart.jpg)|

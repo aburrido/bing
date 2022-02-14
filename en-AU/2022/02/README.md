@@ -14,3 +14,4 @@
 202202110800|TeaGardensMunnar|Tea plantations, Munnar, Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Info|![](/en-AU/2022/02/202202110800TeaGardensMunnar.jpg)|
 202202120800|DarwinsArch|Darwin's Arch, Galápagos, Ecuador (© miralex/Getty Images)|Info|![](/en-AU/2022/02/202202120800DarwinsArch.jpg)|
 202202130800|FaceOff|American bison, Yellowstone National Park, Wyoming, USA (© Gerald Corsi/Getty Images)|Info|![](/en-AU/2022/02/202202130800FaceOff.jpg)|
+202202140800|MaldivesHeart|Heart-shaped island, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|Info|![](/en-AU/2022/02/202202140800MaldivesHeart.jpg)|
