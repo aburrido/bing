@@ -15,3 +15,4 @@
 202202112300|DarwinsArch|L’Arche de Darwin et l’île de Darwin en arrière-plan, Galápagos, Équateur (© miralex/Getty Images)|Allégorie de l’évolution|![](/fr-FR/2022/02/202202112300DarwinsArch.jpg)|
 202202122300|FaceOff|Bisons d’Amérique du Nord dans le parc national de Yellowstone, Wyoming, États-Unis (© Gerald Corsi/Getty Images)|Conflit d’intérêts|![](/fr-FR/2022/02/202202122300FaceOff.jpg)|
 202202132300|MaldivesHeart|Île en forme de coeur et plage de sable blanc, océan Indien, Maldives (© Willyam Bradberry/Shutterstock)|Le cœur des Maldives|![](/fr-FR/2022/02/202202132300MaldivesHeart.jpg)|
+202202142300|ChengduLanterns|Lanternes rouges pendues à des arbres pendant la fête des lanternes à Chengdu, Sichuan, Chine (© Philippe LEJEANVRE/Getty Images)|La fête des lanternes|![](/fr-FR/2022/02/202202142300ChengduLanterns.jpg)|
