@@ -14,3 +14,4 @@
 202202110500|TeaGardensMunnar|Tea plantations in the mountains of Munnar in Kerala, India (© SvitlanaBelinska/iStock/Getty Images Plus)|Ravishing tea plantations in Munnar|![](/en-CA/2022/02/202202110500TeaGardensMunnar.jpg)|
 202202120500|DarwinsArch|Darwin's Arch with Darwin Island in background, Galápagos, Ecuador (© miralex/Getty Images)|Last days of a famous sea arch|![](/en-CA/2022/02/202202120500DarwinsArch.jpg)|
 202202130500|FaceOff|American bison in Yellowstone National Park, Wyoming (© Gerald Corsi/Getty Images)|American goliaths go head-to-head|![](/en-CA/2022/02/202202130500FaceOff.jpg)|
+202202140500|MaldivesHeart|Heart-shaped island with sandy beach, offshore coral reef, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|A Valentine in the Arabian Sea|![](/en-CA/2022/02/202202140500MaldivesHeart.jpg)|
