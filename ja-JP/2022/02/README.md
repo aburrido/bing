@@ -15,3 +15,4 @@
 202202111500|DarwinsArch|ダーウィンのアーチ, エクアドル ガラパゴス諸島 (© miralex/Getty Images)|今日は「ダーウィンの日」|![](/ja-JP/2022/02/202202111500DarwinsArch.jpg)|
 202202121500|OtaruSnowFes|小樽雪あかりの路, 北海道 小樽市 (© Pat Law Photography/Moment Unreleased/Getty Images)|「小樽雪あかりの路」最終日|![](/ja-JP/2022/02/202202121500OtaruSnowFes.jpg)|
 202202131500|MaldivesHeart|ハート型の島, モルディブ (© Willyam Bradberry/Shutterstock)|今日は「バレンタインデー」|![](/ja-JP/2022/02/202202131500MaldivesHeart.jpg)|
+202202141500|ChengduLanterns|成都のランタン・フェスティバル, 中国 四川省 (© Philippe LEJEANVRE/Getty Images)|今日は「元宵節」|![](/ja-JP/2022/02/202202141500ChengduLanterns.jpg)|
