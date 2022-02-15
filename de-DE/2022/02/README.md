@@ -16,3 +16,4 @@
 202202122300|SchlossBellevue|Schloss Bellevue, Berlin (© Zoonar GmbH/Alamy Stock Photo)|„Schöne Aussicht“ auf einen Amtssitz|![](/de-DE/2022/02/202202122300SchlossBellevue.jpg)|
 202202132300|MaldivesHeart|Herzförmige Insel mit Sandstrand, vorgelagertes Korallenriff, Indischer Ozean, Malediven (© Willyam Bradberry/Shutterstock)|Valentinsgruß aus dem Indischen Ozean|![](/de-DE/2022/02/202202132300MaldivesHeart.jpg)|
 202202142300|ChengduLanterns|Mit roten Laternen geschmückte Bäume in Chengdu, Provinz Sichuan, China (© Philippe LEJEANVRE/Getty Images)|Erleuchtet ins neue Jahr|![](/de-DE/2022/02/202202142300ChengduLanterns.jpg)|
+202202152300|CranborneChase|Mit Raureif überzogene Buchenlandschaft, Cranborne Chase, Grafschaft Dorset, England (© Guy Edwardes/Minden Pictures)|Die schöne Seite des Winters|![](/de-DE/2022/02/202202152300CranborneChase.jpg)|
