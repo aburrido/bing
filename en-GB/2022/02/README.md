@@ -14,3 +14,4 @@
 202202120000|DarwinsArch|Darwin's Arch with Darwin Island in background, Galápagos, Ecuador (© miralex/Getty Images)|Last days of a famous sea arch|![](/en-GB/2022/02/202202120000DarwinsArch.jpg)|
 202202130000|FaceOff|American bison in Yellowstone National Park, Wyoming, USA (© Gerald Corsi/Getty Images)|American goliaths go head-to-head|![](/en-GB/2022/02/202202130000FaceOff.jpg)|
 202202140000|MaldivesHeart|Heart-shaped island with sandy beach, offshore coral reef, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|Love island?|![](/en-GB/2022/02/202202140000MaldivesHeart.jpg)|
+202202150000|ChengduLanterns|Red lanterns hanging on trees during the Lantern Festival in Chengdu, Sichuan, China (© Philippe Lejeanvre/Getty Images)|Illuminating a new year|![](/en-GB/2022/02/202202150000ChengduLanterns.jpg)|
