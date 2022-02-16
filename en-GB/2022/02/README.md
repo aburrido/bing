@@ -15,3 +15,4 @@
 202202130000|FaceOff|American bison in Yellowstone National Park, Wyoming, USA (© Gerald Corsi/Getty Images)|American goliaths go head-to-head|![](/en-GB/2022/02/202202130000FaceOff.jpg)|
 202202140000|MaldivesHeart|Heart-shaped island with sandy beach, offshore coral reef, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|Love island?|![](/en-GB/2022/02/202202140000MaldivesHeart.jpg)|
 202202150000|ChengduLanterns|Red lanterns hanging on trees during the Lantern Festival in Chengdu, Sichuan, China (© Philippe Lejeanvre/Getty Images)|Illuminating a new year|![](/en-GB/2022/02/202202150000ChengduLanterns.jpg)|
+202202160000|CranborneChase|Beech woodland in hoar frost, Cranborne Chase, Dorset (© Guy Edwardes/Minden Pictures)|Into the frost forest|![](/en-GB/2022/02/202202160000CranborneChase.jpg)|
