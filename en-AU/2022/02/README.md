@@ -16,3 +16,4 @@
 202202130800|FaceOff|American bison, Yellowstone National Park, Wyoming, USA (© Gerald Corsi/Getty Images)|Info|![](/en-AU/2022/02/202202130800FaceOff.jpg)|
 202202140800|MaldivesHeart|Heart-shaped island, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|Info|![](/en-AU/2022/02/202202140800MaldivesHeart.jpg)|
 202202150800|ChengduLanterns|Red lanterns, Chengdu, Sichuan, China (© Philippe Lejeanvre/Getty Images)|Info|![](/en-AU/2022/02/202202150800ChengduLanterns.jpg)|
+202202160800|CranborneChase|Cranborne Chase, Dorset, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2022/02/202202160800CranborneChase.jpg)|
