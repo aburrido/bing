@@ -17,3 +17,4 @@
 202202131500|MaldivesHeart|ハート型の島, モルディブ (© Willyam Bradberry/Shutterstock)|今日は「バレンタインデー」|![](/ja-JP/2022/02/202202131500MaldivesHeart.jpg)|
 202202141500|ChengduLanterns|成都のランタン・フェスティバル, 中国 四川省 (© Philippe LEJEANVRE/Getty Images)|今日は「元宵節」|![](/ja-JP/2022/02/202202141500ChengduLanterns.jpg)|
 202202151500|CranborneChase|霜の並木道, イギリス ドーセット (© Guy Edwardes/Minden Pictures)|クランボーンの霜の道|![](/ja-JP/2022/02/202202151500CranborneChase.jpg)|
+202202161500|TeaGardensMunnar|ムンナルの茶畑, インド ケララ (© SvitlanaBelinska/iStock/Getty Images Plus)|世界遺産のお茶畑|![](/ja-JP/2022/02/202202161500TeaGardensMunnar.jpg)|
