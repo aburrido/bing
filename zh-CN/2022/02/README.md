@@ -17,3 +17,4 @@
 202202131600|MaldivesHeart|心形小岛和白沙滩，印度洋马尔代夫 (© Willyam Bradberry/Shutterstock)|阿拉伯海的情人节|![](/zh-CN/2022/02/202202131600MaldivesHeart.jpg)|
 202202141600|Latern2022|成都街头的红灯笼，中国四川省（© kiszon pascal/Moment/Getty Images）|点亮一盏花灯|![](/zh-CN/2022/02/202202141600Latern2022.jpg)|
 202202151600|CranborneChase|白霜覆盖下的山毛榉林，英格兰多塞特郡 (© Guy Edwardes/Minden Pictures)|被白霜覆盖的山毛榉林|![](/zh-CN/2022/02/202202151600CranborneChase.jpg)|
+202202161600|RichmondDeer|里士满公园的雄鹿，英国伦敦 (© Ian Schofield Images/Offset/Shutterstock)|黎明时的鹿角|![](/zh-CN/2022/02/202202161600RichmondDeer.jpg)|
