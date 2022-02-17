@@ -18,3 +18,4 @@
 202202142300|ChengduLanterns|Mit roten Laternen geschmückte Bäume in Chengdu, Provinz Sichuan, China (© Philippe LEJEANVRE/Getty Images)|Erleuchtet ins neue Jahr|![](/de-DE/2022/02/202202142300ChengduLanterns.jpg)|
 202202152300|CranborneChase|Mit Raureif überzogene Buchenlandschaft, Cranborne Chase, Grafschaft Dorset, England (© Guy Edwardes/Minden Pictures)|Die schöne Seite des Winters|![](/de-DE/2022/02/202202152300CranborneChase.jpg)|
 202202162300|FlamencoDance|Flamencotänzerinnen, Palma, Mallorca, Spanien (© Torleif Svensson/Getty Images)|Die Kunst des Flamenco|![](/de-DE/2022/02/202202162300FlamencoDance.jpg)|
+202202172300|GreatTits|Kohlmeisen auf einem Zweig, Frankreich (© Eric Ferry/Alamy)|Winter-Dauergäste|![](/de-DE/2022/02/202202172300GreatTits.jpg)|

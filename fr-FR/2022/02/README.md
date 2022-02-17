@@ -18,3 +18,4 @@
 202202142300|ChengduLanterns|Lanternes rouges pendues à des arbres pendant la fête des lanternes à Chengdu, Sichuan, Chine (© Philippe LEJEANVRE/Getty Images)|La fête des lanternes|![](/fr-FR/2022/02/202202142300ChengduLanterns.jpg)|
 202202152300|CranborneChase|Forêt givrée à Cranborne Chase, Dorset, Angleterre (© Guy Edwardes/Minden Pictures)|Le charme discret de la campagne anglaise|![](/fr-FR/2022/02/202202152300CranborneChase.jpg)|
 202202162300|FlamencoDance|Danceurs de flamenco près de Palma de Majorque, Espagne (© Torleif Svensson/Getty Images)|Danser de tout son cœur|![](/fr-FR/2022/02/202202162300FlamencoDance.jpg)|
+202202172300|AuvergneWinter|Parc national régional des volcans d'Auvergne, Puy de Dôme (© Hemis/Alamy Stock Photo)|L’hiver en Auvergne|![](/fr-FR/2022/02/202202172300AuvergneWinter.jpg)|
