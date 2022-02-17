@@ -17,3 +17,4 @@
 202202140500|MaldivesHeart|Île en forme de coeur et plage de sable blanc, océan Indien, Maldives (© Willyam Bradberry/Shutterstock)||![](/fr-CA/2022/02/202202140500MaldivesHeart.jpg)|
 202202150500|ChengduLanterns|Lanternes rouges pendues à des arbres pendant la fête des lanternes à Chengdu, Sichuan, Chine (© Philippe Lejeanvre/Getty Images)||![](/fr-CA/2022/02/202202150500ChengduLanterns.jpg)|
 202202160500|CranborneChase|Forêt givrée à Cranborne Chase, Dorset, Angleterre (© Guy Edwardes/Minden Pictures)||![](/fr-CA/2022/02/202202160500CranborneChase.jpg)|
+202202170500|FrozenLakeBanff|Un lac gelé dans le parc national de Banff (© RuslanKaln/Getty Images)||![](/fr-CA/2022/02/202202170500FrozenLakeBanff.jpg)|
