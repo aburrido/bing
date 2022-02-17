@@ -18,3 +18,4 @@
 202202141500|ChengduLanterns|成都のランタン・フェスティバル, 中国 四川省 (© Philippe LEJEANVRE/Getty Images)|今日は「元宵節」|![](/ja-JP/2022/02/202202141500ChengduLanterns.jpg)|
 202202151500|CranborneChase|霜の並木道, イギリス ドーセット (© Guy Edwardes/Minden Pictures)|クランボーンの霜の道|![](/ja-JP/2022/02/202202151500CranborneChase.jpg)|
 202202161500|TeaGardensMunnar|ムンナルの茶畑, インド ケララ (© SvitlanaBelinska/iStock/Getty Images Plus)|世界遺産のお茶畑|![](/ja-JP/2022/02/202202161500TeaGardensMunnar.jpg)|
+202202171500|GreatTits|シジュウカラ, フランス (© Eric Ferry/Alamy)|フランスの冬の野鳥|![](/ja-JP/2022/02/202202171500GreatTits.jpg)|
