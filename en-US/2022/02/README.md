@@ -18,3 +18,4 @@
 202202140800|MaldivesHeart|Heart-shaped island with sandy beach, offshore coral reef, Indian Ocean, Maldives (© Willyam Bradberry/Shutterstock)|A Valentine in the Arabian Sea|![](/en-US/2022/02/202202140800MaldivesHeart.jpg)|
 202202150800|ChengduLanterns|Red lanterns hanging on trees during the Lantern Festival in Chengdu, Sichuan, China (© Philippe Lejeanvre/Getty Images)|A festival of lanterns|![](/en-US/2022/02/202202150800ChengduLanterns.jpg)|
 202202160800|CranborneChase|Beech woodland in hoarfrost, Cranborne Chase, Dorset, England (© Guy Edwardes/Minden Pictures)|Beech forest covered in hoarfrost|![](/en-US/2022/02/202202160800CranborneChase.jpg)|
+202202170800|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|A dance of passion|![](/en-US/2022/02/202202170800FlamencoDance.jpg)|
