@@ -17,3 +17,4 @@
 202202150000|ChengduLanterns|Red lanterns hanging on trees during the Lantern Festival in Chengdu, Sichuan, China (© Philippe Lejeanvre/Getty Images)|Illuminating a new year|![](/en-GB/2022/02/202202150000ChengduLanterns.jpg)|
 202202160000|CranborneChase|Beech woodland in hoar frost, Cranborne Chase, Dorset (© Guy Edwardes/Minden Pictures)|Into the frost forest|![](/en-GB/2022/02/202202160000CranborneChase.jpg)|
 202202170000|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|The art of flamenco|![](/en-GB/2022/02/202202170000FlamencoDance.jpg)|
+202202180000|GreatTits|Great tits on a branch during winter (© Eric Ferry/Alamy)|Four’s company|![](/en-GB/2022/02/202202180000GreatTits.jpg)|
