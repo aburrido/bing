@@ -20,3 +20,4 @@
 202202161500|TeaGardensMunnar|ムンナルの茶畑, インド ケララ (© SvitlanaBelinska/iStock/Getty Images Plus)|世界遺産のお茶畑|![](/ja-JP/2022/02/202202161500TeaGardensMunnar.jpg)|
 202202171500|GreatTits|シジュウカラ, フランス (© Eric Ferry/Alamy)|フランスの冬の野鳥|![](/ja-JP/2022/02/202202171500GreatTits.jpg)|
 202202181500|BerchtesgadenerAlpen|ベルヒテスガーデン・アルプス, ドイツ バイエルン州 (© Spotcatch/Westend61/Offset)|ドイツ・アルプスの雲海|![](/ja-JP/2022/02/202202181500BerchtesgadenerAlpen.jpg)|
+202202191500|WhalesDolphins|イルカとザトウクジラ, ハワイ沖 (© drewsulockcreations/Getty Images)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2022/02/202202191500WhalesDolphins.jpg)|
