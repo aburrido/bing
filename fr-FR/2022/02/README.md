@@ -20,3 +20,4 @@
 202202162300|FlamencoDance|Danceurs de flamenco près de Palma de Majorque, Espagne (© Torleif Svensson/Getty Images)|Danser de tout son cœur|![](/fr-FR/2022/02/202202162300FlamencoDance.jpg)|
 202202172300|AuvergneWinter|Parc national régional des volcans d'Auvergne, Puy de Dôme (© Hemis/Alamy Stock Photo)|L’hiver en Auvergne|![](/fr-FR/2022/02/202202172300AuvergneWinter.jpg)|
 202202182300|BerchtesgadenerAlpen|Vue panoramique des Alpes de Berchtesgaden, Bavière, Allemagne (© Spotcatch/Westend61/Offset)|Beauté alpine|![](/fr-FR/2022/02/202202182300BerchtesgadenerAlpen.jpg)|
+202202192300|WhalesDolphins|Baleine à bosse et dauphins, Hawaii (© drewsulockcreations/Getty Images)|À la gloire des baleines|![](/fr-FR/2022/02/202202192300WhalesDolphins.jpg)|
