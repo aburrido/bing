@@ -18,3 +18,4 @@
 202202160000|CranborneChase|Beech woodland in hoar frost, Cranborne Chase, Dorset (© Guy Edwardes/Minden Pictures)|Into the frost forest|![](/en-GB/2022/02/202202160000CranborneChase.jpg)|
 202202170000|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|The art of flamenco|![](/en-GB/2022/02/202202170000FlamencoDance.jpg)|
 202202180000|GreatTits|Great tits on a branch during winter (© Eric Ferry/Alamy)|Four’s company|![](/en-GB/2022/02/202202180000GreatTits.jpg)|
+202202190000|BerchtesgadenerAlpen|Panoramic view of the Berchtesgaden Alps, Bavaria, Germany (© Spotcatch/Westend61/Offset)|Peak winter in the Alps|![](/en-GB/2022/02/202202190000BerchtesgadenerAlpen.jpg)|
