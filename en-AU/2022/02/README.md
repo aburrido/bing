@@ -19,3 +19,4 @@
 202202160800|CranborneChase|Cranborne Chase, Dorset, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2022/02/202202160800CranborneChase.jpg)|
 202202170800|RichmondDeer|Red deer, Richmond Park, London, England (© Ian Schofield Images/Offset/Shutterstock)|Info|![](/en-AU/2022/02/202202170800RichmondDeer.jpg)|
 202202180800|GreatTits|Great tits, France (© Eric Ferry/Alamy)|Info|![](/en-AU/2022/02/202202180800GreatTits.jpg)|
+202202190800|BerchtesgadenerAlpen|Berchtesgaden Alps, Bavaria, Germany (© Spotcatch/Westend61/Offset)|Info|![](/en-AU/2022/02/202202190800BerchtesgadenerAlpen.jpg)|

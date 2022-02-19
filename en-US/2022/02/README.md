@@ -20,3 +20,4 @@
 202202160800|CranborneChase|Beech woodland in hoarfrost, Cranborne Chase, Dorset, England (© Guy Edwardes/Minden Pictures)|Beech forest covered in hoarfrost|![](/en-US/2022/02/202202160800CranborneChase.jpg)|
 202202170800|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|A dance of passion|![](/en-US/2022/02/202202170800FlamencoDance.jpg)|
 202202180800|GreatTits|Great tits on a branch during winter in France (© Eric Ferry/Alamy)|Out on a limb for the Great Backyard Bird Count|![](/en-US/2022/02/202202180800GreatTits.jpg)|
+202202190800|LoganClouds|Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© plainpicture/Design Pics/Robert Postma)|Majestic Mount Logan|![](/en-US/2022/02/202202190800LoganClouds.jpg)|
