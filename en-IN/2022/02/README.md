@@ -19,3 +19,4 @@
 202202161830|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|The art of flamenco|![](/en-IN/2022/02/202202161830FlamencoDance.jpg)|
 202202171830|GreatTits|Great tits on a branch during winter in France (© Eric Ferry/Alamy)|Out on a limb for the Great Backyard Bird Count|![](/en-IN/2022/02/202202171830GreatTits.jpg)|
 202202181830|ChhatrapatiShivajiTerminus|The architecture inside Chhatrapati Shivaji Maharaj Terminus in Mumbai, India (© memindshot/iStock/Getty Images Plus/Getty Images)|Celebrating Shivaji Jayanti|![](/en-IN/2022/02/202202181830ChhatrapatiShivajiTerminus.jpg)|
+202202191830|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|It's World Whale Day|![](/en-IN/2022/02/202202191830WhalesDolphins.jpg)|
