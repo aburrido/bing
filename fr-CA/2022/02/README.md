@@ -19,3 +19,4 @@
 202202160500|CranborneChase|Forêt givrée à Cranborne Chase, Dorset, Angleterre (© Guy Edwardes/Minden Pictures)||![](/fr-CA/2022/02/202202160500CranborneChase.jpg)|
 202202170500|FrozenLakeBanff|Un lac gelé dans le parc national de Banff (© RuslanKaln/Getty Images)||![](/fr-CA/2022/02/202202170500FrozenLakeBanff.jpg)|
 202202180500|GreatTits|Mésanges charbonnières perchées sur un arbre en hiver, quelque part en France (© Eric Ferry/Alamy)||![](/fr-CA/2022/02/202202180500GreatTits.jpg)|
+202202190500|BerchtesgadenerAlpen|Vue panoramique des Alpes de Berchtesgaden, Bavière, Allemagne (© Spotcatch/Westend61/Offset)||![](/fr-CA/2022/02/202202190500BerchtesgadenerAlpen.jpg)|

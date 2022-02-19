@@ -19,3 +19,4 @@
 202202160500|CranborneChase|Beech woodland in hoar frost, Cranborne Chase, Dorset, England (© Guy Edwardes/Minden Pictures)|Beech forest covered in hoarfrost|![](/en-CA/2022/02/202202160500CranborneChase.jpg)|
 202202170500|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|The art of flamenco|![](/en-CA/2022/02/202202170500FlamencoDance.jpg)|
 202202180500|GreatTits|Great tits on a branch during winter in France (© Eric Ferry/Alamy)|Out on a limb for the Great Backyard Bird Count|![](/en-CA/2022/02/202202180500GreatTits.jpg)|
+202202190500|FrozenLakeBanff|A frozen lake in Banff National Park (© RuslanKaln/Getty Images)|The magic of winter|![](/en-CA/2022/02/202202190500FrozenLakeBanff.jpg)|
