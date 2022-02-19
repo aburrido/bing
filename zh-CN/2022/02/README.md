@@ -20,3 +20,4 @@
 202202161600|RichmondDeer|里士满公园的雄鹿，英国伦敦 (© Ian Schofield Images/Offset/Shutterstock)|黎明时的鹿角|![](/zh-CN/2022/02/202202161600RichmondDeer.jpg)|
 202202171600|GreatTits|冬天树枝上的大山雀，法国 (© Eric Ferry/Alamy)|为后院鸟类计数竭尽全力|![](/zh-CN/2022/02/202202171600GreatTits.jpg)|
 202202181600|BerchtesgadenerAlpen|贝希特斯加登阿尔卑斯山脉全景，德国巴伐利亚州 (© Spotcatch/Westend61/Offset)|冬日阿尔卑斯山脉的高峰|![](/zh-CN/2022/02/202202181600BerchtesgadenerAlpen.jpg)|
+202202191600|WhalesDolphins|在海洋里畅游的座头鲸和海豚，美国夏威夷州 (© drewsulockcreations/Getty Images)|世界鲸鱼日快乐|![](/zh-CN/2022/02/202202191600WhalesDolphins.jpg)|
