@@ -20,3 +20,4 @@
 202202171830|GreatTits|Great tits on a branch during winter in France (© Eric Ferry/Alamy)|Out on a limb for the Great Backyard Bird Count|![](/en-IN/2022/02/202202171830GreatTits.jpg)|
 202202181830|ChhatrapatiShivajiTerminus|The architecture inside Chhatrapati Shivaji Maharaj Terminus in Mumbai, India (© memindshot/iStock/Getty Images Plus/Getty Images)|Celebrating Shivaji Jayanti|![](/en-IN/2022/02/202202181830ChhatrapatiShivajiTerminus.jpg)|
 202202191830|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|It's World Whale Day|![](/en-IN/2022/02/202202191830WhalesDolphins.jpg)|
+202202201830|SycamoreStars|Aurora borealis over Sycamore Gap Tree, Hadrian's Wall, Northumberland, England (© Guy Edwardes/NPL/Minden Pictures)|Lighting up dark skies|![](/en-IN/2022/02/202202201830SycamoreStars.jpg)|
