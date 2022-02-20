@@ -19,3 +19,4 @@
 202202170000|FlamencoDance|Flamenco dancers outside Palma de Majorca, Spain (© Torleif Svensson/Getty Images)|The art of flamenco|![](/en-GB/2022/02/202202170000FlamencoDance.jpg)|
 202202180000|GreatTits|Great tits on a branch during winter (© Eric Ferry/Alamy)|Four’s company|![](/en-GB/2022/02/202202180000GreatTits.jpg)|
 202202190000|BerchtesgadenerAlpen|Panoramic view of the Berchtesgaden Alps, Bavaria, Germany (© Spotcatch/Westend61/Offset)|Peak winter in the Alps|![](/en-GB/2022/02/202202190000BerchtesgadenerAlpen.jpg)|
+202202200000|WhalesDolphins|Humpback whales and dolphins, Hawaii, USA (© drewsulockcreations/Getty Images)|World Whale Day|![](/en-GB/2022/02/202202200000WhalesDolphins.jpg)|
