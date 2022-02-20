@@ -21,3 +21,4 @@
 202202172300|GreatTits|Kohlmeisen auf einem Zweig, Frankreich (© Eric Ferry/Alamy)|Winter-Dauergäste|![](/de-DE/2022/02/202202172300GreatTits.jpg)|
 202202182300|SycamoreStars|Polarlicht über Sycamore Gap, Hadrianswall, Northumberland, England, Vereinigtes Königreich (© Guy Edwardes/NPL/Minden Pictures)|Polarlicht über dem Hadrianswall|![](/de-DE/2022/02/202202182300SycamoreStars.jpg)|
 202202192300|WhalesDolphins|Buckelwale und Delfine vor der Insel Maui, Hawaii, USA (© drewsulockcreations/Getty Images)|Giganten der Ozeane|![](/de-DE/2022/02/202202192300WhalesDolphins.jpg)|
+202202202300|BerchtesgadenerAlpen|Panoramablick auf die Berchtesgadener Alpen, Bayern (© Spotcatch/Westend61/Offset)|Alpenpanorama|![](/de-DE/2022/02/202202202300BerchtesgadenerAlpen.jpg)|
