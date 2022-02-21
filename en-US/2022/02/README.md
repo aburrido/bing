@@ -22,3 +22,4 @@
 202202180800|GreatTits|Great tits on a branch during winter in France (© Eric Ferry/Alamy)|Out on a limb for the Great Backyard Bird Count|![](/en-US/2022/02/202202180800GreatTits.jpg)|
 202202190800|LoganClouds|Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© plainpicture/Design Pics/Robert Postma)|Majestic Mount Logan|![](/en-US/2022/02/202202190800LoganClouds.jpg)|
 202202200800|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|Wishing you a whale of a World Whale Day|![](/en-US/2022/02/202202200800WhalesDolphins.jpg)|
+202202210800|PrezMonument|The Washington Monument seen from the Lincoln Memorial in Washington, DC (© lucky-photographer/Getty Images)|Happy Presidents Day|![](/en-US/2022/02/202202210800PrezMonument.jpg)|
