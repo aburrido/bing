@@ -21,3 +21,4 @@
 202202180500|GreatTits|Mésanges charbonnières perchées sur un arbre en hiver, quelque part en France (© Eric Ferry/Alamy)||![](/fr-CA/2022/02/202202180500GreatTits.jpg)|
 202202190500|BerchtesgadenerAlpen|Vue panoramique des Alpes de Berchtesgaden, Bavière, Allemagne (© Spotcatch/Westend61/Offset)||![](/fr-CA/2022/02/202202190500BerchtesgadenerAlpen.jpg)|
 202202200500|WhalesDolphins|Baleine à bosse et dauphins, Hawaii (© drewsulockcreations/Getty Images)||![](/fr-CA/2022/02/202202200500WhalesDolphins.jpg)|
+202202210500|WhitehorseAurora|Aurore polaire au-dessus d’une étendue d’eau près de Whitehorse, Yukon (© plainpicture/Design Pics/John Hyde)||![](/fr-CA/2022/02/202202210500WhitehorseAurora.jpg)|
