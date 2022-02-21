@@ -21,3 +21,4 @@
 202202181830|ChhatrapatiShivajiTerminus|The architecture inside Chhatrapati Shivaji Maharaj Terminus in Mumbai, India (© memindshot/iStock/Getty Images Plus/Getty Images)|Celebrating Shivaji Jayanti|![](/en-IN/2022/02/202202181830ChhatrapatiShivajiTerminus.jpg)|
 202202191830|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|It's World Whale Day|![](/en-IN/2022/02/202202191830WhalesDolphins.jpg)|
 202202201830|SycamoreStars|Aurora borealis over Sycamore Gap Tree, Hadrian's Wall, Northumberland, England (© Guy Edwardes/NPL/Minden Pictures)|Lighting up dark skies|![](/en-IN/2022/02/202202201830SycamoreStars.jpg)|
+202202211830|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-IN/2022/02/202202211830BactrianCamels.jpg)|
