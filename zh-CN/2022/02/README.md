@@ -23,3 +23,4 @@
 202202191600|WhalesDolphins|在海洋里畅游的座头鲸和海豚，美国夏威夷州 (© drewsulockcreations/Getty Images)|世界鲸鱼日快乐|![](/zh-CN/2022/02/202202191600WhalesDolphins.jpg)|
 202202201600|SycamoreStars|哈德良长城上空的北极光，英格兰诺森伯兰郡 (© Guy Edwardes/NPL/Minden Pictures)|梧桐树峡|![](/zh-CN/2022/02/202202201600SycamoreStars.jpg)|
 202202211600|BactrianCamels|两只双峰骆驼 (© Nurlan Kulcha/Alamy)|两天两份|![](/zh-CN/2022/02/202202211600BactrianCamels.jpg)|
+202202221600|CypressTunnel|雷斯岬国家海岸公园里的柏树隧道，美国加利福尼亚州 (© Spondylolithesis/Getty Images)|通往过去的隧道|![](/zh-CN/2022/02/202202221600CypressTunnel.jpg)|
