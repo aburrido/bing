@@ -23,3 +23,4 @@
 202202192300|WhalesDolphins|Baleine à bosse et dauphins, Hawaii (© drewsulockcreations/Getty Images)|À la gloire des baleines|![](/fr-FR/2022/02/202202192300WhalesDolphins.jpg)|
 202202202300|SycamoreStars|Aurore boréale au dessus du Sycamore Gap Tree, mur d’Hadrien, Northumberland, Angleterre (© Guy Edwardes/NPL/Minden Pictures)|Solitaire dans la lumière|![](/fr-FR/2022/02/202202202300SycamoreStars.jpg)|
 202202212300|ChavarocheWinter|Gorges du Fier gelées par l’hiver, Haute-Savoie  (© Jean-Philippe Delobelle/Biosphoto/Alamy Stock Photo)|Merveille de Haute-Savoie|![](/fr-FR/2022/02/202202212300ChavarocheWinter.jpg)|
+202202222300|CypressTunnel|Tunnel de cyprès à Point Reyes National Seashore en Californie, États-Unis (© Spondylolithesis/Getty Images)|Promenons-nous…|![](/fr-FR/2022/02/202202222300CypressTunnel.jpg)|
