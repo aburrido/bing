@@ -22,3 +22,4 @@
 202202191830|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|It's World Whale Day|![](/en-IN/2022/02/202202191830WhalesDolphins.jpg)|
 202202201830|SycamoreStars|Aurora borealis over Sycamore Gap Tree, Hadrian's Wall, Northumberland, England (© Guy Edwardes/NPL/Minden Pictures)|Lighting up dark skies|![](/en-IN/2022/02/202202201830SycamoreStars.jpg)|
 202202211830|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-IN/2022/02/202202211830BactrianCamels.jpg)|
+202202221830|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-IN/2022/02/202202221830CypressTunnel.jpg)|
