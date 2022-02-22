@@ -22,3 +22,4 @@
 202202190800|BerchtesgadenerAlpen|Berchtesgaden Alps, Bavaria, Germany (© Spotcatch/Westend61/Offset)|Info|![](/en-AU/2022/02/202202190800BerchtesgadenerAlpen.jpg)|
 202202200800|WhalesDolphins|Humpback whales and dolphins, Hawaii, USA (© drewsulockcreations/Getty Images)|Info|![](/en-AU/2022/02/202202200800WhalesDolphins.jpg)|
 202202210800|SycamoreStars|Aurora borealis over Sycamore Gap, Hadrian's Wall, Northumberland, England (© Guy Edwardes/NPL/Minden Pictures)|Info|![](/en-AU/2022/02/202202210800SycamoreStars.jpg)|
+202202220800|BactrianCamels|Bactrian camels, Kazakhstan (© Nurlan Kulcha/Alamy)|Info|![](/en-AU/2022/02/202202220800BactrianCamels.jpg)|

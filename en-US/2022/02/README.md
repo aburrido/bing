@@ -23,3 +23,4 @@
 202202190800|LoganClouds|Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© plainpicture/Design Pics/Robert Postma)|Majestic Mount Logan|![](/en-US/2022/02/202202190800LoganClouds.jpg)|
 202202200800|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|Wishing you a whale of a World Whale Day|![](/en-US/2022/02/202202200800WhalesDolphins.jpg)|
 202202210800|PrezMonument|The Washington Monument seen from the Lincoln Memorial in Washington, DC (© lucky-photographer/Getty Images)|Happy Presidents Day|![](/en-US/2022/02/202202210800PrezMonument.jpg)|
+202202220800|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-US/2022/02/202202220800BactrianCamels.jpg)|
