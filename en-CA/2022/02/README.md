@@ -23,3 +23,4 @@
 202202200500|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|Wishing you whale of a World Whale Day|![](/en-CA/2022/02/202202200500WhalesDolphins.jpg)|
 202202210500|WhitehorseAurora|Northern Lights over open water in winter near Whitehorse, Yukon (© plainpicture/Design Pics/John Hyde)|Nature’s light show|![](/en-CA/2022/02/202202210500WhitehorseAurora.jpg)|
 202202220500|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-CA/2022/02/202202220500BactrianCamels.jpg)|
+202202230500|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-CA/2022/02/202202230500CypressTunnel.jpg)|
