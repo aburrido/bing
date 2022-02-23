@@ -24,3 +24,4 @@
 202202200800|WhalesDolphins|Humpback whales and dolphins, Hawaii (© drewsulockcreations/Getty Images)|Wishing you a whale of a World Whale Day|![](/en-US/2022/02/202202200800WhalesDolphins.jpg)|
 202202210800|PrezMonument|The Washington Monument seen from the Lincoln Memorial in Washington, DC (© lucky-photographer/Getty Images)|Happy Presidents Day|![](/en-US/2022/02/202202210800PrezMonument.jpg)|
 202202220800|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-US/2022/02/202202220800BactrianCamels.jpg)|
+202202230800|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-US/2022/02/202202230800CypressTunnel.jpg)|
