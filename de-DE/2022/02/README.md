@@ -25,3 +25,4 @@
 202202212300|BactrianCamels|Trampeltiere (© Nurlan Kulcha/Alamy)|Heute ist Schnapszahl-Tag|![](/de-DE/2022/02/202202212300BactrianCamels.jpg)|
 202202222300|CypressTunnel|Zypressen im Küstenschutzgebiet Point Reyes, Kalifornien, USA (© Spondylolithesis/Getty Images)|Ein Licht am Ende des Tunnels|![](/de-DE/2022/02/202202222300CypressTunnel.jpg)|
 202202232300|CrystalCave|Fluss in einer Gletscherhöhle, Vatnajökull, Island (© Marco Bottigelli/Getty Images)|Unter dem Gletscher|![](/de-DE/2022/02/202202232300CrystalCave.jpg)|
+202202242300|WinterCotswolds|Raureif und Schnee in den Cotswolds, England, Vereinigtes Königreich (© Peter Adams/Getty Images)|Winter im Herzen Englands|![](/de-DE/2022/02/202202242300WinterCotswolds.jpg)|

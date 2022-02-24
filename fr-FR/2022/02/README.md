@@ -25,3 +25,4 @@
 202202212300|ChavarocheWinter|Gorges du Fier gelées par l’hiver, Haute-Savoie  (© Jean-Philippe Delobelle/Biosphoto/Alamy Stock Photo)|Merveille de Haute-Savoie|![](/fr-FR/2022/02/202202212300ChavarocheWinter.jpg)|
 202202222300|CypressTunnel|Tunnel de cyprès à Point Reyes National Seashore en Californie, États-Unis (© Spondylolithesis/Getty Images)|Promenons-nous…|![](/fr-FR/2022/02/202202222300CypressTunnel.jpg)|
 202202232300|CrystalCave|Rivière figée dans une grotte de glacier, glacier Vatnajökull, Islande (© Marco Bottigelli/Getty Images)|Sous la glace|![](/fr-FR/2022/02/202202232300CrystalCave.jpg)|
+202202242300|Mercantour|Saint-Etienne-de-Tinée, Vallée de la Tinée, Parc national du Mercantour, Alpes Maritimes France, (© CAVALIER Michel/hemis.fr/Alamy Stock Photo)|La montagne ça nous gagne|![](/fr-FR/2022/02/202202242300Mercantour.jpg)|
