@@ -24,3 +24,4 @@
 202202210800|SycamoreStars|Aurora borealis over Sycamore Gap, Hadrian's Wall, Northumberland, England (© Guy Edwardes/NPL/Minden Pictures)|Info|![](/en-AU/2022/02/202202210800SycamoreStars.jpg)|
 202202220800|BactrianCamels|Bactrian camels, Kazakhstan (© Nurlan Kulcha/Alamy)|Info|![](/en-AU/2022/02/202202220800BactrianCamels.jpg)|
 202202230800|CypressTunnel|Cypress tree tunnel, Point Reyes National Seashore, California, USA (© Spondylolithesis/Getty Images)|Info|![](/en-AU/2022/02/202202230800CypressTunnel.jpg)|
+202202240800|CrystalCave|Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2022/02/202202240800CrystalCave.jpg)|

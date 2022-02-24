@@ -25,3 +25,4 @@
 202202210800|PrezMonument|The Washington Monument seen from the Lincoln Memorial in Washington, DC (© lucky-photographer/Getty Images)|Happy Presidents Day|![](/en-US/2022/02/202202210800PrezMonument.jpg)|
 202202220800|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-US/2022/02/202202220800BactrianCamels.jpg)|
 202202230800|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-US/2022/02/202202230800CypressTunnel.jpg)|
+202202240800|CrystalCave|Flowing river inside a glacier cave, Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Ice, ice, caving|![](/en-US/2022/02/202202240800CrystalCave.jpg)|
