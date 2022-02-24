@@ -23,3 +23,4 @@
 202202210000|SycamoreStars|Aurora borealis over Sycamore Gap Tree, Hadrian's Wall, Northumberland (© Guy Edwardes/NPL/Minden Pictures)|Stars over Sycamore Gap|![](/en-GB/2022/02/202202210000SycamoreStars.jpg)|
 202202220000|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-GB/2022/02/202202220000BactrianCamels.jpg)|
 202202230000|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California, USA (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-GB/2022/02/202202230000CypressTunnel.jpg)|
+202202240000|RichmondDeer|Silhouette of a buck in Richmond Park at sunrise, London (© Ian Schofield Images/Offset/Shutterstock)|Antlers at dawn|![](/en-GB/2022/02/202202240000RichmondDeer.jpg)|
