@@ -25,3 +25,4 @@
 202202211500|HuggingDay|母子ライオン, 南アフリカ  (© Andrew Coleman/Getty Images)|今日は「猫の日」|![](/ja-JP/2022/02/202202211500HuggingDay.jpg)|
 202202221500|Fuji2022|富士山と桜, 山梨 富士河口湖町 (© Sanchai Loongroong/Moment/Getty Images)|今日は「富士山の日」|![](/ja-JP/2022/02/202202221500Fuji2022.jpg)|
 202202231500|CypressTunnel|イトスギのトンネル, 米国 カリフォルニア州 (© Spondylolithesis/Getty Images)|ポイント・レイズの並木道|![](/ja-JP/2022/02/202202231500CypressTunnel.jpg)|
+202202241500|WheatonYukon|ウィートン川の夕暮れ, カナダ ユーコン準州 (© Robert Postma/Design Pics)|ホワイトホースの雪溶け|![](/ja-JP/2022/02/202202241500WheatonYukon.jpg)|
