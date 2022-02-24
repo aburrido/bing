@@ -24,3 +24,4 @@
 202202210500|WhitehorseAurora|Aurore polaire au-dessus d’une étendue d’eau près de Whitehorse, Yukon (© plainpicture/Design Pics/John Hyde)||![](/fr-CA/2022/02/202202210500WhitehorseAurora.jpg)|
 202202220500|BactrianCamels|Deux chameaux de Bactriane (© Nurlan Kulcha/Alamy)||![](/fr-CA/2022/02/202202220500BactrianCamels.jpg)|
 202202230500|CypressTunnel|Tunnel de cyprès à Point Reyes National Seashore en Californie, États-Unis (© Spondylolithesis/Getty Images)||![](/fr-CA/2022/02/202202230500CypressTunnel.jpg)|
+202202240500|CrystalCave|Rivière figée dans une grotte de glacier, glacier Vatnajökull, Islande (© Marco Bottigelli/Getty Images)||![](/fr-CA/2022/02/202202240500CrystalCave.jpg)|
