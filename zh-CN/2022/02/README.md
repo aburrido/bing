@@ -26,3 +26,4 @@
 202202221600|CypressTunnel|雷斯岬国家海岸公园里的柏树隧道，美国加利福尼亚州 (© Spondylolithesis/Getty Images)|通往过去的隧道|![](/zh-CN/2022/02/202202221600CypressTunnel.jpg)|
 202202231600|CrystalCave|冰川洞穴里流动的河流，冰岛瓦特纳冰原 (© Marco Bottigelli/Getty Images)|冰，冰，正在坍塌|![](/zh-CN/2022/02/202202231600CrystalCave.jpg)|
 202202241600|WheatonYukon|怀特霍斯市的落日余晖，加拿大育空地区 (© Robert Postma/Design Pics)|高耸的山峰、壮丽的河流，还有繁盛的野生动物|![](/zh-CN/2022/02/202202241600WheatonYukon.jpg)|
+202202251600|LamplughGlacier|冰川湾国家公园里的兰普鲁冰川，美国阿拉斯加州 (© Andrew Peacock/Getty Images)|古老的冰川与大海相遇的地方|![](/zh-CN/2022/02/202202251600LamplughGlacier.jpg)|
