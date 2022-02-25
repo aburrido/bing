@@ -25,3 +25,4 @@
 202202220500|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-CA/2022/02/202202220500BactrianCamels.jpg)|
 202202230500|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-CA/2022/02/202202230500CypressTunnel.jpg)|
 202202240500|CrystalCave|Flowing river inside a glacier cave, Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Ice, ice, caving|![](/en-CA/2022/02/202202240500CrystalCave.jpg)|
+202202250500|WheatonYukon|Sunset over the Wheaton River as the light hits Grey Ridge near Whitehorse, Yukon (© Robert Postma/Design Pics)|Tall peaks, magnificent rivers and a thriving wildlife|![](/en-CA/2022/02/202202250500WheatonYukon.jpg)|
