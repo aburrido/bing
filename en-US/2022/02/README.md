@@ -26,3 +26,4 @@
 202202220800|BactrianCamels|Two Bactrian camels in Kazakhstan for Twosday (© Nurlan Kulcha/Alamy)|Two for Twosday|![](/en-US/2022/02/202202220800BactrianCamels.jpg)|
 202202230800|CypressTunnel|The cypress tunnel at Point Reyes National Seashore in California (© Spondylolithesis/Getty Images)|A tunnel to the past|![](/en-US/2022/02/202202230800CypressTunnel.jpg)|
 202202240800|CrystalCave|Flowing river inside a glacier cave, Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Ice, ice, caving|![](/en-US/2022/02/202202240800CrystalCave.jpg)|
+202202250800|LegacyMural|'Legacy' mural painted by Josh Sarantitis and Eric Okdeh within the Mural Arts Program in Philadelphia, Pennsylvania (© Vespasian/Alamy)|A beautiful day in the neighborhood…|![](/en-US/2022/02/202202250800LegacyMural.jpg)|

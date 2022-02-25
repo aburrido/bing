@@ -25,3 +25,4 @@
 202202220800|BactrianCamels|Bactrian camels, Kazakhstan (© Nurlan Kulcha/Alamy)|Info|![](/en-AU/2022/02/202202220800BactrianCamels.jpg)|
 202202230800|CypressTunnel|Cypress tree tunnel, Point Reyes National Seashore, California, USA (© Spondylolithesis/Getty Images)|Info|![](/en-AU/2022/02/202202230800CypressTunnel.jpg)|
 202202240800|CrystalCave|Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2022/02/202202240800CrystalCave.jpg)|
+202202250800|WheatonYukon|Wheaton River near Whitehorse, Yukon, Canada (© Robert Postma/Design Pics)|Info|![](/en-AU/2022/02/202202250800WheatonYukon.jpg)|
