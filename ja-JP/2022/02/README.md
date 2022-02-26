@@ -27,3 +27,4 @@
 202202231500|CypressTunnel|イトスギのトンネル, 米国 カリフォルニア州 (© Spondylolithesis/Getty Images)|ポイント・レイズの並木道|![](/ja-JP/2022/02/202202231500CypressTunnel.jpg)|
 202202241500|WheatonYukon|ウィートン川の夕暮れ, カナダ ユーコン準州 (© Robert Postma/Design Pics)|ホワイトホースの雪溶け|![](/ja-JP/2022/02/202202241500WheatonYukon.jpg)|
 202202251500|LamplughGlacier|ランプルー氷河, 米国 アラスカ州 (© Andrew Peacock/Getty Images)|グレイシャーベイ国立公園の氷河|![](/ja-JP/2022/02/202202251500LamplughGlacier.jpg)|
+202202261500|IPBDMom|ホッキョクグマの母子, カナダ マニトバ州 (© Andre Gilden/Minden Pictures)|今日は「国際ホッキョクグマの日」|![](/ja-JP/2022/02/202202261500IPBDMom.jpg)|
