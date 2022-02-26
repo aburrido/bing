@@ -27,3 +27,4 @@
 202202241830|WheatonYukon|Sunset over the Wheaton River as the light hits Grey Ridge near Whitehorse, Yukon, Canada (© Robert Postma/Design Pics)|Tall peaks, magnificent rivers, and a thriving wildlife|![](/en-IN/2022/02/202202241830WheatonYukon.jpg)|
 202202251830|LamplughGlacier|Lamplugh Glacier in Glacier Bay National Park, Alaska (© Andrew Peacock/Getty Images)|Where ancient ice meets the sea|![](/en-IN/2022/02/202202251830LamplughGlacier.jpg)|
 ||||![](/en-IN/2022/02/.jpg)|
+202202261830|IPBDMom|Polar bear mother with cubs in Wapusk National Park, Manitoba, Canada (© Andre Gilden/Minden Pictures)|A day for those who rule the north|![](/en-IN/2022/02/202202261830IPBDMom.jpg)|
