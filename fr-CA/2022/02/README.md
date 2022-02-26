@@ -26,3 +26,4 @@
 202202230500|CypressTunnel|Tunnel de cyprès à Point Reyes National Seashore en Californie, États-Unis (© Spondylolithesis/Getty Images)||![](/fr-CA/2022/02/202202230500CypressTunnel.jpg)|
 202202240500|CrystalCave|Rivière figée dans une grotte de glacier, glacier Vatnajökull, Islande (© Marco Bottigelli/Getty Images)||![](/fr-CA/2022/02/202202240500CrystalCave.jpg)|
 202202250500|WheatonYukon|Lever de soleil sur la Wheaton River près de Whitehorse, Yukon (© Robert Postma/Design Pics)||![](/fr-CA/2022/02/202202250500WheatonYukon.jpg)|
+202202260500|LamplughGlacier|Le glacier Lamplugh  dans le parc national de Glacier Bay, Alaska (© Andrew Peacock/Getty Images)||![](/fr-CA/2022/02/202202260500LamplughGlacier.jpg)|
