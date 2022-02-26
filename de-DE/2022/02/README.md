@@ -27,3 +27,4 @@
 202202232300|CrystalCave|Fluss in einer Gletscherhöhle, Vatnajökull, Island (© Marco Bottigelli/Getty Images)|Unter dem Gletscher|![](/de-DE/2022/02/202202232300CrystalCave.jpg)|
 202202242300|WinterCotswolds|Raureif und Schnee in den Cotswolds, England, Vereinigtes Königreich (© Peter Adams/Getty Images)|Winter im Herzen Englands|![](/de-DE/2022/02/202202242300WinterCotswolds.jpg)|
 202202252300|LamplughGlacier|Lamplugh-Gletscher im Glacier-Bay-Nationalpark, Alaska, USA (© Andrew Peacock/Getty Images)|Wo uraltes Eis auf den Ozean trifft|![](/de-DE/2022/02/202202252300LamplughGlacier.jpg)|
+202202262300|IPBDMom|Eisbärmutter mit ihren Jungen, Wapusk-Nationalpark, Manitoba, Kanada (© Andre Gilden/Minden Pictures)|Ein Tag für die Herrscher des Nordens|![](/de-DE/2022/02/202202262300IPBDMom.jpg)|
