@@ -27,3 +27,4 @@
 202202231600|CrystalCave|冰川洞穴里流动的河流，冰岛瓦特纳冰原 (© Marco Bottigelli/Getty Images)|冰，冰，正在坍塌|![](/zh-CN/2022/02/202202231600CrystalCave.jpg)|
 202202241600|WheatonYukon|怀特霍斯市的落日余晖，加拿大育空地区 (© Robert Postma/Design Pics)|高耸的山峰、壮丽的河流，还有繁盛的野生动物|![](/zh-CN/2022/02/202202241600WheatonYukon.jpg)|
 202202251600|LamplughGlacier|冰川湾国家公园里的兰普鲁冰川，美国阿拉斯加州 (© Andrew Peacock/Getty Images)|古老的冰川与大海相遇的地方|![](/zh-CN/2022/02/202202251600LamplughGlacier.jpg)|
+202202261600|IPBDMom|在妈妈身旁玩耍的北极熊宝宝们，加拿大曼尼托巴省 (© Andre Gilden/Minden Pictures)|属于北方"统治者"的一天|![](/zh-CN/2022/02/202202261600IPBDMom.jpg)|
