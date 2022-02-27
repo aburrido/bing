@@ -27,3 +27,4 @@
 202202240500|CrystalCave|Flowing river inside a glacier cave, Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Ice, ice, caving|![](/en-CA/2022/02/202202240500CrystalCave.jpg)|
 202202250500|WheatonYukon|Sunset over the Wheaton River as the light hits Grey Ridge near Whitehorse, Yukon (© Robert Postma/Design Pics)|Tall peaks, magnificent rivers and a thriving wildlife|![](/en-CA/2022/02/202202250500WheatonYukon.jpg)|
 202202260500|LamplughGlacier|Lamplugh Glacier in Glacier Bay National Park, Alaska (© Andrew Peacock/Getty Images)|Where ancient ice meets the sea|![](/en-CA/2022/02/202202260500LamplughGlacier.jpg)|
+202202270500|IPBDMom|Polar bear mother with cubs in Wapusk National Park, Manitoba (© Andre Gilden/Minden Pictures)|A day for those who rule the north|![](/en-CA/2022/02/202202270500IPBDMom.jpg)|
