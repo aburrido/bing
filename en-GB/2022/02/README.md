@@ -26,3 +26,4 @@
 202202240000|RichmondDeer|Silhouette of a buck in Richmond Park at sunrise, London (© Ian Schofield Images/Offset/Shutterstock)|Antlers at dawn|![](/en-GB/2022/02/202202240000RichmondDeer.jpg)|
 202202250000|CrystalCave|Flowing river inside a glacier cave, Vatnajökull, Iceland (© Marco Bottigelli/Getty Images)|Ice, ice, caving|![](/en-GB/2022/02/202202250000CrystalCave.jpg)|
 202202260000|LamplughGlacier|Lamplugh Glacier in Glacier Bay National Park, Alaska, USA (© Andrew Peacock/Getty Images)|Where glaciers meet the sea|![](/en-GB/2022/02/202202260000LamplughGlacier.jpg)|
+202202270000|IPBDMom|Polar bear mother with cubs in Wapusk National Park, Manitoba, Canada (© Andre Gilden/Minden Pictures)|It's Polar Bear Day!|![](/en-GB/2022/02/202202270000IPBDMom.jpg)|
