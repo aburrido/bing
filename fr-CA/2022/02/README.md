@@ -28,3 +28,4 @@
 202202250500|WheatonYukon|Lever de soleil sur la Wheaton River près de Whitehorse, Yukon (© Robert Postma/Design Pics)||![](/fr-CA/2022/02/202202250500WheatonYukon.jpg)|
 202202260500|LamplughGlacier|Le glacier Lamplugh  dans le parc national de Glacier Bay, Alaska (© Andrew Peacock/Getty Images)||![](/fr-CA/2022/02/202202260500LamplughGlacier.jpg)|
 202202270500|IPBDMom|Maman ours polaire avec ses petits dans le parc national de Wapusk, Manitoba (© Andre Gilden/Minden Pictures)||![](/fr-CA/2022/02/202202270500IPBDMom.jpg)|
+202202280500|WinterCotswolds|Givre et neige dans les Cotswolds, Angleterre (© Peter Adams/Getty Images)||![](/fr-CA/2022/02/202202280500WinterCotswolds.jpg)|
