@@ -29,3 +29,4 @@
 202202251600|LamplughGlacier|冰川湾国家公园里的兰普鲁冰川，美国阿拉斯加州 (© Andrew Peacock/Getty Images)|古老的冰川与大海相遇的地方|![](/zh-CN/2022/02/202202251600LamplughGlacier.jpg)|
 202202261600|IPBDMom|在妈妈身旁玩耍的北极熊宝宝们，加拿大曼尼托巴省 (© Andre Gilden/Minden Pictures)|属于北方"统治者"的一天|![](/zh-CN/2022/02/202202261600IPBDMom.jpg)|
 202202271600|WinterCotswolds|霜雪覆盖下的科茨沃尔德，英格兰 (© Peter Adams/Getty Images)|寒冷降临科茨沃尔德|![](/zh-CN/2022/02/202202271600WinterCotswolds.jpg)|
+202202281600|ZugspitzeGipfelstation|楚格峰山顶的缆车站，德国格赖瑙市 (© Robert Jank/Alamy)|位于德国最高的山上|![](/zh-CN/2022/02/202202281600ZugspitzeGipfelstation.jpg)|
