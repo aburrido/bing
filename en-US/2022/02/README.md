@@ -29,3 +29,4 @@
 202202250800|LegacyMural|'Legacy' mural painted by Josh Sarantitis and Eric Okdeh within the Mural Arts Program in Philadelphia, Pennsylvania (© Vespasian/Alamy)|A beautiful day in the neighborhood…|![](/en-US/2022/02/202202250800LegacyMural.jpg)|
 202202260800|LamplughGlacier|Lamplugh Glacier in Glacier Bay National Park, Alaska (© Andrew Peacock/Getty Images)|Where ancient ice meets the sea|![](/en-US/2022/02/202202260800LamplughGlacier.jpg)|
 202202270800|IPBDMom|Polar bear mother with cubs in Wapusk National Park, Manitoba, Canada (© Andre Gilden/Minden Pictures)|A day for those who rule the north|![](/en-US/2022/02/202202270800IPBDMom.jpg)|
+202202280800|WinterCotswolds|Hoarfrost and snow in the Cotswolds, England (© Peter Adams/Getty Images)|Cold falls on the Cotswolds|![](/en-US/2022/02/202202280800WinterCotswolds.jpg)|

@@ -29,3 +29,4 @@
 202202260500|LamplughGlacier|Lamplugh Glacier in Glacier Bay National Park, Alaska (© Andrew Peacock/Getty Images)|Where ancient ice meets the sea|![](/en-CA/2022/02/202202260500LamplughGlacier.jpg)|
 202202270500|IPBDMom|Polar bear mother with cubs in Wapusk National Park, Manitoba (© Andre Gilden/Minden Pictures)|A day for those who rule the north|![](/en-CA/2022/02/202202270500IPBDMom.jpg)|
 202202280500|WinterCotswolds|Hoar frost and snow in the Cotswolds, England (© Peter Adams/Getty Images)|Cold falls on the Cotswolds|![](/en-CA/2022/02/202202280500WinterCotswolds.jpg)|
+||||![](/en-CA/2022/02/.jpg)|

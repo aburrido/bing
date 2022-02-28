@@ -28,3 +28,4 @@
 202202250800|WheatonYukon|Wheaton River near Whitehorse, Yukon, Canada (© Robert Postma/Design Pics)|Info|![](/en-AU/2022/02/202202250800WheatonYukon.jpg)|
 202202260800|LamplughGlacier|Lamplugh Glacier, Glacier Bay National Park, Alaska, USA (© Andrew Peacock/Getty Images)|Info|![](/en-AU/2022/02/202202260800LamplughGlacier.jpg)|
 202202270800|IPBDMom|Polar bears, Wapusk National Park, Manitoba, Canada (© Andre Gilden/Minden Pictures)|Info|![](/en-AU/2022/02/202202270800IPBDMom.jpg)|
+202202280800|WinterCotswolds|Cotswolds, England (© Peter Adams/Getty Images)|Info|![](/en-AU/2022/02/202202280800WinterCotswolds.jpg)|
