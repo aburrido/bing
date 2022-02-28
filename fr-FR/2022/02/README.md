@@ -29,3 +29,4 @@
 202202252300|LamplughGlacier|Le glacier Lamplugh dans le parc national de Glacier Bay, Alaska (© Andrew Peacock/Getty Images)|Bleu glace|![](/fr-FR/2022/02/202202252300LamplughGlacier.jpg)|
 202202262300|IPBDMom|Maman ours polaire avec ses petits dans le parc national de Wapusk, Manitoba, Canada (© Andre Gilden/Minden Pictures)|Fun en famille|![](/fr-FR/2022/02/202202262300IPBDMom.jpg)|
 202202272300|WinterCotswolds|Givre et neige dans les Cotswolds, Angleterre (© Peter Adams/Getty Images)|L’hiver en Angleterre|![](/fr-FR/2022/02/202202272300WinterCotswolds.jpg)|
+202202282300|BeNice|Deux impalas dans la réserve nationale du Masai Mara, Kenya (© Fritz Polking/Minden Pictures)|Un jour pour être sympa|![](/fr-FR/2022/02/202202282300BeNice.jpg)|

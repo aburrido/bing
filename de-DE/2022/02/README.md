@@ -29,3 +29,4 @@
 202202252300|LamplughGlacier|Lamplugh-Gletscher im Glacier-Bay-Nationalpark, Alaska, USA (© Andrew Peacock/Getty Images)|Wo uraltes Eis auf den Ozean trifft|![](/de-DE/2022/02/202202252300LamplughGlacier.jpg)|
 202202262300|IPBDMom|Eisbärmutter mit ihren Jungen, Wapusk-Nationalpark, Manitoba, Kanada (© Andre Gilden/Minden Pictures)|Ein Tag für die Herrscher des Nordens|![](/de-DE/2022/02/202202262300IPBDMom.jpg)|
 202202272300|WeinstadelNuernberg|Weinstadel und Wasserturm am Ufer der Pegnitz, Nürnberg, Bayern (© Reinhard Schmid/Huber/eStock Photo)|Fachwerkbaukunst an der Pegnitz|![](/de-DE/2022/02/202202272300WeinstadelNuernberg.jpg)|
+202202282300|NZTekapo|Lake Tekapo mit dem Mount-Cook-Nationalpark im Hintergrund, Südinsel, Neuseeland (© Sophie Dover/Getty Images)|Blaues Wunder|![](/de-DE/2022/02/202202282300NZTekapo.jpg)|
