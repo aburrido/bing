@@ -4,3 +4,4 @@
 202203010800|USArmyNurse|US Army Nurse Corps personnel, 1944 (© Bettmann/Getty Images)|Waiting for action|![](/en-US/2022/03/202203010800USArmyNurse.jpg)|
 202203020800|MoonlightRainier|Moonlight and the Milky Way over Mount Rainier in Mount Rainier National Park, Washington (© Brad Goldpaint/Cavan)|Happy 123rd birthday|![](/en-US/2022/03/202203020800MoonlightRainier.jpg)|
 202203030800|RhinocerosUnicornis|Greater one-horned rhinoceroses in Kaziranga National Park, Assam, India (© Robert Harding World Imagery/Shutterstock)|Celebrating World Wildlife Day|![](/en-US/2022/03/202203030800RhinocerosUnicornis.jpg)|
+202203040800|ParalympicCurling|The National Aquatics Center in Beijing, China (© Han Haidan/China News Service via Getty Images)|Ice Cube aglow|![](/en-US/2022/03/202203040800ParalympicCurling.jpg)|
