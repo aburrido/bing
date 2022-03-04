@@ -4,3 +4,4 @@
 202203010500|QuebecOwl|A snowy owl pictured in Quebec City (© Marco Pozzi Photographer/Getty Images)|Strike a pose for the camera, please!|![](/en-CA/2022/03/202203010500QuebecOwl.jpg)|
 202203020500|MoonlightRainier|Moonlight and the Milky Way over Mount Rainier in Mount Rainier National Park, Washington (© Brad Goldpaint/Cavan)|Moonlight over Mount Rainier|![](/en-CA/2022/03/202203020500MoonlightRainier.jpg)|
 202203030500|RhinocerosUnicornis|Greater one-horned rhinoceros in Kaziranga National Park, Assam, India (© Robert Harding World Imagery/Shutterstock)|Celebrating World Wildlife Day|![](/en-CA/2022/03/202203030500RhinocerosUnicornis.jpg)|
+202203040500|ParalympicCurling|The National Aquatics Centre in Beijing, China (© Han Haidan/China News Service via Getty Images)|Beijing’s winter bubble|![](/en-CA/2022/03/202203040500ParalympicCurling.jpg)|
