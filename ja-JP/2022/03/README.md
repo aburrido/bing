@@ -5,3 +5,4 @@
 202203021500|Hinamatsuri2022|ひな人形 (© ziggy_mars/iStock/Getty Images Plus)|今日は「ひな祭り」|![](/ja-JP/2022/03/202203021500Hinamatsuri2022.jpg)|
 ||||![](/ja-JP/2022/03/.jpg)|
 202203031500|ParalympicCurling|北京国家水泳センター, 中国 北京 (© Han Haidan/China News Service via Getty Images)|今日から北京冬季パラ開幕|![](/ja-JP/2022/03/202203031500ParalympicCurling.jpg)|
+202203041500|NormandyMont|モン・サン＝ミシェル, フランス ノルマンディー (© DaLiu/Getty Images)|ノルマンディーの世界遺産|![](/ja-JP/2022/03/202203041500NormandyMont.jpg)|
