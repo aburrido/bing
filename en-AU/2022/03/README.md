@@ -6,3 +6,4 @@
 202203030800|RhinocerosUnicornis|Greater one-horned rhinoceroses, Kaziranga National Park, Assam, India (© Robert Harding World Imagery/Shutterstock)|Info|![](/en-AU/2022/03/202203030800RhinocerosUnicornis.jpg)|
 202203040800|WeinstadelNuernberg|Weinstadel on Pegnitz river, Nuremberg, Germany (© Reinhard Schmid/Huber/eStock Photo)|Info|![](/en-AU/2022/03/202203040800WeinstadelNuernberg.jpg)|
 ||||![](/en-AU/2022/03/.jpg)|
+202203050800|NormandyMont|Mont-Saint-Michel, Normandy, France (© DaLiu/Getty Images)|Info|![](/en-AU/2022/03/202203050800NormandyMont.jpg)|
