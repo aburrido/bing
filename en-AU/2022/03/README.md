@@ -7,3 +7,4 @@
 202203040800|WeinstadelNuernberg|Weinstadel on Pegnitz river, Nuremberg, Germany (© Reinhard Schmid/Huber/eStock Photo)|Info|![](/en-AU/2022/03/202203040800WeinstadelNuernberg.jpg)|
 ||||![](/en-AU/2022/03/.jpg)|
 202203050800|NormandyMont|Mont-Saint-Michel, Normandy, France (© DaLiu/Getty Images)|Info|![](/en-AU/2022/03/202203050800NormandyMont.jpg)|
+202203060800|GreatCormorants|Great cormorants, Hesse, Germany (© Wilfried Martin/Getty Images)|Info|![](/en-AU/2022/03/202203060800GreatCormorants.jpg)|
