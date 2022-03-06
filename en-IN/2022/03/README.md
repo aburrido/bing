@@ -6,3 +6,4 @@
 202203031830|ParalympicCurling|The National Aquatics Center in Beijing, China (© Han Haidan/China News Service via Getty Images)|Beijing’s winter bubble|![](/en-IN/2022/03/202203031830ParalympicCurling.jpg)|
 202203041830|NormandyMont|The island of Mont-Saint-Michel in Normandy, France (© DaLiu/Getty Images)|A saintly vision inspired the first chapel|![](/en-IN/2022/03/202203041830NormandyMont.jpg)|
 202203051830|PeacockNagarahole|Peacock at Nagarahole National Park in Karnataka, India (© Vivek BR/Shutterstock)|The national bird in the wild|![](/en-IN/2022/03/202203051830PeacockNagarahole.jpg)|
+202203061830|NZTekapo|Lake Tekapo with Aoraki/Mount Cook National Park in the background on New Zealand's South Island (© Sophie Dover/Getty Images)|Blue Zealand|![](/en-IN/2022/03/202203061830NZTekapo.jpg)|
