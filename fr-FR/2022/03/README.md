@@ -6,3 +6,4 @@
 202203032300|ParalympicCurling|Le National Aquatics Center à Pékin, Chine (© Han Haidan/China News Service via Getty Images)|Les jeux sont ouverts|![](/fr-FR/2022/03/202203032300ParalympicCurling.jpg)|
 202203042300|NormandyMont|Le Mont-Saint-Michel (© DaLiu/Getty Images)|Toujours efficace|![](/fr-FR/2022/03/202203042300NormandyMont.jpg)|
 202203052300|GreatCormorants|Grands Cormorans dans une tempête, Hesse, Allemagne (© Wilfried Martin/Getty Images)|À la queue leu leu|![](/fr-FR/2022/03/202203052300GreatCormorants.jpg)|
+202203062300|NZTekapo|Lac Tekapo et le parc national Aoraki/Mont Cook en arrière-plan, Île du Sud, Nouvelle-Zélande (© Sophie Dover/Getty Images)|Une grande bleue|![](/fr-FR/2022/03/202203062300NZTekapo.jpg)|

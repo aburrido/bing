@@ -7,3 +7,4 @@
 ||||![](/de-DE/2022/03/.jpg)|
 202203042300|NormandyMont|Die Insel Mont-Saint-Michel in der Normandie, Frankreich (© DaLiu/Getty Images)|Insel zwischen Ebbe und Flut|![](/de-DE/2022/03/202203042300NormandyMont.jpg)|
 202203052300|GreatCormorants|Kormorane auf einem winterlichen Ausflug auf einem See, Hessen (© Wilfried Martin/Getty Images)|Winterausflug auf dem See|![](/de-DE/2022/03/202203052300GreatCormorants.jpg)|
+202203062300|ZugspitzeGipfelstation|Bergstation der Seilbahn Zugspitze bei Grainau, Garmisch-Partenkirchen, Bayern (© Robert Jank/Alamy)|Auf dem höchsten Berg Deutschlands|![](/de-DE/2022/03/202203062300ZugspitzeGipfelstation.jpg)|
