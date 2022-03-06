@@ -6,3 +6,4 @@
 202203031600|WeinstadelNuernberg|佩格尼茨河上的葡萄酒窖，德国纽伦堡 (© Reinhard Schmid/Huber/eStock Photo)|佩格尼茨河上的半木结构建筑|![](/zh-CN/2022/03/202203031600WeinstadelNuernberg.jpg)|
 202203041600|NormandyMont|圣米歇尔山，法国诺曼底 (© DaLiu/Getty Images)|一个神圣的愿望孕育了第一个小教堂|![](/zh-CN/2022/03/202203041600NormandyMont.jpg)|
 202203051600|GreatCormorants|在暴风雪中畅游的鸬鹚，德国黑森州 (© Wilfried Martin/Getty Images)|鸬鹚的行军|![](/zh-CN/2022/03/202203051600GreatCormorants.jpg)|
+202203061600|NZTekapo|以新西兰南岛奥拉基/库克山国家公园为背景的特卡波湖 (© Sophie Dover/Getty Images)|蓝色新西兰|![](/zh-CN/2022/03/202203061600NZTekapo.jpg)|
