@@ -6,3 +6,4 @@
 202203030500|RhinocerosUnicornis|Rhinocéros indiens dans le parc national de Kaziranga, Assam, Indie (© Robert Harding World Imagery/Shutterstock)||![](/fr-CA/2022/03/202203030500RhinocerosUnicornis.jpg)|
 202203040500|QuebecOwl|Harfang des neiges à Québec (© Marco Pozzi Photographer/Getty Images)||![](/fr-CA/2022/03/202203040500QuebecOwl.jpg)|
 202203050500|NormandyMont|Le Mont-Saint-Michel, France (© DaLiu/Getty Images)||![](/fr-CA/2022/03/202203050500NormandyMont.jpg)|
+202203060500|GreatCormorants|Grands Cormorans dans une tempête, Hesse, Allemagne (© Wilfried Martin/Getty Images)||![](/fr-CA/2022/03/202203060500GreatCormorants.jpg)|
