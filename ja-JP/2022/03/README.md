@@ -7,3 +7,4 @@
 202203031500|ParalympicCurling|北京国家水泳センター, 中国 北京 (© Han Haidan/China News Service via Getty Images)|今日から北京冬季パラ開幕|![](/ja-JP/2022/03/202203031500ParalympicCurling.jpg)|
 202203041500|NormandyMont|モン・サン＝ミシェル, フランス ノルマンディー (© DaLiu/Getty Images)|ノルマンディーの世界遺産|![](/ja-JP/2022/03/202203041500NormandyMont.jpg)|
 202203051500|GreatCormorants|カワウの隊列, ドイツ ヘッセン州 (© Wilfried Martin/Getty Images)|メルヘン街道の水鳥たち|![](/ja-JP/2022/03/202203051500GreatCormorants.jpg)|
+202203061500|NZTekapo|テカポ湖とアオラキ/クック山, ニュージーランド南島 (© Sophie Dover/Getty Images)|ニュージーランドの絶景|![](/ja-JP/2022/03/202203061500NZTekapo.jpg)|
