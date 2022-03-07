@@ -8,3 +8,4 @@
 202203041500|NormandyMont|モン・サン＝ミシェル, フランス ノルマンディー (© DaLiu/Getty Images)|ノルマンディーの世界遺産|![](/ja-JP/2022/03/202203041500NormandyMont.jpg)|
 202203051500|GreatCormorants|カワウの隊列, ドイツ ヘッセン州 (© Wilfried Martin/Getty Images)|メルヘン街道の水鳥たち|![](/ja-JP/2022/03/202203051500GreatCormorants.jpg)|
 202203061500|NZTekapo|テカポ湖とアオラキ/クック山, ニュージーランド南島 (© Sophie Dover/Getty Images)|ニュージーランドの絶景|![](/ja-JP/2022/03/202203061500NZTekapo.jpg)|
+202203071500|BrokenGlass|ウォール街の「恐れを知らぬ少女」像, 米国 ニューヨーク市 (© Brendan McDermid/Alamy)|今日は「国際女性デー」|![](/ja-JP/2022/03/202203071500BrokenGlass.jpg)|
