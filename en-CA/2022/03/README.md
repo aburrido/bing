@@ -7,3 +7,4 @@
 202203040500|ParalympicCurling|The National Aquatics Centre in Beijing, China (© Han Haidan/China News Service via Getty Images)|Beijing’s winter bubble|![](/en-CA/2022/03/202203040500ParalympicCurling.jpg)|
 202203050500|NormandyMont|The island of Mont-Saint-Michel in Normandy, France (© DaLiu/Getty Images)|A saintly vision inspired the first chapel|![](/en-CA/2022/03/202203050500NormandyMont.jpg)|
 202203060500|GreatCormorants|Great cormorants gliding through a snowstorm in Hesse, Germany (© Wilfried Martin/Getty Images)|March of the cormorants|![](/en-CA/2022/03/202203060500GreatCormorants.jpg)|
+202203070500|NZTekapo|Lake Tekapo with Aoraki/Mount Cook National Park in the background on New Zealand's South Island (© Sophie Dover/Getty Images)|Blue Zealand|![](/en-CA/2022/03/202203070500NZTekapo.jpg)|

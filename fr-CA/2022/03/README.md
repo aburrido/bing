@@ -7,3 +7,4 @@
 202203040500|QuebecOwl|Harfang des neiges à Québec (© Marco Pozzi Photographer/Getty Images)||![](/fr-CA/2022/03/202203040500QuebecOwl.jpg)|
 202203050500|NormandyMont|Le Mont-Saint-Michel, France (© DaLiu/Getty Images)||![](/fr-CA/2022/03/202203050500NormandyMont.jpg)|
 202203060500|GreatCormorants|Grands Cormorans dans une tempête, Hesse, Allemagne (© Wilfried Martin/Getty Images)||![](/fr-CA/2022/03/202203060500GreatCormorants.jpg)|
+202203070500|NZTekapo|Lac Tekapo et le parc national du Aoraki/Mont Cook en arrière-plan, Île du Sud, Nouvelle-Zélande (© Sophie Dover/Getty Images)||![](/fr-CA/2022/03/202203070500NZTekapo.jpg)|
