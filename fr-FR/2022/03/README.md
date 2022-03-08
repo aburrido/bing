@@ -8,3 +8,4 @@
 202203052300|GreatCormorants|Grands Cormorans dans une tempête, Hesse, Allemagne (© Wilfried Martin/Getty Images)|À la queue leu leu|![](/fr-FR/2022/03/202203052300GreatCormorants.jpg)|
 202203062300|NZTekapo|Lac Tekapo et le parc national Aoraki/Mont Cook en arrière-plan, Île du Sud, Nouvelle-Zélande (© Sophie Dover/Getty Images)|Une grande bleue|![](/fr-FR/2022/03/202203062300NZTekapo.jpg)|
 202203072300|BrokenGlass|La statue de la ‘Fearless Girl’ devant la bourse de New York (© Brendan McDermid/Alamy)|Fille sans peur|![](/fr-FR/2022/03/202203072300BrokenGlass.jpg)|
+202203082300|FlowerofLife|Le symbole “fleur de la vie” dessinée dans la neige par l’artiste Michael Uy, Jacobsdorf, Brandebourg, Allemagne (© Patrick Pleul/picture alliance via Getty Images)|Fleur de la vie|![](/fr-FR/2022/03/202203082300FlowerofLife.jpg)|
