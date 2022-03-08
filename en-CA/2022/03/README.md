@@ -8,3 +8,4 @@
 202203050500|NormandyMont|The island of Mont-Saint-Michel in Normandy, France (© DaLiu/Getty Images)|A saintly vision inspired the first chapel|![](/en-CA/2022/03/202203050500NormandyMont.jpg)|
 202203060500|GreatCormorants|Great cormorants gliding through a snowstorm in Hesse, Germany (© Wilfried Martin/Getty Images)|March of the cormorants|![](/en-CA/2022/03/202203060500GreatCormorants.jpg)|
 202203070500|NZTekapo|Lake Tekapo with Aoraki/Mount Cook National Park in the background on New Zealand's South Island (© Sophie Dover/Getty Images)|Blue Zealand|![](/en-CA/2022/03/202203070500NZTekapo.jpg)|
+202203080500|BrokenGlass|The 'Fearless Girl' statue outside the New York Stock Exchange in New York City (© Brendan McDermid/Alamy)|‘Fearless Girl’ rules the Financial District|![](/en-CA/2022/03/202203080500BrokenGlass.jpg)|
