@@ -9,3 +9,4 @@
 202203050800|NormandyMont|Mont-Saint-Michel, Normandy, France (© DaLiu/Getty Images)|Info|![](/en-AU/2022/03/202203050800NormandyMont.jpg)|
 202203060800|GreatCormorants|Great cormorants, Hesse, Germany (© Wilfried Martin/Getty Images)|Info|![](/en-AU/2022/03/202203060800GreatCormorants.jpg)|
 202203070800|NZTekapo|Lake Tekapo, South Island, New Zealand (© Sophie Dover/Getty Images)|Info|![](/en-AU/2022/03/202203070800NZTekapo.jpg)|
+202203080800|Mercantour|Saint-Étienne-de-Tinée, Alpes-Maritimes department, France (© CAVALIER Michel/hemis.fr/Alamy)|Info|![](/en-AU/2022/03/202203080800Mercantour.jpg)|
