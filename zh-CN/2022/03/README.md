@@ -8,3 +8,4 @@
 202203051600|GreatCormorants|在暴风雪中畅游的鸬鹚，德国黑森州 (© Wilfried Martin/Getty Images)|鸬鹚的行军|![](/zh-CN/2022/03/202203051600GreatCormorants.jpg)|
 202203061600|NZTekapo|以新西兰南岛奥拉基/库克山国家公园为背景的特卡波湖 (© Sophie Dover/Getty Images)|蓝色新西兰|![](/zh-CN/2022/03/202203061600NZTekapo.jpg)|
 202203071600|Mercantour|蒂内河畔圣艾蒂安小镇，法国阿尔卑斯省  (© CAVALIER Michel/hemis.fr/Alamy Stock Photo)|征服了世界的高山|![](/zh-CN/2022/03/202203071600Mercantour.jpg)|
+202203081600|PeacockNagarahole|纳加尔霍雷国家公园的孔雀，印度卡纳塔克邦 (© Vivek BR/Shutterstock)|印度国鸟|![](/zh-CN/2022/03/202203081600PeacockNagarahole.jpg)|
