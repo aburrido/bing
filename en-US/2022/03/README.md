@@ -9,3 +9,4 @@
 202203060800|GreatCormorants|Great cormorants gliding through a snowstorm in Hesse, Germany (© Wilfried Martin/Getty Images)|March of the cormorants|![](/en-US/2022/03/202203060800GreatCormorants.jpg)|
 202203070800|NZTekapo|Lake Tekapo with Aoraki/Mount Cook National Park in the background on New Zealand's South Island (© Sophie Dover/Getty Images)|Blue Zealand|![](/en-US/2022/03/202203070800NZTekapo.jpg)|
 202203080800|BrokenGlass|The 'Fearless Girl' statue outside the New York Stock Exchange in New York City (© Brendan McDermid/Alamy)|'Fearless Girl' rules the Financial District|![](/en-US/2022/03/202203080800BrokenGlass.jpg)|
+202203090800|FlowerofLife|The 'Flower of Life' symbol drawn in the snow by artist Michael Uy, Jacobsdorf, Brandenburg, Germany (© Patrick Pleul/picture alliance via Getty Images)|A flower blooms in winter|![](/en-US/2022/03/202203090800FlowerofLife.jpg)|
