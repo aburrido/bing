@@ -10,3 +10,4 @@
 202203061500|NZTekapo|テカポ湖とアオラキ/クック山, ニュージーランド南島 (© Sophie Dover/Getty Images)|ニュージーランドの絶景|![](/ja-JP/2022/03/202203061500NZTekapo.jpg)|
 202203071500|BrokenGlass|ウォール街の「恐れを知らぬ少女」像, 米国 ニューヨーク市 (© Brendan McDermid/Alamy)|今日は「国際女性デー」|![](/ja-JP/2022/03/202203071500BrokenGlass.jpg)|
 202203081500|FlowerofLife|雪上の「フラワー・オブ・ライフ」, ドイツ ブランデンブルク州 (© Patrick Pleul/picture alliance via Getty Images)|雪上の神聖幾何学|![](/ja-JP/2022/03/202203081500FlowerofLife.jpg)|
+202203091500|BobbioItaly|ヴェッキオ橋, イタリア ボッビオ (© afinocchiaro/Getty Images)|イタリアのロマネスク橋|![](/ja-JP/2022/03/202203091500BobbioItaly.jpg)|
