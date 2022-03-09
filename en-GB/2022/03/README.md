@@ -8,3 +8,4 @@
 202203060000|GreatCormorants|Great cormorants gliding through a snowstorm in Hesse, Germany (© Wilfried Martin/Getty Images)|March of the cormorants|![](/en-GB/2022/03/202203060000GreatCormorants.jpg)|
 202203070000|NZTekapo|Lake Tekapo and Aoraki/Mount Cook National Park on New Zealand's South Island (© Sophie Dover/Getty Images)|Blue Zealand|![](/en-GB/2022/03/202203070000NZTekapo.jpg)|
 202203080000|WomenOfSteel|Women of Steel bronze sculpture in Sheffield city centre, by sculptor Martin Jennings. (© Rory Prior/Alamy Stock Photo)|Women of steel|![](/en-GB/2022/03/202203080000WomenOfSteel.jpg)|
+202203090000|FlowerofLife|The Flower of Life symbol drawn in the snow by artist Michael Uy, Jacobsdorf, Brandenburg, Germany (© Patrick Pleul/picture alliance via Getty Images)|A flower blooms in the snow|![](/en-GB/2022/03/202203090000FlowerofLife.jpg)|
