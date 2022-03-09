@@ -10,3 +10,4 @@
 202203062300|ZugspitzeGipfelstation|Bergstation der Seilbahn Zugspitze bei Grainau, Garmisch-Partenkirchen, Bayern (© Robert Jank/Alamy)|Auf dem höchsten Berg Deutschlands|![](/de-DE/2022/03/202203062300ZugspitzeGipfelstation.jpg)|
 202203072300|BrokenGlass|Die Statue „Fearless Girl“ vor der New York Stock Exchange in New York City, USA (© Brendan McDermid/Alamy)|Wächterin über die Finanzwelt|![](/de-DE/2022/03/202203072300BrokenGlass.jpg)|
 202203082300|FlowerofLife|Das vom Künstler Michael Uy in den Schnee gezeichnete Symbol „Blume des Lebens“, Jacobsdorf, Brandenburg (© Patrick Pleul/picture alliance via Getty Images)|Eine Blume, die im Winter blüht|![](/de-DE/2022/03/202203082300FlowerofLife.jpg)|
+202203092300|BobbioItaly|Die Bogenbrücke Ponte Gobbo in Bobbio, Italien (© afinocchiaro/Getty Images)|Am linken Ufer des Flusses Trebbia liegt ...|![](/de-DE/2022/03/202203092300BobbioItaly.jpg)|
