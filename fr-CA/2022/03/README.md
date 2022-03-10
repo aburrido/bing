@@ -10,3 +10,4 @@
 202203070500|NZTekapo|Lac Tekapo et le parc national du Aoraki/Mont Cook en arrière-plan, Île du Sud, Nouvelle-Zélande (© Sophie Dover/Getty Images)||![](/fr-CA/2022/03/202203070500NZTekapo.jpg)|
 202203080500|WeinstadelNuernberg|Le Weinstadel et le château d’eau sur la rivière Pegnitz, Nuremberg, Allemagne (© Reinhard Schmid/Huber/eStock Photo)||![](/fr-CA/2022/03/202203080500WeinstadelNuernberg.jpg)|
 202203090500|PeacockNagarahole|Paon dans le parc national de Nagarhole à Karnataka, Inde (© Vivek BR/Shutterstock)||![](/fr-CA/2022/03/202203090500PeacockNagarahole.jpg)|
+202203100500|BobbioItaly|Ponte Vecchio près de Bobbio, Italie (© afinocchiaro/Getty Images)||![](/fr-CA/2022/03/202203100500BobbioItaly.jpg)|
