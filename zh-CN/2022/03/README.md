@@ -10,3 +10,4 @@
 202203071600|Mercantour|蒂内河畔圣艾蒂安小镇，法国阿尔卑斯省  (© CAVALIER Michel/hemis.fr/Alamy Stock Photo)|征服了世界的高山|![](/zh-CN/2022/03/202203071600Mercantour.jpg)|
 202203081600|PeacockNagarahole|纳加尔霍雷国家公园的孔雀，印度卡纳塔克邦 (© Vivek BR/Shutterstock)|印度国鸟|![](/zh-CN/2022/03/202203081600PeacockNagarahole.jpg)|
 202203091600|BobbioItaly|Ponte Gobbo桥，意大利博比奥 (© afinocchiaro/Getty Images)|特雷比亚河的左岸便是|![](/zh-CN/2022/03/202203091600BobbioItaly.jpg)|
+202203101600|OcalaNF|奥卡拉国家森林中的杜松泉，美国佛罗里达州 (© Michael Warren/Getty Images)|全年均可在此畅游|![](/zh-CN/2022/03/202203101600OcalaNF.jpg)|
