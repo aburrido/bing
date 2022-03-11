@@ -12,3 +12,4 @@
 202203081500|FlowerofLife|雪上の「フラワー・オブ・ライフ」, ドイツ ブランデンブルク州 (© Patrick Pleul/picture alliance via Getty Images)|雪上の神聖幾何学|![](/ja-JP/2022/03/202203081500FlowerofLife.jpg)|
 202203091500|BobbioItaly|ヴェッキオ橋, イタリア ボッビオ (© afinocchiaro/Getty Images)|イタリアのロマネスク橋|![](/ja-JP/2022/03/202203091500BobbioItaly.jpg)|
 202203101500|Tohoku2022|大高森から見た松島, 宮城 東松島市 (© MIXA/Mixa/AGE Fotostock)|東日本大震災から 11 年|![](/ja-JP/2022/03/202203101500Tohoku2022.jpg)|
+202203111500|UkraineSolidarity|ひまわり畑, ウクライナ (© Oleksandrum/Shutterstock)|平和を願うひまわり|![](/ja-JP/2022/03/202203111500UkraineSolidarity.jpg)|
