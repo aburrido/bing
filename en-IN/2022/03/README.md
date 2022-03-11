@@ -11,3 +11,4 @@
 202203081830|FlowerofLife|The 'Flower of Life' symbol drawn in the snow by artist Michael Uy, Jacobsdorf, Brandenburg, Germany (© Patrick Pleul/picture alliance via Getty Images)|A flower blooms in winter|![](/en-IN/2022/03/202203081830FlowerofLife.jpg)|
 202203091830|BobbioItaly|Ponte Vecchio bridge near Bobbio, Italy (© afinocchiaro/Getty Images)|On the left bank of the river Trebbia, lies...|![](/en-IN/2022/03/202203091830BobbioItaly.jpg)|
 202203101830|UkraineSolidarity|Field of sunflowers, Ukraine's national flower (© Oleksandrum/Shutterstock)|We stand with Ukraine|![](/en-IN/2022/03/202203101830UkraineSolidarity.jpg)|
+202203111830|HemakutaTemples|The ancient architecture of temples on Hemakuta Hill in Hampi, India (© Images of India/Alamy Stock Photo)|A cluster of ancient shrines|![](/en-IN/2022/03/202203111830HemakutaTemples.jpg)|
