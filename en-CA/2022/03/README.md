@@ -11,3 +11,4 @@
 202203080500|BrokenGlass|The 'Fearless Girl' statue outside the New York Stock Exchange in New York City (© Brendan McDermid/Alamy)|‘Fearless Girl’ rules the Financial District|![](/en-CA/2022/03/202203080500BrokenGlass.jpg)|
 202203090500|FlowerofLife|The 'Flower of Life' symbol drawn in the snow by artist Michael Uy, Jacobsdorf, Brandenburg, Germany (© Patrick Pleul/picture alliance via Getty Images)|A flower blooms in winter|![](/en-CA/2022/03/202203090500FlowerofLife.jpg)|
 202203100500|BobbioItaly|Ponte Vecchio bridge near Bobbio, Italy (© afinocchiaro/Getty Images)|On the left bank of the river Trebbia, lies...|![](/en-CA/2022/03/202203100500BobbioItaly.jpg)|
+202203110500|UkraineSolidarity|Field of sunflowers, Ukraine's national flower (© Oleksandrum/Shutterstock)|We stand with Ukraine|![](/en-CA/2022/03/202203110500UkraineSolidarity.jpg)|
