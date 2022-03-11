@@ -12,3 +12,4 @@
 202203082300|FlowerofLife|Das vom Künstler Michael Uy in den Schnee gezeichnete Symbol „Blume des Lebens“, Jacobsdorf, Brandenburg (© Patrick Pleul/picture alliance via Getty Images)|Eine Blume, die im Winter blüht|![](/de-DE/2022/03/202203082300FlowerofLife.jpg)|
 202203092300|BobbioItaly|Die Bogenbrücke Ponte Gobbo in Bobbio, Italien (© afinocchiaro/Getty Images)|Am linken Ufer des Flusses Trebbia liegt ...|![](/de-DE/2022/03/202203092300BobbioItaly.jpg)|
 202203102300|UkraineSolidarity|Sonnenblumenfeld, Nationalblume der Ukraine (© Oleksandrum/Shutterstock)|Wir stehen an der Seite der Ukraine|![](/de-DE/2022/03/202203102300UkraineSolidarity.jpg)|
+202203112300|SpringForward|Feldhase in einem Feuchtgebiet in den Niederlanden (© Jim Brandenburg/Minden Pictures)|Hallo, „Meister Lampe“!|![](/de-DE/2022/03/202203112300SpringForward.jpg)|

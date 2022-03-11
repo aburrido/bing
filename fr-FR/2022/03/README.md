@@ -12,3 +12,4 @@
 202203092300|BobbioItaly|Ponte Vecchio près de Bobbio, Italie (© afinocchiaro/Getty Images)|Le pont bossu|![](/fr-FR/2022/03/202203092300BobbioItaly.jpg)|
 202203102300|UkraineSolidarity|Champ de tournesols, fleur nationale de l’Ukraine (© Oleksandrum/Shutterstock)|Avec l’Ukraine|![](/fr-FR/2022/03/202203102300UkraineSolidarity.jpg)|
 ||||![](/fr-FR/2022/03/.jpg)|
+202203112300|Poets|Coucher de soleil sur la Méditerranée près du Bateau Ivre, monument en l’honneur d’Arthur Rimbaud, Parc du Prado, Marseille (© GERARD JULIEN/AFP via Getty Images)|Le Printemps des poètes|![](/fr-FR/2022/03/202203112300Poets.jpg)|
