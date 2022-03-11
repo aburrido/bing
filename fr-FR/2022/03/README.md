@@ -11,3 +11,4 @@
 202203082300|FlowerofLife|Le symbole “fleur de la vie” dessinée dans la neige par l’artiste Michael Uy, Jacobsdorf, Brandebourg, Allemagne (© Patrick Pleul/picture alliance via Getty Images)|Fleur de la vie|![](/fr-FR/2022/03/202203082300FlowerofLife.jpg)|
 202203092300|BobbioItaly|Ponte Vecchio près de Bobbio, Italie (© afinocchiaro/Getty Images)|Le pont bossu|![](/fr-FR/2022/03/202203092300BobbioItaly.jpg)|
 202203102300|UkraineSolidarity|Champ de tournesols, fleur nationale de l’Ukraine (© Oleksandrum/Shutterstock)|Avec l’Ukraine|![](/fr-FR/2022/03/202203102300UkraineSolidarity.jpg)|
+||||![](/fr-FR/2022/03/.jpg)|
