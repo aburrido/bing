@@ -12,3 +12,4 @@
 202203090500|FlowerofLife|The 'Flower of Life' symbol drawn in the snow by artist Michael Uy, Jacobsdorf, Brandenburg, Germany (© Patrick Pleul/picture alliance via Getty Images)|A flower blooms in winter|![](/en-CA/2022/03/202203090500FlowerofLife.jpg)|
 202203100500|BobbioItaly|Ponte Vecchio bridge near Bobbio, Italy (© afinocchiaro/Getty Images)|On the left bank of the river Trebbia, lies...|![](/en-CA/2022/03/202203100500BobbioItaly.jpg)|
 202203110500|UkraineSolidarity|Field of sunflowers, Ukraine's national flower (© Oleksandrum/Shutterstock)|We stand with Ukraine|![](/en-CA/2022/03/202203110500UkraineSolidarity.jpg)|
+202203120500|MapleIce|Hardened maple syrup on a wooden stick sitting on ice, Elmira, Ontario (© Design Pics/Offset/Shutterstock)|A winter delicacy|![](/en-CA/2022/03/202203120500MapleIce.jpg)|

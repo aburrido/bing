@@ -13,3 +13,4 @@
 202203100500|BobbioItaly|Ponte Vecchio près de Bobbio, Italie (© afinocchiaro/Getty Images)||![](/fr-CA/2022/03/202203100500BobbioItaly.jpg)|
 ||||![](/fr-CA/2022/03/.jpg)|
 202203110500|UkraineSolidarity|Champ de tournesols, fleur nationale de l’Ukraine (© Oleksandrum/Shutterstock)||![](/fr-CA/2022/03/202203110500UkraineSolidarity.jpg)|
+202203120500|MapleIce|Sirop d’érable durci sur des bâtonnets en bois posés sur de la glace, Elmira, Ontario (© Design Pics/Offset/Shutterstock)||![](/fr-CA/2022/03/202203120500MapleIce.jpg)|
