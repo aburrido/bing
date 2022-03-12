@@ -11,3 +11,4 @@
 202203090000|FlowerofLife|The Flower of Life symbol drawn in the snow by artist Michael Uy, Jacobsdorf, Brandenburg, Germany (© Patrick Pleul/picture alliance via Getty Images)|A flower blooms in the snow|![](/en-GB/2022/03/202203090000FlowerofLife.jpg)|
 202203100000|BobbioItaly|Ponte Vecchio bridge near Bobbio, Italy (© afinocchiaro/Getty Images)|The other Ponte Vecchio|![](/en-GB/2022/03/202203100000BobbioItaly.jpg)|
 202203110000|UkraineSolidarity|Field of sunflowers, Ukraine's national flower (© Oleksandrum/Shutterstock)|We stand with Ukraine|![](/en-GB/2022/03/202203110000UkraineSolidarity.jpg)|
+202203120000|WheatonYukon|Sunset over Wheaton River near Whitehorse, Yukon, Canada (© Robert Postma/Design Pics/Shutterstock)|In icy isolation|![](/en-GB/2022/03/202203120000WheatonYukon.jpg)|
