@@ -14,3 +14,4 @@
 202203102300|UkraineSolidarity|Sonnenblumenfeld, Nationalblume der Ukraine (© Oleksandrum/Shutterstock)|Wir stehen an der Seite der Ukraine|![](/de-DE/2022/03/202203102300UkraineSolidarity.jpg)|
 202203112300|SpringForward|Feldhase in einem Feuchtgebiet in den Niederlanden (© Jim Brandenburg/Minden Pictures)|Hallo, „Meister Lampe“!|![](/de-DE/2022/03/202203112300SpringForward.jpg)|
 202203122300|EuleKasselburg|Junge Schleiereule, Kasselburg, Pelm, Eifel, Rheinland-Pfalz (© Arco/TUNS/Imagebroker/Alamy Stock Photo)|Warten auf den ersten Flug|![](/de-DE/2022/03/202203122300EuleKasselburg.jpg)|
+202203132300|LanyonQuoit|Das Großsteingrab Lanyon Quoit in Cornwall, England, Vereinigtes Königreich (© Guy Edwardes/Minden Pictures)|Welche Zahl wird heute gefeiert?|![](/de-DE/2022/03/202203132300LanyonQuoit.jpg)|

@@ -14,3 +14,4 @@
 ||||![](/fr-FR/2022/03/.jpg)|
 202203112300|Poets|Coucher de soleil sur la Méditerranée près du Bateau Ivre, monument en l’honneur d’Arthur Rimbaud, Parc du Prado, Marseille (© GERARD JULIEN/AFP via Getty Images)|Le Printemps des poètes|![](/fr-FR/2022/03/202203112300Poets.jpg)|
 202203122300|BrehatIsland|Vue aérienne de l’Île-de-Bréhat, Côtes-d'Armor (© LECLERCQ Olivier/hemis.fr/Alamy)|La Breizh !|![](/fr-FR/2022/03/202203122300BrehatIsland.jpg)|
+202203132300|LanyonQuoit|Chambre funéraire Lanyon Quoit, Cornouailles, Angleterre (© Guy Edwardes/Minden Pictures)|Pi où on ne l’attendait pas|![](/fr-FR/2022/03/202203132300LanyonQuoit.jpg)|
