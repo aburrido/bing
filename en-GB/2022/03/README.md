@@ -12,3 +12,4 @@
 202203100000|BobbioItaly|Ponte Vecchio bridge near Bobbio, Italy (© afinocchiaro/Getty Images)|The other Ponte Vecchio|![](/en-GB/2022/03/202203100000BobbioItaly.jpg)|
 202203110000|UkraineSolidarity|Field of sunflowers, Ukraine's national flower (© Oleksandrum/Shutterstock)|We stand with Ukraine|![](/en-GB/2022/03/202203110000UkraineSolidarity.jpg)|
 202203120000|WheatonYukon|Sunset over Wheaton River near Whitehorse, Yukon, Canada (© Robert Postma/Design Pics/Shutterstock)|In icy isolation|![](/en-GB/2022/03/202203120000WheatonYukon.jpg)|
+202203130000|ZugspitzeGipfelstation|Cable car station at the summit of Zugspitze mountain in Grainau, Garmisch-Partenkirchen, Germany (© Robert Jank/Alamy)|On Germany’s highest peak|![](/en-GB/2022/03/202203130000ZugspitzeGipfelstation.jpg)|
