@@ -14,3 +14,4 @@
 202203111600|BrehatIsland|鸟瞰视角下的布雷阿岛，法国阿摩尔滨海省 (© LECLERCQ Olivier/hemis.fr/Alamy)|布列塔尼！|![](/zh-CN/2022/03/202203111600BrehatIsland.jpg)|
 202203121600|SpringForward|在湿地中跳跃的欧洲野兔，荷兰 (© Jim Brandenburg/Minden Pictures)|在春天跳跃|![](/zh-CN/2022/03/202203121600SpringForward.jpg)|
 202203131600|LanyonQuoit|兰洋夸特墓室，英国康沃尔郡 (© Guy Edwardes/Minden Pictures)|天空中的圆周率......|![](/zh-CN/2022/03/202203131600LanyonQuoit.jpg)|
+202203141600|RomanView|古罗马广场，意大利 (© Peter Zelei Images/Getty Images)|前往罗马广场的路上发生了一件趣事……|![](/zh-CN/2022/03/202203141600RomanView.jpg)|
