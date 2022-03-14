@@ -14,3 +14,4 @@
 202203111830|HemakutaTemples|The ancient architecture of temples on Hemakuta Hill in Hampi, India (© Images of India/Alamy Stock Photo)|A cluster of ancient shrines|![](/en-IN/2022/03/202203111830HemakutaTemples.jpg)|
 202203121830|SpringForward|A European hare jumps through a wetland in the Netherlands (© Jim Brandenburg/Minden Pictures)|A spring in its step|![](/en-IN/2022/03/202203121830SpringForward.jpg)|
 202203131830|LanyonQuoit|Lanyon Quoit burial chamber, Cornwall, England (© Guy Edwardes/Minden Pictures)|It’s just pi in the sky...|![](/en-IN/2022/03/202203131830LanyonQuoit.jpg)|
+202203141830|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|A funny thing happened on the way to the Forum…|![](/en-IN/2022/03/202203141830RomanView.jpg)|
