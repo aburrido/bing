@@ -15,3 +15,4 @@
 202203112300|SpringForward|Feldhase in einem Feuchtgebiet in den Niederlanden (© Jim Brandenburg/Minden Pictures)|Hallo, „Meister Lampe“!|![](/de-DE/2022/03/202203112300SpringForward.jpg)|
 202203122300|EuleKasselburg|Junge Schleiereule, Kasselburg, Pelm, Eifel, Rheinland-Pfalz (© Arco/TUNS/Imagebroker/Alamy Stock Photo)|Warten auf den ersten Flug|![](/de-DE/2022/03/202203122300EuleKasselburg.jpg)|
 202203132300|LanyonQuoit|Das Großsteingrab Lanyon Quoit in Cornwall, England, Vereinigtes Königreich (© Guy Edwardes/Minden Pictures)|Welche Zahl wird heute gefeiert?|![](/de-DE/2022/03/202203132300LanyonQuoit.jpg)|
+202203142300|RomanView|Das Forum Romanum, Rom, Italien (© Peter Zelei Images/Getty Images)|Auf dem Weg zum Forum geschah etwas Seltsames|![](/de-DE/2022/03/202203142300RomanView.jpg)|
