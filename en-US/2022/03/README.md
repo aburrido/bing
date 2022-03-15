@@ -15,3 +15,4 @@
 202203120800|GirlScouts|Girl Scouts camping on the shore of Todd Lake in 1960, Deschutes National Forest, Oregon (© CORBIS/Corbis via Getty Images)|Girl Scouting, more than just cookies|![](/en-US/2022/03/202203120800GirlScouts.jpg)|
 202203130700|SpringForward|A European hare jumps through a wetland in the Netherlands (© Jim Brandenburg/Minden Pictures)|Getting a jump on spring|![](/en-US/2022/03/202203130700SpringForward.jpg)|
 202203140700|LanyonQuoit|Lanyon Quoit burial chamber, Cornwall, England (© Guy Edwardes/Minden Pictures)|It's just pi in the sky...|![](/en-US/2022/03/202203140700LanyonQuoit.jpg)|
+202203150700|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|A funny thing happened on the way to the Forum…|![](/en-US/2022/03/202203150700RomanView.jpg)|
