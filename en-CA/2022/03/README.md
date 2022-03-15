@@ -15,3 +15,4 @@
 202203120500|MapleIce|Hardened maple syrup on a wooden stick sitting on ice, Elmira, Ontario (© Design Pics/Offset/Shutterstock)|A winter delicacy|![](/en-CA/2022/03/202203120500MapleIce.jpg)|
 202203130500|SpringForward|A European hare jumps through a wetland in the Netherlands (© Jim Brandenburg/Minden Pictures)|Getting a jump on spring|![](/en-CA/2022/03/202203130500SpringForward.jpg)|
 202203140400|LanyonQuoit|Lanyon Quoit burial chamber, Cornwall, England (© Guy Edwardes/Minden Pictures)|It’s just pi in the sky...|![](/en-CA/2022/03/202203140400LanyonQuoit.jpg)|
+202203150400|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|A funny thing happened on the way to the Forum…|![](/en-CA/2022/03/202203150400RomanView.jpg)|
