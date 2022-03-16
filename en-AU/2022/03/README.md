@@ -17,3 +17,4 @@
 202203130700|SpringForward|European hare, Netherlands (© Jim Brandenburg/Minden Pictures)|Info|![](/en-AU/2022/03/202203130700SpringForward.jpg)|
 202203140700|LanyonQuoit|Lanyon Quoit, Cornwall, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2022/03/202203140700LanyonQuoit.jpg)|
 202203150700|RomanView|Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|Info|![](/en-AU/2022/03/202203150700RomanView.jpg)|
+202203160700|KuhschelleOberbayern|Pasque flower, Upper Palatinate, Bavaria, Germany (© Design Pics/Alamy)|Info|![](/en-AU/2022/03/202203160700KuhschelleOberbayern.jpg)|
