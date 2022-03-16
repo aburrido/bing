@@ -16,3 +16,4 @@
 202203130500|SpringForward|A European hare jumps through a wetland in the Netherlands (© Jim Brandenburg/Minden Pictures)|Getting a jump on spring|![](/en-CA/2022/03/202203130500SpringForward.jpg)|
 202203140400|LanyonQuoit|Lanyon Quoit burial chamber, Cornwall, England (© Guy Edwardes/Minden Pictures)|It’s just pi in the sky...|![](/en-CA/2022/03/202203140400LanyonQuoit.jpg)|
 202203150400|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|A funny thing happened on the way to the Forum…|![](/en-CA/2022/03/202203150400RomanView.jpg)|
+202203160400|PandaDay|Giant panda in Wolong National Nature Reserve, Sichuan, China (© Katherine Feng/Minden Pictures)|Beneath that cuddly exterior...|![](/en-CA/2022/03/202203160400PandaDay.jpg)|

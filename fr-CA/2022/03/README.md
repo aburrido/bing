@@ -17,3 +17,4 @@
 202203130500|SpringForward|Un lièvre d’Europe sautant dans un marais au Pays-Bas (© Jim Brandenburg/Minden Pictures)||![](/fr-CA/2022/03/202203130500SpringForward.jpg)|
 202203140400|LanyonQuoit|Chambre funéraire Lanyon Quoit, Cornouailles, Angleterre (© Guy Edwardes/Minden Pictures)||![](/fr-CA/2022/03/202203140400LanyonQuoit.jpg)|
 202203150400|RomanView|Le Forum Romain, Rome, Italie (© Peter Zelei Images/Getty Images)||![](/fr-CA/2022/03/202203150400RomanView.jpg)|
+202203160400|PandaDay|Panda géant dans la réserve naturelle de Wolong, Sichuan, Chine (© Katherine Feng/Minden Pictures)||![](/fr-CA/2022/03/202203160400PandaDay.jpg)|
