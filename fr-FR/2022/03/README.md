@@ -17,3 +17,4 @@
 202203132300|LanyonQuoit|Chambre funéraire Lanyon Quoit, Cornouailles, Angleterre (© Guy Edwardes/Minden Pictures)|Pi où on ne l’attendait pas|![](/fr-FR/2022/03/202203132300LanyonQuoit.jpg)|
 202203142300|RomanView|Le Forum Romain, Rome, Italie (© Peter Zelei Images/Getty Images)|Veni, Vedi, Vici|![](/fr-FR/2022/03/202203142300RomanView.jpg)|
 202203152300|PandaDay|Panda géant dans la réserve naturelle de Wolong, Sichuan, Chine (© Katherine Feng/Minden Pictures)|Vous aussi, vous en auriez bien un chez vous ?|![](/fr-FR/2022/03/202203152300PandaDay.jpg)|
+202203162300|Shamrocks|Séquoias, bois d’oseille et trèfles dans le parc d'État de Prairie Creek Redwoods, Californie, États-Unis (© Jack Dykinga/Minden Pictures)|Y’en a-t-il à quatre feuilles ?|![](/fr-FR/2022/03/202203162300Shamrocks.jpg)|
