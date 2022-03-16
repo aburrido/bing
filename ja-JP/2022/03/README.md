@@ -17,3 +17,4 @@
 202203131500|LanyonQuoit|ラニョン・クォイト, イギリス コーンウォール (© Guy Edwardes/Minden Pictures)|今日は「円周率の日」|![](/ja-JP/2022/03/202203131500LanyonQuoit.jpg)|
 202203141500|RomanView|フォロ・ロマーノ, イタリア ローマ (© Peter Zelei Images/Getty Images)|今日は「アイズ・オブ・マーチ」|![](/ja-JP/2022/03/202203141500RomanView.jpg)|
 202203151500|SpringForward|湿原を駆けるヤブノウサギ, オランダ (© Jim Brandenburg/Minden Pictures)|オランダの野生動物|![](/ja-JP/2022/03/202203151500SpringForward.jpg)|
+202203161500|Shamrocks|カタバミとセコイア, 米国 カリフォルニア州 (© Jack Dykinga/Minden Pictures)|今日は「聖パトリックの日」|![](/ja-JP/2022/03/202203161500Shamrocks.jpg)|
