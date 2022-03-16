@@ -15,3 +15,4 @@
 202203130000|ZugspitzeGipfelstation|Cable car station at the summit of Zugspitze mountain in Grainau, Garmisch-Partenkirchen, Germany (© Robert Jank/Alamy)|On Germany’s highest peak|![](/en-GB/2022/03/202203130000ZugspitzeGipfelstation.jpg)|
 202203140000|LanyonQuoit|Lanyon Quoit burial chamber, Cornwall (© Guy Edwardes/Minden Pictures)|It’s just pi in the sky...|![](/en-GB/2022/03/202203140000LanyonQuoit.jpg)|
 202203150000|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|Beware the Ides of March|![](/en-GB/2022/03/202203150000RomanView.jpg)|
+202203160000|PandaDay|Giant panda in Wolong National Nature Reserve, Sichuan, China (© Katherine Feng/Minden Pictures)|Beneath that cuddly exterior...|![](/en-GB/2022/03/202203160000PandaDay.jpg)|
