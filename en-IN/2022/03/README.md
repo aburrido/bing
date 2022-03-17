@@ -17,3 +17,4 @@
 202203141830|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|A funny thing happened on the way to the Forum…|![](/en-IN/2022/03/202203141830RomanView.jpg)|
 202203151830|PandaDay|Giant panda in Wolong National Nature Reserve, Sichuan, China (© Katherine Feng/Minden Pictures)|Beneath that cuddly exterior|![](/en-IN/2022/03/202203151830PandaDay.jpg)|
 202203161830|Shamrocks|Coastal redwoods and wood sorrel, Prairie Creek Redwoods State Park, California (© Jack Dykinga/Minden Pictures)|Any with four leaves?|![](/en-IN/2022/03/202203161830Shamrocks.jpg)|
+202203171830|Holi2022|Multicoloured powders for sale during Holi (© Nuno Valadas/Getty Images)|A holiday as colourful as the season|![](/en-IN/2022/03/202203171830Holi2022.jpg)|
