@@ -17,3 +17,4 @@
 202203141600|RomanView|古罗马广场，意大利 (© Peter Zelei Images/Getty Images)|前往罗马广场的路上发生了一件趣事……|![](/zh-CN/2022/03/202203141600RomanView.jpg)|
 202203151600|PandaDay|扶着树干的大熊猫，四川卧龙国家级自然保护区 (© Katherine Feng/Minden Pictures)|在那可爱的外表下……|![](/zh-CN/2022/03/202203151600PandaDay.jpg)|
 202203161600|Shamrocks|生机盎然的酢浆草和红杉树，美国大草原溪红杉州立公园 (© Jack Dykinga/Minden Pictures)|有四叶草吗？|![](/zh-CN/2022/03/202203161600Shamrocks.jpg)|
+202203171600|Holi2022|洒红节期间售卖的五彩粉末 (© Nuno Valadas/Getty Images)|五彩缤纷的节日|![](/zh-CN/2022/03/202203171600Holi2022.jpg)|
