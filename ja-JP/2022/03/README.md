@@ -18,3 +18,4 @@
 202203141500|RomanView|フォロ・ロマーノ, イタリア ローマ (© Peter Zelei Images/Getty Images)|今日は「アイズ・オブ・マーチ」|![](/ja-JP/2022/03/202203141500RomanView.jpg)|
 202203151500|SpringForward|湿原を駆けるヤブノウサギ, オランダ (© Jim Brandenburg/Minden Pictures)|オランダの野生動物|![](/ja-JP/2022/03/202203151500SpringForward.jpg)|
 202203161500|Shamrocks|カタバミとセコイア, 米国 カリフォルニア州 (© Jack Dykinga/Minden Pictures)|今日は「聖パトリックの日」|![](/ja-JP/2022/03/202203161500Shamrocks.jpg)|
+202203171500|Holi2022|ホーリー祭の色粉, インド (© Nuno Valadas/Getty Images)|今日は「ホーリー祭」|![](/ja-JP/2022/03/202203171500Holi2022.jpg)|
