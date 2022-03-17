@@ -16,3 +16,4 @@
 202203140000|LanyonQuoit|Lanyon Quoit burial chamber, Cornwall (© Guy Edwardes/Minden Pictures)|It’s just pi in the sky...|![](/en-GB/2022/03/202203140000LanyonQuoit.jpg)|
 202203150000|RomanView|The Roman Forum, Rome, Italy (© Peter Zelei Images/Getty Images)|Beware the Ides of March|![](/en-GB/2022/03/202203150000RomanView.jpg)|
 202203160000|PandaDay|Giant panda in Wolong National Nature Reserve, Sichuan, China (© Katherine Feng/Minden Pictures)|Beneath that cuddly exterior...|![](/en-GB/2022/03/202203160000PandaDay.jpg)|
+202203170000|Shamrocks|Coastal redwoods and wood sorrel, Prairie Creek Redwoods State Park, California, USA (© Jack Dykinga/Minden Pictures)|Any with four leaves?|![](/en-GB/2022/03/202203170000Shamrocks.jpg)|
