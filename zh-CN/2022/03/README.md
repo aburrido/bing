@@ -18,3 +18,4 @@
 202203151600|PandaDay|扶着树干的大熊猫，四川卧龙国家级自然保护区 (© Katherine Feng/Minden Pictures)|在那可爱的外表下……|![](/zh-CN/2022/03/202203151600PandaDay.jpg)|
 202203161600|Shamrocks|生机盎然的酢浆草和红杉树，美国大草原溪红杉州立公园 (© Jack Dykinga/Minden Pictures)|有四叶草吗？|![](/zh-CN/2022/03/202203161600Shamrocks.jpg)|
 202203171600|Holi2022|洒红节期间售卖的五彩粉末 (© Nuno Valadas/Getty Images)|五彩缤纷的节日|![](/zh-CN/2022/03/202203171600Holi2022.jpg)|
+202203181600|Chicagohenge|日落时的悬日现象，美国芝加哥 (© Razvan Sera/Amazing Aerial Agency)|城市网格传递了这一天象|![](/zh-CN/2022/03/202203181600Chicagohenge.jpg)|
