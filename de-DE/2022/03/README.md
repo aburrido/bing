@@ -19,3 +19,4 @@
 202203152300|PandaDay|Großer Panda im Wolong-Naturreservat, Provinz Sichuan, Volksrepublik China (© Katherine Feng/Minden Pictures)|„Mein Lieblingsbaum!“|![](/de-DE/2022/03/202203152300PandaDay.jpg)|
 202203162300|Shamrocks|Küstenmammutbäume und Sauerklee, Prairie Creek Redwoods State Park, Kalifornien, USA (© Jack Dykinga/Minden Pictures)|Ist ein Vierblättriges dabei?|![](/de-DE/2022/03/202203162300Shamrocks.jpg)|
 202203172300|Holi2022|Buntes Pulver zum Verkauf während des Holi-Festes (© Nuno Valadas/Getty Images)|Ein Feiertag so bunt wie die Jahreszeit|![](/de-DE/2022/03/202203172300Holi2022.jpg)|
+202203182300|SquirrelNesting|Eichhörnchen in einem Nest aus Flechten und Tannennadeln, Highlands, Schottland, Vereinigtes Königreich (© Neil Anderson/Minden Pictures)|Pssssst! Bitte nicht stören!|![](/de-DE/2022/03/202203182300SquirrelNesting.jpg)|
