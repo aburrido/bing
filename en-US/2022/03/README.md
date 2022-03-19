@@ -19,3 +19,4 @@
 202203160700|PandaDay|Giant panda in Wolong National Nature Reserve, Sichuan, China (© Katherine Feng/Minden Pictures)|Beneath that cuddly exterior...|![](/en-US/2022/03/202203160700PandaDay.jpg)|
 202203170700|Shamrocks|Coastal redwoods and wood sorrel, Prairie Creek Redwoods State Park, California (© Jack Dykinga/Minden Pictures)|Any with four leaves?|![](/en-US/2022/03/202203170700Shamrocks.jpg)|
 202203180700|Holi2022|Multicolored powders for sale during Holi (© Nuno Valadas/Getty Images)|A holiday as colorful as the season|![](/en-US/2022/03/202203180700Holi2022.jpg)|
+202203190700|Chicagohenge|Chicagohenge sunset, Chicago, Illinois (© Razvan Sera/Amazing Aerial Agency)|The city grid delivers this celestial phenomenon|![](/en-US/2022/03/202203190700Chicagohenge.jpg)|
