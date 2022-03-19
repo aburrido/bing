@@ -20,3 +20,4 @@
 202203162300|Shamrocks|Séquoias, bois d’oseille et trèfles dans le parc d'État de Prairie Creek Redwoods, Californie, États-Unis (© Jack Dykinga/Minden Pictures)|Y’en a-t-il à quatre feuilles ?|![](/fr-FR/2022/03/202203162300Shamrocks.jpg)|
 202203172300|Holi2022|Poudres multicolores en vente pour Holi (© Nuno Valadas/Getty Images)|La grande fête|![](/fr-FR/2022/03/202203172300Holi2022.jpg)|
 202203182300|WorldFrogDay|Grenouille arboricole, Indonésie (© kuritafsheen/Getty Images)|Salut toi !|![](/fr-FR/2022/03/202203182300WorldFrogDay.jpg)|
+202203192300|Chicagohenge|Coucher de soleil sur Chicago pour l'équinoxe de printemps, États-Unis (© Razvan Sera/Amazing Aerial Agency)|Les planètes sont alignées|![](/fr-FR/2022/03/202203192300Chicagohenge.jpg)|
