@@ -21,3 +21,4 @@
 202203170700|Shamrocks|Prairie Creek Redwoods State Park, California, USA (© Jack Dykinga/Minden Pictures)|Info|![](/en-AU/2022/03/202203170700Shamrocks.jpg)|
 202203180700|BamfordEdge|Bamford Edge, Peak District National Park, Derbyshire, England (© R A Kearton/Moment Open/Getty Images)|Info|![](/en-AU/2022/03/202203180700BamfordEdge.jpg)|
 202203190700|Chicagohenge|Chicago, Illinois, USA (© Razvan Sera/Amazing Aerial Agency)|Info|![](/en-AU/2022/03/202203190700Chicagohenge.jpg)|
+202203200700|WorldFrogDay|Javan tree frog, Indonesia (© kuritafsheen/Getty Images)|Info|![](/en-AU/2022/03/202203200700WorldFrogDay.jpg)|
