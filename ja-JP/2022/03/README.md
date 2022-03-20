@@ -21,3 +21,4 @@
 202203171500|Holi2022|ホーリー祭の色粉, インド (© Nuno Valadas/Getty Images)|今日は「ホーリー祭」|![](/ja-JP/2022/03/202203171500Holi2022.jpg)|
 202203181500|SquirrelNesting|巣で眠るキタリス, イギリス スコットランド高地地方 (© Neil Anderson/Minden Pictures)|今週は「睡眠健康週間」|![](/ja-JP/2022/03/202203181500SquirrelNesting.jpg)|
 202203191500|TheBard|ホーリートリニティ教会, イギリス ストラトフォード＝アポン＝エイヴォン (© James Osmond/Getty Images)|シェイクスピアが眠る場所|![](/ja-JP/2022/03/202203191500TheBard.jpg)|
+202203201500|Chicagohenge|シカゴ・ヘンジ, 米国 イリノイ州 (© Razvan Sera/Amazing Aerial Agency)|今日は「春分の日」|![](/ja-JP/2022/03/202203201500Chicagohenge.jpg)|
