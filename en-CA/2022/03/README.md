@@ -20,3 +20,4 @@
 202203170400|Shamrocks|Coastal redwoods and wood sorrel, Prairie Creek Redwoods State Park, California (© Jack Dykinga/Minden Pictures)|Any with four leaves?|![](/en-CA/2022/03/202203170400Shamrocks.jpg)|
 202203180400|Holi2022|Multicolored powders for sale during Holi (© Nuno Valadas/Getty Images)|A holiday as colourful as the season|![](/en-CA/2022/03/202203180400Holi2022.jpg)|
 202203190400|CrystalROM|Façade of the 'Crystal' extension of the Royal Ontario Museum illuminated at night, Toronto (© Allan Baxter/Getty Images)|A museum of art, culture, and history|![](/en-CA/2022/03/202203190400CrystalROM.jpg)|
+202203200400|WorldFrogDay|Javan tree frog, Indonesia (© kuritafsheen/Getty Images)|What's this croaker smiling about?|![](/en-CA/2022/03/202203200400WorldFrogDay.jpg)|
