@@ -19,3 +19,4 @@
 202203170000|Shamrocks|Coastal redwoods and wood sorrel, Prairie Creek Redwoods State Park, California, USA (© Jack Dykinga/Minden Pictures)|Any with four leaves?|![](/en-GB/2022/03/202203170000Shamrocks.jpg)|
 202203180000|Holi2022|Colourful powders for sale during the festival of Holi (© Nuno Valadas/Getty Images)|The flying colours of Holi|![](/en-GB/2022/03/202203180000Holi2022.jpg)|
 202203190000|Chicagohenge|Chicagohenge sunset, Chicago, USA (© Razvan Sera/Amazing Aerial Agency)|The sun sets on Chicagohenge|![](/en-GB/2022/03/202203190000Chicagohenge.jpg)|
+202203200000|WorldFrogDay|Javan tree frog, Indonesia (© kuritafsheen/Getty Images)|Smile! It's World Frog Day|![](/en-GB/2022/03/202203200000WorldFrogDay.jpg)|
