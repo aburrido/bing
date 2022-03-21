@@ -21,3 +21,4 @@
 202203181830|Chicagohenge|Chicagohenge sunset, Chicago, Illinois (© Razvan Sera/Amazing Aerial Agency)|The city grid delivers this celestial phenomenon|![](/en-IN/2022/03/202203181830Chicagohenge.jpg)|
 202203191830|WorldFrogDay|Javan tree frog, Indonesia (© kuritafsheen/Getty Images)|What's this croaker smiling about?|![](/en-IN/2022/03/202203191830WorldFrogDay.jpg)|
 202203201830|TheBard|Holy Trinity Church, Stratford-upon-Avon, England (© James Osmond/Getty Images)|Resting place of the Bard|![](/en-IN/2022/03/202203201830TheBard.jpg)|
+202203211830|ThousandSprings|Waterfall in Thousand Springs State Park, Hagerman Valley, Idaho (© knowlesgallery/Getty Images)|Earth's most precious resource?|![](/en-IN/2022/03/202203211830ThousandSprings.jpg)|
