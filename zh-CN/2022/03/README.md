@@ -21,3 +21,4 @@
 202203181600|Chicagohenge|日落时的悬日现象，美国芝加哥 (© Razvan Sera/Amazing Aerial Agency)|城市网格传递了这一天象|![](/zh-CN/2022/03/202203181600Chicagohenge.jpg)|
 202203191600|WorldFrogDay|鲜艳多彩的爪哇树蛙，印度尼西亚 (© kuritafsheen/Getty Images)|这只青蛙在笑什么？|![](/zh-CN/2022/03/202203191600WorldFrogDay.jpg)|
 202203201600|TheBard|圣三一教堂，英国埃文河畔斯特拉特福 (© James Osmond/Getty Images)|吟游诗人的安息之地|![](/zh-CN/2022/03/202203201600TheBard.jpg)|
+202203211600|ThousandSprings|千泉州立公园的瀑布，美国爱达荷州 (© knowlesgallery/Getty Images)|什么是地球上最珍贵的资源？|![](/zh-CN/2022/03/202203211600ThousandSprings.jpg)|
