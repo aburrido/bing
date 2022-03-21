@@ -22,3 +22,4 @@
 202203182300|WorldFrogDay|Grenouille arboricole, Indonésie (© kuritafsheen/Getty Images)|Salut toi !|![](/fr-FR/2022/03/202203182300WorldFrogDay.jpg)|
 202203192300|Chicagohenge|Coucher de soleil sur Chicago pour l'équinoxe de printemps, États-Unis (© Razvan Sera/Amazing Aerial Agency)|Les planètes sont alignées|![](/fr-FR/2022/03/202203192300Chicagohenge.jpg)|
 202203202300|TheBard|Église de la Sainte-Trinité de Stratford-upon-Avon, Angleterre (© James Osmond/Getty Images)|Un peu de douceur dans un monde….|![](/fr-FR/2022/03/202203202300TheBard.jpg)|
+202203212300|ThousandSprings|Cascade dans le Thousand Springs State Park, Vallée Hagerman, Idaho, États-Unis (© knowlesgallery/Getty Images)|De l’importance de l’eau|![](/fr-FR/2022/03/202203212300ThousandSprings.jpg)|
