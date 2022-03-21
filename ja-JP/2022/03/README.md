@@ -22,3 +22,4 @@
 202203181500|SquirrelNesting|巣で眠るキタリス, イギリス スコットランド高地地方 (© Neil Anderson/Minden Pictures)|今週は「睡眠健康週間」|![](/ja-JP/2022/03/202203181500SquirrelNesting.jpg)|
 202203191500|TheBard|ホーリートリニティ教会, イギリス ストラトフォード＝アポン＝エイヴォン (© James Osmond/Getty Images)|シェイクスピアが眠る場所|![](/ja-JP/2022/03/202203191500TheBard.jpg)|
 202203201500|Chicagohenge|シカゴ・ヘンジ, 米国 イリノイ州 (© Razvan Sera/Amazing Aerial Agency)|今日は「春分の日」|![](/ja-JP/2022/03/202203201500Chicagohenge.jpg)|
+202203211500|ThousandSprings|サウザンドスプリングス州立公園, 米国 アイダホ州 (© knowlesgallery/Getty Images)|今日は「世界水の日」|![](/ja-JP/2022/03/202203211500ThousandSprings.jpg)|
