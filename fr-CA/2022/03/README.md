@@ -22,3 +22,4 @@
 202203180400|Holi2022|Poudres multicolores en vente pour Holi (© Nuno Valadas/Getty Images)||![](/fr-CA/2022/03/202203180400Holi2022.jpg)|
 202203190400|Chicagohenge|Coucher de soleil sur Chicago, États-Unis (© Razvan Sera/Amazing Aerial Agency)||![](/fr-CA/2022/03/202203190400Chicagohenge.jpg)|
 202203200400|WorldFrogDay|Grenouille arboricole, Indonésie (© kuritafsheen/Getty Images)||![](/fr-CA/2022/03/202203200400WorldFrogDay.jpg)|
+202203210400|TheBard|Église de la Sainte-Trinité de Stratford-upon-Avon, Angleterre (© James Osmond/Getty Images)||![](/fr-CA/2022/03/202203210400TheBard.jpg)|
