@@ -23,3 +23,4 @@
 202203192300|WorldFrogDay|Java-Flugfrosch, Indonesien (© kuritafsheen/Getty Images)|Was ist der Grund für die gute Laune?|![](/de-DE/2022/03/202203192300WorldFrogDay.jpg)|
 202203202300|TheBard|Holy Trinity Church, Stratford-upon-Avon, England, Vereinigtes Königreich (© James Osmond/Getty Images)|Ruhestätte eines Barden|![](/de-DE/2022/03/202203202300TheBard.jpg)|
 202203212300|ThousandSprings|Wasserfall im Thousand Springs State Park, Hagerman Valley, Idaho, USA (© knowlesgallery/Getty Images)|Die kostbarste Ressource der Erde?|![](/de-DE/2022/03/202203212300ThousandSprings.jpg)|
+202203222300|GCThunderstorm|Gewitter im Grand-Canyon-Nationalpark, Arizona, USA (© spkeelin/Getty Images)|Die Bedeutung der Wettervorhersage|![](/de-DE/2022/03/202203222300GCThunderstorm.jpg)|
