@@ -23,3 +23,4 @@
 202203191500|TheBard|ホーリートリニティ教会, イギリス ストラトフォード＝アポン＝エイヴォン (© James Osmond/Getty Images)|シェイクスピアが眠る場所|![](/ja-JP/2022/03/202203191500TheBard.jpg)|
 202203201500|Chicagohenge|シカゴ・ヘンジ, 米国 イリノイ州 (© Razvan Sera/Amazing Aerial Agency)|今日は「春分の日」|![](/ja-JP/2022/03/202203201500Chicagohenge.jpg)|
 202203211500|ThousandSprings|サウザンドスプリングス州立公園, 米国 アイダホ州 (© knowlesgallery/Getty Images)|今日は「世界水の日」|![](/ja-JP/2022/03/202203211500ThousandSprings.jpg)|
+202203221500|GCThunderstorm|グランド・キャニオンの稲妻, 米国 アリゾナ州  (© spkeelin/Getty Images)|今日は「世界気象デー」|![](/ja-JP/2022/03/202203221500GCThunderstorm.jpg)|
