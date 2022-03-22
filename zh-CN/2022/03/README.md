@@ -22,3 +22,4 @@
 202203191600|WorldFrogDay|鲜艳多彩的爪哇树蛙，印度尼西亚 (© kuritafsheen/Getty Images)|这只青蛙在笑什么？|![](/zh-CN/2022/03/202203191600WorldFrogDay.jpg)|
 202203201600|TheBard|圣三一教堂，英国埃文河畔斯特拉特福 (© James Osmond/Getty Images)|吟游诗人的安息之地|![](/zh-CN/2022/03/202203201600TheBard.jpg)|
 202203211600|ThousandSprings|千泉州立公园的瀑布，美国爱达荷州 (© knowlesgallery/Getty Images)|什么是地球上最珍贵的资源？|![](/zh-CN/2022/03/202203211600ThousandSprings.jpg)|
+202203221600|GCThunderstorm|雷暴下的大峡谷国家公园，亚利桑那州 (© spkeelin/Getty Images)|天气预报的重要性|![](/zh-CN/2022/03/202203221600GCThunderstorm.jpg)|
