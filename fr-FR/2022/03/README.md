@@ -24,3 +24,4 @@
 202203202300|TheBard|Église de la Sainte-Trinité de Stratford-upon-Avon, Angleterre (© James Osmond/Getty Images)|Un peu de douceur dans un monde….|![](/fr-FR/2022/03/202203202300TheBard.jpg)|
 202203212300|ThousandSprings|Cascade dans le Thousand Springs State Park, Vallée Hagerman, Idaho, États-Unis (© knowlesgallery/Getty Images)|De l’importance de l’eau|![](/fr-FR/2022/03/202203212300ThousandSprings.jpg)|
 202203222300|GCThunderstorm|Le Grand Canyon sous un orage, Arizona, États-Unis (© spkeelin/Getty Images)|Tonner de Zeus !|![](/fr-FR/2022/03/202203222300GCThunderstorm.jpg)|
+202203232300|SquirrelNesting|Écureuil roux dans un nid de lichen et de brindilles, Hautes-Terres, Écosse (© Neil Anderson/Minden Pictures)|Dans les bras de Morphée|![](/fr-FR/2022/03/202203232300SquirrelNesting.jpg)|
