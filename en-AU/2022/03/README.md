@@ -24,3 +24,4 @@
 202203200700|WorldFrogDay|Javan tree frog, Indonesia (© kuritafsheen/Getty Images)|Info|![](/en-AU/2022/03/202203200700WorldFrogDay.jpg)|
 202203210700|TheBard|Holy Trinity Church, Stratford-upon-Avon, England (© James Osmond/Getty Images)|Info|![](/en-AU/2022/03/202203210700TheBard.jpg)|
 202203220700|ThousandSprings|Thousand Springs State Park, Idaho, USA (© knowlesgallery/Getty Images)|Info|![](/en-AU/2022/03/202203220700ThousandSprings.jpg)|
+202203230700|GCThunderstorm|Grand Canyon National Park, Arizona, USA (© spkeelin/Getty Images)|Info|![](/en-AU/2022/03/202203230700GCThunderstorm.jpg)|
