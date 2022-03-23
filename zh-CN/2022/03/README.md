@@ -23,3 +23,4 @@
 202203201600|TheBard|圣三一教堂，英国埃文河畔斯特拉特福 (© James Osmond/Getty Images)|吟游诗人的安息之地|![](/zh-CN/2022/03/202203201600TheBard.jpg)|
 202203211600|ThousandSprings|千泉州立公园的瀑布，美国爱达荷州 (© knowlesgallery/Getty Images)|什么是地球上最珍贵的资源？|![](/zh-CN/2022/03/202203211600ThousandSprings.jpg)|
 202203221600|GCThunderstorm|雷暴下的大峡谷国家公园，亚利桑那州 (© spkeelin/Getty Images)|天气预报的重要性|![](/zh-CN/2022/03/202203221600GCThunderstorm.jpg)|
+202203231600|SquirrelNesting|小窝中安睡的欧亚红松鼠，苏格兰高地 (© Neil Anderson/Minden Pictures)|舒适得像小窝里的松鼠|![](/zh-CN/2022/03/202203231600SquirrelNesting.jpg)|
