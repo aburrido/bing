@@ -22,3 +22,4 @@
 202203200000|WorldFrogDay|Javan tree frog, Indonesia (© kuritafsheen/Getty Images)|Smile! It's World Frog Day|![](/en-GB/2022/03/202203200000WorldFrogDay.jpg)|
 202203210000|TheBard|Holy Trinity Church, Stratford-upon-Avon (© James Osmond/Getty Images)|Resting place of the Bard|![](/en-GB/2022/03/202203210000TheBard.jpg)|
 202203220000|ThousandSprings|Waterfall in Thousand Springs State Park, Hagerman Valley, Idaho, USA (© knowlesgallery/Getty Images)|Earth's most precious resource?|![](/en-GB/2022/03/202203220000ThousandSprings.jpg)|
+202203230000|GCThunderstorm|Grand Canyon National Park during a thunderstorm, Arizona, USA (© spkeelin/Getty Images)|Predicting the unpredictable|![](/en-GB/2022/03/202203230000GCThunderstorm.jpg)|
