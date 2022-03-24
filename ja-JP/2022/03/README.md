@@ -25,3 +25,4 @@
 202203211500|ThousandSprings|サウザンドスプリングス州立公園, 米国 アイダホ州 (© knowlesgallery/Getty Images)|今日は「世界水の日」|![](/ja-JP/2022/03/202203211500ThousandSprings.jpg)|
 202203221500|GCThunderstorm|グランド・キャニオンの稲妻, 米国 アリゾナ州  (© spkeelin/Getty Images)|今日は「世界気象デー」|![](/ja-JP/2022/03/202203221500GCThunderstorm.jpg)|
 202203231500|BrehatIsland|ブレア島, フランス コート＝ダルモール (© LECLERCQ Olivier/hemis.fr/Alamy)|ブルターニュのサンゴ礁群島|![](/ja-JP/2022/03/202203231500BrehatIsland.jpg)|
+202203241500|Rivendell|ラウターブルンネン谷, スイス ベルン州 (© Leonid Andronov/Getty Images)|スイス・アルプスの滝の谷|![](/ja-JP/2022/03/202203241500Rivendell.jpg)|
