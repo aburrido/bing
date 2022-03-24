@@ -25,3 +25,4 @@
 202203210700|TheBard|Holy Trinity Church, Stratford-upon-Avon, England (© James Osmond/Getty Images)|Info|![](/en-AU/2022/03/202203210700TheBard.jpg)|
 202203220700|ThousandSprings|Thousand Springs State Park, Idaho, USA (© knowlesgallery/Getty Images)|Info|![](/en-AU/2022/03/202203220700ThousandSprings.jpg)|
 202203230700|GCThunderstorm|Grand Canyon National Park, Arizona, USA (© spkeelin/Getty Images)|Info|![](/en-AU/2022/03/202203230700GCThunderstorm.jpg)|
+202203240700|SquirrelNesting|Red squirrels, Scottish Highlands (© Neil Anderson/Minden Pictures)|Info|![](/en-AU/2022/03/202203240700SquirrelNesting.jpg)|
