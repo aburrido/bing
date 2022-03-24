@@ -25,3 +25,4 @@
 202203210400|TheBard|Église de la Sainte-Trinité de Stratford-upon-Avon, Angleterre (© James Osmond/Getty Images)||![](/fr-CA/2022/03/202203210400TheBard.jpg)|
 202203220400|ThousandSprings|Cascade dans le Thousand Springs State Park, Vallée Hagerman, Idaho, États-Unis (© knowlesgallery/Getty Images)||![](/fr-CA/2022/03/202203220400ThousandSprings.jpg)|
 202203230400|GCThunderstorm|Le Grand Canyon sous un orage, Arizona, États-Unis (© spkeelin/Getty Images)||![](/fr-CA/2022/03/202203230400GCThunderstorm.jpg)|
+202203240400|SquirrelNesting|Écureuil roux dans un nid de lichen et de brindilles, Hautes-Terres, Écosse (© Neil Anderson/Minden Pictures)||![](/fr-CA/2022/03/202203240400SquirrelNesting.jpg)|

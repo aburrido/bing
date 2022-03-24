@@ -24,3 +24,4 @@
 202203210400|TheBard|Holy Trinity Church, Stratford-upon-Avon, England (© James Osmond/Getty Images)|Resting place of the Bard|![](/en-CA/2022/03/202203210400TheBard.jpg)|
 202203220400|ThousandSprings|Waterfall in Thousand Springs State Park, Hagerman Valley, Idaho (© knowlesgallery/Getty Images)|Earth's most precious resource?|![](/en-CA/2022/03/202203220400ThousandSprings.jpg)|
 202203230400|GCThunderstorm|Grand Canyon National Park during a thunderstorm, Arizona (© spkeelin/Getty Images)|The importance of weather prediction|![](/en-CA/2022/03/202203230400GCThunderstorm.jpg)|
+202203240400|SquirrelNesting|Red squirrels in a nest of lichen and pine needles, Scottish Highlands (© Neil Anderson/Minden Pictures)|Snug as a squirrel in its nest|![](/en-CA/2022/03/202203240400SquirrelNesting.jpg)|
