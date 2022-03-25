@@ -26,3 +26,4 @@
 202203221500|GCThunderstorm|グランド・キャニオンの稲妻, 米国 アリゾナ州  (© spkeelin/Getty Images)|今日は「世界気象デー」|![](/ja-JP/2022/03/202203221500GCThunderstorm.jpg)|
 202203231500|BrehatIsland|ブレア島, フランス コート＝ダルモール (© LECLERCQ Olivier/hemis.fr/Alamy)|ブルターニュのサンゴ礁群島|![](/ja-JP/2022/03/202203231500BrehatIsland.jpg)|
 202203241500|Rivendell|ラウターブルンネン谷, スイス ベルン州 (© Leonid Andronov/Getty Images)|スイス・アルプスの滝の谷|![](/ja-JP/2022/03/202203241500Rivendell.jpg)|
+202203251500|YellowCrocuses|シジュウカラとクロッカス, ロシア (© Nataba/Getty Images)|雪の中の小さな出会い|![](/ja-JP/2022/03/202203251500YellowCrocuses.jpg)|
