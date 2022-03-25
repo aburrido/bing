@@ -26,3 +26,4 @@
 202203220400|ThousandSprings|Cascade dans le Thousand Springs State Park, Vallée Hagerman, Idaho, États-Unis (© knowlesgallery/Getty Images)||![](/fr-CA/2022/03/202203220400ThousandSprings.jpg)|
 202203230400|GCThunderstorm|Le Grand Canyon sous un orage, Arizona, États-Unis (© spkeelin/Getty Images)||![](/fr-CA/2022/03/202203230400GCThunderstorm.jpg)|
 202203240400|SquirrelNesting|Écureuil roux dans un nid de lichen et de brindilles, Hautes-Terres, Écosse (© Neil Anderson/Minden Pictures)||![](/fr-CA/2022/03/202203240400SquirrelNesting.jpg)|
+202203250400|Rivendell|La vallée de Lauterbrunnen, Alpes suisses (© Leonid Andronov/Getty Images)||![](/fr-CA/2022/03/202203250400Rivendell.jpg)|
