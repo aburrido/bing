@@ -24,3 +24,4 @@
 202203220000|ThousandSprings|Waterfall in Thousand Springs State Park, Hagerman Valley, Idaho, USA (© knowlesgallery/Getty Images)|Earth's most precious resource?|![](/en-GB/2022/03/202203220000ThousandSprings.jpg)|
 202203230000|GCThunderstorm|Grand Canyon National Park during a thunderstorm, Arizona, USA (© spkeelin/Getty Images)|Predicting the unpredictable|![](/en-GB/2022/03/202203230000GCThunderstorm.jpg)|
 202203240000|SquirrelNesting|Red squirrels in a nest of lichen and pine needles, Scottish Highlands (© Neil Anderson/Minden Pictures)|Snug as a squirrel|![](/en-GB/2022/03/202203240000SquirrelNesting.jpg)|
+202203250000|Rivendell|Lauterbrunnen Valley in the Swiss Alps (© Leonid Andronov/Getty Images)|Tolkien’s Rivendell inspiration|![](/en-GB/2022/03/202203250000Rivendell.jpg)|
