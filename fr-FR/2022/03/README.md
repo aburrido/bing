@@ -27,3 +27,4 @@
 202203232300|SquirrelNesting|Écureuil roux dans un nid de lichen et de brindilles, Hautes-Terres, Écosse (© Neil Anderson/Minden Pictures)|Dans les bras de Morphée|![](/fr-FR/2022/03/202203232300SquirrelNesting.jpg)|
 202203242300|Rivendell|La vallée de Lauterbrunnen, Alpes suisses (© Leonid Andronov/Getty Images)|Le refuge des Elfes|![](/fr-FR/2022/03/202203242300Rivendell.jpg)|
 202203252300|YellowCrocuses|Mésange charbonnière et crocus jaune (© Nataba/Getty Images)|On passe (enfin) à l’heure d’été !|![](/fr-FR/2022/03/202203252300YellowCrocuses.jpg)|
+202203262200|TeatroAntico|Théâtre de Taormine, Italie (© Antonino Bartuccio/eStock Photo)|« Va, je ne te hais point. »|![](/fr-FR/2022/03/202203262200TeatroAntico.jpg)|
