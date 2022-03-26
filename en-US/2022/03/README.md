@@ -26,3 +26,4 @@
 202203230700|GCThunderstorm|Grand Canyon National Park during a thunderstorm, Arizona (© spkeelin/Getty Images)|Forecasting power|![](/en-US/2022/03/202203230700GCThunderstorm.jpg)|
 202203240700|SquirrelNesting|Red squirrel in a nest of lichen and pine needles, Scottish Highlands (© Neil Anderson/Minden Pictures)|Snug as a squirrel in its nest|![](/en-US/2022/03/202203240700SquirrelNesting.jpg)|
 202203250700|Rivendell|Lauterbrunnen Valley in the Swiss Alps (© Leonid Andronov/Getty Images)|Is this Rivendell?|![](/en-US/2022/03/202203250700Rivendell.jpg)|
+202203260700|YellowCrocuses|Great tit and yellow crocuses (© Nataba/Getty Images)|Spring awakens|![](/en-US/2022/03/202203260700YellowCrocuses.jpg)|
