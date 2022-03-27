@@ -26,3 +26,4 @@
 202203240000|SquirrelNesting|Red squirrels in a nest of lichen and pine needles, Scottish Highlands (© Neil Anderson/Minden Pictures)|Snug as a squirrel|![](/en-GB/2022/03/202203240000SquirrelNesting.jpg)|
 202203250000|Rivendell|Lauterbrunnen Valley in the Swiss Alps (© Leonid Andronov/Getty Images)|Tolkien’s Rivendell inspiration|![](/en-GB/2022/03/202203250000Rivendell.jpg)|
 202203260000|SpringForward|A European hare jumps through a wetland in the Netherlands (© Jim Brandenburg/Minden Pictures)|Getting a jump on spring|![](/en-GB/2022/03/202203260000SpringForward.jpg)|
+202203270000|MotherSwan|Swan and her cygnets on a nest in Stroud, Gloucestershire (© PJ photography/Shutterstock)|Happy Mothering Sunday|![](/en-GB/2022/03/202203270000MotherSwan.jpg)|
