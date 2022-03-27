@@ -27,3 +27,4 @@
 202203241600|Rivendell|劳特布龙嫩山谷，瑞士阿尔卑斯山 (© Leonid Andronov/Getty Images)|托尔金笔下瑞文戴尔的原型|![](/zh-CN/2022/03/202203241600Rivendell.jpg)|
 202203251600|YellowCrocuses|黄番红花和翩翩起舞的大山雀 (© Nataba/Getty Images)|春天醒来了|![](/zh-CN/2022/03/202203251600YellowCrocuses.jpg)|
 202203261600|TeatroAntico|陶尔米纳古剧院，意大利西西里岛 (© Antonino Bartuccio/eStock Photo)|戏剧演出|![](/zh-CN/2022/03/202203261600TeatroAntico.jpg)|
+202203271600|Kawachi|河内藤园里梦幻的紫藤花，日本北九州市 (© Steve Tan C K Photography/Getty Images)|日本的紫色天堂|![](/zh-CN/2022/03/202203271600Kawachi.jpg)|
