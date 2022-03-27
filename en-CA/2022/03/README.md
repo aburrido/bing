@@ -27,3 +27,4 @@
 202203240400|SquirrelNesting|Red squirrels in a nest of lichen and pine needles, Scottish Highlands (© Neil Anderson/Minden Pictures)|Snug as a squirrel in its nest|![](/en-CA/2022/03/202203240400SquirrelNesting.jpg)|
 202203250400|Rivendell|Lauterbrunnen Valley in the Swiss Alps (© Leonid Andronov/Getty Images)|Tolkien’s Rivendell inspiration|![](/en-CA/2022/03/202203250400Rivendell.jpg)|
 202203260400|YellowCrocuses|Great tit and yellow crocuses (© Nataba/Getty Images)|Spring awakens|![](/en-CA/2022/03/202203260400YellowCrocuses.jpg)|
+202203270400|TeatroAntico|Ancient theatre of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)|The play’s the thing|![](/en-CA/2022/03/202203270400TeatroAntico.jpg)|

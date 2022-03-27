@@ -28,3 +28,4 @@
 202203240400|SquirrelNesting|Écureuil roux dans un nid de lichen et de brindilles, Hautes-Terres, Écosse (© Neil Anderson/Minden Pictures)||![](/fr-CA/2022/03/202203240400SquirrelNesting.jpg)|
 202203250400|Rivendell|La vallée de Lauterbrunnen, Alpes suisses (© Leonid Andronov/Getty Images)||![](/fr-CA/2022/03/202203250400Rivendell.jpg)|
 202203260400|YellowCrocuses|Mésange charbonnière et crocus jaune (© Nataba/Getty Images)||![](/fr-CA/2022/03/202203260400YellowCrocuses.jpg)|
+202203270400|TeatroAntico|Théâtre de Taormine, Italie (© Antonino Bartuccio/eStock Photo)||![](/fr-CA/2022/03/202203270400TeatroAntico.jpg)|
