@@ -27,3 +27,4 @@
 202203241830|Rivendell|Lauterbrunnen Valley in the Swiss Alps (© Leonid Andronov/Getty Images)|Tolkien’s Rivendell inspiration|![](/en-IN/2022/03/202203241830Rivendell.jpg)|
 202203251830|YellowCrocuses|Great tit and yellow crocuses (© Nataba/Getty Images)|Spring awakens|![](/en-IN/2022/03/202203251830YellowCrocuses.jpg)|
 202203261830|TeatroAntico|Ancient theatre of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)|The play’s the thing|![](/en-IN/2022/03/202203261830TeatroAntico.jpg)|
+202203271830|Kawachi|Wisteria blooms at Kawachi Fuji Gardens in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japan’s purple paradise|![](/en-IN/2022/03/202203271830Kawachi.jpg)|
