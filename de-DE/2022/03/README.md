@@ -28,3 +28,4 @@
 202203242300|Rivendell|Lauterbrunnental in den Schweizer Alpen (© Leonid Andronov/Getty Images)|Tolkiens Inspiration für Bruchtal|![](/de-DE/2022/03/202203242300Rivendell.jpg)|
 202203252300|YellowCrocuses|Kohlmeise und gelbe Krokusse (© Nataba/Getty Images)|Der Frühling erwacht|![](/de-DE/2022/03/202203252300YellowCrocuses.jpg)|
 202203262300|LudwigskircheSB|Ludwigskirche in der Abenddämmerung, Saarbrücken, Saarland (© Madlen Steiner/Adobe Stock)|Wahrzeichen einer Landeshauptstadt|![](/de-DE/2022/03/202203262300LudwigskircheSB.jpg)|
+202203272200|Kawachi|Blühender Blauregen im Kawachi Fuji Garden, Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japans lila Paradies|![](/de-DE/2022/03/202203272200Kawachi.jpg)|
