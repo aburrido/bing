@@ -28,3 +28,4 @@
 202203260000|SpringForward|A European hare jumps through a wetland in the Netherlands (© Jim Brandenburg/Minden Pictures)|Getting a jump on spring|![](/en-GB/2022/03/202203260000SpringForward.jpg)|
 202203270000|MotherSwan|Swan and her cygnets on a nest in Stroud, Gloucestershire (© PJ photography/Shutterstock)|Happy Mothering Sunday|![](/en-GB/2022/03/202203270000MotherSwan.jpg)|
 202203272300|BamfordEdge|Bamford Edge, Derbyshire on a spring evening (© R A Kearton/Moment Open/Getty Images)|On the edge|![](/en-GB/2022/03/202203272300BamfordEdge.jpg)|
+202203282300|Buritaca|Caribbean coast near Buritaca, Colombia (© Nicholas Hills/Getty Images)|Coastal Colombia|![](/en-GB/2022/03/202203282300Buritaca.jpg)|
