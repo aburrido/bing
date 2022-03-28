@@ -28,3 +28,4 @@
 202203251830|YellowCrocuses|Great tit and yellow crocuses (© Nataba/Getty Images)|Spring awakens|![](/en-IN/2022/03/202203251830YellowCrocuses.jpg)|
 202203261830|TeatroAntico|Ancient theatre of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)|The play’s the thing|![](/en-IN/2022/03/202203261830TeatroAntico.jpg)|
 202203271830|Kawachi|Wisteria blooms at Kawachi Fuji Gardens in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japan’s purple paradise|![](/en-IN/2022/03/202203271830Kawachi.jpg)|
+202203281830|Buritaca|Caribbean coast near Buritaca, Colombia (© Nicholas Hills/Getty Images)|The Caribbean coastline of Colombia|![](/en-IN/2022/03/202203281830Buritaca.jpg)|
