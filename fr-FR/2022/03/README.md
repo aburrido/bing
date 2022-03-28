@@ -29,3 +29,4 @@
 202203252300|YellowCrocuses|Mésange charbonnière et crocus jaune (© Nataba/Getty Images)|On passe (enfin) à l’heure d’été !|![](/fr-FR/2022/03/202203252300YellowCrocuses.jpg)|
 202203262200|TeatroAntico|Théâtre de Taormine, Italie (© Antonino Bartuccio/eStock Photo)|« Va, je ne te hais point. »|![](/fr-FR/2022/03/202203262200TeatroAntico.jpg)|
 202203272200|Kawachi|Wisteria en fleur dans les jardins de Kawachi Fuji à Kitakyushu, Japon (© Steve Tan C K Photography/Getty Images)|Paradis japonais|![](/fr-FR/2022/03/202203272200Kawachi.jpg)|
+202203282200|Buritaca|Côte caribéenne près de Buritaca, Colombie (© Nicholas Hills/Getty Images)|Entre deux eaux|![](/fr-FR/2022/03/202203282200Buritaca.jpg)|
