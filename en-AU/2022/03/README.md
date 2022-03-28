@@ -29,3 +29,4 @@
 202203250700|Rivendell|Lauterbrunnen valley, Swiss Alps (© Leonid Andronov/Getty Images)|Info|![](/en-AU/2022/03/202203250700Rivendell.jpg)|
 202203260700|YellowCrocuses|Great tit and crocuses (© Nataba/Getty Images)|Info|![](/en-AU/2022/03/202203260700YellowCrocuses.jpg)|
 202203270700|TeatroAntico|Ancient theatre of Taormina, Sicily, Italy (© Antonino Bartuccio/eStock Photo)|Info|![](/en-AU/2022/03/202203270700TeatroAntico.jpg)|
+202203280700|Kawachi|Kawachi Fuji Garden, Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Info|![](/en-AU/2022/03/202203280700Kawachi.jpg)|
