@@ -30,3 +30,4 @@
 202203260400|YellowCrocuses|Mésange charbonnière et crocus jaune (© Nataba/Getty Images)||![](/fr-CA/2022/03/202203260400YellowCrocuses.jpg)|
 202203270400|TeatroAntico|Théâtre de Taormine, Italie (© Antonino Bartuccio/eStock Photo)||![](/fr-CA/2022/03/202203270400TeatroAntico.jpg)|
 202203280400|Kawachi|Wisteria en fleur dans les jardins de Kawachi Fuji à Kitakyushu, Japon (© Steve Tan C K Photography/Getty Images)||![](/fr-CA/2022/03/202203280400Kawachi.jpg)|
+202203290400|Buritaca|Côte caribéenne près de Buritaca, Colombie (© Nicholas Hills/Getty Images)||![](/fr-CA/2022/03/202203290400Buritaca.jpg)|
