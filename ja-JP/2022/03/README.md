@@ -30,3 +30,4 @@
 202203261500|TeatroAntico|タオルミーナの古代劇場, イタリア シチリア島 (© Antonino Bartuccio/eStock Photo)|今日は「世界演劇の日」|![](/ja-JP/2022/03/202203261500TeatroAntico.jpg)|
 202203271500|Godafoss|ゴーザフォスとオーロラ, アイスランド  (© Anton Petrus/Getty Images)|神々の滝と極光|![](/ja-JP/2022/03/202203271500Godafoss.jpg)|
 202203281500|Buritaca|ブリタカ, コロンビア (© Nicholas Hills/Getty Images)|カリブ海の浜辺|![](/ja-JP/2022/03/202203281500Buritaca.jpg)|
+202203291500|BeltedGalloway|ベルテッド・ギャロウェイ, イギリス スコットランド (© JohnFScott/Getty Images)|スコットランドの腹巻き牛|![](/ja-JP/2022/03/202203291500BeltedGalloway.jpg)|
