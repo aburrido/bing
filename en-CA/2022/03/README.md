@@ -30,3 +30,4 @@
 202203270400|TeatroAntico|Ancient theatre of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)|The play’s the thing|![](/en-CA/2022/03/202203270400TeatroAntico.jpg)|
 202203280400|Kawachi|Wisteria blooms at Kawachi Fuji Gardens in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japan’s purple paradise|![](/en-CA/2022/03/202203280400Kawachi.jpg)|
 202203290400|TofinoOcean|MacKenzie Beach, Tofino, British Columbia, Canada (© Robert Postma/Plainpicture/Design Pics)|Waves of the Pacific Ocean|![](/en-CA/2022/03/202203290400TofinoOcean.jpg)|
+||||![](/en-CA/2022/03/.jpg)|
