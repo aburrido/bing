@@ -30,3 +30,4 @@
 202203270700|TeatroAntico|Ancient theater of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)|The play's the thing|![](/en-US/2022/03/202203270700TeatroAntico.jpg)|
 202203280700|Kawachi|Wisteria blooms at Kawachi Fuji Garden in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japan's purple paradise|![](/en-US/2022/03/202203280700Kawachi.jpg)|
 202203290700|Buritaca|Caribbean coast near Parque Nacional Natural Tayrona, Colombia (© Nicholas Hills/Getty Images)|Coming into paradise|![](/en-US/2022/03/202203290700Buritaca.jpg)|
+202203300700|BeltedGalloway|Belted Galloway cows in Scotland (© JohnFScott/Getty Images)|Black-and-white bovines|![](/en-US/2022/03/202203300700BeltedGalloway.jpg)|
