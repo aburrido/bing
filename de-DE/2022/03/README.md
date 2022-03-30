@@ -31,3 +31,4 @@
 202203272200|Kawachi|Blühender Blauregen im Kawachi Fuji Garden, Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japans lila Paradies|![](/de-DE/2022/03/202203272200Kawachi.jpg)|
 202203282200|Buritaca|Karibische Küste in der Nähe von Buritaca, Kolumbien (© Nicholas Hills/Getty Images)|Die karibische Küste Kolumbiens|![](/de-DE/2022/03/202203282200Buritaca.jpg)|
 202203292200|BeltedGalloway|Belted Galloways in Schottland, Vereinigtes Königreich (© JohnFScott/Getty Images)|„Belties“ in Schottland|![](/de-DE/2022/03/202203292200BeltedGalloway.jpg)|
+202203302200|AnniEiffel|Eiffelturm in Paris, Frankreich (© Susanne Kremer/eStock Photo)|„Die eiserne Dame“ feiert ein weiteres Jahr|![](/de-DE/2022/03/202203302200AnniEiffel.jpg)|
