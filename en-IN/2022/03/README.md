@@ -30,3 +30,4 @@
 202203271830|Kawachi|Wisteria blooms at Kawachi Fuji Gardens in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japan’s purple paradise|![](/en-IN/2022/03/202203271830Kawachi.jpg)|
 202203281830|Buritaca|Caribbean coast near Buritaca, Colombia (© Nicholas Hills/Getty Images)|The Caribbean coastline of Colombia|![](/en-IN/2022/03/202203281830Buritaca.jpg)|
 202203291830|HawaMahalJaipur|Hawa Mahal, Jaipur, Rajasthan, India (© Mazur Travel/Shutterstock)|A royal window to the world|![](/en-IN/2022/03/202203291830HawaMahalJaipur.jpg)|
+202203301830|AnniEiffel|Eiffel Tower in Paris, France (© Susanne Kremer/eStock Photo)|Celebrate another year with The Iron Lady|![](/en-IN/2022/03/202203301830AnniEiffel.jpg)|
