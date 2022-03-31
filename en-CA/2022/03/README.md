@@ -32,3 +32,4 @@
 202203290400|TofinoOcean|MacKenzie Beach, Tofino, British Columbia, Canada (© Robert Postma/Plainpicture/Design Pics)|Waves of the Pacific Ocean|![](/en-CA/2022/03/202203290400TofinoOcean.jpg)|
 ||||![](/en-CA/2022/03/.jpg)|
 202203300400|BeltedGalloway|Belted Galloway cows in Scotland (© JohnFScott/Getty Images)|Black-and-white bovines|![](/en-CA/2022/03/202203300400BeltedGalloway.jpg)|
+202203310400|AnniEiffel|Eiffel Tower in Paris, France (© Susanne Kremer/eStock Photo)|Celebrate another year with The Iron Lady|![](/en-CA/2022/03/202203310400AnniEiffel.jpg)|

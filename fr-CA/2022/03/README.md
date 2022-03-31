@@ -32,3 +32,4 @@
 202203280400|Kawachi|Wisteria en fleur dans les jardins de Kawachi Fuji à Kitakyushu, Japon (© Steve Tan C K Photography/Getty Images)||![](/fr-CA/2022/03/202203280400Kawachi.jpg)|
 202203290400|Buritaca|Côte caribéenne près de Buritaca, Colombie (© Nicholas Hills/Getty Images)||![](/fr-CA/2022/03/202203290400Buritaca.jpg)|
 202203300400|BeltedGalloway|Galloway ceinturées en Écosse (© JohnFScott/Getty Images)||![](/fr-CA/2022/03/202203300400BeltedGalloway.jpg)|
+202203310400|AnniEiffel|La tour Eiffel (© Susanne Kremer/eStock Photo)||![](/fr-CA/2022/03/202203310400AnniEiffel.jpg)|
