@@ -32,3 +32,4 @@
 202203281500|Buritaca|ブリタカ, コロンビア (© Nicholas Hills/Getty Images)|カリブ海の浜辺|![](/ja-JP/2022/03/202203281500Buritaca.jpg)|
 202203291500|BeltedGalloway|ベルテッド・ギャロウェイ, イギリス スコットランド (© JohnFScott/Getty Images)|スコットランドの腹巻き牛|![](/ja-JP/2022/03/202203291500BeltedGalloway.jpg)|
 202203301500|AnniEiffel|エッフェル塔, フランス パリ (© Susanne Kremer/eStock Photo)|今日はエッフェル塔の誕生日|![](/ja-JP/2022/03/202203301500AnniEiffel.jpg)|
+202203311500|FloatingPyramid|ギザのギザギザピラミッド, エジプト (© Ammar ABD RABBO/Abaca Press/Alamy)|ギザギザギザギザ…のピラミッド|![](/ja-JP/2022/03/202203311500FloatingPyramid.jpg)|
