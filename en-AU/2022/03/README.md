@@ -32,3 +32,4 @@
 202203280700|Kawachi|Kawachi Fuji Garden, Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Info|![](/en-AU/2022/03/202203280700Kawachi.jpg)|
 202203290700|Buritaca|Caribbean coast near Buritaca, Colombia (© Nicholas Hills/Getty Images)|Info|![](/en-AU/2022/03/202203290700Buritaca.jpg)|
 202203300700|TofinoOcean|MacKenzie Beach, Tofino, British Columbia, Canada (© Robert Postma/Plainpicture/Design Pics)|Info|![](/en-AU/2022/03/202203300700TofinoOcean.jpg)|
+202203310700|AnniEiffel|Eiffel Tower, Paris, France (© Susanne Kremer/eStock Photo)|Info|![](/en-AU/2022/03/202203310700AnniEiffel.jpg)|

@@ -31,3 +31,4 @@
 202203280700|Kawachi|Wisteria blooms at Kawachi Fuji Garden in Kitakyushu, Japan (© Steve Tan C K Photography/Getty Images)|Japan's purple paradise|![](/en-US/2022/03/202203280700Kawachi.jpg)|
 202203290700|Buritaca|Caribbean coast near Parque Nacional Natural Tayrona, Colombia (© Nicholas Hills/Getty Images)|Coming into paradise|![](/en-US/2022/03/202203290700Buritaca.jpg)|
 202203300700|BeltedGalloway|Belted Galloway cows in Scotland (© JohnFScott/Getty Images)|Black-and-white bovines|![](/en-US/2022/03/202203300700BeltedGalloway.jpg)|
+202203310700|AnniEiffel|Eiffel Tower in Paris, France (© Susanne Kremer/eStock Photo)|Celebrate another year with the Iron Lady|![](/en-US/2022/03/202203310700AnniEiffel.jpg)|
