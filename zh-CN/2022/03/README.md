@@ -31,3 +31,4 @@
 202203281600|Buritaca|风景秀丽的加勒比海岸，哥伦比亚 (© Nicholas Hills/Getty Images)|哥伦比亚的加勒比海岸线|![](/zh-CN/2022/03/202203281600Buritaca.jpg)|
 202203291600|BeltedGalloway|黑白相间的腰带盖洛韦牛，苏格兰 (© JohnFScott/Getty Images)|黑白相间的牛|![](/zh-CN/2022/03/202203291600BeltedGalloway.jpg)|
 202203301600|AnniEiffel|埃菲尔铁塔，法国巴黎 (© Susanne Kremer/eStock Photo)|与铁娘子一起庆祝新的一年|![](/zh-CN/2022/03/202203301600AnniEiffel.jpg)|
+202203311600|HawaMahalJaipur|哈瓦泰姬陵，印度拉贾斯坦邦，斋浦尔市 (© Mazur Travel/Shutterstock)|朝向世界的皇家窗口|![](/zh-CN/2022/03/202203311600HawaMahalJaipur.jpg)|
