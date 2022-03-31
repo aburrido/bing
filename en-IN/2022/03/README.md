@@ -31,3 +31,4 @@
 202203281830|Buritaca|Caribbean coast near Buritaca, Colombia (© Nicholas Hills/Getty Images)|The Caribbean coastline of Colombia|![](/en-IN/2022/03/202203281830Buritaca.jpg)|
 202203291830|HawaMahalJaipur|Hawa Mahal, Jaipur, Rajasthan, India (© Mazur Travel/Shutterstock)|A royal window to the world|![](/en-IN/2022/03/202203291830HawaMahalJaipur.jpg)|
 202203301830|AnniEiffel|Eiffel Tower in Paris, France (© Susanne Kremer/eStock Photo)|Celebrate another year with The Iron Lady|![](/en-IN/2022/03/202203301830AnniEiffel.jpg)|
+202203311830|FloatingPyramid|'Greetings From Giza' by Jean Rene, in Cairo, Egypt (© Ammar ABD RABBO/Abaca Press/Alamy)|Don’t let appearances fool you today|![](/en-IN/2022/03/202203311830FloatingPyramid.jpg)|
