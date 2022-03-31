@@ -32,3 +32,4 @@
 202203282200|Buritaca|Côte caribéenne près de Buritaca, Colombie (© Nicholas Hills/Getty Images)|Entre deux eaux|![](/fr-FR/2022/03/202203282200Buritaca.jpg)|
 202203292200|CubMedow|Renardeau dans une prairie fleurie en Normandie (© Gerard Lacz/Alamy Stock Photo)|Le nez au vent|![](/fr-FR/2022/03/202203292200CubMedow.jpg)|
 202203302200|AnniEiffel|La tour Eiffel (© Susanne Kremer/eStock Photo)|Anniversaire d’une grande dame|![](/fr-FR/2022/03/202203302200AnniEiffel.jpg)|
+202203312200|FloatingPyramid|'Greetings From Giza' par l’artiste Jean René, Le Caire, Égypte (© Ammar ABD RABBO/Abaca Press/Alamy)|Regardez-bien|![](/fr-FR/2022/03/202203312200FloatingPyramid.jpg)|
