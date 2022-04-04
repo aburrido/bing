@@ -4,3 +4,4 @@
 202204011600|WhangareiFalls|旺阿雷自然保护区里的旺阿雷瀑布，新西兰北岛 (© Nathan Kavumbura/Getty Images)|野餐的好去处|![](/zh-CN/2022/04/202204011600WhangareiFalls.jpg)|
 202204021600|TaihuCherry|太湖边盛开的樱花，无锡 (© Eric Yang/Getty Images)|太湖畔的春天|![](/zh-CN/2022/04/202204021600TaihuCherry.jpg)|
 202204031600|NorwayBoulder|裂缝中的谢拉格伯顿石，挪威谢格拉山 (© Angel FAyE/Getty Images)|在岩石之间...|![](/zh-CN/2022/04/202204031600NorwayBoulder.jpg)|
+202204041600|Godafoss|北极光下的众神瀑布，冰岛 (© Anton Petrus/Getty Images)|冰雪之地|![](/zh-CN/2022/04/202204041600Godafoss.jpg)|
