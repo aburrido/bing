@@ -5,3 +5,4 @@
 202204021830|TaihuCherry|Cherry blossoms at Tai Lake at Wuxi, China (© Eric Yang/Getty Images)|Spring on the shores of Lake Tai|![](/en-IN/2022/04/202204021830TaihuCherry.jpg)|
 202204031830|NorwayBoulder|The Kjeragbolten boulder on Kjeragin Rogaland, Norway (© Angel FAyE/Getty Images)|Between a rock and a hard place|![](/en-IN/2022/04/202204031830NorwayBoulder.jpg)|
 202204041830|Godafoss|Goðafoss waterfall under the northern lights, Iceland (© Anton Petrus/Getty Images)|Land of fire and ice|![](/en-IN/2022/04/202204041830Godafoss.jpg)|
+202204051830|KolliHills|Hairpin bends in Kolli Hills in Tamil Nadu, India (© Surangaw/iStock/Getty Images Plus)|A road for adventure junkies|![](/en-IN/2022/04/202204051830KolliHills.jpg)|
