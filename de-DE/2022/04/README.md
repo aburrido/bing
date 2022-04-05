@@ -5,3 +5,4 @@
 202204022200|TaihuCherry|Kirschblüte am Tai-See nahe der Stadt Wuxi, Provinz Jiangsu, Volksrepublik China (© Eric Yang/Getty Images)|Frühling am Ufer des Tai-Sees|![](/de-DE/2022/04/202204022200TaihuCherry.jpg)|
 202204032200|NorwayBoulder|Der Kjeragbolten auf dem Felsplateau Kjerag, Provinz Rogaland, Norwegen (© Angel FAyE/Getty Images)|Felsbrocken in der Klemme|![](/de-DE/2022/04/202204032200NorwayBoulder.jpg)|
 202204042200|Godafoss|Goðafoss-Wasserfall und Nordlicht, Island (© Anton Petrus/Getty Images)|Im Land aus Feuer und Eis|![](/de-DE/2022/04/202204042200Godafoss.jpg)|
+202204052200|WiedehopfElbe|Ein Wiedehopf füttert sein Junges, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/Getty Images)|Fütterungszeit|![](/de-DE/2022/04/202204052200WiedehopfElbe.jpg)|
