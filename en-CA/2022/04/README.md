@@ -4,3 +4,4 @@
 202204020400|VancouverCB|Cherry blossom trees in Vancouver (© KarenMassier/Getty Images)|Vancouver Cherry Blossom Festival|![](/en-CA/2022/04/202204020400VancouverCB.jpg)|
 202204030400|WhangareiFalls|Whangarei Falls located in Whangarei Scenic Reserve on North Island, New Zealand (© Nathan Kavumbura/Getty Images)|Pretty as a picnic|![](/en-CA/2022/04/202204030400WhangareiFalls.jpg)|
 202204040400|NorwayBoulder|The Kjeragbolten boulder on Kjeragin Rogaland, Norway (© Angel FAyE/Getty Images)|Between a rock and a hard place|![](/en-CA/2022/04/202204040400NorwayBoulder.jpg)|
+202204050400|Godafoss|Goðafoss waterfall under the northern lights, Iceland (© Anton Petrus/Getty Images)|Land of fire and ice|![](/en-CA/2022/04/202204050400Godafoss.jpg)|
