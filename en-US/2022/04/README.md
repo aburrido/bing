@@ -6,3 +6,4 @@
 202204030700|TaihuCherry|Cherry blossoms at Lake Tai at Wuxi, China (© Eric Yang/Getty Images)|Spring on the shores of Lake Tai|![](/en-US/2022/04/202204030700TaihuCherry.jpg)|
 202204040700|NorwayBoulder|The Kjeragbolten boulder on the mountain Kjerag in Rogaland county, Norway (© Angel FAyE/Getty Images)|Between a rock and a hard place|![](/en-US/2022/04/202204040700NorwayBoulder.jpg)|
 202204050700|Godafoss|Goðafoss waterfall under the northern lights, Iceland (© Anton Petrus/Getty Images)|Land of Fire and Ice|![](/en-US/2022/04/202204050700Godafoss.jpg)|
+202204060700|NorthernCaracara|Crested caracara birds courting in Texas (© Alan Murphy/Minden Pictures)|Love at first flight|![](/en-US/2022/04/202204060700NorthernCaracara.jpg)|

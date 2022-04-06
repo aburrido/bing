@@ -6,3 +6,4 @@
 202204030700|TaihuCherry|Cherry blossoms, Lake Tai, Wuxi, China (© Eric Yang/Getty Images)|Info|![](/en-AU/2022/04/202204030700TaihuCherry.jpg)|
 202204040700|NorwayBoulder|Kjeragbolten boulder, Kjerag mountain, Rogaland, Norway (© Angel FAyE/Getty Images)|Info|![](/en-AU/2022/04/202204040700NorwayBoulder.jpg)|
 202204050700|Godafoss|Goðafoss waterfall, Iceland (© Anton Petrus/Getty Images)|Info|![](/en-AU/2022/04/202204050700Godafoss.jpg)|
+202204060700|NorthernCaracara|Crested caracaras, Texas, USA (© Alan Murphy/Minden Pictures)|Info|![](/en-AU/2022/04/202204060700NorthernCaracara.jpg)|
