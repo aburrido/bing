@@ -6,3 +6,4 @@
 202204032200|NorwayBoulder|Le Kjeragbolten coincé sur le Kjerag, Norvège (© Angel FAyE/Getty Images)|Entre le marteau et l’enclume|![](/fr-FR/2022/04/202204032200NorwayBoulder.jpg)|
 202204042200|Hunebourg|Le château de Hunebourg dans les Vosges, Bas-Rhin, Alsace (© Leonid Andronov/Alamy Stock Photo)|Le château aux mille et une vies|![](/fr-FR/2022/04/202204042200Hunebourg.jpg)|
 202204052200|NorthernCaracara|Séduction entre deux Caracaras du Nord au Texas, États-Unis (© Alan Murphy/Minden Pictures)|T’as d’beaux yeux, tu sais|![](/fr-FR/2022/04/202204052200NorthernCaracara.jpg)|
+202204062200|Malaga|La vieille ville de Malaga, Espagne (© Sean Pavone Photo/Getty Images)|Plus de 2 800 ans d’Histoire|![](/fr-FR/2022/04/202204062200Malaga.jpg)|
