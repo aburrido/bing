@@ -5,3 +5,4 @@
 202204030400|WhangareiFalls|Les Whangarei Falls situées dans la réserve Whangarei Scenic sur l’Île du Nord, Nouvelle-Zélande (© Nathan Kavumbura/Getty Images)||![](/fr-CA/2022/04/202204030400WhangareiFalls.jpg)|
 202204040400|NorwayBoulder|Le Kjeragbolten coincé sur le Kjerag, Norvège (© Angel FAyE/Getty Images)||![](/fr-CA/2022/04/202204040400NorwayBoulder.jpg)|
 202204050400|Godafoss|Chutes Goðafoss sous les aurores polaires, Islande (© Anton Petrus/Getty Images)||![](/fr-CA/2022/04/202204050400Godafoss.jpg)|
+202204060400|NorthernCaracara|Séduction entre deux Caracaras du Nord au Texas, États-Unis (© Alan Murphy/Minden Pictures)||![](/fr-CA/2022/04/202204060400NorthernCaracara.jpg)|
