@@ -6,3 +6,4 @@
 202204031600|NorwayBoulder|裂缝中的谢拉格伯顿石，挪威谢格拉山 (© Angel FAyE/Getty Images)|在岩石之间...|![](/zh-CN/2022/04/202204031600NorwayBoulder.jpg)|
 202204041600|Godafoss|北极光下的众神瀑布，冰岛 (© Anton Petrus/Getty Images)|冰雪之地|![](/zh-CN/2022/04/202204041600Godafoss.jpg)|
 202204051600|NorthernCaracara|正在求偶的凤头卡拉鹰，美国德克萨斯州 (© Alan Murphy/Minden Pictures)|初恋|![](/zh-CN/2022/04/202204051600NorthernCaracara.jpg)|
+202204061600|Malaga|黄昏下的马拉加老城，西班牙 (© Sean Pavone Photo/Getty Images)|2800年历史的老城|![](/zh-CN/2022/04/202204061600Malaga.jpg)|
