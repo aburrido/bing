@@ -6,3 +6,4 @@
 202204040400|NorwayBoulder|Le Kjeragbolten coincé sur le Kjerag, Norvège (© Angel FAyE/Getty Images)||![](/fr-CA/2022/04/202204040400NorwayBoulder.jpg)|
 202204050400|Godafoss|Chutes Goðafoss sous les aurores polaires, Islande (© Anton Petrus/Getty Images)||![](/fr-CA/2022/04/202204050400Godafoss.jpg)|
 202204060400|NorthernCaracara|Séduction entre deux Caracaras du Nord au Texas, États-Unis (© Alan Murphy/Minden Pictures)||![](/fr-CA/2022/04/202204060400NorthernCaracara.jpg)|
+202204070400|Malaga|La vieille ville de Málaga, Espagne (© Sean Pavone Photo/Getty Images)||![](/fr-CA/2022/04/202204070400Malaga.jpg)|
