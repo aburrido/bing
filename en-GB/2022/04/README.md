@@ -7,3 +7,4 @@
 202204042300|SouthDownsSheep|Spring morning in South Downs National Park, East Sussex (© Slawek Staszczuk/Alamy Stock Photo)|Up on the Downs|![](/en-GB/2022/04/202204042300SouthDownsSheep.jpg)|
 202204052300|NorthernCaracara|Crested caracara birds courting in Texas, USA (© Alan Murphy/Minden Pictures)|Love At First Flight|![](/en-GB/2022/04/202204052300NorthernCaracara.jpg)|
 202204062300|Malaga|Old town of Málaga, Spain (© Sean Pavone Photo/Getty Images)|2,800 years of history|![](/en-GB/2022/04/202204062300Malaga.jpg)|
+202204072300|PontaDelgada|Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Pearl of the Atlantic|![](/en-GB/2022/04/202204072300PontaDelgada.jpg)|
