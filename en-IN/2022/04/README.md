@@ -8,3 +8,4 @@
 202204051830|KolliHills|Hairpin bends in Kolli Hills in Tamil Nadu, India (© Surangaw/iStock/Getty Images Plus)|A road for adventure junkies|![](/en-IN/2022/04/202204051830KolliHills.jpg)|
 202204061830|Malaga|Old town of Málaga, Spain (© Sean Pavone Photo/Getty Images)|2,800 years of history|![](/en-IN/2022/04/202204061830Malaga.jpg)|
 202204071830|PontaDelgada|Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Pearl of the Atlantic|![](/en-IN/2022/04/202204071830PontaDelgada.jpg)|
+202204081830|LightPainting|Arvada Skatepark, Arvada, Colorado (© Jon Paciaroni/Getty Images)|Go with the glow|![](/en-IN/2022/04/202204081830LightPainting.jpg)|
