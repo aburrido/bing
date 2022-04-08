@@ -8,3 +8,4 @@
 202204051600|NorthernCaracara|正在求偶的凤头卡拉鹰，美国德克萨斯州 (© Alan Murphy/Minden Pictures)|初恋|![](/zh-CN/2022/04/202204051600NorthernCaracara.jpg)|
 202204061600|Malaga|黄昏下的马拉加老城，西班牙 (© Sean Pavone Photo/Getty Images)|2800年历史的老城|![](/zh-CN/2022/04/202204061600Malaga.jpg)|
 202204071600|PontaDelgada|蓬塔德尔加达附近的海岸，葡萄牙 (© Jan Wlodarczyk/Alamy)|去亚速尔群岛游玩|![](/zh-CN/2022/04/202204071600PontaDelgada.jpg)|
+202204081600|LightPainting|光绘摄影下的滑板公园，美国阿瓦达市 (© Jon Paciaroni/Getty Images)|与光同行|![](/zh-CN/2022/04/202204081600LightPainting.jpg)|
