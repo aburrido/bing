@@ -8,3 +8,4 @@
 202204050700|Godafoss|Goðafoss waterfall, Iceland (© Anton Petrus/Getty Images)|Info|![](/en-AU/2022/04/202204050700Godafoss.jpg)|
 202204060700|NorthernCaracara|Crested caracaras, Texas, USA (© Alan Murphy/Minden Pictures)|Info|![](/en-AU/2022/04/202204060700NorthernCaracara.jpg)|
 202204070700|Malaga|Málaga, Spain (© Sean Pavone Photo/Getty Images)|Info|![](/en-AU/2022/04/202204070700Malaga.jpg)|
+202204080700|PontaDelgada|Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Info|![](/en-AU/2022/04/202204080700PontaDelgada.jpg)|
