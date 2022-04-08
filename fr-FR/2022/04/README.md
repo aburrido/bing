@@ -8,3 +8,4 @@
 202204052200|NorthernCaracara|Séduction entre deux Caracaras du Nord au Texas, États-Unis (© Alan Murphy/Minden Pictures)|T’as d’beaux yeux, tu sais|![](/fr-FR/2022/04/202204052200NorthernCaracara.jpg)|
 202204062200|Malaga|La vieille ville de Malaga, Espagne (© Sean Pavone Photo/Getty Images)|Plus de 2 800 ans d’Histoire|![](/fr-FR/2022/04/202204062200Malaga.jpg)|
 202204072200|PontaDelgada|Côte près de Ponta Delgada, Madère, Portugal (© Jan Wlodarczyk/Alamy)|Perle de l’Atlantique|![](/fr-FR/2022/04/202204072200PontaDelgada.jpg)|
+202204082200|LightPainting|Skate-park d’Arvada, Arvada, Colorado, États-Unis (© Jon Paciaroni/Getty Images)|Effet whaou !|![](/fr-FR/2022/04/202204082200LightPainting.jpg)|
