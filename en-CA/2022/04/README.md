@@ -7,3 +7,4 @@
 202204050400|Godafoss|Goðafoss waterfall under the northern lights, Iceland (© Anton Petrus/Getty Images)|Land of fire and ice|![](/en-CA/2022/04/202204050400Godafoss.jpg)|
 202204060400|NorthernCaracara|Crested caracara birds courting in Texas (© Alan Murphy/Minden Pictures)|Love At First Flight|![](/en-CA/2022/04/202204060400NorthernCaracara.jpg)|
 202204070400|Malaga|Old town of Málaga, Spain (© Sean Pavone Photo/Getty Images)|2,800 years of history|![](/en-CA/2022/04/202204070400Malaga.jpg)|
+202204080400|PontaDelgada|Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Pearl of the Atlantic|![](/en-CA/2022/04/202204080400PontaDelgada.jpg)|
