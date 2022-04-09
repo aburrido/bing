@@ -9,3 +9,4 @@
 202204060700|NorthernCaracara|Crested caracara birds courting in Texas (© Alan Murphy/Minden Pictures)|Love at first flight|![](/en-US/2022/04/202204060700NorthernCaracara.jpg)|
 202204070700|Malaga|Old town of Málaga, Spain (© Sean Pavone Photo/Getty Images)|2,800 years of history|![](/en-US/2022/04/202204070700Malaga.jpg)|
 202204080700|PontaDelgada|Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Pearl of the Atlantic|![](/en-US/2022/04/202204080700PontaDelgada.jpg)|
+202204090700|LightPainting|Arvada Skatepark, Arvada, Colorado (© Jon Paciaroni/Getty Images)|Go with the glow|![](/en-US/2022/04/202204090700LightPainting.jpg)|
