@@ -8,3 +8,4 @@
 202204060400|NorthernCaracara|Séduction entre deux Caracaras du Nord au Texas, États-Unis (© Alan Murphy/Minden Pictures)||![](/fr-CA/2022/04/202204060400NorthernCaracara.jpg)|
 202204070400|Malaga|La vieille ville de Málaga, Espagne (© Sean Pavone Photo/Getty Images)||![](/fr-CA/2022/04/202204070400Malaga.jpg)|
 202204080400|PontaDelgada|Côte près de Ponta Delgada, Madère, Portugal (© Jan Wlodarczyk/Alamy)||![](/fr-CA/2022/04/202204080400PontaDelgada.jpg)|
+202204090400|LightPainting|Skate-park d’Arvada, Arvada, Colorado, États-Unis (© Jon Paciaroni/Getty Images)||![](/fr-CA/2022/04/202204090400LightPainting.jpg)|
