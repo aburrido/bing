@@ -9,3 +9,4 @@
 202204061500|Malaga|マラガ旧市街, スペイン (© Sean Pavone Photo/Getty Images)|欧州最南の歴史都市|![](/ja-JP/2022/04/202204061500Malaga.jpg)|
 202204071500|FlowerFes22|蓮の花 (© Gang Xiao Fen Ban/EyeEm Premium/Getty Imagesr)|今日は「花まつり」|![](/ja-JP/2022/04/202204071500FlowerFes22.jpg)|
 202204081500|LightPainting|アーバダのスケートパーク, 米国 コロラド州 (© Jon Paciaroni/Getty Images)|本場米国のスケートパーク|![](/ja-JP/2022/04/202204081500LightPainting.jpg)|
+202204091500|Caracal|カラカルの兄弟, スペイン (© Marion Vollborn/Minden Pictures)|今日は「兄弟姉妹の日」|![](/ja-JP/2022/04/202204091500Caracal.jpg)|
