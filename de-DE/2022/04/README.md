@@ -10,3 +10,4 @@
 202204072200|PontaDelgada|Küste bei Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Perle des Atlantiks|![](/de-DE/2022/04/202204072200PontaDelgada.jpg)|
 202204082200|Caracal|Junge Karakale (© Marion Vollborn/Minden Pictures)|Geschwistertreffen|![](/de-DE/2022/04/202204082200Caracal.jpg)|
 202204092200|FernFronds|Eingerollte junge Farnwedel in Quebec, Kanada (© Marianna Armata/Getty Images)|Unterschätzte Delikatesse|![](/de-DE/2022/04/202204092200FernFronds.jpg)|
+202204102200|HainichBaerlauch|Blühender Bärlauch in einem Rotbuchenwald im Nationalpark Hainich, Thüringen (© Martin Ruegner/Stone/Getty Images)|Der wilde Verwandte des Knoblauchs|![](/de-DE/2022/04/202204102200HainichBaerlauch.jpg)|

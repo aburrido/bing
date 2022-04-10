@@ -10,3 +10,4 @@
 202204072200|PontaDelgada|Côte près de Ponta Delgada, Madère, Portugal (© Jan Wlodarczyk/Alamy)|Perle de l’Atlantique|![](/fr-FR/2022/04/202204072200PontaDelgada.jpg)|
 202204082200|LightPainting|Skate-park d’Arvada, Arvada, Colorado, États-Unis (© Jon Paciaroni/Getty Images)|Effet whaou !|![](/fr-FR/2022/04/202204082200LightPainting.jpg)|
 202204092200|FirstRound|Personnes dans un bureau de vote à Lyon pour le premier tour de la présidentielle, le 23 avril 2017 (© JEFF PACHOUD/AFP via Getty Images)|Qui va là !|![](/fr-FR/2022/04/202204092200FirstRound.jpg)|
+202204102200|FernFronds|Crosses de fougères au Québec, Canada (© Marianna Armata/Getty Images)|Miam-miam|![](/fr-FR/2022/04/202204102200FernFronds.jpg)|
