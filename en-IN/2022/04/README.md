@@ -10,3 +10,4 @@
 202204071830|PontaDelgada|Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Pearl of the Atlantic|![](/en-IN/2022/04/202204071830PontaDelgada.jpg)|
 202204081830|LightPainting|Arvada Skatepark, Arvada, Colorado (© Jon Paciaroni/Getty Images)|Go with the glow|![](/en-IN/2022/04/202204081830LightPainting.jpg)|
 202204091830|Caracal|Caracal cubs (© Marion Vollborn/Minden Pictures)|Yes, we see the family resemblance...|![](/en-IN/2022/04/202204091830Caracal.jpg)|
+202204101830|FernFronds|Fiddlehead fern fronds in Quebec, Canada (© Marianna Armata/Getty Images)|Fiddlin’ around|![](/en-IN/2022/04/202204101830FernFronds.jpg)|
