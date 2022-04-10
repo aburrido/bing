@@ -10,3 +10,4 @@
 202204071500|FlowerFes22|蓮の花 (© Gang Xiao Fen Ban/EyeEm Premium/Getty Imagesr)|今日は「花まつり」|![](/ja-JP/2022/04/202204071500FlowerFes22.jpg)|
 202204081500|LightPainting|アーバダのスケートパーク, 米国 コロラド州 (© Jon Paciaroni/Getty Images)|本場米国のスケートパーク|![](/ja-JP/2022/04/202204081500LightPainting.jpg)|
 202204091500|Caracal|カラカルの兄弟, スペイン (© Marion Vollborn/Minden Pictures)|今日は「兄弟姉妹の日」|![](/ja-JP/2022/04/202204091500Caracal.jpg)|
+202204101500|PontaDelgada|ポンタ・デルガダの海岸, ポルトガル マデイラ諸島 (© Jan Wlodarczyk/Alamy)|マデイラ島の海岸線|![](/ja-JP/2022/04/202204101500PontaDelgada.jpg)|
