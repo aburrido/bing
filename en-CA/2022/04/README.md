@@ -9,3 +9,4 @@
 202204070400|Malaga|Old town of Málaga, Spain (© Sean Pavone Photo/Getty Images)|2,800 years of history|![](/en-CA/2022/04/202204070400Malaga.jpg)|
 202204080400|PontaDelgada|Coast near Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Pearl of the Atlantic|![](/en-CA/2022/04/202204080400PontaDelgada.jpg)|
 202204090400|LightPainting|Arvada Skatepark, Arvada, Colorado (© Jon Paciaroni/Getty Images)|Go with the glow|![](/en-CA/2022/04/202204090400LightPainting.jpg)|
+202204100400|Caracal|Caracal cubs (© Marion Vollborn/Minden Pictures)|Yes, we see the family resemblance...|![](/en-CA/2022/04/202204100400Caracal.jpg)|

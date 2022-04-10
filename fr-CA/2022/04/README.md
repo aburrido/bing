@@ -9,3 +9,4 @@
 202204070400|Malaga|La vieille ville de Málaga, Espagne (© Sean Pavone Photo/Getty Images)||![](/fr-CA/2022/04/202204070400Malaga.jpg)|
 202204080400|PontaDelgada|Côte près de Ponta Delgada, Madère, Portugal (© Jan Wlodarczyk/Alamy)||![](/fr-CA/2022/04/202204080400PontaDelgada.jpg)|
 202204090400|LightPainting|Skate-park d’Arvada, Arvada, Colorado, États-Unis (© Jon Paciaroni/Getty Images)||![](/fr-CA/2022/04/202204090400LightPainting.jpg)|
+202204100400|Caracal|Bébés Caracal (© Marion Vollborn/Minden Pictures)||![](/fr-CA/2022/04/202204100400Caracal.jpg)|
