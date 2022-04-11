@@ -11,3 +11,4 @@
 202204080700|PontaDelgada|Ponta Delgada, Madeira, Portugal (© Jan Wlodarczyk/Alamy)|Info|![](/en-AU/2022/04/202204080700PontaDelgada.jpg)|
 202204090700|LightPainting|Arvada Skatepark, Colorado, USA (© Jon Paciaroni/Getty Images)|Info|![](/en-AU/2022/04/202204090700LightPainting.jpg)|
 202204100700|Caracal|Caracal cubs (© Marion Vollborn/Minden Pictures)|Info|![](/en-AU/2022/04/202204100700Caracal.jpg)|
+202204110700|FernFronds|Fiddlehead fern fronds, Quebec, Canada (© Marianna Armata/Getty Images)|Info|![](/en-AU/2022/04/202204110700FernFronds.jpg)|
