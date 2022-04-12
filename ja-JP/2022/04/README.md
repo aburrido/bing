@@ -12,3 +12,4 @@
 202204091500|Caracal|カラカルの兄弟, スペイン (© Marion Vollborn/Minden Pictures)|今日は「兄弟姉妹の日」|![](/ja-JP/2022/04/202204091500Caracal.jpg)|
 202204101500|PontaDelgada|ポンタ・デルガダの海岸, ポルトガル マデイラ諸島 (© Jan Wlodarczyk/Alamy)|マデイラ島の海岸線|![](/ja-JP/2022/04/202204101500PontaDelgada.jpg)|
 202204111500|WaningGibbous|ISSからの月 (© NASA)|今日は「世界宇宙飛行の日」|![](/ja-JP/2022/04/202204111500WaningGibbous.jpg)|
+202204121500|Mitsumata|ミツマタ群生地, 岩手 (© nattya3714/Getty Images)|春を告げるミツマタの花|![](/ja-JP/2022/04/202204121500Mitsumata.jpg)|
