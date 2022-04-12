@@ -12,3 +12,4 @@
 202204090700|LightPainting|Arvada Skatepark, Arvada, Colorado (© Jon Paciaroni/Getty Images)|Go with the glow|![](/en-US/2022/04/202204090700LightPainting.jpg)|
 202204100700|Caracal|Caracal cubs (© Marion Vollborn/Minden Pictures)|Yes, we see the family resemblance...|![](/en-US/2022/04/202204100700Caracal.jpg)|
 202204110700|FernFronds|Fiddlehead fern fronds in Quebec, Canada (© Marianna Armata/Getty Images)|Springing into action|![](/en-US/2022/04/202204110700FernFronds.jpg)|
+202204120700|WaningGibbous|Waning gibbous moon above the Earth's horizon, photographed from the International Space Station (© NASA)|A view from space|![](/en-US/2022/04/202204120700WaningGibbous.jpg)|

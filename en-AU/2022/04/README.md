@@ -13,3 +13,4 @@
 202204100700|Caracal|Caracal cubs (© Marion Vollborn/Minden Pictures)|Info|![](/en-AU/2022/04/202204100700Caracal.jpg)|
 202204110700|FernFronds|Fiddlehead fern fronds, Quebec, Canada (© Marianna Armata/Getty Images)|Info|![](/en-AU/2022/04/202204110700FernFronds.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)|Wish you were here?|![](/en-AU/2022/04/201209010700b/LaDigue.jpg)|
+202204120700|WaningGibbous|Waning gibbous moon from the International Space Station (© NASA)|Info|![](/en-AU/2022/04/202204120700WaningGibbous.jpg)|
