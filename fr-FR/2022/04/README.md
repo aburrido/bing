@@ -13,3 +13,4 @@
 202204102200|FernFronds|Crosses de fougères au Québec, Canada (© Marianna Armata/Getty Images)|Miam-miam|![](/fr-FR/2022/04/202204102200FernFronds.jpg)|
 202204112200|WaningGibbous|La lune gibbeuse décroissante photographiée au-dessus de l’horizon de la Terre depuis l’ISS (© NASA)|La tête dans les étoiles|![](/fr-FR/2022/04/202204112200WaningGibbous.jpg)|
 202204122200|Mitsumata|Buissons à papier dans une forêt au Japon (© nattya3714/Getty Images)|Fleurs aux mille talents|![](/fr-FR/2022/04/202204122200Mitsumata.jpg)|
+202204132200|AZBend|Horseshoe Bend, Arizona, États-Unis (© Michael Dunn/Getty Images)|Le pouvoir du temps|![](/fr-FR/2022/04/202204132200AZBend.jpg)|

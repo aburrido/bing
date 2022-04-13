@@ -13,3 +13,4 @@
 202204102200|HainichBaerlauch|Blühender Bärlauch in einem Rotbuchenwald im Nationalpark Hainich, Thüringen (© Martin Ruegner/Stone/Getty Images)|Der wilde Verwandte des Knoblauchs|![](/de-DE/2022/04/202204102200HainichBaerlauch.jpg)|
 202204112200|WaningGibbous|Der Mond über dem Horizont der Erde von der Internationalen Raumstation aus fotografiert (© NASA)|Völlig losgelöst|![](/de-DE/2022/04/202204112200WaningGibbous.jpg)|
 202204122200|PlitviceBoardwalk|Nationalpark Plitvicer Seen, Kroatien (© Janne Kahila/Getty Images)|Im ältesten Nationalpark Südosteuropas|![](/de-DE/2022/04/202204122200PlitviceBoardwalk.jpg)|
+202204132200|AZBend|Horseshoe Bend, Arizona, USA (© Michael Dunn/Getty Images)|Bringt dieses „Hufeisen“ Glück?|![](/de-DE/2022/04/202204132200AZBend.jpg)|
