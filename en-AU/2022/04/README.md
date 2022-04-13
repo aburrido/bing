@@ -14,3 +14,4 @@
 202204110700|FernFronds|Fiddlehead fern fronds, Quebec, Canada (© Marianna Armata/Getty Images)|Info|![](/en-AU/2022/04/202204110700FernFronds.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)|Wish you were here?|![](/en-AU/2022/04/201209010700b/LaDigue.jpg)|
 202204120700|WaningGibbous|Waning gibbous moon from the International Space Station (© NASA)|Info|![](/en-AU/2022/04/202204120700WaningGibbous.jpg)|
+202204130700|Mitsumata|Mitsumata (Oriental paperbush), Japan (© nattya3714/Getty Images)|Info|![](/en-AU/2022/04/202204130700Mitsumata.jpg)|

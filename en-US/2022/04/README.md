@@ -13,3 +13,4 @@
 202204100700|Caracal|Caracal cubs (© Marion Vollborn/Minden Pictures)|Yes, we see the family resemblance...|![](/en-US/2022/04/202204100700Caracal.jpg)|
 202204110700|FernFronds|Fiddlehead fern fronds in Quebec, Canada (© Marianna Armata/Getty Images)|Springing into action|![](/en-US/2022/04/202204110700FernFronds.jpg)|
 202204120700|WaningGibbous|Waning gibbous moon above the Earth's horizon, photographed from the International Space Station (© NASA)|A view from space|![](/en-US/2022/04/202204120700WaningGibbous.jpg)|
+202204130700|Mitsumata|Mitsumata (aka paperbush) in a forest in Japan (© nattya3714/Getty Images)|Golden flowers, paper banknotes?|![](/en-US/2022/04/202204130700Mitsumata.jpg)|
