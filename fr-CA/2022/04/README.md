@@ -12,3 +12,4 @@
 202204100400|Caracal|Bébés Caracal (© Marion Vollborn/Minden Pictures)||![](/fr-CA/2022/04/202204100400Caracal.jpg)|
 202204110400|FernFronds|Crosses de fougères au Québec (© Marianna Armata/Getty Images)||![](/fr-CA/2022/04/202204110400FernFronds.jpg)|
 202204120400|WaningGibbous|La lune gibbeuse décroissante photographiée au-dessus de l’horizon de la Terre depuis l’ISS (© NASA)||![](/fr-CA/2022/04/202204120400WaningGibbous.jpg)|
+202204130400|Mitsumata|Buissons à papier dans une forêt au Japon (© nattya3714/Getty Images)||![](/fr-CA/2022/04/202204130400Mitsumata.jpg)|
