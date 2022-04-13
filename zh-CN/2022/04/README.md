@@ -13,3 +13,4 @@
 202204101600|FernFronds|卷曲的蕨菜叶，加拿大魁北克 (© Marianna Armata/Getty Images)|在盛产蕨菜的春日里|![](/zh-CN/2022/04/202204101600FernFronds.jpg)|
 202204111600|WaningGibbous|从国际空间站拍摄到的地球上方的渐亏凸月 (© NASA)|尤里之夜的凸月|![](/zh-CN/2022/04/202204111600WaningGibbous.jpg)|
 202204121600|Mitsumata|森林中的结香花，日本 (© nattya3714/Getty Images)|是金色的花朵？还是造纸的灵魂？|![](/zh-CN/2022/04/202204121600Mitsumata.jpg)|
+202204131600|AZBend|科罗拉多河上的马蹄湾，美国亚利桑那州 (© Michael Dunn/Getty Images)|打卡马蹄湾会带来好运吗？|![](/zh-CN/2022/04/202204131600AZBend.jpg)|
