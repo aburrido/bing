@@ -15,3 +15,4 @@
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)|Wish you were here?|![](/en-AU/2022/04/201209010700b/LaDigue.jpg)|
 202204120700|WaningGibbous|Waning gibbous moon from the International Space Station (© NASA)|Info|![](/en-AU/2022/04/202204120700WaningGibbous.jpg)|
 202204130700|Mitsumata|Mitsumata (Oriental paperbush), Japan (© nattya3714/Getty Images)|Info|![](/en-AU/2022/04/202204130700Mitsumata.jpg)|
+202204140700|AZBend|Horseshoe Bend, Arizona, USA (© Michael Dunn/Getty Images)|Info|![](/en-AU/2022/04/202204140700AZBend.jpg)|
