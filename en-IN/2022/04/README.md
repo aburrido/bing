@@ -14,3 +14,4 @@
 202204111830|AZBend|Horseshoe Bend, Arizona (© Michael Dunn/Getty Images)|Does this horseshoe bring good luck?|![](/en-IN/2022/04/202204111830AZBend.jpg)|
 202204121830|Mitsumata|Mitsumata (aka paperbush) in a forest in Japan (© nattya3714/Getty Images)|Golden flowers, paper banknotes?|![](/en-IN/2022/04/202204121830Mitsumata.jpg)|
 202204131830|KailasaTemple|Kailasa Temple in Ellora Caves compound in Maharashtra, India (© Mazur Travel/Shutterstock)|The world’s largest rock-cut monument|![](/en-IN/2022/04/202204131830KailasaTemple.jpg)|
+202204141830|ChristoJeanneClaude|Arc de Triomphe wrapped in posthumous art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is ‘Wrapped’|![](/en-IN/2022/04/202204141830ChristoJeanneClaude.jpg)|
