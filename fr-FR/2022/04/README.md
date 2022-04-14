@@ -14,3 +14,4 @@
 202204112200|WaningGibbous|La lune gibbeuse décroissante photographiée au-dessus de l’horizon de la Terre depuis l’ISS (© NASA)|La tête dans les étoiles|![](/fr-FR/2022/04/202204112200WaningGibbous.jpg)|
 202204122200|Mitsumata|Buissons à papier dans une forêt au Japon (© nattya3714/Getty Images)|Fleurs aux mille talents|![](/fr-FR/2022/04/202204122200Mitsumata.jpg)|
 202204132200|AZBend|Horseshoe Bend, Arizona, États-Unis (© Michael Dunn/Getty Images)|Le pouvoir du temps|![](/fr-FR/2022/04/202204132200AZBend.jpg)|
+202204142200|ChristoJeanneClaude|L’Arc de Triomphe emballé dans une installation artistique posthume réalisée par Christo et Jeanne-Claude le 24 septembre 2021 (© Bruno de HOGUES/Getty Images)|Emballé pour et par l’art|![](/fr-FR/2022/04/202204142200ChristoJeanneClaude.jpg)|

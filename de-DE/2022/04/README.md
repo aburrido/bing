@@ -14,3 +14,4 @@
 202204112200|WaningGibbous|Der Mond über dem Horizont der Erde von der Internationalen Raumstation aus fotografiert (© NASA)|Völlig losgelöst|![](/de-DE/2022/04/202204112200WaningGibbous.jpg)|
 202204122200|PlitviceBoardwalk|Nationalpark Plitvicer Seen, Kroatien (© Janne Kahila/Getty Images)|Im ältesten Nationalpark Südosteuropas|![](/de-DE/2022/04/202204122200PlitviceBoardwalk.jpg)|
 202204132200|AZBend|Horseshoe Bend, Arizona, USA (© Michael Dunn/Getty Images)|Bringt dieses „Hufeisen“ Glück?|![](/de-DE/2022/04/202204132200AZBend.jpg)|
+202204142200|ChristoJeanneClaude|Der verhüllte Arc de Triomphe als posthume Kunstinstallation von Christo und Jeanne-Claude, am 24. September 2021, Paris, Frankreich (© Bruno de HOGUES/Getty Images)|Verhüllung eines Wahrzeichens|![](/de-DE/2022/04/202204142200ChristoJeanneClaude.jpg)|
