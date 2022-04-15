@@ -14,3 +14,4 @@
 202204120400|WaningGibbous|The waning gibbous moon is pictured above the Earth's horizon from the International Space Station (© NASA)|A gibbous moon|![](/en-CA/2022/04/202204120400WaningGibbous.jpg)|
 202204130400|Mitsumata|Mitsumata (aka paperbush) in a forest in Japan (© nattya3714/Getty Images)|Golden flowers, paper banknotes?|![](/en-CA/2022/04/202204130400Mitsumata.jpg)|
 202204140400|CrowsnestMt|Crowsnest Mountain, Alberta (© Brandon van Son/TANDEM Stills + Motion)|An isolated peak standing tall|![](/en-CA/2022/04/202204140400CrowsnestMt.jpg)|
+202204150400|ChristoJeanneClaude|Arc de Triomphe wrapped in posthumous art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is ‘Wrapped’|![](/en-CA/2022/04/202204150400ChristoJeanneClaude.jpg)|

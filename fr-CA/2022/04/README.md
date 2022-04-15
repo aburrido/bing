@@ -14,3 +14,4 @@
 202204120400|WaningGibbous|La lune gibbeuse décroissante photographiée au-dessus de l’horizon de la Terre depuis l’ISS (© NASA)||![](/fr-CA/2022/04/202204120400WaningGibbous.jpg)|
 202204130400|Mitsumata|Buissons à papier dans une forêt au Japon (© nattya3714/Getty Images)||![](/fr-CA/2022/04/202204130400Mitsumata.jpg)|
 202204140400|AZBend|Horseshoe Bend, Arizona, États-Unis (© Michael Dunn/Getty Images)||![](/fr-CA/2022/04/202204140400AZBend.jpg)|
+202204150400|CoastNL|Petite maison rouge sur la côte de Saint-Jean de Terre-Neuve, Terre-Neuve-et-Labrador (© Jessie Brinkman Evans/Offset)||![](/fr-CA/2022/04/202204150400CoastNL.jpg)|
