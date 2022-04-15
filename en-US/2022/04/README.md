@@ -15,3 +15,4 @@
 202204120700|WaningGibbous|Waning gibbous moon above the Earth's horizon, photographed from the International Space Station (© NASA)|A view from space|![](/en-US/2022/04/202204120700WaningGibbous.jpg)|
 202204130700|Mitsumata|Mitsumata (aka paperbush) in a forest in Japan (© nattya3714/Getty Images)|Golden flowers, paper banknotes?|![](/en-US/2022/04/202204130700Mitsumata.jpg)|
 202204140700|AZBend|Horseshoe Bend, Arizona (© Michael Dunn/Getty Images)|Does this horseshoe bring good luck?|![](/en-US/2022/04/202204140700AZBend.jpg)|
+202204150700|ChristoJeanneClaude|'L'Arc de Triomphe, Wrapped,' an art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is 'Wrapped'|![](/en-US/2022/04/202204150700ChristoJeanneClaude.jpg)|

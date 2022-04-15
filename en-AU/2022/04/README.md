@@ -16,3 +16,4 @@
 202204120700|WaningGibbous|Waning gibbous moon from the International Space Station (© NASA)|Info|![](/en-AU/2022/04/202204120700WaningGibbous.jpg)|
 202204130700|Mitsumata|Mitsumata (Oriental paperbush), Japan (© nattya3714/Getty Images)|Info|![](/en-AU/2022/04/202204130700Mitsumata.jpg)|
 202204140700|AZBend|Horseshoe Bend, Arizona, USA (© Michael Dunn/Getty Images)|Info|![](/en-AU/2022/04/202204140700AZBend.jpg)|
+202204150700|DartmoorMist|Dartmoor National Park, Devon, England (© AWL Images/Danita Delimont)|Info|![](/en-AU/2022/04/202204150700DartmoorMist.jpg)|
