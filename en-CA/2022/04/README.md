@@ -15,3 +15,4 @@
 202204130400|Mitsumata|Mitsumata (aka paperbush) in a forest in Japan (© nattya3714/Getty Images)|Golden flowers, paper banknotes?|![](/en-CA/2022/04/202204130400Mitsumata.jpg)|
 202204140400|CrowsnestMt|Crowsnest Mountain, Alberta (© Brandon van Son/TANDEM Stills + Motion)|An isolated peak standing tall|![](/en-CA/2022/04/202204140400CrowsnestMt.jpg)|
 202204150400|ChristoJeanneClaude|Arc de Triomphe wrapped in posthumous art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is ‘Wrapped’|![](/en-CA/2022/04/202204150400ChristoJeanneClaude.jpg)|
+202204160400|CoastNL|Small red house on the rocky coast of St. John's, Newfoundland and Labrador (© Jessie Brinkman Evans/Offset)|A scenic coastal landscape|![](/en-CA/2022/04/202204160400CoastNL.jpg)|
