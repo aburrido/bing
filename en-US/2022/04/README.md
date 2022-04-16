@@ -17,3 +17,4 @@
 202204140700|AZBend|Horseshoe Bend, Arizona (© Michael Dunn/Getty Images)|Does this horseshoe bring good luck?|![](/en-US/2022/04/202204140700AZBend.jpg)|
 202204150700|ChristoJeanneClaude|'L'Arc de Triomphe, Wrapped,' an art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is 'Wrapped'|![](/en-US/2022/04/202204150700ChristoJeanneClaude.jpg)|
 202204160700|Yellowstone150|Aerial view of Grand Prismatic Spring, Yellowstone National Park, Wyoming (© AirPano LLC/Amazing Aerial Agency)|'America's best idea' began here|![](/en-US/2022/04/202204160700Yellowstone150.jpg)|
+||||![](/en-US/2022/04/.jpg)|
