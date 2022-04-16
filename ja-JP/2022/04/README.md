@@ -16,3 +16,4 @@
 202204131500|AZBend|ホースシューベンド, 米国 アリゾナ州 (© Michael Dunn/Getty Images)|コロラド川の壮大な風景|![](/ja-JP/2022/04/202204131500AZBend.jpg)|
 202204141500|ChristoJeanneClaude|クリストの凱旋門梱包プロジェクト, フランス (© Bruno de HOGUES/Getty Images)|今日は「世界芸術の日」|![](/ja-JP/2022/04/202204141500ChristoJeanneClaude.jpg)|
 202204151500|Yellowstone150|グランド・プリズマティック・スプリング, 米国 (© AirPano LLC/Amazing Aerial Agency)|イエローストーン国立公園の熱水泉|![](/ja-JP/2022/04/202204151500Yellowstone150.jpg)|
+202204161500|RobinsEgg|コマツグミのタマゴ, 米国 ニュージャージー州 (© Mira/Alamy)|今日は「イースター」|![](/ja-JP/2022/04/202204161500RobinsEgg.jpg)|
