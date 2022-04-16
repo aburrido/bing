@@ -16,3 +16,4 @@
 202204131600|AZBend|科罗拉多河上的马蹄湾，美国亚利桑那州 (© Michael Dunn/Getty Images)|打卡马蹄湾会带来好运吗？|![](/zh-CN/2022/04/202204131600AZBend.jpg)|
 202204141600|DartmoorMist|达特穆尔国家公园的薄雾，英格兰德文郡 (© AWL Images/Danita Delimont)|大雾笼罩着达特穆尔|![](/zh-CN/2022/04/202204141600DartmoorMist.jpg)|
 202204151600|Yellowstone150|黄石国家公园的大棱镜泉鸟瞰图，美国怀俄明州 (© AirPano LLC/Amazing Aerial Agency)|“美国最好的想法”起源于此|![](/zh-CN/2022/04/202204151600Yellowstone150.jpg)|
+202204161600|RobinsEgg|蓝色的美洲知更鸟蛋，新泽西州 (© Mira/Alamy)|这些鸡蛋不需要染色|![](/zh-CN/2022/04/202204161600RobinsEgg.jpg)|
