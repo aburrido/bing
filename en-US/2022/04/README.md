@@ -18,3 +18,4 @@
 202204150700|ChristoJeanneClaude|'L'Arc de Triomphe, Wrapped,' an art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is 'Wrapped'|![](/en-US/2022/04/202204150700ChristoJeanneClaude.jpg)|
 202204160700|Yellowstone150|Aerial view of Grand Prismatic Spring, Yellowstone National Park, Wyoming (© AirPano LLC/Amazing Aerial Agency)|'America's best idea' began here|![](/en-US/2022/04/202204160700Yellowstone150.jpg)|
 ||||![](/en-US/2022/04/.jpg)|
+202204170700|RobinsEgg|The blue eggs of an American robin in New Jersey (© Mira/Alamy)|No dye needed for these eggs|![](/en-US/2022/04/202204170700RobinsEgg.jpg)|
