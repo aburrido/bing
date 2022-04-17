@@ -17,3 +17,4 @@
 202204142200|ChristoJeanneClaude|L’Arc de Triomphe emballé dans une installation artistique posthume réalisée par Christo et Jeanne-Claude le 24 septembre 2021 (© Bruno de HOGUES/Getty Images)|Emballé pour et par l’art|![](/fr-FR/2022/04/202204142200ChristoJeanneClaude.jpg)|
 202204152200|Yellowstone150|Vue aérienne du Grand Prismatic Spring, Parc national de Yellowstone, Wyoming, États-Unis (© AirPano LLC/Amazing Aerial Agency)|L’hiver à Yellowstone|![](/fr-FR/2022/04/202204152200Yellowstone150.jpg)|
 202204162200|RobinsEgg|Les œufs bleus d’un merle d’Amérique dans le New Jersey, États-Unis (© Mira/Alamy)|La chasse aux œufs est ouverte !|![](/fr-FR/2022/04/202204162200RobinsEgg.jpg)|
+202204172200|SquareTowerHouse|Square Tower House dans le parc national de Mesa Verde, Colorado, États-Unis (© lightphoto/Getty Images)|Vestige d’un autre temps|![](/fr-FR/2022/04/202204172200SquareTowerHouse.jpg)|

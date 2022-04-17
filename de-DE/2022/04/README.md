@@ -17,3 +17,4 @@
 202204142200|ChristoJeanneClaude|Der verhüllte Arc de Triomphe als posthume Kunstinstallation von Christo und Jeanne-Claude, am 24. September 2021, Paris, Frankreich (© Bruno de HOGUES/Getty Images)|Verhüllung eines Wahrzeichens|![](/de-DE/2022/04/202204142200ChristoJeanneClaude.jpg)|
 202204152200|Yellowstone150|Luftbild der Grand Prismatic Spring im Yellowstone-Nationalpark, Wyoming, USA (© AirPano LLC/Amazing Aerial Agency)|Heiß trifft kalt|![](/de-DE/2022/04/202204152200Yellowstone150.jpg)|
 202204162200|RobinsEgg|Grünlichblaue Eier einer Wanderdrossel, New Jersey, USA (© Mira/Alamy)|Diese Eier müssen nicht extra gefärbt werden|![](/de-DE/2022/04/202204162200RobinsEgg.jpg)|
+202204172200|SquareTowerHouse|Square Tower House im Mesa-Verde-Nationalpark, Colorado, USA (© lightphoto/Getty Images)|Die Burg der Pueblo-Vorfahren|![](/de-DE/2022/04/202204172200SquareTowerHouse.jpg)|
