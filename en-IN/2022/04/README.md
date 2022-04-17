@@ -17,3 +17,4 @@
 202204141830|ChristoJeanneClaude|Arc de Triomphe wrapped in posthumous art installation by Christo and Jeanne-Claude on September 24, 2021, in Paris, France (© Bruno de HOGUES/Getty Images)|An icon is ‘Wrapped’|![](/en-IN/2022/04/202204141830ChristoJeanneClaude.jpg)|
 202204151830|Yellowstone150|Aerial view of Grand Prismatic Spring, Yellowstone National Park, Wyoming (© AirPano LLC/Amazing Aerial Agency)|'America’s best idea' began here|![](/en-IN/2022/04/202204151830Yellowstone150.jpg)|
 202204161830|RobinsEgg|The blue eggs of an American robin in New Jersey (© Mira/Alamy)|No egg dye needed for these|![](/en-IN/2022/04/202204161830RobinsEgg.jpg)|
+202204171830|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado (© lightphoto/Getty Images)|Castle of the Ancestral Puebloans|![](/en-IN/2022/04/202204171830SquareTowerHouse.jpg)|
