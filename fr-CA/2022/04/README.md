@@ -16,3 +16,4 @@
 202204140400|AZBend|Horseshoe Bend, Arizona, États-Unis (© Michael Dunn/Getty Images)||![](/fr-CA/2022/04/202204140400AZBend.jpg)|
 202204150400|CoastNL|Petite maison rouge sur la côte de Saint-Jean de Terre-Neuve, Terre-Neuve-et-Labrador (© Jessie Brinkman Evans/Offset)||![](/fr-CA/2022/04/202204150400CoastNL.jpg)|
 202204160400|Yellowstone150|Vue aérienne du Grand Prismatic Spring, Parc national de Yellowstone, Wyoming, États-Unis (© AirPano LLC/Amazing Aerial Agency)||![](/fr-CA/2022/04/202204160400Yellowstone150.jpg)|
+202204170400|RobinsEgg|Les œufs bleus d’un merle d’Amérique dans le New Jersey, États-Unis (© Mira/Alamy)||![](/fr-CA/2022/04/202204170400RobinsEgg.jpg)|
