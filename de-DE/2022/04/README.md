@@ -18,3 +18,4 @@
 202204152200|Yellowstone150|Luftbild der Grand Prismatic Spring im Yellowstone-Nationalpark, Wyoming, USA (© AirPano LLC/Amazing Aerial Agency)|Heiß trifft kalt|![](/de-DE/2022/04/202204152200Yellowstone150.jpg)|
 202204162200|RobinsEgg|Grünlichblaue Eier einer Wanderdrossel, New Jersey, USA (© Mira/Alamy)|Diese Eier müssen nicht extra gefärbt werden|![](/de-DE/2022/04/202204162200RobinsEgg.jpg)|
 202204172200|SquareTowerHouse|Square Tower House im Mesa-Verde-Nationalpark, Colorado, USA (© lightphoto/Getty Images)|Die Burg der Pueblo-Vorfahren|![](/de-DE/2022/04/202204172200SquareTowerHouse.jpg)|
+202204182200|IrrgartenTeichland|Irrgarten im Erlebnispark Teichland, Brandenburg (© Naturfoto-Online/Alamy)|Finden Sie den Weg in die Mitte?|![](/de-DE/2022/04/202204182200IrrgartenTeichland.jpg)|
