@@ -18,3 +18,4 @@
 202204152300|Yellowstone150|Aerial view of Grand Prismatic Spring, Yellowstone National Park, Wyoming, USA (© AirPano LLC/Amazing Aerial Agency)|Yellowstone’s many colours|![](/en-GB/2022/04/202204152300Yellowstone150.jpg)|
 202204162300|RobinsEgg|The blue eggs of an American robin in New Jersey, USA (© Mira/Alamy)|No egg dye required|![](/en-GB/2022/04/202204162300RobinsEgg.jpg)|
 202204172300|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado, USA (© lightphoto/Getty Images)|Castle in the cliffs|![](/en-GB/2022/04/202204172300SquareTowerHouse.jpg)|
+202204182300|DartmoorMist|Mist-covered countryside at dawn, Dartmoor National Park, Devon (© AWL Images/Danita Delimont)|Mists descend on Dartmoor|![](/en-GB/2022/04/202204182300DartmoorMist.jpg)|
