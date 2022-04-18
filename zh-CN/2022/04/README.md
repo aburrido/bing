@@ -18,3 +18,4 @@
 202204151600|Yellowstone150|黄石国家公园的大棱镜泉鸟瞰图，美国怀俄明州 (© AirPano LLC/Amazing Aerial Agency)|“美国最好的想法”起源于此|![](/zh-CN/2022/04/202204151600Yellowstone150.jpg)|
 202204161600|RobinsEgg|蓝色的美洲知更鸟蛋，新泽西州 (© Mira/Alamy)|这些鸡蛋不需要染色|![](/zh-CN/2022/04/202204161600RobinsEgg.jpg)|
 202204171600|SquareTowerHouse|梅萨维德国家公园的方形塔楼，美国科罗拉多州 (© lightphoto/Getty Images)|普韦布洛城堡|![](/zh-CN/2022/04/202204171600SquareTowerHouse.jpg)|
+202204181600|PlitviceBoardwalk|十六湖国家公园，克罗地亚 (© Janne Kahila/Getty Images)|巴尔干湖上的木板路|![](/zh-CN/2022/04/202204181600PlitviceBoardwalk.jpg)|
