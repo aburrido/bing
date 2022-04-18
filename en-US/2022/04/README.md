@@ -19,3 +19,4 @@
 202204160700|Yellowstone150|Aerial view of Grand Prismatic Spring, Yellowstone National Park, Wyoming (© AirPano LLC/Amazing Aerial Agency)|'America's best idea' began here|![](/en-US/2022/04/202204160700Yellowstone150.jpg)|
 ||||![](/en-US/2022/04/.jpg)|
 202204170700|RobinsEgg|The blue eggs of an American robin in New Jersey (© Mira/Alamy)|No dye needed for these eggs|![](/en-US/2022/04/202204170700RobinsEgg.jpg)|
+202204180700|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado (© lightphoto/Getty Images)|Castle of the Ancestral Puebloans|![](/en-US/2022/04/202204180700SquareTowerHouse.jpg)|
