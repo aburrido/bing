@@ -19,3 +19,4 @@
 202204161500|RobinsEgg|コマツグミのタマゴ, 米国 ニュージャージー州 (© Mira/Alamy)|今日は「イースター」|![](/ja-JP/2022/04/202204161500RobinsEgg.jpg)|
 202204171500|SquareTowerHouse|メサ・ヴェルデ, 米国 コロラド州 (© lightphoto/Getty Images)|今日は「世界遺産の日」|![](/ja-JP/2022/04/202204171500SquareTowerHouse.jpg)|
 202204181500|FujiSakura22|富士山と芝桜, 山梨県 富士河口湖町 (© Ruj Chuchaisangrat/Getty Images)|「富士芝桜まつり」開催中|![](/ja-JP/2022/04/202204181500FujiSakura22.jpg)|
+202204191500|MuteSwan|コブハクチョウのヒナ, 米国 ニューヨーク州 (© Vicki Jauron/Getty Images)|かわいいハクチョウの子|![](/ja-JP/2022/04/202204191500MuteSwan.jpg)|
