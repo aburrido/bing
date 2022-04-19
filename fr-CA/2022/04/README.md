@@ -18,3 +18,4 @@
 202204160400|Yellowstone150|Vue aérienne du Grand Prismatic Spring, Parc national de Yellowstone, Wyoming, États-Unis (© AirPano LLC/Amazing Aerial Agency)||![](/fr-CA/2022/04/202204160400Yellowstone150.jpg)|
 202204170400|RobinsEgg|Les œufs bleus d’un merle d’Amérique dans le New Jersey, États-Unis (© Mira/Alamy)||![](/fr-CA/2022/04/202204170400RobinsEgg.jpg)|
 202204180400|SquareTowerHouse|Square Tower House dans le parc national de Mesa Verde, Colorado, États-Unis (© lightphoto/Getty Images)||![](/fr-CA/2022/04/202204180400SquareTowerHouse.jpg)|
+202204190400|PlitviceBoardwalk|Le parc national des lacs de Plitvice, Croatie (© Janne Kahila/Getty Images)||![](/fr-CA/2022/04/202204190400PlitviceBoardwalk.jpg)|

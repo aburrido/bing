@@ -18,3 +18,4 @@
 202204160400|CoastNL|Small red house on the rocky coast of St. John's, Newfoundland and Labrador (© Jessie Brinkman Evans/Offset)|A scenic coastal landscape|![](/en-CA/2022/04/202204160400CoastNL.jpg)|
 202204170400|RobinsEgg|The blue eggs of an American robin in New Jersey (© Mira/Alamy)|No egg dye needed for these|![](/en-CA/2022/04/202204170400RobinsEgg.jpg)|
 202204180400|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado (© lightphoto/Getty Images)|Castle of the Ancestral Puebloans|![](/en-CA/2022/04/202204180400SquareTowerHouse.jpg)|
+202204190400|PlitviceBoardwalk|Plitvice Lakes National Park, Croatia (© Janne Kahila/Getty Images)|Boardwalk over Balkan lakes|![](/en-CA/2022/04/202204190400PlitviceBoardwalk.jpg)|
