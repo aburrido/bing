@@ -20,3 +20,4 @@
 202204160700|Yellowstone150|Grand Prismatic Spring, Yellowstone National Park, Wyoming, USA (© AirPano LLC/Amazing Aerial Agency)|Info|![](/en-AU/2022/04/202204160700Yellowstone150.jpg)|
 202204170700|RobinsEgg|American robin eggs, New Jersey, USA (© Mira/Alamy)|Info|![](/en-AU/2022/04/202204170700RobinsEgg.jpg)|
 202204180700|SquareTowerHouse|Square Tower House, Mesa Verde National Park, Colorado, USA (© lightphoto/Getty Images)|Info|![](/en-AU/2022/04/202204180700SquareTowerHouse.jpg)|
+202204190700|PlitviceBoardwalk|Plitvice Lakes National Park, Croatia (© Janne Kahila/Getty Images)|Info|![](/en-AU/2022/04/202204190700PlitviceBoardwalk.jpg)|
