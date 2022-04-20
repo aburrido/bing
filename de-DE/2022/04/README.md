@@ -20,3 +20,4 @@
 202204172200|SquareTowerHouse|Square Tower House im Mesa-Verde-Nationalpark, Colorado, USA (© lightphoto/Getty Images)|Die Burg der Pueblo-Vorfahren|![](/de-DE/2022/04/202204172200SquareTowerHouse.jpg)|
 202204182200|IrrgartenTeichland|Irrgarten im Erlebnispark Teichland, Brandenburg (© Naturfoto-Online/Alamy)|Finden Sie den Weg in die Mitte?|![](/de-DE/2022/04/202204182200IrrgartenTeichland.jpg)|
 202204192200|MuteSwan|Zwei Höckerschwan-Küken suchen Schutz unter den Schwanzfedern ihrer Mutter im Massapequa Reserve, Long Island, New York, USA (© Vicki Jauron/Getty Images)|Schönheiten sind geboren|![](/de-DE/2022/04/202204192200MuteSwan.jpg)|
+202204202200|IcelandicSummer|Grasende Schafe, Island (© Matthew Kuhns/Tandem Stills + Motion)|Was feiern die Isländer heute?|![](/de-DE/2022/04/202204202200IcelandicSummer.jpg)|
