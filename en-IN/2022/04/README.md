@@ -20,3 +20,4 @@
 202204171830|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado (© lightphoto/Getty Images)|Castle of the Ancestral Puebloans|![](/en-IN/2022/04/202204171830SquareTowerHouse.jpg)|
 202204181830|PlitviceBoardwalk|Plitvice Lakes National Park, Croatia (© Janne Kahila/Getty Images)|Boardwalk over Balkan lakes|![](/en-IN/2022/04/202204181830PlitviceBoardwalk.jpg)|
 202204191830|OwletsKeoladeoPark|Spotted owlets in Keoladeo National Park in Rajasthan, India (© Don Mammoser/Shutterstock)|Posing for a perfect picture|![](/en-IN/2022/04/202204191830OwletsKeoladeoPark.jpg)|
+202204201830|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating today?|![](/en-IN/2022/04/202204201830IcelandicSummer.jpg)|
