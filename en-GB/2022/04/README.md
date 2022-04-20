@@ -20,3 +20,4 @@
 202204172300|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado, USA (© lightphoto/Getty Images)|Castle in the cliffs|![](/en-GB/2022/04/202204172300SquareTowerHouse.jpg)|
 202204182300|DartmoorMist|Mist-covered countryside at dawn, Dartmoor National Park, Devon (© AWL Images/Danita Delimont)|Mists descend on Dartmoor|![](/en-GB/2022/04/202204182300DartmoorMist.jpg)|
 202204192300|AZBend|Horseshoe Bend, Arizona, USA (© Michael Dunn/Getty Images)|Does this horseshoe bring good luck?|![](/en-GB/2022/04/202204192300AZBend.jpg)|
+202204202300|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating?|![](/en-GB/2022/04/202204202300IcelandicSummer.jpg)|
