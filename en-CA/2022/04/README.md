@@ -19,3 +19,4 @@
 202204170400|RobinsEgg|The blue eggs of an American robin in New Jersey (© Mira/Alamy)|No egg dye needed for these|![](/en-CA/2022/04/202204170400RobinsEgg.jpg)|
 202204180400|SquareTowerHouse|Square Tower House in Mesa Verde National Park, Colorado (© lightphoto/Getty Images)|Castle of the Ancestral Puebloans|![](/en-CA/2022/04/202204180400SquareTowerHouse.jpg)|
 202204190400|PlitviceBoardwalk|Plitvice Lakes National Park, Croatia (© Janne Kahila/Getty Images)|Boardwalk over Balkan lakes|![](/en-CA/2022/04/202204190400PlitviceBoardwalk.jpg)|
+202204200400|MuteSwan|Two mute swan chicks shelter under mom's tail feathers at Massapequa Preserve, Long Island, New York (© Vicki Jauron/Getty Images)|Beauties are born|![](/en-CA/2022/04/202204200400MuteSwan.jpg)|
