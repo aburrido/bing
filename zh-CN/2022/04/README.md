@@ -21,3 +21,4 @@
 202204181600|PlitviceBoardwalk|十六湖国家公园，克罗地亚 (© Janne Kahila/Getty Images)|巴尔干湖上的木板路|![](/zh-CN/2022/04/202204181600PlitviceBoardwalk.jpg)|
 202204191600|MuteSwan|两只躲在妈妈尾羽下的疣鼻小天鹅，纽约长岛 (© Vicki Jauron/Getty Images)|美丽是天生的|![](/zh-CN/2022/04/202204191600MuteSwan.jpg)|
 202204201600|IcelandicSummer|在公路上吃草的绵羊，冰岛 (© Matthew Kuhns/Tandem Stills + Motion)|今天冰岛人在庆祝什么?|![](/zh-CN/2022/04/202204201600IcelandicSummer.jpg)|
+202204211600|EarthDay2022|卡鲁拉国家公园里的小湖，爱沙尼亚 (© Sven Zacek/Minden Pictures)|世界之眼|![](/zh-CN/2022/04/202204211600EarthDay2022.jpg)|
