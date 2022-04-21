@@ -20,3 +20,4 @@
 202204180400|SquareTowerHouse|Square Tower House dans le parc national de Mesa Verde, Colorado, États-Unis (© lightphoto/Getty Images)||![](/fr-CA/2022/04/202204180400SquareTowerHouse.jpg)|
 202204190400|PlitviceBoardwalk|Le parc national des lacs de Plitvice, Croatie (© Janne Kahila/Getty Images)||![](/fr-CA/2022/04/202204190400PlitviceBoardwalk.jpg)|
 202204200400|MuteSwan|Deux bébés cygnes muets sous l’aile de leur mère dans la réserve de Massapequa, Long Island, New York, États-Unis (© Vicki Jauron/Getty Images)||![](/fr-CA/2022/04/202204200400MuteSwan.jpg)|
+202204210400|IcelandicSummer|Moutons broutant le long d’une route, Islande (© Matthew Kuhns/Tandem Stills + Motion)||![](/fr-CA/2022/04/202204210400IcelandicSummer.jpg)|
