@@ -21,3 +21,4 @@
 202204181500|FujiSakura22|富士山と芝桜, 山梨県 富士河口湖町 (© Ruj Chuchaisangrat/Getty Images)|「富士芝桜まつり」開催中|![](/ja-JP/2022/04/202204181500FujiSakura22.jpg)|
 202204191500|MuteSwan|コブハクチョウのヒナ, 米国 ニューヨーク州 (© Vicki Jauron/Getty Images)|かわいいハクチョウの子|![](/ja-JP/2022/04/202204191500MuteSwan.jpg)|
 202204201500|IcelandicSummer|青い山と羊たち, アイスランド (© Matthew Kuhns/Tandem Stills + Motion)|夏を迎えたアイスランド|![](/ja-JP/2022/04/202204201500IcelandicSummer.jpg)|
+202204211500|EarthDay2022|カルラ国立公園の湖, エストニア  (© Sven Zacek/Minden Pictures)|今日は「アースデイ」|![](/ja-JP/2022/04/202204211500EarthDay2022.jpg)|
