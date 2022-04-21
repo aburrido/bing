@@ -21,3 +21,4 @@
 202204182200|IrrgartenTeichland|Irrgarten im Erlebnispark Teichland, Brandenburg (© Naturfoto-Online/Alamy)|Finden Sie den Weg in die Mitte?|![](/de-DE/2022/04/202204182200IrrgartenTeichland.jpg)|
 202204192200|MuteSwan|Zwei Höckerschwan-Küken suchen Schutz unter den Schwanzfedern ihrer Mutter im Massapequa Reserve, Long Island, New York, USA (© Vicki Jauron/Getty Images)|Schönheiten sind geboren|![](/de-DE/2022/04/202204192200MuteSwan.jpg)|
 202204202200|IcelandicSummer|Grasende Schafe, Island (© Matthew Kuhns/Tandem Stills + Motion)|Was feiern die Isländer heute?|![](/de-DE/2022/04/202204202200IcelandicSummer.jpg)|
+202204212200|EarthDay2022|Kleiner See im Karula-Nationalpark, Valgamaa, Estland (© Sven Zacek/Minden Pictures)|Das Auge der Welt|![](/de-DE/2022/04/202204212200EarthDay2022.jpg)|

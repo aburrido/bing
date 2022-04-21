@@ -21,3 +21,4 @@
 202204182200|PlitviceBoardwalk|Le parc national des lacs de Plitvice, Croatie (© Janne Kahila/Getty Images)|La Croatie sous un autre angle|![](/fr-FR/2022/04/202204182200PlitviceBoardwalk.jpg)|
 202204192200|MuteSwan|Deux bébés cygnes muets sous l’aile de leur mère dans la réserve de Massapequa, Long Island, New York, États-Unis (© Vicki Jauron/Getty Images)|Beauté précoce|![](/fr-FR/2022/04/202204192200MuteSwan.jpg)|
 202204202200|Caracal|Petits caracals (© Marion Vollborn/Minden Pictures)|Chatons d’Afrique|![](/fr-FR/2022/04/202204202200Caracal.jpg)|
+202204212200|BookFair|Livres anciens à Dijon, Bourgogne (© Jim Engelbrecht/DanitaDelimont.com)|Tant de livres à lire|![](/fr-FR/2022/04/202204212200BookFair.jpg)|
