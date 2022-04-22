@@ -21,3 +21,4 @@
 202204190400|PlitviceBoardwalk|Plitvice Lakes National Park, Croatia (© Janne Kahila/Getty Images)|Boardwalk over Balkan lakes|![](/en-CA/2022/04/202204190400PlitviceBoardwalk.jpg)|
 202204200400|MuteSwan|Two mute swan chicks shelter under mom's tail feathers at Massapequa Preserve, Long Island, New York (© Vicki Jauron/Getty Images)|Beauties are born|![](/en-CA/2022/04/202204200400MuteSwan.jpg)|
 202204210400|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating today?|![](/en-CA/2022/04/202204210400IcelandicSummer.jpg)|
+202204220400|EarthDay2022|Small lake in Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Eye of the world|![](/en-CA/2022/04/202204220400EarthDay2022.jpg)|
