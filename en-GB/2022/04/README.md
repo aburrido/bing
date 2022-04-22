@@ -22,3 +22,4 @@
 202204192300|AZBend|Horseshoe Bend, Arizona, USA (© Michael Dunn/Getty Images)|Does this horseshoe bring good luck?|![](/en-GB/2022/04/202204192300AZBend.jpg)|
 202204202300|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating?|![](/en-GB/2022/04/202204202300IcelandicSummer.jpg)|
 202204212300|EarthDay2022|Small lake in Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Eye of the world|![](/en-GB/2022/04/202204212300EarthDay2022.jpg)|
+202204222300|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|House of the dragon|![](/en-GB/2022/04/202204222300BatlloJordi.jpg)|
