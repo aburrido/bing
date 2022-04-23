@@ -23,3 +23,4 @@
 202204201500|IcelandicSummer|青い山と羊たち, アイスランド (© Matthew Kuhns/Tandem Stills + Motion)|夏を迎えたアイスランド|![](/ja-JP/2022/04/202204201500IcelandicSummer.jpg)|
 202204211500|EarthDay2022|カルラ国立公園の湖, エストニア  (© Sven Zacek/Minden Pictures)|今日は「アースデイ」|![](/ja-JP/2022/04/202204211500EarthDay2022.jpg)|
 202204221500|TheEye|天津浜海新区図書館, 中国 天津市 (© Imaginechina Limited/Alamy)|今日は「世界本の日」|![](/ja-JP/2022/04/202204221500TheEye.jpg)|
+202204231500|HirosakiSakura|弘前公園の桜, 青森 (© Martin Bailey/Offset/Shutterstock)|「弘前さくらまつり」開催中|![](/ja-JP/2022/04/202204231500HirosakiSakura.jpg)|
