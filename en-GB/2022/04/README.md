@@ -23,3 +23,4 @@
 202204202300|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating?|![](/en-GB/2022/04/202204202300IcelandicSummer.jpg)|
 202204212300|EarthDay2022|Small lake in Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Eye of the world|![](/en-GB/2022/04/202204212300EarthDay2022.jpg)|
 202204222300|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|House of the dragon|![](/en-GB/2022/04/202204222300BatlloJordi.jpg)|
+202204232300|GreatRidge|The Great Ridge, Peak District National Park, Castleton, Derbyshire. (© John Finney Photography/Getty Images)|Celebrating the right to roam|![](/en-GB/2022/04/202204232300GreatRidge.jpg)|
