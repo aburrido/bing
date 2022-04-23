@@ -23,3 +23,4 @@
 202204202200|IcelandicSummer|Grasende Schafe, Island (© Matthew Kuhns/Tandem Stills + Motion)|Was feiern die Isländer heute?|![](/de-DE/2022/04/202204202200IcelandicSummer.jpg)|
 202204212200|EarthDay2022|Kleiner See im Karula-Nationalpark, Valgamaa, Estland (© Sven Zacek/Minden Pictures)|Das Auge der Welt|![](/de-DE/2022/04/202204212200EarthDay2022.jpg)|
 202204222200|TheEye|Binhai-Bibliothek in Tianjin, Volksrepublik China (© Imaginechina Limited/Alamy)|Sehen und gesehen werden|![](/de-DE/2022/04/202204222200TheEye.jpg)|
+202204232200|YosemiteNightSky|Die Milchstraße über dem Half Dome im Yosemite-Nationalpark, Kalifornien, USA (© Cory Marshall/Tandem Stills + Motion)|Könnten Sie das Licht ausmachen?|![](/de-DE/2022/04/202204232200YosemiteNightSky.jpg)|

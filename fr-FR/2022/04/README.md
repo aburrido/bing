@@ -23,3 +23,4 @@
 202204202200|Caracal|Petits caracals (© Marion Vollborn/Minden Pictures)|Chatons d’Afrique|![](/fr-FR/2022/04/202204202200Caracal.jpg)|
 202204212200|BookFair|Livres anciens à Dijon, Bourgogne (© Jim Engelbrecht/DanitaDelimont.com)|Tant de livres à lire|![](/fr-FR/2022/04/202204212200BookFair.jpg)|
 202204222200|TheEye|Bibliothèque Tianjin Binhai à Tianjin, Chine (© Imaginechina Limited/Alamy)|Le pouvoir des mots|![](/fr-FR/2022/04/202204222200TheEye.jpg)|
+202204232200|Bourges|Rone (Erwan Castex) sur la scène du Printemps de Bourges, le 25 avril 2018 (© Edmond Sadaka Edmond/Sipa/shutterstock)|La sortie des artistes|![](/fr-FR/2022/04/202204232200Bourges.jpg)|
