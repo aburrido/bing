@@ -23,3 +23,4 @@
 202204201600|IcelandicSummer|在公路上吃草的绵羊，冰岛 (© Matthew Kuhns/Tandem Stills + Motion)|今天冰岛人在庆祝什么?|![](/zh-CN/2022/04/202204201600IcelandicSummer.jpg)|
 202204211600|EarthDay2022|卡鲁拉国家公园里的小湖，爱沙尼亚 (© Sven Zacek/Minden Pictures)|世界之眼|![](/zh-CN/2022/04/202204211600EarthDay2022.jpg)|
 202204221600|VictoriaMemorialKolkata|维多利亚纪念堂，印度加尔各答 (© Roop_Dey/Shutterstock)|一座献给皇室的纪念堂|![](/zh-CN/2022/04/202204221600VictoriaMemorialKolkata.jpg)|
+202204231600|YosemiteNightSky|半穹顶景观点上空的银河，优胜美地国家公园，加利福尼亚州 (© Cory Marshall/Tandem Stills + Motion)|你能把灯关掉吗?|![](/zh-CN/2022/04/202204231600YosemiteNightSky.jpg)|
