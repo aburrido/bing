@@ -24,3 +24,4 @@
 202204200700|MuteSwan|Mute swan chicks shelter under mom's tail feathers, Massapequa Preserve, Long Island, New York (© Vicki Jauron/Getty Images)|Beauties are born|![](/en-US/2022/04/202204200700MuteSwan.jpg)|
 202204210700|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating today?|![](/en-US/2022/04/202204210700IcelandicSummer.jpg)|
 202204220700|EarthDay2022|Small lake in Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Eye of the world|![](/en-US/2022/04/202204220700EarthDay2022.jpg)|
+202204230700|TheEye|Tianjin Binhai New Area Library in Tianjin, China (© Imaginechina Limited/Alamy)|See and be seen|![](/en-US/2022/04/202204230700TheEye.jpg)|
