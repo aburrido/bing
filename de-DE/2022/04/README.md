@@ -24,3 +24,4 @@
 202204212200|EarthDay2022|Kleiner See im Karula-Nationalpark, Valgamaa, Estland (© Sven Zacek/Minden Pictures)|Das Auge der Welt|![](/de-DE/2022/04/202204212200EarthDay2022.jpg)|
 202204222200|TheEye|Binhai-Bibliothek in Tianjin, Volksrepublik China (© Imaginechina Limited/Alamy)|Sehen und gesehen werden|![](/de-DE/2022/04/202204222200TheEye.jpg)|
 202204232200|YosemiteNightSky|Die Milchstraße über dem Half Dome im Yosemite-Nationalpark, Kalifornien, USA (© Cory Marshall/Tandem Stills + Motion)|Könnten Sie das Licht ausmachen?|![](/de-DE/2022/04/202204232200YosemiteNightSky.jpg)|
+202204242200|RotbucheHalloh|Rotbuchen im Hutewald Halloh bei Albertshausen, Bad Wildungen, Hessen (© Christian Bäck/Huber/eStock Photo)|Willkommen im Hutewald!|![](/de-DE/2022/04/202204242200RotbucheHalloh.jpg)|
