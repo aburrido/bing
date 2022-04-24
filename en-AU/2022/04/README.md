@@ -25,3 +25,4 @@
 202204210700|IcelandicSummer|Iceland (© Matthew Kuhns/Tandem Stills + Motion)|Info|![](/en-AU/2022/04/202204210700IcelandicSummer.jpg)|
 202204220700|EarthDay2022|Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Info|![](/en-AU/2022/04/202204220700EarthDay2022.jpg)|
 202204230700|VictoriaMemorialKolkata|Victoria Memorial, Kolkata, India (© Roop_Dey/Shutterstock)|Info|![](/en-AU/2022/04/202204230700VictoriaMemorialKolkata.jpg)|
+202204240700|YosemiteNightSky|Milky Way, Yosemite National Park, California, USA (© Cory Marshall/Tandem Stills + Motion)|Info|![](/en-AU/2022/04/202204240700YosemiteNightSky.jpg)|
