@@ -23,3 +23,4 @@
 202204210400|IcelandicSummer|Sheep graze along a road, Iceland (© Matthew Kuhns/Tandem Stills + Motion)|What are Icelanders celebrating today?|![](/en-CA/2022/04/202204210400IcelandicSummer.jpg)|
 202204220400|EarthDay2022|Small lake in Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Eye of the world|![](/en-CA/2022/04/202204220400EarthDay2022.jpg)|
 202204230400|TheEye|Tianjin Binhai New Area Library in Tianjin, China (© Imaginechina Limited/Alamy)|See and be seen|![](/en-CA/2022/04/202204230400TheEye.jpg)|
+202204240400|YosemiteNightSky|Milky Way rising above Half Dome in Yosemite National Park, California (© Cory Marshall/Tandem Stills + Motion)|Could you turn off the lights?|![](/en-CA/2022/04/202204240400YosemiteNightSky.jpg)|

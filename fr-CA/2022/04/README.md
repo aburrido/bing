@@ -23,3 +23,4 @@
 202204210400|IcelandicSummer|Moutons broutant le long d’une route, Islande (© Matthew Kuhns/Tandem Stills + Motion)||![](/fr-CA/2022/04/202204210400IcelandicSummer.jpg)|
 202204220400|EarthDay2022|Petit lac dans le parc national de Karula, comté de Valga, Estonie (© Sven Zacek/Minden Pictures)||![](/fr-CA/2022/04/202204220400EarthDay2022.jpg)|
 202204230400|VictoriaMemorialKolkata|Le Victoria Memorial, Kolkata, Inde (© Roop_Dey/Shutterstock)||![](/fr-CA/2022/04/202204230400VictoriaMemorialKolkata.jpg)|
+202204240400|YosemiteNightSky|La Voie Lactée au-dessus de Half Dome dans le parc national de Yosemite, États-Unis (© Cory Marshall/Tandem Stills + Motion)||![](/fr-CA/2022/04/202204240400YosemiteNightSky.jpg)|
