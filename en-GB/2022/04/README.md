@@ -25,3 +25,4 @@
 202204222300|BatlloJordi|Casa Batlló in Barcelona, Catalonia, Spain (© Marco Arduino/Sime/eStock Photo)|House of the dragon|![](/en-GB/2022/04/202204222300BatlloJordi.jpg)|
 202204232300|GreatRidge|The Great Ridge, Peak District National Park, Castleton, Derbyshire. (© John Finney Photography/Getty Images)|Celebrating the right to roam|![](/en-GB/2022/04/202204232300GreatRidge.jpg)|
 202204242300|ThreeKings|Three king penguins on the shore of St Andrew's Bay, South Georgia Island (© Paul Souders/Getty Images)|King confab|![](/en-GB/2022/04/202204242300ThreeKings.jpg)|
+202204252300|WhangareiFalls|Whangarei Falls, Whangarei Scenic Reserve on North Island, New Zealand (© Nathan Kavumbura/Getty Images)|Pretty as a picnic|![](/en-GB/2022/04/202204252300WhangareiFalls.jpg)|
