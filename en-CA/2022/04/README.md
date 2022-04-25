@@ -24,3 +24,4 @@
 202204220400|EarthDay2022|Small lake in Karula National Park, Valgamaa County, Estonia (© Sven Zacek/Minden Pictures)|Eye of the world|![](/en-CA/2022/04/202204220400EarthDay2022.jpg)|
 202204230400|TheEye|Tianjin Binhai New Area Library in Tianjin, China (© Imaginechina Limited/Alamy)|See and be seen|![](/en-CA/2022/04/202204230400TheEye.jpg)|
 202204240400|YosemiteNightSky|Milky Way rising above Half Dome in Yosemite National Park, California (© Cory Marshall/Tandem Stills + Motion)|Could you turn off the lights?|![](/en-CA/2022/04/202204240400YosemiteNightSky.jpg)|
+202204250400|ThreeKings|Three king penguins on the shore of St. Andrew's Bay, South Georgia Island (© Paul Souders/Getty Images)|King confab|![](/en-CA/2022/04/202204250400ThreeKings.jpg)|
