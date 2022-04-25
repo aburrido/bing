@@ -25,3 +25,4 @@
 202204222200|TheEye|Bibliothèque Tianjin Binhai à Tianjin, Chine (© Imaginechina Limited/Alamy)|Le pouvoir des mots|![](/fr-FR/2022/04/202204222200TheEye.jpg)|
 202204232200|Bourges|Rone (Erwan Castex) sur la scène du Printemps de Bourges, le 25 avril 2018 (© Edmond Sadaka Edmond/Sipa/shutterstock)|La sortie des artistes|![](/fr-FR/2022/04/202204232200Bourges.jpg)|
 202204242200|ThreeKings|Trois manchots royaux sur la baie de Saint Andrews, Georgie du Sud (© Paul Souders/Getty Images)|À la gloire des manchots|![](/fr-FR/2022/04/202204242200ThreeKings.jpg)|
+202204252200|Moulin|Ancien moulin à vent en pierre dans un champ d’olives et la Méditerranée en arrière-plan, France (© Damocean/iStock/Getty Images Plus)|Vestige patrimonial|![](/fr-FR/2022/04/202204252200Moulin.jpg)|
