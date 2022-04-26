@@ -26,3 +26,4 @@
 202204232300|GreatRidge|The Great Ridge, Peak District National Park, Castleton, Derbyshire. (© John Finney Photography/Getty Images)|Celebrating the right to roam|![](/en-GB/2022/04/202204232300GreatRidge.jpg)|
 202204242300|ThreeKings|Three king penguins on the shore of St Andrew's Bay, South Georgia Island (© Paul Souders/Getty Images)|King confab|![](/en-GB/2022/04/202204242300ThreeKings.jpg)|
 202204252300|WhangareiFalls|Whangarei Falls, Whangarei Scenic Reserve on North Island, New Zealand (© Nathan Kavumbura/Getty Images)|Pretty as a picnic|![](/en-GB/2022/04/202204252300WhangareiFalls.jpg)|
+202204262300|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-GB/2022/04/202204262300SvalbardSun.jpg)|
