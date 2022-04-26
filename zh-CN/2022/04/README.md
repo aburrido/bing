@@ -26,3 +26,4 @@
 202204231600|YosemiteNightSky|半穹顶景观点上空的银河，优胜美地国家公园，加利福尼亚州 (© Cory Marshall/Tandem Stills + Motion)|你能把灯关掉吗?|![](/zh-CN/2022/04/202204231600YosemiteNightSky.jpg)|
 202204241600|ThreeKings|圣安德鲁斯湾岸边的三只王企鹅，南乔治亚岛 (© Paul Souders/Getty Images)|国王会议|![](/zh-CN/2022/04/202204241600ThreeKings.jpg)|
 202204251600|Hunebourg|下莱茵省的胡内城堡，法国阿尔萨斯大区 (© Leonid Andronov/Alamy)|12世纪的历史遗迹|![](/zh-CN/2022/04/202204251600Hunebourg.jpg)|
+202204261600|SvalbardSun|午夜的太阳，挪威斯瓦尔巴群岛 (© Nature Picture Library/Alamy)|无尽的夏夜|![](/zh-CN/2022/04/202204261600SvalbardSun.jpg)|
