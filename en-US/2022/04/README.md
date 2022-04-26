@@ -27,3 +27,4 @@
 202204230700|TheEye|Tianjin Binhai New Area Library in Tianjin, China (© Imaginechina Limited/Alamy)|See and be seen|![](/en-US/2022/04/202204230700TheEye.jpg)|
 202204240700|YosemiteNightSky|Milky Way rising above Half Dome in Yosemite National Park, California (© Cory Marshall/Tandem Stills + Motion)|Could you turn off the lights?|![](/en-US/2022/04/202204240700YosemiteNightSky.jpg)|
 202204250700|ThreeKings|Three king penguins on the shore of St. Andrew's Bay, South Georgia Island (© Paul Souders/Getty Images)|King confab|![](/en-US/2022/04/202204250700ThreeKings.jpg)|
+202204260700|WalkingCentral|Central Park, New York City (© Tony Shi Photography/Getty Images)|An oasis in the city|![](/en-US/2022/04/202204260700WalkingCentral.jpg)|
