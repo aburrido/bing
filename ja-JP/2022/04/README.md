@@ -27,3 +27,4 @@
 202204241500|ThreeKings|オウサマペンギン, サウス・ジョージア島 (© Paul Souders/Getty Images)|今日は「世界ペンギンの日」|![](/ja-JP/2022/04/202204241500ThreeKings.jpg)|
 202204251500|YosemiteNightSky|ヨセミテ国立公園の銀河, 米国 カリフォルニア州 (© Cory Marshall/Tandem Stills + Motion)|今週は「国際ダークスカイウィーク」|![](/ja-JP/2022/04/202204251500YosemiteNightSky.jpg)|
 202204261500|KitesWAMon|ブロッサム・カイト・フェスティバル, 米国 ワシントンDC (© Blue Tiger/Shutterstock)|ワシントンの凧揚げフェスティバル|![](/ja-JP/2022/04/202204261500KitesWAMon.jpg)|
+202204271500|Kawachi|河内藤園, 福岡県 北九州市 (© Steve Tan C K Photography/Getty Images)|北九州が誇る藤の名所|![](/ja-JP/2022/04/202204271500Kawachi.jpg)|
