@@ -28,3 +28,4 @@
 202204240700|YosemiteNightSky|Milky Way rising above Half Dome in Yosemite National Park, California (© Cory Marshall/Tandem Stills + Motion)|Could you turn off the lights?|![](/en-US/2022/04/202204240700YosemiteNightSky.jpg)|
 202204250700|ThreeKings|Three king penguins on the shore of St. Andrew's Bay, South Georgia Island (© Paul Souders/Getty Images)|King confab|![](/en-US/2022/04/202204250700ThreeKings.jpg)|
 202204260700|WalkingCentral|Central Park, New York City (© Tony Shi Photography/Getty Images)|An oasis in the city|![](/en-US/2022/04/202204260700WalkingCentral.jpg)|
+202204270700|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-US/2022/04/202204270700SvalbardSun.jpg)|
