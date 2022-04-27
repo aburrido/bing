@@ -26,3 +26,4 @@
 202204240400|YosemiteNightSky|La Voie Lactée au-dessus de Half Dome dans le parc national de Yosemite, États-Unis (© Cory Marshall/Tandem Stills + Motion)||![](/fr-CA/2022/04/202204240400YosemiteNightSky.jpg)|
 202204250400|ThreeKings|Trois manchots royaux sur la baie de Saint Andrews, Georgie du Sud (© Paul Souders/Getty Images)||![](/fr-CA/2022/04/202204250400ThreeKings.jpg)|
 202204260400|Hunebourg|Château de Hunebourg dans les Vosges, Bas-Rhin, Alsace, France (© Leonid Andronov/Alamy)||![](/fr-CA/2022/04/202204260400Hunebourg.jpg)|
+202204270400|SvalbardSun|Soleil de minuit dans le Svalbard, Norvège (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/04/202204270400SvalbardSun.jpg)|
