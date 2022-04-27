@@ -27,3 +27,4 @@
 202204241600|ThreeKings|圣安德鲁斯湾岸边的三只王企鹅，南乔治亚岛 (© Paul Souders/Getty Images)|国王会议|![](/zh-CN/2022/04/202204241600ThreeKings.jpg)|
 202204251600|Hunebourg|下莱茵省的胡内城堡，法国阿尔萨斯大区 (© Leonid Andronov/Alamy)|12世纪的历史遗迹|![](/zh-CN/2022/04/202204251600Hunebourg.jpg)|
 202204261600|SvalbardSun|午夜的太阳，挪威斯瓦尔巴群岛 (© Nature Picture Library/Alamy)|无尽的夏夜|![](/zh-CN/2022/04/202204261600SvalbardSun.jpg)|
+202204271600|GreatRidge|大脊山，英格兰峰区国家公园 (© John Finney Photography/Moment/Getty Images)|庆祝漫游权|![](/zh-CN/2022/04/202204271600GreatRidge.jpg)|
