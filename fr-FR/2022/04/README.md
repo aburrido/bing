@@ -27,3 +27,4 @@
 202204242200|ThreeKings|Trois manchots royaux sur la baie de Saint Andrews, Georgie du Sud (© Paul Souders/Getty Images)|À la gloire des manchots|![](/fr-FR/2022/04/202204242200ThreeKings.jpg)|
 202204252200|Moulin|Ancien moulin à vent en pierre dans un champ d’olives et la Méditerranée en arrière-plan, France (© Damocean/iStock/Getty Images Plus)|Vestige patrimonial|![](/fr-FR/2022/04/202204252200Moulin.jpg)|
 202204262200|SvalbardSun|Soleil de minuit dans le Svalbard, Norvège (© Nature Picture Library/Alamy)|Soleil de minuit|![](/fr-FR/2022/04/202204262200SvalbardSun.jpg)|
+202204272200|FoxSkills|Renardeaux roux s’entrainant à sauter, Québec, Canada (© Vlad Kamenski/Shutterstock)|L’heure d’apprendre|![](/fr-FR/2022/04/202204272200FoxSkills.jpg)|
