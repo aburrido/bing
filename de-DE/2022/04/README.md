@@ -28,3 +28,4 @@
 202204252200|WalkingCentral|Central Park, New York City, USA (© Tony Shi Photography/Getty Images)|Eine Oase in der Stadt|![](/de-DE/2022/04/202204252200WalkingCentral.jpg)|
 202204262200|SvalbardSun|Mitternachtssonne auf Spitzbergen, Norwegen (© Nature Picture Library/Alamy)|Endloser Sommer|![](/de-DE/2022/04/202204262200SvalbardSun.jpg)|
 202204272200|FoxSkills|Fuchsjunge beim Einüben ihrer Jagdfähigkeiten, Quebec, Kanada (© Vlad Kamenski/Shutterstock)|Immer schön fleißig weiterüben, kleiner Kerl!|![](/de-DE/2022/04/202204272200FoxSkills.jpg)|
+202204282200|RedwoodSprout|Spross eines Riesenmammutbaums auf einem alten Baumstamm, Prairie Creek Redwood State Park, Kalifornien, USA (© Hutch Axilrod/Getty Images)|Ein Spross mit enormem Potenzial|![](/de-DE/2022/04/202204282200RedwoodSprout.jpg)|

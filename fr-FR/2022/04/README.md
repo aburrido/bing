@@ -28,3 +28,4 @@
 202204252200|Moulin|Ancien moulin à vent en pierre dans un champ d’olives et la Méditerranée en arrière-plan, France (© Damocean/iStock/Getty Images Plus)|Vestige patrimonial|![](/fr-FR/2022/04/202204252200Moulin.jpg)|
 202204262200|SvalbardSun|Soleil de minuit dans le Svalbard, Norvège (© Nature Picture Library/Alamy)|Soleil de minuit|![](/fr-FR/2022/04/202204262200SvalbardSun.jpg)|
 202204272200|FoxSkills|Renardeaux roux s’entrainant à sauter, Québec, Canada (© Vlad Kamenski/Shutterstock)|L’heure d’apprendre|![](/fr-FR/2022/04/202204272200FoxSkills.jpg)|
+202204282200|RedwoodSprout|Un jeune sequoia géant poussant sur une vieille bûche dans le Parc d'État de Prairie Creek, Californie, États-Unis (© Hutch Axilrod/Getty Images)|Faire respirer la planète|![](/fr-FR/2022/04/202204282200RedwoodSprout.jpg)|
