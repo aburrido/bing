@@ -28,3 +28,4 @@
 202204252300|WhangareiFalls|Whangarei Falls, Whangarei Scenic Reserve on North Island, New Zealand (© Nathan Kavumbura/Getty Images)|Pretty as a picnic|![](/en-GB/2022/04/202204252300WhangareiFalls.jpg)|
 202204262300|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-GB/2022/04/202204262300SvalbardSun.jpg)|
 202204272300|EileanNaMoine|Dawn light on Eilean Na Mòine island, Loch Eilt, Scotland (© Lilly Husbands/Offset)|A magical resting place|![](/en-GB/2022/04/202204272300EileanNaMoine.jpg)|
+202204282300|RedwoodSprout|A young giant sequoia sprouting out of an old log in Prairie Creek Redwoods State Park, California, USA (© Hutch Axilrod/Getty Images)|The sprout with amazing potential|![](/en-GB/2022/04/202204282300RedwoodSprout.jpg)|
