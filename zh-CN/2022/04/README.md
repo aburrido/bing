@@ -28,3 +28,4 @@
 202204251600|Hunebourg|下莱茵省的胡内城堡，法国阿尔萨斯大区 (© Leonid Andronov/Alamy)|12世纪的历史遗迹|![](/zh-CN/2022/04/202204251600Hunebourg.jpg)|
 202204261600|SvalbardSun|午夜的太阳，挪威斯瓦尔巴群岛 (© Nature Picture Library/Alamy)|无尽的夏夜|![](/zh-CN/2022/04/202204261600SvalbardSun.jpg)|
 202204271600|GreatRidge|大脊山，英格兰峰区国家公园 (© John Finney Photography/Moment/Getty Images)|庆祝漫游权|![](/zh-CN/2022/04/202204271600GreatRidge.jpg)|
+202204281600|RedwoodSprout|巨型红杉的小萌芽，加利福尼亚州 (© Hutch Axilrod/Getty Images)|潜力惊人的萌芽|![](/zh-CN/2022/04/202204281600RedwoodSprout.jpg)|
