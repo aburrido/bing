@@ -27,3 +27,4 @@
 202204250400|ThreeKings|Three king penguins on the shore of St. Andrew's Bay, South Georgia Island (© Paul Souders/Getty Images)|King confab|![](/en-CA/2022/04/202204250400ThreeKings.jpg)|
 202204260400|PerceRockGaspe|Percé Rock off the Gaspé Peninsula, Quebec (© Design Pics/DanitaDelimont.com)|A symbol of Gaspé Peninsula|![](/en-CA/2022/04/202204260400PerceRockGaspe.jpg)|
 202204270400|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-CA/2022/04/202204270400SvalbardSun.jpg)|
+202204280400|FoxSkills|Fox kits practice their hunting skills, Quebec (© Vlad Kamenski/Shutterstock)|Keep practicing, little guy|![](/en-CA/2022/04/202204280400FoxSkills.jpg)|

@@ -27,3 +27,4 @@
 202204250400|ThreeKings|Trois manchots royaux sur la baie de Saint Andrews, Georgie du Sud (© Paul Souders/Getty Images)||![](/fr-CA/2022/04/202204250400ThreeKings.jpg)|
 202204260400|Hunebourg|Château de Hunebourg dans les Vosges, Bas-Rhin, Alsace, France (© Leonid Andronov/Alamy)||![](/fr-CA/2022/04/202204260400Hunebourg.jpg)|
 202204270400|SvalbardSun|Soleil de minuit dans le Svalbard, Norvège (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/04/202204270400SvalbardSun.jpg)|
+202204280400|GreatRidge|La Great Ridge (grande arrête) dans le Peak District, Angleterre (© John Finney Photography/Moment/Getty Images)|Information|![](/fr-CA/2022/04/202204280400GreatRidge.jpg)|
