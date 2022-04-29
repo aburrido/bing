@@ -29,3 +29,4 @@
 202204261830|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-IN/2022/04/202204261830SvalbardSun.jpg)|
 202204271830|ElephantJimCorbett|Elephant heard walking the plains in Jim Corbett National Park in India (© Shutterstock)|True masters of the jungle|![](/en-IN/2022/04/202204271830ElephantJimCorbett.jpg)|
 202204281830|RedwoodSprout|A young giant sequoia sprouting out of an old log in Prairie Creek Redwoods State Park, California (© Hutch Axilrod/Getty Images)|The sprout with amazing potential|![](/en-IN/2022/04/202204281830RedwoodSprout.jpg)|
+202204291830|NorthBeachJazz|The North Beach Jazz Mural created by Bay Area artist Bill Weber in San Francisco (© Kosso/Getty Images)|Get in tune with International Jazz Day|![](/en-IN/2022/04/202204291830NorthBeachJazz.jpg)|
