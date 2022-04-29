@@ -30,3 +30,4 @@
 202204260700|Hunebourg|Château de Hunebourg, Bas-Rhin, Alsace, France (© Leonid Andronov/Alamy)|Info|![](/en-AU/2022/04/202204260700Hunebourg.jpg)|
 202204270700|SvalbardSun|Midnight sun, Svalbard, Norway (© Nature Picture Library/Alamy)|Info|![](/en-AU/2022/04/202204270700SvalbardSun.jpg)|
 202204280700|GreatRidge|The Great Ridge, Peak District National Park, England (© John Finney Photography/Moment/Getty Images)|Info|![](/en-AU/2022/04/202204280700GreatRidge.jpg)|
+202204290700|RedwoodSprout|Young giant sequoia, Prairie Creek Redwoods State Park, California, USA (© Hutch Axilrod/Getty Images)|Info|![](/en-AU/2022/04/202204290700RedwoodSprout.jpg)|

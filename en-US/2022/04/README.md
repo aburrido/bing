@@ -30,3 +30,4 @@
 202204260700|WalkingCentral|Central Park, New York City (© Tony Shi Photography/Getty Images)|An oasis in the city|![](/en-US/2022/04/202204260700WalkingCentral.jpg)|
 202204270700|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-US/2022/04/202204270700SvalbardSun.jpg)|
 202204280700|FoxSkills|Fox kits practice their hunting skills, Quebec, Canada (© Vlad Kamenski/Shutterstock)|Keep practicing, little guy|![](/en-US/2022/04/202204280700FoxSkills.jpg)|
+202204290700|RedwoodSprout|A young coast redwood sprouting out of an old log in Prairie Creek Redwoods State Park, California (© Hutch Axilrod/Getty Images)|The sprout with amazing potential|![](/en-US/2022/04/202204290700RedwoodSprout.jpg)|
