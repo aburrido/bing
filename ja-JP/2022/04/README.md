@@ -29,3 +29,4 @@
 202204261500|KitesWAMon|ブロッサム・カイト・フェスティバル, 米国 ワシントンDC (© Blue Tiger/Shutterstock)|ワシントンの凧揚げフェスティバル|![](/ja-JP/2022/04/202204261500KitesWAMon.jpg)|
 202204271500|Kawachi|河内藤園, 福岡県 北九州市 (© Steve Tan C K Photography/Getty Images)|北九州が誇る藤の名所|![](/ja-JP/2022/04/202204271500Kawachi.jpg)|
 202204281500|FoxSkills|狩りの練習をする子ギツネ, カナダ ケベック州 (© Vlad Kamenski/Shutterstock)|ケベック州の自然とキツネたち|![](/ja-JP/2022/04/202204281500FoxSkills.jpg)|
+202204291500|NorthBeachJazz|ジャズ・ミューラル, 米国 カリフォルニア州 (© Kosso/Getty Images)|今日は「国際ジャズ・デー」|![](/ja-JP/2022/04/202204291500NorthBeachJazz.jpg)|
