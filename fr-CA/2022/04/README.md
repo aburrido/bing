@@ -28,3 +28,4 @@
 202204260400|Hunebourg|Château de Hunebourg dans les Vosges, Bas-Rhin, Alsace, France (© Leonid Andronov/Alamy)||![](/fr-CA/2022/04/202204260400Hunebourg.jpg)|
 202204270400|SvalbardSun|Soleil de minuit dans le Svalbard, Norvège (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/04/202204270400SvalbardSun.jpg)|
 202204280400|GreatRidge|La Great Ridge (grande arrête) dans le Peak District, Angleterre (© John Finney Photography/Moment/Getty Images)|Information|![](/fr-CA/2022/04/202204280400GreatRidge.jpg)|
+202204290400|RedwoodSprout|Un jeune sequoia géant poussant sur une vieille bûche dans le Parc d'État de Prairie Creek, Californie, États-Unis (© Hutch Axilrod/Getty Images)|Information|![](/fr-CA/2022/04/202204290400RedwoodSprout.jpg)|
