@@ -30,3 +30,4 @@
 202204271600|GreatRidge|大脊山，英格兰峰区国家公园 (© John Finney Photography/Moment/Getty Images)|庆祝漫游权|![](/zh-CN/2022/04/202204271600GreatRidge.jpg)|
 202204281600|RedwoodSprout|巨型红杉的小萌芽，加利福尼亚州 (© Hutch Axilrod/Getty Images)|潜力惊人的萌芽|![](/zh-CN/2022/04/202204281600RedwoodSprout.jpg)|
 202204291600|WiedehopfElbe|正在投喂幼鸟的戴胜鸟，德国 (© Slawek Staszczuk/Alamy)|喂养时间到了|![](/zh-CN/2022/04/202204291600WiedehopfElbe.jpg)|
+202204301600|VanBlooms|盛开的金链花树和紫色葱属植物，加拿大温哥华范度森植物园 (© Greg Vaughn/Alamy)|一张来自春天的快照|![](/zh-CN/2022/04/202204301600VanBlooms.jpg)|
