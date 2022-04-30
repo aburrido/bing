@@ -30,3 +30,4 @@
 202204272200|FoxSkills|Fuchsjunge beim Einüben ihrer Jagdfähigkeiten, Quebec, Kanada (© Vlad Kamenski/Shutterstock)|Immer schön fleißig weiterüben, kleiner Kerl!|![](/de-DE/2022/04/202204272200FoxSkills.jpg)|
 202204282200|RedwoodSprout|Spross eines Riesenmammutbaums auf einem alten Baumstamm, Prairie Creek Redwood State Park, Kalifornien, USA (© Hutch Axilrod/Getty Images)|Ein Spross mit enormem Potenzial|![](/de-DE/2022/04/202204282200RedwoodSprout.jpg)|
 202204292200|NorthBeachJazz|Das North Beach Jazz-Wandbild des Bay Area-Künstlers Bill Weber, San Francisco, Kalifornien, USA (© Kosso/Getty Images)|Stimmen Sie sich auf den Tag des Jazz ein|![](/de-DE/2022/04/202204292200NorthBeachJazz.jpg)|
+202204302200|KirschblueteHamburg|Blühende Kirschbäume an der Binnenalster, Hamburg (© Kerstin Bittner/Westend61/Offset)|Frühling an der Binnenalster|![](/de-DE/2022/04/202204302200KirschblueteHamburg.jpg)|

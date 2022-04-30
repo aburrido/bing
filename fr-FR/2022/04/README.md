@@ -30,3 +30,4 @@
 202204272200|FoxSkills|Renardeaux roux s’entrainant à sauter, Québec, Canada (© Vlad Kamenski/Shutterstock)|L’heure d’apprendre|![](/fr-FR/2022/04/202204272200FoxSkills.jpg)|
 202204282200|RedwoodSprout|Un jeune sequoia géant poussant sur une vieille bûche dans le Parc d'État de Prairie Creek, Californie, États-Unis (© Hutch Axilrod/Getty Images)|Faire respirer la planète|![](/fr-FR/2022/04/202204282200RedwoodSprout.jpg)|
 202204292200|NorthBeachJazz|La fresque de North Beach Jazz créée par l’artiste Bill Weber à San Francisco, États-Unis (© Kosso/Getty Images)|Jazz time !|![](/fr-FR/2022/04/202204292200NorthBeachJazz.jpg)|
+202204302200|VanBlooms|Laburnum et alliums mauves dans le jardin botanique de VanDusen, Vancouver (© Greg Vaughn/Alamy)|Belles plantes !|![](/fr-FR/2022/04/202204302200VanBlooms.jpg)|
