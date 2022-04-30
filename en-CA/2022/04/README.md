@@ -29,3 +29,4 @@
 202204270400|SvalbardSun|Midnight sun in Svalbard, Norway (© Nature Picture Library/Alamy)|Endless summer|![](/en-CA/2022/04/202204270400SvalbardSun.jpg)|
 202204280400|FoxSkills|Fox kits practice their hunting skills, Quebec (© Vlad Kamenski/Shutterstock)|Keep practicing, little guy|![](/en-CA/2022/04/202204280400FoxSkills.jpg)|
 202204290400|RedwoodSprout|A young giant sequoia sprouting out of an old log in Prairie Creek Redwoods State Park, California (© Hutch Axilrod/Getty Images)|The sprout with amazing potential|![](/en-CA/2022/04/202204290400RedwoodSprout.jpg)|
+202204300400|NorthBeachJazz|The North Beach Jazz Mural created by artist Bill Weber in San Francisco (© Kosso/Getty Images)|Get in tune with International Jazz Day|![](/en-CA/2022/04/202204300400NorthBeachJazz.jpg)|

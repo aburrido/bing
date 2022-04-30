@@ -29,3 +29,4 @@
 202204270400|SvalbardSun|Soleil de minuit dans le Svalbard, Norvège (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/04/202204270400SvalbardSun.jpg)|
 202204280400|GreatRidge|La Great Ridge (grande arrête) dans le Peak District, Angleterre (© John Finney Photography/Moment/Getty Images)|Information|![](/fr-CA/2022/04/202204280400GreatRidge.jpg)|
 202204290400|RedwoodSprout|Un jeune sequoia géant poussant sur une vieille bûche dans le Parc d'État de Prairie Creek, Californie, États-Unis (© Hutch Axilrod/Getty Images)|Information|![](/fr-CA/2022/04/202204290400RedwoodSprout.jpg)|
+202204300400|WiedehopfElbe|Un upupa entrain de nourrir son oisillon dans la Réserve de biosphère du Moyen-Elbe, Allemagne (© Slawek Staszczuk/Alamy)|Information|![](/fr-CA/2022/04/202204300400WiedehopfElbe.jpg)|
