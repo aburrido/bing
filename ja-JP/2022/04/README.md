@@ -30,3 +30,4 @@
 202204271500|Kawachi|河内藤園, 福岡県 北九州市 (© Steve Tan C K Photography/Getty Images)|北九州が誇る藤の名所|![](/ja-JP/2022/04/202204271500Kawachi.jpg)|
 202204281500|FoxSkills|狩りの練習をする子ギツネ, カナダ ケベック州 (© Vlad Kamenski/Shutterstock)|ケベック州の自然とキツネたち|![](/ja-JP/2022/04/202204281500FoxSkills.jpg)|
 202204291500|NorthBeachJazz|ジャズ・ミューラル, 米国 カリフォルニア州 (© Kosso/Getty Images)|今日は「国際ジャズ・デー」|![](/ja-JP/2022/04/202204291500NorthBeachJazz.jpg)|
+202204301500|OcalaNF|ジュニパー・スプリングス, 米国 フロリダ州 (© Michael Warren/Getty Images)|オカラ国定森林の巨大な泉|![](/ja-JP/2022/04/202204301500OcalaNF.jpg)|
