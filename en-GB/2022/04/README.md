@@ -30,3 +30,4 @@
 202204272300|EileanNaMoine|Dawn light on Eilean Na Mòine island, Loch Eilt, Scotland (© Lilly Husbands/Offset)|A magical resting place|![](/en-GB/2022/04/202204272300EileanNaMoine.jpg)|
 202204282300|RedwoodSprout|A young giant sequoia sprouting out of an old log in Prairie Creek Redwoods State Park, California, USA (© Hutch Axilrod/Getty Images)|The sprout with amazing potential|![](/en-GB/2022/04/202204282300RedwoodSprout.jpg)|
 202204292300|NorthBeachJazz|The North Beach Jazz Mural by artist Bill Weber in San Francisco, USA (© Kosso/Getty Images)|Tune into International Jazz Day|![](/en-GB/2022/04/202204292300NorthBeachJazz.jpg)|
+202204302300|FoxSkills|Fox kits practise their hunting skills, Quebec, Canada (© Vlad Kamenski/Shutterstock)|Keep practising, little guy|![](/en-GB/2022/04/202204302300FoxSkills.jpg)|
