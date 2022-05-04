@@ -4,3 +4,4 @@
 202205011500|Hatchju22|和束の茶畑, 京都 (© Tuul and Bruno Morandi/Alamy Stock)|今日は「八十八夜」|![](/ja-JP/2022/05/202205011500Hatchju22.jpg)|
 202205021500|VanBlooms|キバナフジとアリウム・ギガンテウム, カナダ バンクーバー (© Greg Vaughn/Alamy)|初夏のバンデューセン植物園|![](/ja-JP/2022/05/202205021500VanBlooms.jpg)|
 202205031500|RedwoodSprout|セコイアの若芽, 米国 カリフォルニア州 (© Hutch Axilrod/Getty Images)|今日は「みどりの日」|![](/ja-JP/2022/05/202205031500RedwoodSprout.jpg)|
+202205041500|ChildrenDay2022|大正浪漫夢通りの鯉のぼり, 埼玉 川越市 (© Toa55/iStock/Getty Images Plusc)|今日は「こどもの日」|![](/ja-JP/2022/05/202205041500ChildrenDay2022.jpg)|
