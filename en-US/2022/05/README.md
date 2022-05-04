@@ -4,3 +4,4 @@
 202205010700|LeiDay|Dancers on the site of a lele (altar) on Mount Maunaloa, Molokai, Hawaii (© Alvis Upitis/Getty Images)|Sunrise at the birthplace of hula|![](/en-US/2022/05/202205010700LeiDay.jpg)|
 202205020700|TravertineTurkey|Travertine terraces of Pamukkale, Turkey (© bybostanci/Getty Images)|Heavenly hot springs|![](/en-US/2022/05/202205020700TravertineTurkey.jpg)|
 202205030700|DuckHen|Mandarin duck hen with ducklings in South Korea (© VDCM image/Getty Images)|This lesson is going swimmingly|![](/en-US/2022/05/202205030700DuckHen.jpg)|
+202205040700|WadiRum|Wadi Rum, Jordan (© Thomas Coex/AFP via Getty Images)|The sun sets on the Valley of the Moon|![](/en-US/2022/05/202205040700WadiRum.jpg)|
