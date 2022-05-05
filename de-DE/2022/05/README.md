@@ -5,3 +5,4 @@
 202205022200|DuckHen|Weibliche Mandarinente mit ihren Küken, Südkorea (© VDCM image/Getty Images)|Ausflug auf dem See|![](/de-DE/2022/05/202205022200DuckHen.jpg)|
 202205032200|WadiRum|Wadi Rum, Jordanien (© Thomas Coex/AFP via Getty Images)|Sonnenuntergang im „Tal des Mondes“|![](/de-DE/2022/05/202205032200WadiRum.jpg)|
 202205042200|JaliscoAgave|Baum inmitten Blauer Agaven in der Tequila-Region nahe Atotonilco, Jalisco, Mexiko (© Brian Overcast/Alamy)|Diese Sukkulente ist hier so gut wie Gold|![](/de-DE/2022/05/202205042200JaliscoAgave.jpg)|
+202205052200|HertfordshireBluebells|Atlantische Hasenglöckchen in einem Wald in Hertfordshire, England, Vereinigtes Königreich (© JayKay57/Getty Images)|Pfad durch ein Blütenmeer|![](/de-DE/2022/05/202205052200HertfordshireBluebells.jpg)|
