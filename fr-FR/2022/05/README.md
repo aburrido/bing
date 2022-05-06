@@ -6,3 +6,4 @@
 202205032200|WadiRum|Wadi Rum, Jordanie (© Thomas Coex/AFP via Getty Images)|Terre d’un autre monde ?|![](/fr-FR/2022/05/202205032200WadiRum.jpg)|
 202205042200|JaliscoAgave|Arbre dans un champ d’agaves près d’Atotonilco, Jalisco, Mexique (© Brian Overcast/Alamy)|Champ précieux|![](/fr-FR/2022/05/202205042200JaliscoAgave.jpg)|
 202205052200|HertfordshireBluebells|Sentier à travers une forêt tapissée de jacinthes, Hertfordshire, Angleterre (© JayKay57/Getty Images)|Tapis enchanté|![](/fr-FR/2022/05/202205052200HertfordshireBluebells.jpg)|
+202205062200|SwedishAntenna|Télescope suédois à l’observatoire de la Silla, Chili (© Alberto Ghizzi Panizza/Getty Images)|Plus près des étoiles|![](/fr-FR/2022/05/202205062200SwedishAntenna.jpg)|

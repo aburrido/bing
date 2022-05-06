@@ -6,3 +6,4 @@
 202205032200|WadiRum|Wadi Rum, Jordanien (© Thomas Coex/AFP via Getty Images)|Sonnenuntergang im „Tal des Mondes“|![](/de-DE/2022/05/202205032200WadiRum.jpg)|
 202205042200|JaliscoAgave|Baum inmitten Blauer Agaven in der Tequila-Region nahe Atotonilco, Jalisco, Mexiko (© Brian Overcast/Alamy)|Diese Sukkulente ist hier so gut wie Gold|![](/de-DE/2022/05/202205042200JaliscoAgave.jpg)|
 202205052200|HertfordshireBluebells|Atlantische Hasenglöckchen in einem Wald in Hertfordshire, England, Vereinigtes Königreich (© JayKay57/Getty Images)|Pfad durch ein Blütenmeer|![](/de-DE/2022/05/202205052200HertfordshireBluebells.jpg)|
+202205062200|GlassBridge|Glasbrücke Zhangjiajie, Provinz Hunan, Volksrepublik China (© MediaProduction/Getty Images)|Blick durch Glas – 260 Meter über dem Boden|![](/de-DE/2022/05/202205062200GlassBridge.jpg)|
