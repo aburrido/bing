@@ -6,3 +6,4 @@
 202205031600|TofinoOcean|托菲诺的麦肯齐海滩，加拿大不列颠哥伦比亚省 (© Robert Postma/Plainpicture/Design Pics)|太平洋的波涛|![](/zh-CN/2022/05/202205031600TofinoOcean.jpg)|
 202205041600|JaliscoAgave|蓝色龙舌兰田，墨西哥哈利斯科州龙舌兰酒产区 (© Brian Overcast/Alamy)|这种蓝色多汁的植物就像黄金一样珍贵|![](/zh-CN/2022/05/202205041600JaliscoAgave.jpg)|
 202205051600|HertfordshireBluebells|一条蜿蜒穿过开满蓝铃花森林的小径，英格兰赫特福德郡 (© JayKay57/Getty Images)|是否有胆量穿过这片蓝铃花丛？|![](/zh-CN/2022/05/202205051600HertfordshireBluebells.jpg)|
+202205061600|SwedishAntenna|拉西拉ESO天文台上的天文望远镜设备，智利 (© Alberto Ghizzi Panizza/Getty Images)|仰望夜空|![](/zh-CN/2022/05/202205061600SwedishAntenna.jpg)|
