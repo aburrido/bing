@@ -6,3 +6,4 @@
 202205031500|RedwoodSprout|セコイアの若芽, 米国 カリフォルニア州 (© Hutch Axilrod/Getty Images)|今日は「みどりの日」|![](/ja-JP/2022/05/202205031500RedwoodSprout.jpg)|
 202205041500|ChildrenDay2022|大正浪漫夢通りの鯉のぼり, 埼玉 川越市 (© Toa55/iStock/Getty Images Plusc)|今日は「こどもの日」|![](/ja-JP/2022/05/202205041500ChildrenDay2022.jpg)|
 202205051500|HertfordshireBluebells|イングリッシュ・ブルーベルの小径, イギリス  (© JayKay57/Getty Images)|ハートフォードシャーの妖精の森|![](/ja-JP/2022/05/202205051500HertfordshireBluebells.jpg)|
+202205061500|SwedishAntenna|ラ・シヤ天文台, チリ (© Alberto Ghizzi Panizza/Getty Images)|今日は「世界天文の日」|![](/ja-JP/2022/05/202205061500SwedishAntenna.jpg)|
