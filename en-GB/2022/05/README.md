@@ -6,3 +6,4 @@
 202205032300|WadiRum|Wadi Rum, Jordan (© Thomas Coex/AFP via Getty Images)|Sunset on the Valley of the Moon|![](/en-GB/2022/05/202205032300WadiRum.jpg)|
 202205042300|JaliscoAgave|Tree in blue agave field in the tequila producing region near Atotonilco, Jalisco, Mexico (© Brian Overcast/Alamy)|This blue succulent has spirit|![](/en-GB/2022/05/202205042300JaliscoAgave.jpg)|
 202205052300|HertfordshireBluebells|A path winding through a forest of bluebells in Hertfordshire (© JayKay57/Getty Images)|Bewitched by the fairy flower|![](/en-GB/2022/05/202205052300HertfordshireBluebells.jpg)|
+202205062300|SwedishAntenna|Swedish antenna at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-GB/2022/05/202205062300SwedishAntenna.jpg)|
