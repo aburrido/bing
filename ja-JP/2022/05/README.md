@@ -7,3 +7,4 @@
 202205041500|ChildrenDay2022|大正浪漫夢通りの鯉のぼり, 埼玉 川越市 (© Toa55/iStock/Getty Images Plusc)|今日は「こどもの日」|![](/ja-JP/2022/05/202205041500ChildrenDay2022.jpg)|
 202205051500|HertfordshireBluebells|イングリッシュ・ブルーベルの小径, イギリス  (© JayKay57/Getty Images)|ハートフォードシャーの妖精の森|![](/ja-JP/2022/05/202205051500HertfordshireBluebells.jpg)|
 202205061500|SwedishAntenna|ラ・シヤ天文台, チリ (© Alberto Ghizzi Panizza/Getty Images)|今日は「世界天文の日」|![](/ja-JP/2022/05/202205061500SwedishAntenna.jpg)|
+202205071500|MomJoey|コアラの母子, オーストラリア (© Suzi Eszterhas/Minden Pictures)|今日は「母の日」|![](/ja-JP/2022/05/202205071500MomJoey.jpg)|
