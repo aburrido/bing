@@ -7,3 +7,4 @@
 202205040700|Moulin|Ancient stone windmill, France (© Damocean/iStock/Getty Images Plus)|Info|![](/en-AU/2022/05/202205040700Moulin.jpg)|
 202205050700|JaliscoAgave|Blue agave field near Atotonilco, Jalisco, Mexico (© Brian Overcast/Alamy)|Info|![](/en-AU/2022/05/202205050700JaliscoAgave.jpg)|
 202205060700|HertfordshireBluebells|Bluebells, Hertfordshire, England (© JayKay57/Getty Images)|Info|![](/en-AU/2022/05/202205060700HertfordshireBluebells.jpg)|
+202205070700|SwedishAntenna|La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Info|![](/en-AU/2022/05/202205070700SwedishAntenna.jpg)|
