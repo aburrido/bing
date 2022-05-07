@@ -7,3 +7,4 @@
 202205041830|JaliscoAgave|Tree in blue agave field in the tequila producing region near Atotonilco, Jalisco, Mexico (© Brian Overcast/Alamy)|This blue succulent is as good as gold here|![](/en-IN/2022/05/202205041830JaliscoAgave.jpg)|
 202205051830|HertfordshireBluebells|A path winding through a forest of bluebells in Hertfordshire, England (© JayKay57/Getty Images)|Dare to tread through the fairy flower?|![](/en-IN/2022/05/202205051830HertfordshireBluebells.jpg)|
 202205061830|SwedishAntenna|Swedish antenna at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-IN/2022/05/202205061830SwedishAntenna.jpg)|
+202205071830|MomJoey|Koala mother and 8-month-old joey, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|For Mother’s Day, we salute these marsupial moms|![](/en-IN/2022/05/202205071830MomJoey.jpg)|
