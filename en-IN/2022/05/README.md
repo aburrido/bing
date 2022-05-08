@@ -8,3 +8,4 @@
 202205051830|HertfordshireBluebells|A path winding through a forest of bluebells in Hertfordshire, England (© JayKay57/Getty Images)|Dare to tread through the fairy flower?|![](/en-IN/2022/05/202205051830HertfordshireBluebells.jpg)|
 202205061830|SwedishAntenna|Swedish antenna at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-IN/2022/05/202205061830SwedishAntenna.jpg)|
 202205071830|MomJoey|Koala mother and 8-month-old joey, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|For Mother’s Day, we salute these marsupial moms|![](/en-IN/2022/05/202205071830MomJoey.jpg)|
+202205081830|JaisalmerFort|Jaisalmer Fort in sunset light in Rajasthan, India (© Getty Images)|The last living fort in India|![](/en-IN/2022/05/202205081830JaisalmerFort.jpg)|
