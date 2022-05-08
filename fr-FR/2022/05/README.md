@@ -8,3 +8,4 @@
 202205052200|HertfordshireBluebells|Sentier à travers une forêt tapissée de jacinthes, Hertfordshire, Angleterre (© JayKay57/Getty Images)|Tapis enchanté|![](/fr-FR/2022/05/202205052200HertfordshireBluebells.jpg)|
 202205062200|SwedishAntenna|Télescope suédois à l’observatoire de la Silla, Chili (© Alberto Ghizzi Panizza/Getty Images)|Plus près des étoiles|![](/fr-FR/2022/05/202205062200SwedishAntenna.jpg)|
 202205072200|PawneeOwls|Groupe de chouettes de terriers dans la Prairie nationale de Pawnee, Colorado, États (© Roberta Olenick/Alamy)|Une chouette vie|![](/fr-FR/2022/05/202205072200PawneeOwls.jpg)|
+202205082200|GoremeNationalPark|Vue de Göreme depuis une terrasse panoramique, Parc national de Göreme, Cappadoce, Turquie (© Anton Petrus/Getty Images)|Maisons improvisées|![](/fr-FR/2022/05/202205082200GoremeNationalPark.jpg)|

@@ -8,3 +8,4 @@
 202205052200|HertfordshireBluebells|Atlantische Hasenglöckchen in einem Wald in Hertfordshire, England, Vereinigtes Königreich (© JayKay57/Getty Images)|Pfad durch ein Blütenmeer|![](/de-DE/2022/05/202205052200HertfordshireBluebells.jpg)|
 202205062200|GlassBridge|Glasbrücke Zhangjiajie, Provinz Hunan, Volksrepublik China (© MediaProduction/Getty Images)|Blick durch Glas – 260 Meter über dem Boden|![](/de-DE/2022/05/202205062200GlassBridge.jpg)|
 202205072200|MomJoey|Koala-Mutter mit ihrem Jungen, Queensland, Australien (© Suzi Eszterhas/Minden Pictures)|Viele Grüße zum Muttertag!|![](/de-DE/2022/05/202205072200MomJoey.jpg)|
+202205082200|GoremeNationalPark|Blick von einer Aussichtsplattform auf Göreme, Göreme-Nationalpark, Kappadokien, Türkei (© Anton Petrus/Getty Images)|Lebende Felsen|![](/de-DE/2022/05/202205082200GoremeNationalPark.jpg)|
