@@ -7,3 +7,4 @@
 202205050400|JaliscoAgave|Arbre dans un champ d’agaves dans la région productrice de tequila près d’Atotonilco, Jalisco, Mexique (© Brian Overcast/Alamy)|Information|![](/fr-CA/2022/05/202205050400JaliscoAgave.jpg)|
 202205060400|HertfordshireBluebells|Sentier à travers une forêt tapissée de jacinthes, Hertfordshire, Angleterre (© JayKay57/Getty Images)|Information|![](/fr-CA/2022/05/202205060400HertfordshireBluebells.jpg)|
 202205070400|SwedishAntenna|Télescope suédois à l’observatoire de la Silla, Chili (© Alberto Ghizzi Panizza/Getty Images)|Information|![](/fr-CA/2022/05/202205070400SwedishAntenna.jpg)|
+202205080400|MomJoey|Maman Koala et son bébé de 8 mois, Queensland, Australie (© Suzi Eszterhas/Minden Pictures)|Information|![](/fr-CA/2022/05/202205080400MomJoey.jpg)|
