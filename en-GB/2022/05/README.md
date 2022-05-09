@@ -9,3 +9,4 @@
 202205062300|SwedishAntenna|Swedish antenna at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-GB/2022/05/202205062300SwedishAntenna.jpg)|
 202205072300|TeatroAntico|Ancient theatre of Taormina in Sicily, Italy (© Antonino Bartuccio/eStock Photo)|The play’s the thing|![](/en-GB/2022/05/202205072300TeatroAntico.jpg)|
 202205082300|GoremeNationalPark|View of Göreme from an observation deck, Göreme National Park, Cappadocia, Turkey (© Anton Petrus/Getty Images)|Living rock|![](/en-GB/2022/05/202205082300GoremeNationalPark.jpg)|
+202205092300|LaughingSeal|Grey seal with laughing expression on a stony beach in Norfolk, England (© the_guitar_mann/iStock/Getty Images Plus/Getty Images)|A seal of smiles|![](/en-GB/2022/05/202205092300LaughingSeal.jpg)|
