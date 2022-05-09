@@ -9,3 +9,4 @@
 202205060700|HertfordshireBluebells|A path winding through a forest carpeted with bluebells in Hertfordshire, England (© JayKay57/Getty Images)|Dare to tread through the fairy flowers?|![](/en-US/2022/05/202205060700HertfordshireBluebells.jpg)|
 202205070700|SwedishAntenna|Swedish telescope at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-US/2022/05/202205070700SwedishAntenna.jpg)|
 202205080700|MomJoey|Koala mother and 8-month-old joey, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|Happy Mother’s Day, marsupial mama!|![](/en-US/2022/05/202205080700MomJoey.jpg)|
+202205090700|GoremeNationalPark|View of Göreme from an observation deck, Göreme National Park, Cappadocia, Turkey (© Anton Petrus/Getty Images)|Living rock|![](/en-US/2022/05/202205090700GoremeNationalPark.jpg)|

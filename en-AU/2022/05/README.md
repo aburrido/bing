@@ -9,3 +9,4 @@
 202205060700|HertfordshireBluebells|Bluebells, Hertfordshire, England (© JayKay57/Getty Images)|Info|![](/en-AU/2022/05/202205060700HertfordshireBluebells.jpg)|
 202205070700|SwedishAntenna|La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Info|![](/en-AU/2022/05/202205070700SwedishAntenna.jpg)|
 202205080700|MomJoey|Koalas, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2022/05/202205080700MomJoey.jpg)|
+202205090700|GoremeNationalPark|Göreme, Cappadocia, Turkey (© Anton Petrus/Getty Images)|Info|![](/en-AU/2022/05/202205090700GoremeNationalPark.jpg)|
