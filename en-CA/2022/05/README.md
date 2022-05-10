@@ -9,3 +9,4 @@
 202205070400|SwedishAntenna|Swedish antenna at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-CA/2022/05/202205070400SwedishAntenna.jpg)|
 202205080400|MomJoey|Koala mother and 8-month-old joey, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|For Mother’s Day, we salute these marsupial moms|![](/en-CA/2022/05/202205080400MomJoey.jpg)|
 202205090400|GoremeNationalPark|View of Göreme from an observation deck, Göreme National Park, Cappadocia, Turkey (© Anton Petrus/Getty Images)|Living rock|![](/en-CA/2022/05/202205090400GoremeNationalPark.jpg)|
+202205100400|GrosMorneNP|Spring forest, Gros Morne National Park, Newfoundland and Labrador (© Don Johnston EC/Alamy Stock Photo)|A UNESCO World Heritage Site|![](/en-CA/2022/05/202205100400GrosMorneNP.jpg)|

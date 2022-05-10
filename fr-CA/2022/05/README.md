@@ -9,3 +9,4 @@
 202205070400|SwedishAntenna|Télescope suédois à l’observatoire de la Silla, Chili (© Alberto Ghizzi Panizza/Getty Images)|Information|![](/fr-CA/2022/05/202205070400SwedishAntenna.jpg)|
 202205080400|MomJoey|Maman Koala et son bébé de 8 mois, Queensland, Australie (© Suzi Eszterhas/Minden Pictures)|Information|![](/fr-CA/2022/05/202205080400MomJoey.jpg)|
 202205090400|GoremeNationalPark|Vue de Gorëme depuis une terrasse panoramique, Parc national de Göreme, Cappadoce, Turquie (© Anton Petrus/Getty Images)|Information|![](/fr-CA/2022/05/202205090400GoremeNationalPark.jpg)|
+202205100400|GiffordPinchot|Panther Creek Falls dans la Forêt nationale Gifford Pinchot, état de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Information|![](/fr-CA/2022/05/202205100400GiffordPinchot.jpg)|
