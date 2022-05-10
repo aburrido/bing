@@ -10,3 +10,4 @@
 202205071500|MomJoey|コアラの母子, オーストラリア (© Suzi Eszterhas/Minden Pictures)|今日は「母の日」|![](/ja-JP/2022/05/202205071500MomJoey.jpg)|
 202205081500|GoremeNationalPark|ギョレメ国立公園, トルコ カッパドキア (© Anton Petrus/Getty Images)|カッパドキアの古代奇岩都市|![](/ja-JP/2022/05/202205081500GoremeNationalPark.jpg)|
 202205091500|GiffordPinchot|パンサークリーク滝, 米国 ワシントン州 (© Stephen Matera/Tandem Stills + Motion)|ギフォード・ピンショー国有林の滝|![](/ja-JP/2022/05/202205091500GiffordPinchot.jpg)|
+202205101500|OiaVillage|イア村, ギリシャ サントリーニ島 (© Zebra-Studio/Shutterstock)|エーゲ海の白い集落|![](/ja-JP/2022/05/202205101500OiaVillage.jpg)|
