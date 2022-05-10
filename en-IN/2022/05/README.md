@@ -10,3 +10,4 @@
 202205071830|MomJoey|Koala mother and 8-month-old joey, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|For Mother’s Day, we salute these marsupial moms|![](/en-IN/2022/05/202205071830MomJoey.jpg)|
 202205081830|JaisalmerFort|Jaisalmer Fort in sunset light in Rajasthan, India (© Getty Images)|The last living fort in India|![](/en-IN/2022/05/202205081830JaisalmerFort.jpg)|
 202205091830|GiffordPinchot|Panther Creek Falls in spring, Gifford Pinchot National Forest, Washington (© Stephen Matera/Tandem Stills + Motion)|A large forest with 6,000 of years of history|![](/en-IN/2022/05/202205091830GiffordPinchot.jpg)|
+202205101830|OiaVillage|The village of Oia on the island of Santorini, Greece (© Zebra-Studio/Shutterstock)|The ancient home of the Minoans|![](/en-IN/2022/05/202205101830OiaVillage.jpg)|
