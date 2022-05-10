@@ -10,3 +10,4 @@
 202205070700|SwedishAntenna|Swedish telescope at La Silla ESO Observatory, Chile (© Alberto Ghizzi Panizza/Getty Images)|Eyes on the skies|![](/en-US/2022/05/202205070700SwedishAntenna.jpg)|
 202205080700|MomJoey|Koala mother and 8-month-old joey, Queensland, Australia (© Suzi Eszterhas/Minden Pictures)|Happy Mother’s Day, marsupial mama!|![](/en-US/2022/05/202205080700MomJoey.jpg)|
 202205090700|GoremeNationalPark|View of Göreme from an observation deck, Göreme National Park, Cappadocia, Turkey (© Anton Petrus/Getty Images)|Living rock|![](/en-US/2022/05/202205090700GoremeNationalPark.jpg)|
+202205100700|GiffordPinchot|Panther Creek Falls in spring, Gifford Pinchot National Forest, Washington (© Stephen Matera/Tandem Stills + Motion)|A large forest with 6,000 of years of history|![](/en-US/2022/05/202205100700GiffordPinchot.jpg)|
