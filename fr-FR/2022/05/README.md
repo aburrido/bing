@@ -10,3 +10,4 @@
 202205072200|PawneeOwls|Groupe de chouettes de terriers dans la Prairie nationale de Pawnee, Colorado, États (© Roberta Olenick/Alamy)|Une chouette vie|![](/fr-FR/2022/05/202205072200PawneeOwls.jpg)|
 202205082200|GoremeNationalPark|Vue de Göreme depuis une terrasse panoramique, Parc national de Göreme, Cappadoce, Turquie (© Anton Petrus/Getty Images)|Maisons improvisées|![](/fr-FR/2022/05/202205082200GoremeNationalPark.jpg)|
 202205092200|GiffordPinchot|Panther Creek Falls dans la Forêt nationale Gifford Pinchot, état de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Nature américaine|![](/fr-FR/2022/05/202205092200GiffordPinchot.jpg)|
+202205102200|OiaVillage|Le village d’Oia sur l’île de Santorin, Grèce (© Zebra-Studio/Shutterstock)|Vue sur le grand bleu|![](/fr-FR/2022/05/202205102200OiaVillage.jpg)|

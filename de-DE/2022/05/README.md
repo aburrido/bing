@@ -10,3 +10,4 @@
 202205072200|MomJoey|Koala-Mutter mit ihrem Jungen, Queensland, Australien (© Suzi Eszterhas/Minden Pictures)|Viele Grüße zum Muttertag!|![](/de-DE/2022/05/202205072200MomJoey.jpg)|
 202205082200|GoremeNationalPark|Blick von einer Aussichtsplattform auf Göreme, Göreme-Nationalpark, Kappadokien, Türkei (© Anton Petrus/Getty Images)|Lebende Felsen|![](/de-DE/2022/05/202205082200GoremeNationalPark.jpg)|
 202205092200|SchlossGluecksburg|Schloss Glücksburg im Abendlicht, Glücksburg, Schleswig-Holstein, (© Christian Back/eStock Photo)|Wasserschloss an der Flensburger Förde|![](/de-DE/2022/05/202205092200SchlossGluecksburg.jpg)|
+202205102200|GiffordPinchot|Panther Creek Falls im Gifford Pinchot National Forest, Bundesstaat Washington, USA (© Stephen Matera/Tandem Stills + Motion)|Ein Wald mit 6.000-jähriger Geschichte|![](/de-DE/2022/05/202205102200GiffordPinchot.jpg)|
