@@ -11,3 +11,4 @@
 202205082200|GoremeNationalPark|Vue de Göreme depuis une terrasse panoramique, Parc national de Göreme, Cappadoce, Turquie (© Anton Petrus/Getty Images)|Maisons improvisées|![](/fr-FR/2022/05/202205082200GoremeNationalPark.jpg)|
 202205092200|GiffordPinchot|Panther Creek Falls dans la Forêt nationale Gifford Pinchot, état de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Nature américaine|![](/fr-FR/2022/05/202205092200GiffordPinchot.jpg)|
 202205102200|OiaVillage|Le village d’Oia sur l’île de Santorin, Grèce (© Zebra-Studio/Shutterstock)|Vue sur le grand bleu|![](/fr-FR/2022/05/202205102200OiaVillage.jpg)|
+202205112200|RedCross|Infirmières de la Croix Rouge à Paris en mai 1919 (© Universal History Archive/Universal Images Group via Getty Images)|Le sourire malgré tout|![](/fr-FR/2022/05/202205112200RedCross.jpg)|
