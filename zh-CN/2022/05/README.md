@@ -11,3 +11,4 @@
 202205081600|GoremeNationalPark|从观景台俯瞰格雷梅，格雷梅国家公园，土耳其卡帕多西亚省 (© Anton Petrus/Getty Images)|那些生动的岩石|![](/zh-CN/2022/05/202205081600GoremeNationalPark.jpg)|
 202205091600|GiffordPinchot|春天的豹溪瀑布，吉福德·平肖国家森林，美国华盛顿州 (© Stephen Matera/Tandem Stills + Motion)|拥有6000年历史的大森林|![](/zh-CN/2022/05/202205091600GiffordPinchot.jpg)|
 202205101600|OiaVillage|圣托里尼岛上的伊亚镇，希腊 (© Zebra-Studio/Shutterstock)|米诺斯人的古老家园|![](/zh-CN/2022/05/202205101600OiaVillage.jpg)|
+202205111600|RiverBrathay|布拉塞河上的雾天黎明，英国湖区国家公园 (© fstopphotography/Getty Images)|映湖之美|![](/zh-CN/2022/05/202205111600RiverBrathay.jpg)|
