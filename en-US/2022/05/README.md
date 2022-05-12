@@ -12,3 +12,4 @@
 202205090700|GoremeNationalPark|View of Göreme from an observation deck, Göreme National Park, Cappadocia, Turkey (© Anton Petrus/Getty Images)|Living rock|![](/en-US/2022/05/202205090700GoremeNationalPark.jpg)|
 202205100700|GiffordPinchot|Panther Creek Falls in spring, Gifford Pinchot National Forest, Washington (© Stephen Matera/Tandem Stills + Motion)|A large forest with 6,000 of years of history|![](/en-US/2022/05/202205100700GiffordPinchot.jpg)|
 202205110700|OiaVillage|The village of Oia on the island of Santorini, Greece (© Zebra-Studio/Shutterstock)|The ancient home of the Minoans|![](/en-US/2022/05/202205110700OiaVillage.jpg)|
+202205120700|RedCross|Nurses serving with the American Red Cross in Paris, France, in May 1919 (© Universal History Archive/Universal Images Group via Getty Images)|A proud nursing tradition|![](/en-US/2022/05/202205120700RedCross.jpg)|
