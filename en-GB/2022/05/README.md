@@ -12,3 +12,4 @@
 202205092300|LaughingSeal|Grey seal with laughing expression on a stony beach in Norfolk, England (© the_guitar_mann/iStock/Getty Images Plus/Getty Images)|A seal of smiles|![](/en-GB/2022/05/202205092300LaughingSeal.jpg)|
 202205102300|OiaVillage|The village of Oia on the island of Santorini, Greece (© Zebra-Studio/Shutterstock)|Sunset on Santorini|![](/en-GB/2022/05/202205102300OiaVillage.jpg)|
 202205112300|RedCross|Nurses serving with the American Red Cross in Paris, France, in May 1919 (© Universal History Archive/Universal Images Group via Getty Images)|International Nurses Day|![](/en-GB/2022/05/202205112300RedCross.jpg)|
+202205122300|MaasaiGiraffe|Masai giraffe in Maasai Mara, Kenya (© Andy Rouse/Minden Pictures)|Solo on the savanna|![](/en-GB/2022/05/202205122300MaasaiGiraffe.jpg)|
