@@ -12,3 +12,4 @@
 202205100400|GiffordPinchot|Panther Creek Falls dans la Forêt nationale Gifford Pinchot, état de Washington, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Information|![](/fr-CA/2022/05/202205100400GiffordPinchot.jpg)|
 202205110400|OiaVillage|Le village d’Oia sur l’île de Santorin, Grèce (© Zebra-Studio/Shutterstock)|Information|![](/fr-CA/2022/05/202205110400OiaVillage.jpg)|
 202205120400|MaasaiGiraffe|Girafe Masaï dans la Réserve nationale du Masai Mara, Kenya (© Andy Rouse/Minden Pictures)|Information|![](/fr-CA/2022/05/202205120400MaasaiGiraffe.jpg)|
+202205130400|OttawaTulip|Gros plan d’une tulipe au festival des tulipes canadien (© Sandy Thompson/Alamy Stock Photo)|Information|![](/fr-CA/2022/05/202205130400OttawaTulip.jpg)|
