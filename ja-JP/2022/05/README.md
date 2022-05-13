@@ -13,3 +13,4 @@
 202205101500|OiaVillage|イア村, ギリシャ サントリーニ島 (© Zebra-Studio/Shutterstock)|エーゲ海の白い集落|![](/ja-JP/2022/05/202205101500OiaVillage.jpg)|
 202205111500|SvalbardSun|白夜, ノルウェー スヴァールバル諸島 (© Nature Picture Library/Alamy)|スヴァールバル諸島の白夜|![](/ja-JP/2022/05/202205111500SvalbardSun.jpg)|
 202205121500|MaasaiGiraffe|マサイキリン, ケニア (© Andy Rouse/Minden Pictures)|マサイマラ国立保護区のキリン|![](/ja-JP/2022/05/202205121500MaasaiGiraffe.jpg)|
+202205131500|PawneeOwls|アナホリフクロウのヒナ, 米国 コロラド州 (© Roberta Olenick/Alamy)|ポーニー国立草原の野鳥|![](/ja-JP/2022/05/202205131500PawneeOwls.jpg)|
