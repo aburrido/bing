@@ -13,3 +13,4 @@
 202205101830|OiaVillage|The village of Oia on the island of Santorini, Greece (© Zebra-Studio/Shutterstock)|The ancient home of the Minoans|![](/en-IN/2022/05/202205101830OiaVillage.jpg)|
 202205111830|RedCross|Nurses serving with the American Red Cross in Paris, France, in May 1919 (© Universal History Archive/Universal Images Group via Getty Images)|American Red Cross pioneers|![](/en-IN/2022/05/202205111830RedCross.jpg)|
 202205121830|MaasaiGiraffe|Masai giraffe in Maasai Mara, Kenya (© Andy Rouse/Minden Pictures)|Solo on the savannah|![](/en-IN/2022/05/202205121830MaasaiGiraffe.jpg)|
+202205131830|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Trusty water-shifters|![](/en-IN/2022/05/202205131830WindmillDay.jpg)|
