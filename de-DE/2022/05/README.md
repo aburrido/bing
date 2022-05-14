@@ -14,3 +14,4 @@
 202205112200|OiaVillage|Das Dorf Ia auf Santorin, Griechenland (© Zebra-Studio/Shutterstock)|Die alte Heimat der Minoer|![](/de-DE/2022/05/202205112200OiaVillage.jpg)|
 202205122200|MaasaiGiraffe|Massai-Giraffe im Wildschutzgebiet Masai Mara, Kenia (© Andy Rouse/Minden Pictures)|Allein in der Savanne|![](/de-DE/2022/05/202205122200MaasaiGiraffe.jpg)|
 202205132200|WindmillDay|Windmühlen, Kinderdijk, Niederlande (© Achim Thomae/Getty Images)|Zuverlässige Windpumpen|![](/de-DE/2022/05/202205132200WindmillDay.jpg)|
+202205142200|BerninaBloodMoon|Panoramablick auf die Berninagruppe und den Blutmond, zentrale Ostalpen, Engadin, Schweiz (© Bernd Zoller/Shutterstock)|Machen Sie sich bereit für den Blutmond|![](/de-DE/2022/05/202205142200BerninaBloodMoon.jpg)|

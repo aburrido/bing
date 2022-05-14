@@ -14,3 +14,4 @@
 202205112200|RedCross|Infirmières de la Croix Rouge à Paris en mai 1919 (© Universal History Archive/Universal Images Group via Getty Images)|Le sourire malgré tout|![](/fr-FR/2022/05/202205112200RedCross.jpg)|
 202205122200|MaasaiGiraffe|Girafe Masaï dans la Réserve nationale du Masai Mara, Kenya (© Andy Rouse/Minden Pictures)|Géant fragile|![](/fr-FR/2022/05/202205122200MaasaiGiraffe.jpg)|
 202205132200|WindmillDay|Moulin à vent, Kinderdijk, Pays-Bas (© Achim Thomae/Getty Images)|Vent frais, vent du matin|![](/fr-FR/2022/05/202205132200WindmillDay.jpg)|
+202205142200|BerninaBloodMoon|Vue panoramique du Piz Bernina avec la lune rousse, Alpes de l’Est, Suisse (© Bernd Zoller/Shutterstock)|Surprise nocturne|![](/fr-FR/2022/05/202205142200BerninaBloodMoon.jpg)|
