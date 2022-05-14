@@ -13,3 +13,4 @@
 202205110400|OiaVillage|Le village d’Oia sur l’île de Santorin, Grèce (© Zebra-Studio/Shutterstock)|Information|![](/fr-CA/2022/05/202205110400OiaVillage.jpg)|
 202205120400|MaasaiGiraffe|Girafe Masaï dans la Réserve nationale du Masai Mara, Kenya (© Andy Rouse/Minden Pictures)|Information|![](/fr-CA/2022/05/202205120400MaasaiGiraffe.jpg)|
 202205130400|OttawaTulip|Gros plan d’une tulipe au festival des tulipes canadien (© Sandy Thompson/Alamy Stock Photo)|Information|![](/fr-CA/2022/05/202205130400OttawaTulip.jpg)|
+202205140400|WindmillDay|Moulin à vent, Kinderdijk, Pays-Bas (© Achim Thomae/Getty Images)|Information|![](/fr-CA/2022/05/202205140400WindmillDay.jpg)|
