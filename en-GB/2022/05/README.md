@@ -14,3 +14,4 @@
 202205112300|RedCross|Nurses serving with the American Red Cross in Paris, France, in May 1919 (© Universal History Archive/Universal Images Group via Getty Images)|International Nurses Day|![](/en-GB/2022/05/202205112300RedCross.jpg)|
 202205122300|MaasaiGiraffe|Masai giraffe in Maasai Mara, Kenya (© Andy Rouse/Minden Pictures)|Solo on the savanna|![](/en-GB/2022/05/202205122300MaasaiGiraffe.jpg)|
 202205132300|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Holding back the tide|![](/en-GB/2022/05/202205132300WindmillDay.jpg)|
+202205142300|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-GB/2022/05/202205142300BerninaBloodMoon.jpg)|
