@@ -15,3 +15,4 @@
 202205120700|RiverBrathay|River Brathay, Lake District, England (© fstopphotography/Getty Images)|Info|![](/en-AU/2022/05/202205120700RiverBrathay.jpg)|
 202205130700|MaasaiGiraffe|Masai giraffe, Maasai Mara, Kenya (© Andy Rouse/Minden Pictures)|Info|![](/en-AU/2022/05/202205130700MaasaiGiraffe.jpg)|
 202205140700|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Info|![](/en-AU/2022/05/202205140700WindmillDay.jpg)|
+202205150700|BerninaBloodMoon|Blood moon, Bernina Range, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Info|![](/en-AU/2022/05/202205150700BerninaBloodMoon.jpg)|

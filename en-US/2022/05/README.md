@@ -15,3 +15,4 @@
 202205120700|RedCross|Nurses serving with the American Red Cross in Paris, France, in May 1919 (© Universal History Archive/Universal Images Group via Getty Images)|A proud nursing tradition|![](/en-US/2022/05/202205120700RedCross.jpg)|
 202205130700|MaasaiGiraffe|Masai giraffe in Maasai Mara, Kenya (© Andy Rouse/Minden Pictures)|Solo on the savannah|![](/en-US/2022/05/202205130700MaasaiGiraffe.jpg)|
 202205140700|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Trusty water-shifters|![](/en-US/2022/05/202205140700WindmillDay.jpg)|
+202205150700|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-US/2022/05/202205150700BerninaBloodMoon.jpg)|
