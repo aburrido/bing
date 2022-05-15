@@ -14,3 +14,4 @@
 202205120400|RedCross|Nurses serving with the American Red Cross in Paris, France, in May 1919 (© Universal History Archive/Universal Images Group via Getty Images)|American Red Cross pioneers|![](/en-CA/2022/05/202205120400RedCross.jpg)|
 202205130400|OttawaTulip|A close-up of a tulip from the Canadian Tulip Festival in Ottawa (© Sandy Thompson/Alamy Stock Photo)|World’s largest tulip festival|![](/en-CA/2022/05/202205130400OttawaTulip.jpg)|
 202205140400|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Trusty water-shifters|![](/en-CA/2022/05/202205140400WindmillDay.jpg)|
+202205150400|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-CA/2022/05/202205150400BerninaBloodMoon.jpg)|
