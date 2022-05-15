@@ -15,3 +15,4 @@
 202205122200|MaasaiGiraffe|Massai-Giraffe im Wildschutzgebiet Masai Mara, Kenia (© Andy Rouse/Minden Pictures)|Allein in der Savanne|![](/de-DE/2022/05/202205122200MaasaiGiraffe.jpg)|
 202205132200|WindmillDay|Windmühlen, Kinderdijk, Niederlande (© Achim Thomae/Getty Images)|Zuverlässige Windpumpen|![](/de-DE/2022/05/202205132200WindmillDay.jpg)|
 202205142200|BerninaBloodMoon|Panoramablick auf die Berninagruppe und den Blutmond, zentrale Ostalpen, Engadin, Schweiz (© Bernd Zoller/Shutterstock)|Machen Sie sich bereit für den Blutmond|![](/de-DE/2022/05/202205142200BerninaBloodMoon.jpg)|
+202205152200|DuesseldorfOberkassel|Luftbild des Düsseldorfer Stadtteils Oberkassel mit Rheinkniebrücke und Oberkasseler Brücke, Nordrhein-Westfalen (© Hans Blossey/Alamy Stock Photo)|Stadtteil am Rheinknie|![](/de-DE/2022/05/202205152200DuesseldorfOberkassel.jpg)|

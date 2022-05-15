@@ -15,3 +15,4 @@
 202205122200|MaasaiGiraffe|Girafe Masaï dans la Réserve nationale du Masai Mara, Kenya (© Andy Rouse/Minden Pictures)|Géant fragile|![](/fr-FR/2022/05/202205122200MaasaiGiraffe.jpg)|
 202205132200|WindmillDay|Moulin à vent, Kinderdijk, Pays-Bas (© Achim Thomae/Getty Images)|Vent frais, vent du matin|![](/fr-FR/2022/05/202205132200WindmillDay.jpg)|
 202205142200|BerninaBloodMoon|Vue panoramique du Piz Bernina avec la lune rousse, Alpes de l’Est, Suisse (© Bernd Zoller/Shutterstock)|Surprise nocturne|![](/fr-FR/2022/05/202205142200BerninaBloodMoon.jpg)|
+202205152200|RG2022|Le court Philippe Chatrier au stade Roland-Garros, Paris (© CTK/Alamy Stock Photo)|Sur terre battue|![](/fr-FR/2022/05/202205152200RG2022.jpg)|
