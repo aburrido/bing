@@ -15,3 +15,4 @@
 202205121600|MaasaiGiraffe|一只马赛长颈鹿，肯尼亚马赛马拉国家保护区 (© Andy Rouse/Minden Pictures)|独自在草原上|![](/zh-CN/2022/05/202205121600MaasaiGiraffe.jpg)|
 202205131600|WindmillDay|金德代克风车群，荷兰 (© Achim Thomae/Getty Images)|可靠的移水器|![](/zh-CN/2022/05/202205131600WindmillDay.jpg)|
 202205141600|BerninaBloodMoon|贝尔尼纳山脉和血月，瑞士 (© Bernd Zoller/Shutterstock)|准备迎接血月|![](/zh-CN/2022/05/202205141600BerninaBloodMoon.jpg)|
+202205151600|PawneeOwls|花丛中的小穴鸮们，美国科罗拉多州 (© Roberta Olenick/Alamy)|小穴鸮们会与你不期而遇|![](/zh-CN/2022/05/202205151600PawneeOwls.jpg)|
