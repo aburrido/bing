@@ -15,3 +15,4 @@
 202205130400|OttawaTulip|Gros plan d’une tulipe au festival des tulipes canadien (© Sandy Thompson/Alamy Stock Photo)|Information|![](/fr-CA/2022/05/202205130400OttawaTulip.jpg)|
 202205140400|WindmillDay|Moulin à vent, Kinderdijk, Pays-Bas (© Achim Thomae/Getty Images)|Information|![](/fr-CA/2022/05/202205140400WindmillDay.jpg)|
 202205150400|BerninaBloodMoon|Vue panoramique du piz Bernina et la lune de sang, Alpes de l’Est, Suisse (© Bernd Zoller/Shutterstock)|Information|![](/fr-CA/2022/05/202205150400BerninaBloodMoon.jpg)|
+202205160400|PawneeOwls|Groupe de chouettes de terriers dans la Prairie nationale de Pawnee, Colorado, États © Roberta Olenick/Alamy)|Information|![](/fr-CA/2022/05/202205160400PawneeOwls.jpg)|

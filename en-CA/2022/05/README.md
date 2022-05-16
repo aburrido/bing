@@ -15,3 +15,4 @@
 202205130400|OttawaTulip|A close-up of a tulip from the Canadian Tulip Festival in Ottawa (© Sandy Thompson/Alamy Stock Photo)|World’s largest tulip festival|![](/en-CA/2022/05/202205130400OttawaTulip.jpg)|
 202205140400|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Trusty water-shifters|![](/en-CA/2022/05/202205140400WindmillDay.jpg)|
 202205150400|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-CA/2022/05/202205150400BerninaBloodMoon.jpg)|
+202205160400|PawneeOwls|Burrowing owl chicks gaze out from among flowers near Pawnee National Grassland in Colorado (© Roberta Olenick/Alamy)|Owl be seeing you ... somewhere!|![](/en-CA/2022/05/202205160400PawneeOwls.jpg)|
