@@ -16,3 +16,4 @@
 202205131500|PawneeOwls|アナホリフクロウのヒナ, 米国 コロラド州 (© Roberta Olenick/Alamy)|ポーニー国立草原の野鳥|![](/ja-JP/2022/05/202205131500PawneeOwls.jpg)|
 202205141500|OkinawaDay22|コンドイ浜, 沖縄 竹富島 (© Matjaz Corel/Alamy Stock  Photo)|今日は「沖縄本土復帰記念日」|![](/ja-JP/2022/05/202205141500OkinawaDay22.jpg)|
 202205151500|WindmillDay|キンデルダイクの風車, オランダ (© Achim Thomae/Getty Images)|今日は「旅の日」|![](/ja-JP/2022/05/202205151500WindmillDay.jpg)|
+202205161500|SaltPondsMaras|マラス塩田, ペルー ウルバンバの谷 (© Fotofeeling/Westend61 on Offset/Shutterstock)|聖なる谷の、インカ帝国の塩田|![](/ja-JP/2022/05/202205161500SaltPondsMaras.jpg)|
