@@ -16,3 +16,4 @@
 202205132200|WindmillDay|Moulin à vent, Kinderdijk, Pays-Bas (© Achim Thomae/Getty Images)|Vent frais, vent du matin|![](/fr-FR/2022/05/202205132200WindmillDay.jpg)|
 202205142200|BerninaBloodMoon|Vue panoramique du Piz Bernina avec la lune rousse, Alpes de l’Est, Suisse (© Bernd Zoller/Shutterstock)|Surprise nocturne|![](/fr-FR/2022/05/202205142200BerninaBloodMoon.jpg)|
 202205152200|RG2022|Le court Philippe Chatrier au stade Roland-Garros, Paris (© CTK/Alamy Stock Photo)|Sur terre battue|![](/fr-FR/2022/05/202205152200RG2022.jpg)|
+202205162200|Cannes22|Deux chaises sur la croisette, Cannes (© BEAUMONT Frédéric/Alamy)|Et…. Action !|![](/fr-FR/2022/05/202205162200Cannes22.jpg)|
