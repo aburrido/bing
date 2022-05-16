@@ -16,3 +16,4 @@
 202205130700|MaasaiGiraffe|Masai giraffe in Maasai Mara, Kenya (© Andy Rouse/Minden Pictures)|Solo on the savannah|![](/en-US/2022/05/202205130700MaasaiGiraffe.jpg)|
 202205140700|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Trusty water-shifters|![](/en-US/2022/05/202205140700WindmillDay.jpg)|
 202205150700|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-US/2022/05/202205150700BerninaBloodMoon.jpg)|
+202205160700|PawneeOwls|Burrowing owl chicks gaze out from among flowers near the Pawnee National Grassland in Colorado (© Roberta Olenick/Alamy)|Owl be seeing you ... somewhere!|![](/en-US/2022/05/202205160700PawneeOwls.jpg)|
