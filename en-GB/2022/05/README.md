@@ -16,3 +16,4 @@
 202205132300|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Holding back the tide|![](/en-GB/2022/05/202205132300WindmillDay.jpg)|
 202205142300|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-GB/2022/05/202205142300BerninaBloodMoon.jpg)|
 202205152300|PawneeOwls|Burrowing owl chicks near Pawnee National Grassland in Colorado, USA (© Roberta Olenick/Alamy)|Owl be seeing you|![](/en-GB/2022/05/202205152300PawneeOwls.jpg)|
+202205162300|SaltPondsMaras|Salt ponds of Maras in Peru's Sacred Valley of the Incas (© Fotofeeling/Westend61 on Offset/Shutterstock)|Incan ingenuity|![](/en-GB/2022/05/202205162300SaltPondsMaras.jpg)|
