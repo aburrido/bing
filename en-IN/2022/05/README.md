@@ -16,3 +16,4 @@
 202205131830|WindmillDay|Windmills, Kinderdijk, Netherlands (© Achim Thomae/Getty Images)|Trusty water-shifters|![](/en-IN/2022/05/202205131830WindmillDay.jpg)|
 202205141830|BerninaBloodMoon|Panoramic view of the Bernina Range with blood moon, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Get ready for the blood moon|![](/en-IN/2022/05/202205141830BerninaBloodMoon.jpg)|
 202205151830|MahabodhiTempleIndia|Mahabodhi Temple in Bihar, India (© Alamy)|A place where Buddha attained enlightenment|![](/en-IN/2022/05/202205151830MahabodhiTempleIndia.jpg)|
+202205161830|SaltPondsMaras|Salt ponds of Maras in Peru's Sacred Valley of the Incas (© Fotofeeling/Westend61 on Offset/Shutterstock)|Incan ingenuity|![](/en-IN/2022/05/202205161830SaltPondsMaras.jpg)|
