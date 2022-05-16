@@ -16,3 +16,4 @@
 202205131600|WindmillDay|金德代克风车群，荷兰 (© Achim Thomae/Getty Images)|可靠的移水器|![](/zh-CN/2022/05/202205131600WindmillDay.jpg)|
 202205141600|BerninaBloodMoon|贝尔尼纳山脉和血月，瑞士 (© Bernd Zoller/Shutterstock)|准备迎接血月|![](/zh-CN/2022/05/202205141600BerninaBloodMoon.jpg)|
 202205151600|PawneeOwls|花丛中的小穴鸮们，美国科罗拉多州 (© Roberta Olenick/Alamy)|小穴鸮们会与你不期而遇|![](/zh-CN/2022/05/202205151600PawneeOwls.jpg)|
+202205161600|SaltPondsMaras|马拉斯盐田，秘鲁 (© Fotofeeling/Westend61 on Offset/Shutterstock)|巧夺天工的印加智慧|![](/zh-CN/2022/05/202205161600SaltPondsMaras.jpg)|
