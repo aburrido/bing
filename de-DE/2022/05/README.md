@@ -17,3 +17,4 @@
 202205142200|BerninaBloodMoon|Panoramablick auf die Berninagruppe und den Blutmond, zentrale Ostalpen, Engadin, Schweiz (© Bernd Zoller/Shutterstock)|Machen Sie sich bereit für den Blutmond|![](/de-DE/2022/05/202205142200BerninaBloodMoon.jpg)|
 202205152200|DuesseldorfOberkassel|Luftbild des Düsseldorfer Stadtteils Oberkassel mit Rheinkniebrücke und Oberkasseler Brücke, Nordrhein-Westfalen (© Hans Blossey/Alamy Stock Photo)|Stadtteil am Rheinknie|![](/de-DE/2022/05/202205152200DuesseldorfOberkassel.jpg)|
 202205162200|SaltPondsMaras|Salzterrassen von Maras im „Heiligen Tal der Inkas“, Peru (© Fotofeeling/Westend61 on Offset/Shutterstock)|Erfindungsreichtum der Inkas|![](/de-DE/2022/05/202205162200SaltPondsMaras.jpg)|
+202205172200|VanBlooms|Goldregen (Laburnum) und violetter Zierlauch in voller Blüte, VanDusen Botanical Garden, Vancouver, Kanada (© Greg Vaughn/Alamy)|Ein Schnappschuss vom Frühling|![](/de-DE/2022/05/202205172200VanBlooms.jpg)|
