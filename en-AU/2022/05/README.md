@@ -18,3 +18,4 @@
 202205150700|BerninaBloodMoon|Blood moon, Bernina Range, Eastern Alps, Engadin, Switzerland (© Bernd Zoller/Shutterstock)|Info|![](/en-AU/2022/05/202205150700BerninaBloodMoon.jpg)|
 202205160700|PawneeOwls|Burrowing owls, Pawnee National Grassland in Colorado, USA (© Roberta Olenick/Alamy)|Info|![](/en-AU/2022/05/202205160700PawneeOwls.jpg)|
 202205170700|SaltPondsMaras|Maras salt ponds, Sacred Valley of the Incas, Peru (© Fotofeeling/Westend61 on Offset/Shutterstock)|Info|![](/en-AU/2022/05/202205170700SaltPondsMaras.jpg)|
+202205180700|SchlossGluecksburg|Glücksburg Castle, Schleswig-Holstein, Germany (© Christian Back/eStock Photo)|Info|![](/en-AU/2022/05/202205180700SchlossGluecksburg.jpg)|
