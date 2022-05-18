@@ -18,3 +18,4 @@
 202205152200|DuesseldorfOberkassel|Luftbild des Düsseldorfer Stadtteils Oberkassel mit Rheinkniebrücke und Oberkasseler Brücke, Nordrhein-Westfalen (© Hans Blossey/Alamy Stock Photo)|Stadtteil am Rheinknie|![](/de-DE/2022/05/202205152200DuesseldorfOberkassel.jpg)|
 202205162200|SaltPondsMaras|Salzterrassen von Maras im „Heiligen Tal der Inkas“, Peru (© Fotofeeling/Westend61 on Offset/Shutterstock)|Erfindungsreichtum der Inkas|![](/de-DE/2022/05/202205162200SaltPondsMaras.jpg)|
 202205172200|VanBlooms|Goldregen (Laburnum) und violetter Zierlauch in voller Blüte, VanDusen Botanical Garden, Vancouver, Kanada (© Greg Vaughn/Alamy)|Ein Schnappschuss vom Frühling|![](/de-DE/2022/05/202205172200VanBlooms.jpg)|
+202205182200|PawneeOwls|Kaninchenkauzküken, Pawnee National Grassland, Colorado, USA (© Roberta Olenick/Alamy)|Familientreffen|![](/de-DE/2022/05/202205182200PawneeOwls.jpg)|

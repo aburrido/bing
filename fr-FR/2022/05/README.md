@@ -18,3 +18,4 @@
 202205152200|RG2022|Le court Philippe Chatrier au stade Roland-Garros, Paris (© CTK/Alamy Stock Photo)|Sur terre battue|![](/fr-FR/2022/05/202205152200RG2022.jpg)|
 202205162200|Cannes22|Deux chaises sur la croisette, Cannes (© BEAUMONT Frédéric/Alamy)|Et…. Action !|![](/fr-FR/2022/05/202205162200Cannes22.jpg)|
 202205172200|KansasPrairiefire|Musée de Prairiefire à Overland Park, Kansas, États-Unis (© Bernard P. Friel/Universal Images Group via Getty Images)|Étonnant musée|![](/fr-FR/2022/05/202205172200KansasPrairiefire.jpg)|
+202205182200|GlassBridge|Pont de verre de Zhangjiajie, Hunan, Chine (© MediaProduction/Getty Images)|Même pas peur !|![](/fr-FR/2022/05/202205182200GlassBridge.jpg)|
