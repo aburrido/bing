@@ -18,3 +18,4 @@
 202205151500|WindmillDay|キンデルダイクの風車, オランダ (© Achim Thomae/Getty Images)|今日は「旅の日」|![](/ja-JP/2022/05/202205151500WindmillDay.jpg)|
 202205161500|SaltPondsMaras|マラス塩田, ペルー ウルバンバの谷 (© Fotofeeling/Westend61 on Offset/Shutterstock)|聖なる谷の、インカ帝国の塩田|![](/ja-JP/2022/05/202205161500SaltPondsMaras.jpg)|
 202205171500|KansasPrairiefire|プレイリーファイア博物館, 米国 カンザス州 (© Bernard P. Friel/Universal Images Group via Getty Images)|今日は「国際博物館の日」|![](/ja-JP/2022/05/202205171500KansasPrairiefire.jpg)|
+202205181500|GlassBridge|張家界大峡谷玻璃大橋, 中国 湖南省 (© MediaProduction/Getty Images)|中国の世界一高くて長いガラス橋|![](/ja-JP/2022/05/202205181500GlassBridge.jpg)|
