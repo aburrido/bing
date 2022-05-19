@@ -19,3 +19,4 @@
 202205162300|SaltPondsMaras|Salt ponds of Maras in Peru's Sacred Valley of the Incas (© Fotofeeling/Westend61 on Offset/Shutterstock)|Incan ingenuity|![](/en-GB/2022/05/202205162300SaltPondsMaras.jpg)|
 202205172300|KansasPrairiefire|Museum at Prairiefire, Overland Park, Kansas, USA (© Bernard P. Friel/Universal Images Group via Getty Images)|Ablaze with colour|![](/en-GB/2022/05/202205172300KansasPrairiefire.jpg)|
 202205182300|RiverBrathay|Misty sunrise on the River Brathay in the Lake District, Cumbria (© fstopphotography/Getty Images)|Reflecting the beauty of the Lakes|![](/en-GB/2022/05/202205182300RiverBrathay.jpg)|
+202205192300|ApisMellifera|Honey bee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Something to ‘bee’ thankful for|![](/en-GB/2022/05/202205192300ApisMellifera.jpg)|
