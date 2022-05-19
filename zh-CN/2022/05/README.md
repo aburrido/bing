@@ -19,3 +19,4 @@
 202205161600|SaltPondsMaras|马拉斯盐田，秘鲁 (© Fotofeeling/Westend61 on Offset/Shutterstock)|巧夺天工的印加智慧|![](/zh-CN/2022/05/202205161600SaltPondsMaras.jpg)|
 202205171600|SchlossGluecksburg|护城河边的格吕克斯堡城堡，德国 (© Christian Back/eStock Photo)|位于弗伦斯堡峡湾的水上城堡|![](/zh-CN/2022/05/202205171600SchlossGluecksburg.jpg)|
 202205181600|GlassBridge|张家界大峡谷玻璃桥，湖南 (© MediaProduction/Getty Images)|站在近300米高空的玻璃上|![](/zh-CN/2022/05/202205181600GlassBridge.jpg)|
+202205191600|ApisMellifera|Honeybee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|谢谢你们，小蜜蜂！|![](/zh-CN/2022/05/202205191600ApisMellifera.jpg)|
