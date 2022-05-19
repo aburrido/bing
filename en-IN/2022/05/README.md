@@ -19,3 +19,4 @@
 202205161830|SaltPondsMaras|Salt ponds of Maras in Peru's Sacred Valley of the Incas (© Fotofeeling/Westend61 on Offset/Shutterstock)|Incan ingenuity|![](/en-IN/2022/05/202205161830SaltPondsMaras.jpg)|
 202205171830|KansasPrairiefire|Museum at Prairiefire, Overland Park, Kansas (© Bernard P. Friel/Universal Images Group via Getty Images)|This museum sets the prairie on fire|![](/en-IN/2022/05/202205171830KansasPrairiefire.jpg)|
 202205181830|GlassBridge|Glass bridge of Zhangjiajie, Hunan, China (© MediaProduction/Getty Images)|Standing on glass 900+ feet in the air|![](/en-IN/2022/05/202205181830GlassBridge.jpg)|
+202205191830|ApisMellifera|Honeybee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Something to ‘bee’ thankful for..|![](/en-IN/2022/05/202205191830ApisMellifera.jpg)|
