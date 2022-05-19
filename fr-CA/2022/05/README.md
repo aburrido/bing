@@ -18,3 +18,4 @@
 202205160400|PawneeOwls|Groupe de chouettes de terriers dans la Prairie nationale de Pawnee, Colorado, États © Roberta Olenick/Alamy)|Information|![](/fr-CA/2022/05/202205160400PawneeOwls.jpg)|
 202205170400|SaltPondsMaras|Les salines de Maras dans la Vallée Sacrée des Incas, Pérou (© Fotofeeling/Westend61 on Offset/Shutterstock)|Information|![](/fr-CA/2022/05/202205170400SaltPondsMaras.jpg)|
 202205180400|GrosMorneNP|Spring Forest, Parc national du Gros-Morne, Terre-Neuve-et-Labrador (© Don Johnston EC/Alamy Stock Photo)|Information|![](/fr-CA/2022/05/202205180400GrosMorneNP.jpg)|
+202205190400|GlassBridge|Pont de verre de Zhangjiajie, Hunan, Chine (© MediaProduction/Getty Images)|Information|![](/fr-CA/2022/05/202205190400GlassBridge.jpg)|

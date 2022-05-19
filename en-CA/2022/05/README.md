@@ -18,3 +18,4 @@
 202205160400|PawneeOwls|Burrowing owl chicks gaze out from among flowers near Pawnee National Grassland in Colorado (© Roberta Olenick/Alamy)|Owl be seeing you ... somewhere!|![](/en-CA/2022/05/202205160400PawneeOwls.jpg)|
 202205170400|SaltPondsMaras|Salt ponds of Maras in Peru's Sacred Valley of the Incas (© Fotofeeling/Westend61 on Offset/Shutterstock)|Incan ingenuity|![](/en-CA/2022/05/202205170400SaltPondsMaras.jpg)|
 202205180400|KansasPrairiefire|Museum at Prairiefire, Overland Park, Kansas (© Bernard P. Friel/Universal Images Group via Getty Images)|This museum sets the prairie on fire|![](/en-CA/2022/05/202205180400KansasPrairiefire.jpg)|
+202205190400|GlassBridge|Glass bridge of Zhangjiajie, Hunan, China (© MediaProduction/Getty Images)|Standing on glass 275+ metres in the air|![](/en-CA/2022/05/202205190400GlassBridge.jpg)|
