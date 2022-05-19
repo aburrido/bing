@@ -19,3 +19,4 @@
 202205162200|SaltPondsMaras|Salzterrassen von Maras im „Heiligen Tal der Inkas“, Peru (© Fotofeeling/Westend61 on Offset/Shutterstock)|Erfindungsreichtum der Inkas|![](/de-DE/2022/05/202205162200SaltPondsMaras.jpg)|
 202205172200|VanBlooms|Goldregen (Laburnum) und violetter Zierlauch in voller Blüte, VanDusen Botanical Garden, Vancouver, Kanada (© Greg Vaughn/Alamy)|Ein Schnappschuss vom Frühling|![](/de-DE/2022/05/202205172200VanBlooms.jpg)|
 202205182200|PawneeOwls|Kaninchenkauzküken, Pawnee National Grassland, Colorado, USA (© Roberta Olenick/Alamy)|Familientreffen|![](/de-DE/2022/05/202205182200PawneeOwls.jpg)|
+202205192200|ApisMellifera|Honigbiene im Anflug auf Krokusblüten, Tatra, Polen (© MirekKijewski/Getty Images)|Ausflug zu den Krokussen|![](/de-DE/2022/05/202205192200ApisMellifera.jpg)|
