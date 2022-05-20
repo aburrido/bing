@@ -20,3 +20,4 @@
 202205170700|SaltPondsMaras|Maras salt ponds, Sacred Valley of the Incas, Peru (© Fotofeeling/Westend61 on Offset/Shutterstock)|Info|![](/en-AU/2022/05/202205170700SaltPondsMaras.jpg)|
 202205180700|SchlossGluecksburg|Glücksburg Castle, Schleswig-Holstein, Germany (© Christian Back/eStock Photo)|Info|![](/en-AU/2022/05/202205180700SchlossGluecksburg.jpg)|
 202205190700|GlassBridge|Zhangjiajie Glass Bridge, Hunan, China (© MediaProduction/Getty Images)|Info|![](/en-AU/2022/05/202205190700GlassBridge.jpg)|
+202205200700|ApisMellifera|Honey bee, Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Info|![](/en-AU/2022/05/202205200700ApisMellifera.jpg)|
