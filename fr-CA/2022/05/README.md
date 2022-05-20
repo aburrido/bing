@@ -19,3 +19,4 @@
 202205170400|SaltPondsMaras|Les salines de Maras dans la Vallée Sacrée des Incas, Pérou (© Fotofeeling/Westend61 on Offset/Shutterstock)|Information|![](/fr-CA/2022/05/202205170400SaltPondsMaras.jpg)|
 202205180400|GrosMorneNP|Spring Forest, Parc national du Gros-Morne, Terre-Neuve-et-Labrador (© Don Johnston EC/Alamy Stock Photo)|Information|![](/fr-CA/2022/05/202205180400GrosMorneNP.jpg)|
 202205190400|GlassBridge|Pont de verre de Zhangjiajie, Hunan, Chine (© MediaProduction/Getty Images)|Information|![](/fr-CA/2022/05/202205190400GlassBridge.jpg)|
+202205200400|ApisMellifera|Abeille survolant des crocus dans les Tartas, Pologne (© Mirek Kijewski/Getty Images)|Information|![](/fr-CA/2022/05/202205200400ApisMellifera.jpg)|
