@@ -20,3 +20,4 @@
 202205171500|KansasPrairiefire|プレイリーファイア博物館, 米国 カンザス州 (© Bernard P. Friel/Universal Images Group via Getty Images)|今日は「国際博物館の日」|![](/ja-JP/2022/05/202205171500KansasPrairiefire.jpg)|
 202205181500|GlassBridge|張家界大峡谷玻璃大橋, 中国 湖南省 (© MediaProduction/Getty Images)|中国の世界一高くて長いガラス橋|![](/ja-JP/2022/05/202205181500GlassBridge.jpg)|
 202205191500|ApisMellifera|クロッカスとミツバチ, ポーランド タトラ山脈 (© MirekKijewski/Getty Images)|今日は「世界蜂の日」|![](/ja-JP/2022/05/202205191500ApisMellifera.jpg)|
+202205201500|AlbionFalls|アルビオン滝, カナダ オンタリオ州 (© Alexander Sviridov/Shutterstock)|オンタリオ州のカスケード滝|![](/ja-JP/2022/05/202205201500AlbionFalls.jpg)|
