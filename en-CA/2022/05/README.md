@@ -20,3 +20,4 @@
 202205180400|KansasPrairiefire|Museum at Prairiefire, Overland Park, Kansas (© Bernard P. Friel/Universal Images Group via Getty Images)|This museum sets the prairie on fire|![](/en-CA/2022/05/202205180400KansasPrairiefire.jpg)|
 202205190400|GlassBridge|Glass bridge of Zhangjiajie, Hunan, China (© MediaProduction/Getty Images)|Standing on glass 275+ metres in the air|![](/en-CA/2022/05/202205190400GlassBridge.jpg)|
 202205200400|ApisMellifera|Honeybee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Something to ‘bee’ thankful for|![](/en-CA/2022/05/202205200400ApisMellifera.jpg)|
+202205210400|AlbionFalls|Albion Falls, Hamilton, Ontario (© Alexander Sviridov/Shutterstock)|Cascade in the 'City of Waterfalls'|![](/en-CA/2022/05/202205210400AlbionFalls.jpg)|
