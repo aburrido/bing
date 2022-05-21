@@ -22,3 +22,4 @@
 202205190700|GlassBridge|Glass bridge of Zhangjiajie, Hunan, China (© MediaProduction/Getty Images)|Standing on glass 900+ feet in the air|![](/en-US/2022/05/202205190700GlassBridge.jpg)|
 202205200700|ApisMellifera|Honey bee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Something to 'bee' thankful for|![](/en-US/2022/05/202205200700ApisMellifera.jpg)|
 202205210700|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Cascade in the 'City of Waterfalls'|![](/en-US/2022/05/202205210700AlbionFalls.jpg)|
+||||![](/en-US/2022/05/.jpg)|

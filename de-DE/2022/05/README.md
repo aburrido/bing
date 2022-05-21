@@ -21,3 +21,4 @@
 202205182200|PawneeOwls|Kaninchenkauzküken, Pawnee National Grassland, Colorado, USA (© Roberta Olenick/Alamy)|Familientreffen|![](/de-DE/2022/05/202205182200PawneeOwls.jpg)|
 202205192200|ApisMellifera|Honigbiene im Anflug auf Krokusblüten, Tatra, Polen (© MirekKijewski/Getty Images)|Ausflug zu den Krokussen|![](/de-DE/2022/05/202205192200ApisMellifera.jpg)|
 202205202200|AlbionFalls|Albion Falls, Hamilton, Ontario, Kanada (© Alexander Sviridov/Shutterstock)|Kaskade in der „Stadt der Wasserfälle“|![](/de-DE/2022/05/202205202200AlbionFalls.jpg)|
+||||![](/de-DE/2022/05/.jpg)|
