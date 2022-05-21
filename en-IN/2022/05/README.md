@@ -22,3 +22,4 @@
 202205191830|ApisMellifera|Honeybee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Something to ‘bee’ thankful for..|![](/en-IN/2022/05/202205191830ApisMellifera.jpg)|
 202205201830|TigerKanhaNP|Tiger in Kanha National Park in Madhya Pradesh, India (© Trevor Scouten/Shutterstock)|MP's most photographed big cat|![](/en-IN/2022/05/202205201830TigerKanhaNP.jpg)|
 ||||![](/en-IN/2022/05/.jpg)|
+202205211830|ZebraEgret|A Burchell's zebra and a cattle egret at the Rietvlei Nature Reserve in South Africa (© Richard Du Toit/Minden Pictures)|We can all just get along|![](/en-IN/2022/05/202205211830ZebraEgret.jpg)|
