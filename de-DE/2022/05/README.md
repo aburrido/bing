@@ -23,3 +23,4 @@
 202205202200|AlbionFalls|Albion Falls, Hamilton, Ontario, Kanada (© Alexander Sviridov/Shutterstock)|Kaskade in der „Stadt der Wasserfälle“|![](/de-DE/2022/05/202205202200AlbionFalls.jpg)|
 ||||![](/de-DE/2022/05/.jpg)|
 202205212200|ZebraEgret|Burchell-Zebra und Kuhreiher, Rietvlei-Naturreservat, Südafrika (© Richard Du Toit/Minden Pictures)|Wir können alle miteinander auskommen|![](/de-DE/2022/05/202205212200ZebraEgret.jpg)|
+202205222200|RedBellied|Florida-Rotbauch-Schmuckschildkröte, Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Ein schöner Tag zum Schwimmen|![](/de-DE/2022/05/202205222200RedBellied.jpg)|

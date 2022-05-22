@@ -23,3 +23,4 @@
 202205202200|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Chut(e) !|![](/fr-FR/2022/05/202205202200AlbionFalls.jpg)|
 ||||![](/fr-FR/2022/05/.jpg)|
 202205212200|ZebraEgret|Un zèbre de Burchell et un héron garde-bœufs dans la réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|Vivons ensemble|![](/fr-FR/2022/05/202205212200ZebraEgret.jpg)|
+202205222200|RedBellied|Tortue de Floride dans le parc d’état de Rainbow Spring en Floride, États-Unis (© Michel Roggo/Minden Pictures)|Ma vie de tortue|![](/fr-FR/2022/05/202205222200RedBellied.jpg)|
