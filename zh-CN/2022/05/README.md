@@ -23,3 +23,4 @@
 202205201600|AlbionFalls|阿尔比恩瀑布，汉密尔顿，加拿大安大略省 (© Alexander Sviridov/Shutterstock)|“瀑布之城”中的小瀑布|![](/zh-CN/2022/05/202205201600AlbionFalls.jpg)|
 202205211600|ZebraEgret|伯切尔氏斑马和一只牛白鹭，南非利特弗雷自然保护区 (© Richard Du Toit/Minden Pictures)|我们可以和谐共处|![](/zh-CN/2022/05/202205211600ZebraEgret.jpg)|
 ||||![](/zh-CN/2022/05/.jpg)|
+202205221600|RedBellied|彩虹河里的佛罗里达红肚龟，彩虹泉州立公园，佛罗里达 (© Michel Roggo/Minden Pictures)|龟龟们畅游的好日子|![](/zh-CN/2022/05/202205221600RedBellied.jpg)|
