@@ -23,3 +23,4 @@
 202205202300|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Waterfall capital of the world?|![](/en-GB/2022/05/202205202300AlbionFalls.jpg)|
 ||||![](/en-GB/2022/05/.jpg)|
 202205212300|ZebraEgret|A Burchell's zebra and a cattle egret at the Rietvlei Nature Reserve in South Africa (© Richard Du Toit/Minden Pictures)|We can all just get along|![](/en-GB/2022/05/202205212300ZebraEgret.jpg)|
+202205222300|RedBellied|Florida red-bellied turtle in Rainbow Springs, Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Turtle-y nice day for a swim|![](/en-GB/2022/05/202205222300RedBellied.jpg)|
