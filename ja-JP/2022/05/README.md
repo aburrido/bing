@@ -23,3 +23,4 @@
 202205201500|AlbionFalls|アルビオン滝, カナダ オンタリオ州 (© Alexander Sviridov/Shutterstock)|オンタリオ州のカスケード滝|![](/ja-JP/2022/05/202205201500AlbionFalls.jpg)|
 202205211500|ZebraEgret|サバンナシマウマとアマサギ, 南アフリカ (© Richard Du Toit/Minden Pictures)|今日は「国際生物多様性の日」|![](/ja-JP/2022/05/202205211500ZebraEgret.jpg)|
 ||||![](/ja-JP/2022/05/.jpg)|
+202205221500|RedBellied|レインボースプリングスのフロリダアカハラガメ, 米国 (© Michel Roggo/Minden Pictures)|今日は「世界カメの日」|![](/ja-JP/2022/05/202205221500RedBellied.jpg)|
