@@ -23,3 +23,4 @@
 202205201830|TigerKanhaNP|Tiger in Kanha National Park in Madhya Pradesh, India (© Trevor Scouten/Shutterstock)|MP's most photographed big cat|![](/en-IN/2022/05/202205201830TigerKanhaNP.jpg)|
 ||||![](/en-IN/2022/05/.jpg)|
 202205211830|ZebraEgret|A Burchell's zebra and a cattle egret at the Rietvlei Nature Reserve in South Africa (© Richard Du Toit/Minden Pictures)|We can all just get along|![](/en-IN/2022/05/202205211830ZebraEgret.jpg)|
+202205221830|RedBellied|Florida red-bellied turtle in Rainbow Springs, Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)|Turtle-y nice day for a swim|![](/en-IN/2022/05/202205221830RedBellied.jpg)|
