@@ -22,3 +22,4 @@
 202205200400|ApisMellifera|Abeille survolant des crocus dans les Tartas, Pologne (© Mirek Kijewski/Getty Images)|Information|![](/fr-CA/2022/05/202205200400ApisMellifera.jpg)|
 202205210400|AlbionFalls|Albion Falls, Hamilton, Ontario (© Alexander Sviridov/Shutterstock)|Information|![](/fr-CA/2022/05/202205210400AlbionFalls.jpg)|
 ||||![](/fr-CA/2022/05/.jpg)|
+202205220400|ZebraEgret|Un zèbre de Burchell et un héron garde-bœufs dans la réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|Information|![](/fr-CA/2022/05/202205220400ZebraEgret.jpg)|
