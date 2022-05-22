@@ -23,3 +23,4 @@
 202205200700|ApisMellifera|Honey bee flying over crocuses in the Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Something to 'bee' thankful for|![](/en-US/2022/05/202205200700ApisMellifera.jpg)|
 202205210700|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Cascade in the 'City of Waterfalls'|![](/en-US/2022/05/202205210700AlbionFalls.jpg)|
 ||||![](/en-US/2022/05/.jpg)|
+202205220700|ZebraEgret|A Burchell's zebra and a cattle egret at the Rietvlei Nature Reserve in South Africa (© Richard Du Toit/Minden Pictures)|We can all just get along|![](/en-US/2022/05/202205220700ZebraEgret.jpg)|

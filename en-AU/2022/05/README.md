@@ -23,3 +23,4 @@
 202205200700|ApisMellifera|Honey bee, Tatra Mountains, Poland (© Mirek Kijewski/Getty Images)|Info|![](/en-AU/2022/05/202205200700ApisMellifera.jpg)|
 202205210700|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Info|![](/en-AU/2022/05/202205210700AlbionFalls.jpg)|
 ||||![](/en-AU/2022/05/.jpg)|
+202205220700|ZebraEgret|Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Info|![](/en-AU/2022/05/202205220700ZebraEgret.jpg)|
