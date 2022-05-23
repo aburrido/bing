@@ -23,3 +23,4 @@
 202205210400|AlbionFalls|Albion Falls, Hamilton, Ontario (© Alexander Sviridov/Shutterstock)|Cascade in the 'City of Waterfalls'|![](/en-CA/2022/05/202205210400AlbionFalls.jpg)|
 ||||![](/en-CA/2022/05/.jpg)|
 202205220400|ZebraEgret|A Burchell's zebra and a cattle egret at the Rietvlei Nature Reserve in South Africa (© Richard Du Toit/Minden Pictures)|We can all just get along|![](/en-CA/2022/05/202205220400ZebraEgret.jpg)|
+202205230400|RedBellied|Florida red-bellied turtle in Rainbow Springs, Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)|Turtle-y nice day for a swim|![](/en-CA/2022/05/202205230400RedBellied.jpg)|
