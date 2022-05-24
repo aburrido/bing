@@ -25,3 +25,4 @@
 ||||![](/en-AU/2022/05/.jpg)|
 202205220700|ZebraEgret|Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Info|![](/en-AU/2022/05/202205220700ZebraEgret.jpg)|
 202205230700|KolliHills|Kolli Hills, Tamil Nadu, India (© surangaw/iStock/Getty Images Plus)|Info|![](/en-AU/2022/05/202205230700KolliHills.jpg)|
+202205240700|KornatiNP|Kornati National Park, Croatia (© Anton Petrus/Getty Images)|Info|![](/en-AU/2022/05/202205240700KornatiNP.jpg)|
