@@ -25,3 +25,4 @@
 202205212300|ZebraEgret|A Burchell's zebra and a cattle egret at the Rietvlei Nature Reserve in South Africa (© Richard Du Toit/Minden Pictures)|We can all just get along|![](/en-GB/2022/05/202205212300ZebraEgret.jpg)|
 202205222300|RedBellied|Florida red-bellied turtle in Rainbow Springs, Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Turtle-y nice day for a swim|![](/en-GB/2022/05/202205222300RedBellied.jpg)|
 202205232300|KornatiNP|Kornati National Park, Croatia (© Anton Petrus/Getty Images)|An island park|![](/en-GB/2022/05/202205232300KornatiNP.jpg)|
+202205242300|Alhambra|Alhambra in Granada, Andalucia, Spain (© Armand Tamboly/Getty Images)|Pearl among the emeralds|![](/en-GB/2022/05/202205242300Alhambra.jpg)|
