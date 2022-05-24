@@ -25,3 +25,4 @@
 202205212200|ZebraEgret|Burchell-Zebra und Kuhreiher, Rietvlei-Naturreservat, Südafrika (© Richard Du Toit/Minden Pictures)|Wir können alle miteinander auskommen|![](/de-DE/2022/05/202205212200ZebraEgret.jpg)|
 202205222200|RedBellied|Florida-Rotbauch-Schmuckschildkröte, Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Ein schöner Tag zum Schwimmen|![](/de-DE/2022/05/202205222200RedBellied.jpg)|
 202205232200|KornatiNP|Kornati-Nationalpark, Kroatien (© Anton Petrus/Getty Images)|Inselhüpfen in Kroatien|![](/de-DE/2022/05/202205232200KornatiNP.jpg)|
+202205242200|Alhambra|Alhambra in Granada, Andalusien, Spanien (© Armand Tamboly/Getty Images)|„Die rote Festung“ in der Abenddämmerung|![](/de-DE/2022/05/202205242200Alhambra.jpg)|
