@@ -25,3 +25,4 @@
 ||||![](/ja-JP/2022/05/.jpg)|
 202205221500|RedBellied|レインボースプリングスのフロリダアカハラガメ, 米国 (© Michel Roggo/Minden Pictures)|今日は「世界カメの日」|![](/ja-JP/2022/05/202205221500RedBellied.jpg)|
 202205231500|KornatiNP|コルナティ諸島, クロアチア (© Anton Petrus/Getty Images)|アドリア海に浮かぶ、神々の涙|![](/ja-JP/2022/05/202205231500KornatiNP.jpg)|
+202205241500|Alhambra|アルハンブラ宮殿, スペイン (© Armand Tamboly/Getty Images)|アンダルシア、イスラム王朝の城塞|![](/ja-JP/2022/05/202205241500Alhambra.jpg)|
