@@ -25,3 +25,4 @@
 202205220400|ZebraEgret|Un zèbre de Burchell et un héron garde-bœufs dans la réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|Information|![](/fr-CA/2022/05/202205220400ZebraEgret.jpg)|
 202205230400|RedBellied|Tortue de Floride dans le parc d’état de Rainbow Spring en Floride, États-Unis (© Michel Roggo/Minden Pictures)|Information|![](/fr-CA/2022/05/202205230400RedBellied.jpg)|
 202205240400|KornatiNP|Parc national des Kornati, Croatie (© Anton Petrus/Getty Images)|Information|![](/fr-CA/2022/05/202205240400KornatiNP.jpg)|
+202205250400|Alhambra|L’Alhambra à Grenade, Andalusie, Espagne (© Armand Tamboly/Getty Images)|Information|![](/fr-CA/2022/05/202205250400Alhambra.jpg)|
