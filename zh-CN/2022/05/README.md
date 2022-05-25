@@ -26,3 +26,4 @@
 202205221600|RedBellied|彩虹河里的佛罗里达红肚龟，彩虹泉州立公园，佛罗里达 (© Michel Roggo/Minden Pictures)|龟龟们畅游的好日子|![](/zh-CN/2022/05/202205221600RedBellied.jpg)|
 202205231600|KornatiNP|科纳提国家公园，克罗地亚 (© Anton Petrus/Getty Images)|适合每个人的岛屿公园|![](/zh-CN/2022/05/202205231600KornatiNP.jpg)|
 202205241600|Alhambra|格拉纳达的阿尔罕布拉，安达卢西亚省，西班牙 (© Armand Tamboly/Getty Images)|绿宝石中的珍珠|![](/zh-CN/2022/05/202205241600Alhambra.jpg)|
+202205251600|Monteverde|蒙特维德云雾森林中的吊桥，哥斯达黎加 (© Dmitriy Burlakov/Getty Images)|上面的空气怎么样？|![](/zh-CN/2022/05/202205251600Monteverde.jpg)|
