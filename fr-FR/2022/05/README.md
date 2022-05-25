@@ -26,3 +26,4 @@
 202205222200|RedBellied|Tortue de Floride dans le parc d’état de Rainbow Spring en Floride, États-Unis (© Michel Roggo/Minden Pictures)|Ma vie de tortue|![](/fr-FR/2022/05/202205222200RedBellied.jpg)|
 202205232200|KornatiNP|Parc national des Kornati, Croatie (© Anton Petrus/Getty Images)|L’Europe fête les parcs !|![](/fr-FR/2022/05/202205232200KornatiNP.jpg)|
 202205242200|Alhambra|L’Alhambra à Grenade, Andalusie, Espagne (© Armand Tamboly/Getty Images)|Perle de Grenade|![](/fr-FR/2022/05/202205242200Alhambra.jpg)|
+202205252200|Monteverde|Pont suspendu dans la réserve biologique de Monteverde, Costa Rica (© Dmitriy Burlakov/Getty Images)|Au-dessus des arbres|![](/fr-FR/2022/05/202205252200Monteverde.jpg)|

@@ -26,3 +26,4 @@
 202205222200|RedBellied|Florida-Rotbauch-Schmuckschildkröte, Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Ein schöner Tag zum Schwimmen|![](/de-DE/2022/05/202205222200RedBellied.jpg)|
 202205232200|KornatiNP|Kornati-Nationalpark, Kroatien (© Anton Petrus/Getty Images)|Inselhüpfen in Kroatien|![](/de-DE/2022/05/202205232200KornatiNP.jpg)|
 202205242200|Alhambra|Alhambra in Granada, Andalusien, Spanien (© Armand Tamboly/Getty Images)|„Die rote Festung“ in der Abenddämmerung|![](/de-DE/2022/05/202205242200Alhambra.jpg)|
+202205252200|OrangerieSchwerin|Orangerie des Schweriner Schlosses am Schweriner See, Schwerin, Mecklenburg-Vorpommern (© Gunter Grafenhain/eStock Photo)|Schlossinsel mit Ausblick|![](/de-DE/2022/05/202205252200OrangerieSchwerin.jpg)|
