@@ -26,3 +26,4 @@
 202205230400|RedBellied|Tortue de Floride dans le parc d’état de Rainbow Spring en Floride, États-Unis (© Michel Roggo/Minden Pictures)|Information|![](/fr-CA/2022/05/202205230400RedBellied.jpg)|
 202205240400|KornatiNP|Parc national des Kornati, Croatie (© Anton Petrus/Getty Images)|Information|![](/fr-CA/2022/05/202205240400KornatiNP.jpg)|
 202205250400|Alhambra|L’Alhambra à Grenade, Andalusie, Espagne (© Armand Tamboly/Getty Images)|Information|![](/fr-CA/2022/05/202205250400Alhambra.jpg)|
+202205260400|Monteverde|Pont suspendu dans la réserve biologique de Monteverde, Costa Rica (© Dmitriy Burlakov/Getty Images)|Information|![](/fr-CA/2022/05/202205260400Monteverde.jpg)|
