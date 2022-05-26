@@ -27,3 +27,4 @@
 202205232200|KornatiNP|Parc national des Kornati, Croatie (© Anton Petrus/Getty Images)|L’Europe fête les parcs !|![](/fr-FR/2022/05/202205232200KornatiNP.jpg)|
 202205242200|Alhambra|L’Alhambra à Grenade, Andalusie, Espagne (© Armand Tamboly/Getty Images)|Perle de Grenade|![](/fr-FR/2022/05/202205242200Alhambra.jpg)|
 202205252200|Monteverde|Pont suspendu dans la réserve biologique de Monteverde, Costa Rica (© Dmitriy Burlakov/Getty Images)|Au-dessus des arbres|![](/fr-FR/2022/05/202205252200Monteverde.jpg)|
+202205262200|MarinHeadlands|Le pont du Golden Gate et les Marin Headlands photographiés depuis le belvédère du Golden Gate à San Francisco, Californie (© Jeff Lewis/Tandem Stills + Motion)|« J’ai laissé mon cœur à San Francisco »|![](/fr-FR/2022/05/202205262200MarinHeadlands.jpg)|
