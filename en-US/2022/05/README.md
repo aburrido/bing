@@ -27,3 +27,4 @@
 202205230700|RedBellied|Florida red-bellied turtle in Rainbow Springs, Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)|Turtle-y nice day for a swim|![](/en-US/2022/05/202205230700RedBellied.jpg)|
 202205240700|KornatiNP|Kornati National Park, Croatia (© Anton Petrus/Getty Images)|An island park for everyone|![](/en-US/2022/05/202205240700KornatiNP.jpg)|
 202205250700|Alhambra|Alhambra in Granada, Andalusia, Spain (© Armand Tamboly/Getty Images)|Pearl Among the Emeralds|![](/en-US/2022/05/202205250700Alhambra.jpg)|
+202205260700|Monteverde|Hanging bridge in the Monteverde Cloud Forest Reserve, Costa Rica (© Dmitriy Burlakov/Getty Images)|How's the air up there?|![](/en-US/2022/05/202205260700Monteverde.jpg)|
