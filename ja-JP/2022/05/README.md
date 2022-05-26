@@ -27,3 +27,4 @@
 202205231500|KornatiNP|コルナティ諸島, クロアチア (© Anton Petrus/Getty Images)|アドリア海に浮かぶ、神々の涙|![](/ja-JP/2022/05/202205231500KornatiNP.jpg)|
 202205241500|Alhambra|アルハンブラ宮殿, スペイン (© Armand Tamboly/Getty Images)|アンダルシア、イスラム王朝の城塞|![](/ja-JP/2022/05/202205241500Alhambra.jpg)|
 202205251500|Monteverde|モンテベルデ雲森林, コスタリカ (© Dmitriy Burlakov/Getty Images)|中米の熱帯雲霧林|![](/ja-JP/2022/05/202205251500Monteverde.jpg)|
+202205261500|MarinHeadlands|ゴールデンゲートブリッジ, 米国 (© Jeff Lewis/Tandem Stills + Motion)|今日は金門橋落成日|![](/ja-JP/2022/05/202205261500MarinHeadlands.jpg)|
