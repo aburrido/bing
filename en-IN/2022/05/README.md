@@ -27,3 +27,4 @@
 202205231830|KornatiNP|Kornati National Park, Croatia (© Anton Petrus/Getty Images)|An island park for everyone|![](/en-IN/2022/05/202205231830KornatiNP.jpg)|
 202205241830|Alhambra|Alhambra in Granada, Andalucia, Spain (© Armand Tamboly/Getty Images)|Pearl among the emeralds|![](/en-IN/2022/05/202205241830Alhambra.jpg)|
 202205251830|Monteverde|Hanging bridge in Monteverde Cloud Forest, Costa Rica (© Dmitriy Burlakov/Getty Images)|How’s the air up there?|![](/en-IN/2022/05/202205251830Monteverde.jpg)|
+202205261830|MarinHeadlands|Golden Gate Bridge and Marin Headlands photographed from Golden Gate Overlook in San Francisco, California (© Jeff Lewis/Tandem Stills + Motion)|Nothing says ‘San Francisco’ quite like...|![](/en-IN/2022/05/202205261830MarinHeadlands.jpg)|
