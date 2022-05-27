@@ -28,3 +28,4 @@
 202205242300|Alhambra|Alhambra in Granada, Andalucia, Spain (© Armand Tamboly/Getty Images)|Pearl among the emeralds|![](/en-GB/2022/05/202205242300Alhambra.jpg)|
 202205252300|HayFestival|Bunting across the street in Hay-on-Wye, Powys (© Simon Whaley Landscapes/Alamy)|The Town of Books|![](/en-GB/2022/05/202205252300HayFestival.jpg)|
 202205262300|MarinHeadlands|Golden Gate Bridge and Marin Headlands in San Francisco, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Nothing says ‘San Francisco’ quite like...|![](/en-GB/2022/05/202205262300MarinHeadlands.jpg)|
+202205272300|PurnululuNP|Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Bungle beehives|![](/en-GB/2022/05/202205272300PurnululuNP.jpg)|
