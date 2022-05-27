@@ -28,3 +28,4 @@
 202205241600|Alhambra|格拉纳达的阿尔罕布拉，安达卢西亚省，西班牙 (© Armand Tamboly/Getty Images)|绿宝石中的珍珠|![](/zh-CN/2022/05/202205241600Alhambra.jpg)|
 202205251600|Monteverde|蒙特维德云雾森林中的吊桥，哥斯达黎加 (© Dmitriy Burlakov/Getty Images)|上面的空气怎么样？|![](/zh-CN/2022/05/202205251600Monteverde.jpg)|
 202205261600|MarinHeadlands|金门大桥和马林岬角，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)|没有哪儿比这里更能代表旧金山…|![](/zh-CN/2022/05/202205261600MarinHeadlands.jpg)|
+202205271600|PurnululuNP|波奴鲁鲁国家公园里的邦格尔邦格尔山脉，澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)|蜂巢状的山脉|![](/zh-CN/2022/05/202205271600PurnululuNP.jpg)|
