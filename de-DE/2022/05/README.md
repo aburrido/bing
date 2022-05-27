@@ -28,3 +28,4 @@
 202205242200|Alhambra|Alhambra in Granada, Andalusien, Spanien (© Armand Tamboly/Getty Images)|„Die rote Festung“ in der Abenddämmerung|![](/de-DE/2022/05/202205242200Alhambra.jpg)|
 202205252200|OrangerieSchwerin|Orangerie des Schweriner Schlosses am Schweriner See, Schwerin, Mecklenburg-Vorpommern (© Gunter Grafenhain/eStock Photo)|Schlossinsel mit Ausblick|![](/de-DE/2022/05/202205252200OrangerieSchwerin.jpg)|
 202205262200|MarinHeadlands|Golden Gate Bridge und Küstenlandschaft Marin Headlands, San Francisco, Kalifornien, USA (© Jeff Lewis/Tandem Stills + Motion)|San Franciscos Wahrzeichen wird 85|![](/de-DE/2022/05/202205262200MarinHeadlands.jpg)|
+202205272200|PurnululuNP|Bungle-Bungle-Bergkette im Purnululu-Nationalpark, Australien (© Francesco Riccardo Iacomino/Getty Images)|Faszinierende „Bienenkörbe“|![](/de-DE/2022/05/202205272200PurnululuNP.jpg)|
