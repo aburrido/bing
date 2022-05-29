@@ -30,3 +30,4 @@
 202205260700|Monteverde|Hanging bridge in the Monteverde Cloud Forest Reserve, Costa Rica (© Dmitriy Burlakov/Getty Images)|How's the air up there?|![](/en-US/2022/05/202205260700Monteverde.jpg)|
 202205270700|MarinHeadlands|Golden Gate Bridge and Marin Headlands photographed from Golden Gate Overlook in San Francisco, California (© Jeff Lewis/Tandem Stills + Motion)|Nothing says 'San Francisco' quite like...|![](/en-US/2022/05/202205270700MarinHeadlands.jpg)|
 202205280700|PurnululuNP|Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Bungle beehives|![](/en-US/2022/05/202205280700PurnululuNP.jpg)|
+202205290700|HyaliteCreek|Hyalite Creek in the Custer Gallatin National Forest, Montana (© Jared Lloyd/Getty Images)|An angler's paradise|![](/en-US/2022/05/202205290700HyaliteCreek.jpg)|

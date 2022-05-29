@@ -30,3 +30,4 @@
 202205260700|Monteverde|Monteverde Cloud Forest, Costa Rica (© Dmitriy Burlakov/Getty Images)|Info|![](/en-AU/2022/05/202205260700Monteverde.jpg)|
 202205270700|MarinHeadlands|Golden Gate Bridge, San Francisco, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2022/05/202205270700MarinHeadlands.jpg)|
 202205280700|PurnululuNP|Bungle Bungle Range, Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2022/05/202205280700PurnululuNP.jpg)|
+202205290700|HyaliteCreek|Hyalite Creek, Custer Gallatin National Forest, Montana, USA (© Jared Lloyd/Getty Images)|Info|![](/en-AU/2022/05/202205290700HyaliteCreek.jpg)|
