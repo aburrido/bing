@@ -30,3 +30,4 @@
 202205261830|MarinHeadlands|Golden Gate Bridge and Marin Headlands photographed from Golden Gate Overlook in San Francisco, California (© Jeff Lewis/Tandem Stills + Motion)|Nothing says ‘San Francisco’ quite like...|![](/en-IN/2022/05/202205261830MarinHeadlands.jpg)|
 202205271830|PurnululuNP|Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Bungle beehives|![](/en-IN/2022/05/202205271830PurnululuNP.jpg)|
 202205281830|HyaliteCreek|Hyalite Creek in the Custer Gallatin National Forest, Montana (© Jared Lloyd/Getty Images)|An angler's paradise|![](/en-IN/2022/05/202205281830HyaliteCreek.jpg)|
+202205291830|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Cascade in the 'City of Waterfalls'|![](/en-IN/2022/05/202205291830AlbionFalls.jpg)|
