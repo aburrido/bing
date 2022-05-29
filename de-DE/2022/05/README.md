@@ -30,3 +30,4 @@
 202205262200|MarinHeadlands|Golden Gate Bridge und Küstenlandschaft Marin Headlands, San Francisco, Kalifornien, USA (© Jeff Lewis/Tandem Stills + Motion)|San Franciscos Wahrzeichen wird 85|![](/de-DE/2022/05/202205262200MarinHeadlands.jpg)|
 202205272200|PurnululuNP|Bungle-Bungle-Bergkette im Purnululu-Nationalpark, Australien (© Francesco Riccardo Iacomino/Getty Images)|Faszinierende „Bienenkörbe“|![](/de-DE/2022/05/202205272200PurnululuNP.jpg)|
 202205282200|MountFryatt|Mount Fryatt und Athabasca Falls, Jasper-Nationalpark, Alberta, Kanada (© Robert Postma/Getty Images)|Wildes Kanada|![](/de-DE/2022/05/202205282200MountFryatt.jpg)|
+202205292200|LechfallFuessen|Lechfall bei Füssen, Bayern (© Sergej Razvod/agefotostock)|Naturschauspiel im Ostallgäu|![](/de-DE/2022/05/202205292200LechfallFuessen.jpg)|
