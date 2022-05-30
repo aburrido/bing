@@ -31,3 +31,4 @@
 202205272300|PurnululuNP|Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Bungle beehives|![](/en-GB/2022/05/202205272300PurnululuNP.jpg)|
 202205282300|HyaliteCreek|Hyalite Creek in the Custer Gallatin National Forest, Montana, USA (© Jared Lloyd/Getty Images)|Teeming with trout|![](/en-GB/2022/05/202205282300HyaliteCreek.jpg)|
 202205292300|Monteverde|Hanging bridge in Monteverde Cloud Forest, Costa Rica (© Dmitriy Burlakov/Getty Images)|A walk in the clouds|![](/en-GB/2022/05/202205292300Monteverde.jpg)|
+202205302300|ParrotDay|Scarlet macaw in Costa Rica (© Harry Collins/Getty Images)|Passing with flying colours|![](/en-GB/2022/05/202205302300ParrotDay.jpg)|
