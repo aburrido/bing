@@ -31,3 +31,4 @@
 202205271500|PurnululuNP|バングル・バングル, オーストラリア (© Francesco Riccardo Iacomino/Getty Images)|キンバリーにそびえる奇岩の山|![](/ja-JP/2022/05/202205271500PurnululuNP.jpg)|
 202205281500|HyaliteCreek|ハイアライト渓谷, 米国 モンタナ州 (© Jared Lloyd/Getty Images)|カスター・ガラティン国有林の渓谷|![](/ja-JP/2022/05/202205281500HyaliteCreek.jpg)|
 202205291500|MountFryatt|フライアット山とアサバスカ滝, カナダ (© Robert Postma/Getty Images)|カナダの世界遺産|![](/ja-JP/2022/05/202205291500MountFryatt.jpg)|
+202205301500|TravertineTurkey|パムッカレのトラバーチン, トルコ (© bybostanci/Getty Images)|トルコの世界遺産|![](/ja-JP/2022/05/202205301500TravertineTurkey.jpg)|
