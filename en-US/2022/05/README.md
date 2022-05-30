@@ -31,3 +31,4 @@
 202205270700|MarinHeadlands|Golden Gate Bridge and Marin Headlands photographed from Golden Gate Overlook in San Francisco, California (© Jeff Lewis/Tandem Stills + Motion)|Nothing says 'San Francisco' quite like...|![](/en-US/2022/05/202205270700MarinHeadlands.jpg)|
 202205280700|PurnululuNP|Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Bungle beehives|![](/en-US/2022/05/202205280700PurnululuNP.jpg)|
 202205290700|HyaliteCreek|Hyalite Creek in the Custer Gallatin National Forest, Montana (© Jared Lloyd/Getty Images)|An angler's paradise|![](/en-US/2022/05/202205290700HyaliteCreek.jpg)|
+202205300700|WW2Lincoln|Rainbow Pool and the field of stars in the World War II Memorial with the Lincoln Memorial in the background, Washington, DC (© Sean Pavone/Getty Images)|A day of remembrance|![](/en-US/2022/05/202205300700WW2Lincoln.jpg)|

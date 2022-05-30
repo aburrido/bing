@@ -31,3 +31,4 @@
 202205270700|MarinHeadlands|Golden Gate Bridge, San Francisco, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2022/05/202205270700MarinHeadlands.jpg)|
 202205280700|PurnululuNP|Bungle Bungle Range, Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2022/05/202205280700PurnululuNP.jpg)|
 202205290700|HyaliteCreek|Hyalite Creek, Custer Gallatin National Forest, Montana, USA (© Jared Lloyd/Getty Images)|Info|![](/en-AU/2022/05/202205290700HyaliteCreek.jpg)|
+202205300700|MountFryatt|Athabasca Falls, Alberta, Canada (© Robert Postma/Getty Images)|Info|![](/en-AU/2022/05/202205300700MountFryatt.jpg)|
