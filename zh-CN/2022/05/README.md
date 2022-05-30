@@ -31,3 +31,4 @@
 202205271600|PurnululuNP|波奴鲁鲁国家公园里的邦格尔邦格尔山脉，澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)|蜂巢状的山脉|![](/zh-CN/2022/05/202205271600PurnululuNP.jpg)|
 202205281600|HyaliteCreek|加勒廷国家森林里的小溪，美国蒙大拿州 (© Jared Lloyd/Getty Images)|垂钓者的天堂|![](/zh-CN/2022/05/202205281600HyaliteCreek.jpg)|
 202205291600|MountFryatt|日落时分的阿萨巴斯卡瀑布，加拿大 (© Robert Postma/Getty Images)|奔腾不息的自然力量|![](/zh-CN/2022/05/202205291600MountFryatt.jpg)|
+202205301600|ParrotDay|展开双翅的绯红金刚鹦鹉，哥斯达黎加 (© Harry Collins/Getty Images)|一只伶俐可爱的小鸟掠过|![](/zh-CN/2022/05/202205301600ParrotDay.jpg)|
