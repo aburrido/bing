@@ -31,3 +31,4 @@
 202205272200|PurnululuNP|Bungle-Bungle-Bergkette im Purnululu-Nationalpark, Australien (© Francesco Riccardo Iacomino/Getty Images)|Faszinierende „Bienenkörbe“|![](/de-DE/2022/05/202205272200PurnululuNP.jpg)|
 202205282200|MountFryatt|Mount Fryatt und Athabasca Falls, Jasper-Nationalpark, Alberta, Kanada (© Robert Postma/Getty Images)|Wildes Kanada|![](/de-DE/2022/05/202205282200MountFryatt.jpg)|
 202205292200|LechfallFuessen|Lechfall bei Füssen, Bayern (© Sergej Razvod/agefotostock)|Naturschauspiel im Ostallgäu|![](/de-DE/2022/05/202205292200LechfallFuessen.jpg)|
+202205302200|ParrotDay|Hellroter Ara, Costa Rica (© Harry Collins/Getty Images)|Schwungvolle Eleganz|![](/de-DE/2022/05/202205302200ParrotDay.jpg)|

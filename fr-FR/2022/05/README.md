@@ -31,3 +31,4 @@
 202205272200|PurnululuNP|La chaîne Bungle Bungle dans le parc national de Purnululu, Ausralie (© Francesco Riccardo Iacomino/Getty Images)|La petite nouvelle !|![](/fr-FR/2022/05/202205272200PurnululuNP.jpg)|
 202205282200|MomJoey|Maman Koala et son petit de 8 mois, Queensland, Australie (© Suzi Eszterhas/Minden Pictures)|Ma maman à moi|![](/fr-FR/2022/05/202205282200MomJoey.jpg)|
 202205292200|SunsetVillage|L’Ardèche et le village de Vogüé au coucher du soleil (© JeanLucIchard/Shutterstock)|Château sur l’Ardèche|![](/fr-FR/2022/05/202205292200SunsetVillage.jpg)|
+202205302200|ParrotDay|Ara rouge au Costa Rica (© Harry Collins/Getty Images)|Splendeur volante|![](/fr-FR/2022/05/202205302200ParrotDay.jpg)|
