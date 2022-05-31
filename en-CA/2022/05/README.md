@@ -31,3 +31,4 @@
 202205280400|PurnululuNP|Bungle Bungle Range in Purnululu National Park, Australia (© Francesco Riccardo Iacomino/Getty Images)|Bungle beehives|![](/en-CA/2022/05/202205280400PurnululuNP.jpg)|
 202205290400|GrizzlyRainforest|Adult female grizzly bear and cub in the Great Bear Rainforest, B.C. (© Jack Chapman/Minden Pictures)|Grizzly bear and cub|![](/en-CA/2022/05/202205290400GrizzlyRainforest.jpg)|
 202205300400|MountFryatt|Sunset lights up Mount Fryatt as the Athabasca River flows over Athabasca Falls in Jasper National Park, Alberta, Canada (© Robert Postma/Getty Images)|Small but mighty|![](/en-CA/2022/05/202205300400MountFryatt.jpg)|
+202205310400|ParrotDay|Scarlet macaw in Costa Rica (© Harry Collins/Getty Images)|This clever bird passes with flying colours|![](/en-CA/2022/05/202205310400ParrotDay.jpg)|
