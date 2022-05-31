@@ -32,3 +32,4 @@
 202205281830|HyaliteCreek|Hyalite Creek in the Custer Gallatin National Forest, Montana (© Jared Lloyd/Getty Images)|An angler's paradise|![](/en-IN/2022/05/202205281830HyaliteCreek.jpg)|
 202205291830|AlbionFalls|Albion Falls, Hamilton, Ontario, Canada (© Alexander Sviridov/Shutterstock)|Cascade in the 'City of Waterfalls'|![](/en-IN/2022/05/202205291830AlbionFalls.jpg)|
 202205301830|ParrotDay|Scarlet macaw in Costa Rica (© Harry Collins/Getty Images)|This clever bird passes with flying colours|![](/en-IN/2022/05/202205301830ParrotDay.jpg)|
+202205311830|MarovoLagoon|Coral reef in Marovo Lagoon in the Solomon Islands (© WaterFrame/Alamy)|The beauty that lies below|![](/en-IN/2022/05/202205311830MarovoLagoon.jpg)|
