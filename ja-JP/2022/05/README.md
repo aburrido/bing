@@ -32,3 +32,4 @@
 202205281500|HyaliteCreek|ハイアライト渓谷, 米国 モンタナ州 (© Jared Lloyd/Getty Images)|カスター・ガラティン国有林の渓谷|![](/ja-JP/2022/05/202205281500HyaliteCreek.jpg)|
 202205291500|MountFryatt|フライアット山とアサバスカ滝, カナダ (© Robert Postma/Getty Images)|カナダの世界遺産|![](/ja-JP/2022/05/202205291500MountFryatt.jpg)|
 202205301500|TravertineTurkey|パムッカレのトラバーチン, トルコ (© bybostanci/Getty Images)|トルコの世界遺産|![](/ja-JP/2022/05/202205301500TravertineTurkey.jpg)|
+202205311500|PeritoMorenoArgentina|ペリト・モレノ氷河, アルゼンチン (© Juergen Schonnop/Getty Images)|今日は「気象記念日」|![](/ja-JP/2022/05/202205311500PeritoMorenoArgentina.jpg)|
