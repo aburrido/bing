@@ -32,3 +32,4 @@
 202205282300|HyaliteCreek|Hyalite Creek in the Custer Gallatin National Forest, Montana, USA (© Jared Lloyd/Getty Images)|Teeming with trout|![](/en-GB/2022/05/202205282300HyaliteCreek.jpg)|
 202205292300|Monteverde|Hanging bridge in Monteverde Cloud Forest, Costa Rica (© Dmitriy Burlakov/Getty Images)|A walk in the clouds|![](/en-GB/2022/05/202205292300Monteverde.jpg)|
 202205302300|ParrotDay|Scarlet macaw in Costa Rica (© Harry Collins/Getty Images)|Passing with flying colours|![](/en-GB/2022/05/202205302300ParrotDay.jpg)|
+202205312300|MarovoLagoon|Coral reef in Marovo Lagoon in the Solomon Islands (© WaterFrame/Alamy)|Beauty beneath the surface|![](/en-GB/2022/05/202205312300MarovoLagoon.jpg)|
