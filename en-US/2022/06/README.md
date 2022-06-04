@@ -4,3 +4,4 @@
 202206010700|MarovoLagoon|Coral reef in Marovo Lagoon in the Solomon Islands (© WaterFrame/Alamy)|The beauty that lies below|![](/en-US/2022/06/202206010700MarovoLagoon.jpg)|
 202206020700|QueenJubilee|Buckingham Palace in London, England (© Pajor Pawel/Shutterstock)|Good place for a party|![](/en-US/2022/06/202206020700QueenJubilee.jpg)|
 202206030700|MoabCycling|Cycling across a natural rock arch in the desert near Moab, Utah (© Whit Richardson/Cavan)|Don't look down!|![](/en-US/2022/06/202206030700MoabCycling.jpg)|
+202206040700|BannerPeak|Banner Peak and Thousand Island Lake, Ansel Adams Wilderness, California (© Michael DeYoung Photography/Tandem Stills + Motion)|Head for the hills, it's National Trails Day!|![](/en-US/2022/06/202206040700BannerPeak.jpg)|

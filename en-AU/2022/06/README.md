@@ -4,3 +4,4 @@
 202206010700|MarovoLagoon|Coral reef, Marovo Lagoon, Solomon Islands (© WaterFrame/Alamy)|Info|![](/en-AU/2022/06/202206010700MarovoLagoon.jpg)|
 202206020700|LechfallFuessen|Lechfall, Füssen, Bavaria, Germany (© Zoonar/Sergej Razvod/agefotostock)|Info|![](/en-AU/2022/06/202206020700LechfallFuessen.jpg)|
 202206030700|MoabCycling|Uranium Arch, Moab, Utah, USA (© Whit Richardson/Cavan)|Info|![](/en-AU/2022/06/202206030700MoabCycling.jpg)|
+202206040700|BannerPeak|Banner Peak, Ansel Adams Wilderness, California, USA (© Michael DeYoung Photography/Tandem Stills + Motion)|Info|![](/en-AU/2022/06/202206040700BannerPeak.jpg)|
