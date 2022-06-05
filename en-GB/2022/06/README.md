@@ -5,3 +5,4 @@
 202206022300|MoabCycling|Cycling across a natural rock arch in the desert near Moab, Utah, USA (© Whit Richardson/Cavan)|Don’t look down!|![](/en-GB/2022/06/202206022300MoabCycling.jpg)|
 202206032300|GlassBridge|Glass bridge of Zhangjiajie, Hunan, China (© MediaProduction/Getty Images)|Taking the long view|![](/en-GB/2022/06/202206032300GlassBridge.jpg)|
 202206042300|JubileeParty|Street party for the coronation of Queen Elizabeth II in 1953 (© KGPA Ltd/Alamy)|A right royal tradition|![](/en-GB/2022/06/202206042300JubileeParty.jpg)|
+202206052300|IndigoBunting|An indigo bunting at the John James Audubon Center at Mill Grove in Audubon, Pennsylvania, USA (© Vicki Jauron/Getty Images)|Singing the blues|![](/en-GB/2022/06/202206052300IndigoBunting.jpg)|
