@@ -5,3 +5,4 @@
 202206022200|MoabCycling|Radfahrer auf einem natürlichen Felsbogen in der Wüste bei Moab, Utah, USA (© Whit Richardson/Cavan)|Nicht nach unten sehen!|![](/de-DE/2022/06/202206022200MoabCycling.jpg)|
 202206032200|BannerPeak|Blick auf den Banner Peak vom Thousand Islands Pass, Ansel Adams Wilderness, Kalifornien, USA (© Michael DeYoung Photography/Tandem Stills + Motion)|Wunderschöne Wanderwege|![](/de-DE/2022/06/202206032200BannerPeak.jpg)|
 202206042200|RapadalenSNP|Rapadalen im Nationalpark Sarek, Schweden (© Alena Vishina/Alamy)|Im Einklang mit der Natur|![](/de-DE/2022/06/202206042200RapadalenSNP.jpg)|
+202206052200|MuehleWarnstedt|Warnstedter Mühle im Sonnenuntergang, Thale, Harz, Sachsen-Anhalt (© Andreas Vitting/eStock Photo)|Wunderschönes Wahrzeichen|![](/de-DE/2022/06/202206052200MuehleWarnstedt.jpg)|
