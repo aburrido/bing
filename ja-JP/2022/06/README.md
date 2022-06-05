@@ -5,3 +5,4 @@
 202206021500|MoabCycling|アーチ岩とサイクリスト, 米国 ユタ州  (© Whit Richardson/Cavan)|今日は世界自転車デー|![](/ja-JP/2022/06/202206021500MoabCycling.jpg)|
 202206031500|BannerPeak|アンセル・アダムス・ウィルダネス, 米国 (© Michael DeYoung Photography/Tandem Stills + Motion)|カリフォルニアの絶景|![](/ja-JP/2022/06/202206031500BannerPeak.jpg)|
 202206041500|RapadalenSNP|ラパ川渓谷, スウェーデン (© Alena Vishina/Alamy)|今日は世界環境の日|![](/ja-JP/2022/06/202206041500RapadalenSNP.jpg)|
+202206051500|IndigoBunting|ルリノジコ, 米国 ペンシルバニア州 (© Vicki Jauron/Getty Images)|米国の野鳥|![](/ja-JP/2022/06/202206051500IndigoBunting.jpg)|
