@@ -6,3 +6,4 @@
 202206030700|MoabCycling|Cycling across a natural rock arch in the desert near Moab, Utah (© Whit Richardson/Cavan)|Don't look down!|![](/en-US/2022/06/202206030700MoabCycling.jpg)|
 202206040700|BannerPeak|Banner Peak and Thousand Island Lake, Ansel Adams Wilderness, California (© Michael DeYoung Photography/Tandem Stills + Motion)|Head for the hills, it's National Trails Day!|![](/en-US/2022/06/202206040700BannerPeak.jpg)|
 202206050700|RapadalenSNP|Rapa Valley in Sarek National Park, Sweden (© Alena Vishina/Alamy)|'Only One Earth'|![](/en-US/2022/06/202206050700RapadalenSNP.jpg)|
+202206060700|IndigoBunting|An indigo bunting at the John James Audubon Center at Mill Grove in Audubon, Pennsylvania (© Vicki Jauron/Getty Images)|Singing the blues|![](/en-US/2022/06/202206060700IndigoBunting.jpg)|
