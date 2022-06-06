@@ -6,3 +6,4 @@
 202206031500|BannerPeak|アンセル・アダムス・ウィルダネス, 米国 (© Michael DeYoung Photography/Tandem Stills + Motion)|カリフォルニアの絶景|![](/ja-JP/2022/06/202206031500BannerPeak.jpg)|
 202206041500|RapadalenSNP|ラパ川渓谷, スウェーデン (© Alena Vishina/Alamy)|今日は世界環境の日|![](/ja-JP/2022/06/202206041500RapadalenSNP.jpg)|
 202206051500|IndigoBunting|ルリノジコ, 米国 ペンシルバニア州 (© Vicki Jauron/Getty Images)|米国の野鳥|![](/ja-JP/2022/06/202206051500IndigoBunting.jpg)|
+202206061500|HaagaRhododendron|ハーガ・ シャクナゲ公園, フィンランド (© Samuli Vainionpää/Getty Images)|ヘルシンキのシャクナゲ公園|![](/ja-JP/2022/06/202206061500HaagaRhododendron.jpg)|
