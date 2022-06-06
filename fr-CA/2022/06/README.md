@@ -5,3 +5,4 @@
 202206030400|MoabCycling|Cyclistes sur une arche naturelle dans le désert de Moab, Utah, États-Unis (© Whit Richardson/Cavan)|Information|![](/fr-CA/2022/06/202206030400MoabCycling.jpg)|
 202206040400|AerialPacificRim|Vue aérienne de la baie Clayoquot et de la Réserve de parc national Pacific Rim, Colombie Britannique (© Yuri Choufour/Danita Delimont)|Information|![](/fr-CA/2022/06/202206040400AerialPacificRim.jpg)|
 202206050400|RapadalenSNP|Vallée de Rapa dans le massif du Sarek, Suède (© Alena Vishina/Alamy)|Information|![](/fr-CA/2022/06/202206050400RapadalenSNP.jpg)|
+202206060400|IndigoBunting|Passerin indigo dans le centre John James Aubudon à Milll Grove, Pennsylvanie (© Vicki Jauron/Getty Images)|Information|![](/fr-CA/2022/06/202206060400IndigoBunting.jpg)|
