@@ -7,3 +7,4 @@
 202206040700|BannerPeak|Banner Peak, Ansel Adams Wilderness, California, USA (© Michael DeYoung Photography/Tandem Stills + Motion)|Info|![](/en-AU/2022/06/202206040700BannerPeak.jpg)|
 202206050700|RapadalenSNP|Rapa Valley, Sarek National Park, Sweden (© Alena Vishina/Alamy)|Info|![](/en-AU/2022/06/202206050700RapadalenSNP.jpg)|
 202206060700|IndigoBunting|Indigo bunting, Pennsylvania, USA (© Vicki Jauron/Getty Images)|Info|![](/en-AU/2022/06/202206060700IndigoBunting.jpg)|
+202206070700|HaagaRhododendron|Haaga Rhododendron Park, Helsinki, Finland (© Samuli Vainionpää/Getty Images)|Info|![](/en-AU/2022/06/202206070700HaagaRhododendron.jpg)|
