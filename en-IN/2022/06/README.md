@@ -7,3 +7,4 @@
 202206041830|RapadalenSNP|Rapa Valley in Sarek National Park, Sweden (© Alena Vishina/Alamy)|‘Only one Earth’|![](/en-IN/2022/06/202206041830RapadalenSNP.jpg)|
 202206051830|IndigoBunting|An indigo bunting at the John James Audubon Center at Mill Grove in Audubon, Pennsylvania (© Vicki Jauron/Getty Images)|Singing the blues|![](/en-IN/2022/06/202206051830IndigoBunting.jpg)|
 202206061830|HaagaRhododendron|Haaga Rhododendron Park, Helsinki, Finland (© Samuli Vainionpää/Getty Images)|Part science experiment, part public park|![](/en-IN/2022/06/202206061830HaagaRhododendron.jpg)|
+202206071830|CommonDolphin|Long-beaked common dolphin pod and diving Cape gannets hunting Pacific sardines off the Eastern Cape, South Africa (© Pete Oxford/Minden Pictures)|The buffet is open|![](/en-IN/2022/06/202206071830CommonDolphin.jpg)|
