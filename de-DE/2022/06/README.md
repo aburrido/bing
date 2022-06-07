@@ -7,3 +7,4 @@
 202206042200|RapadalenSNP|Rapadalen im Nationalpark Sarek, Schweden (© Alena Vishina/Alamy)|Im Einklang mit der Natur|![](/de-DE/2022/06/202206042200RapadalenSNP.jpg)|
 202206052200|MuehleWarnstedt|Warnstedter Mühle im Sonnenuntergang, Thale, Harz, Sachsen-Anhalt (© Andreas Vitting/eStock Photo)|Wunderschönes Wahrzeichen|![](/de-DE/2022/06/202206052200MuehleWarnstedt.jpg)|
 202206062200|HaagaRhododendron|Haaga-Rhododendron-Park, Helsinki, Finnland (© Samuli Vainionpää/Getty Images)|Beliebt bei Jung und Alt|![](/de-DE/2022/06/202206062200HaagaRhododendron.jpg)|
+202206072200|CommonDolphin|Langschnäuziger Gemeiner Delfin und tauchende Kaptölpel bei der Jagd auf Pazifische Sardinen vor dem Ostkap, Südafrika (© Pete Oxford/Minden Pictures)|Das Buffet ist eröffnet|![](/de-DE/2022/06/202206072200CommonDolphin.jpg)|

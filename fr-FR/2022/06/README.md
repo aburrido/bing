@@ -7,3 +7,4 @@
 202206042200|RapadalenSNP|Vallée de Rapa dans le massif du Sarek, Suède (© Alena Vishina/Alamy)|À la gloire de mère nature|![](/fr-FR/2022/06/202206042200RapadalenSNP.jpg)|
 202206052200|IndigoBunting|Passerin indigo dans le centre John James Audubon à Milll Grove, Pennsylvanie, États-Unis (© Vicki Jauron/Getty Images)|La vie en bleu|![](/fr-FR/2022/06/202206052200IndigoBunting.jpg)|
 202206062200|HaagaRhododendron|Parc des rhododendrons de Haaga à Helsinki, Finlande (© Samuli Vainionpää/Getty Images)|Explosion de rhododendrons|![](/fr-FR/2022/06/202206062200HaagaRhododendron.jpg)|
+202206072200|CommonDolphin|Dauphins communs à long bec et fous du cap chassant les sardines au large du Cap-Oriental, Afrique du sud (© Pete Oxford/Minden Pictures)|Dîner d’équipe|![](/fr-FR/2022/06/202206072200CommonDolphin.jpg)|
