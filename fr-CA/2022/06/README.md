@@ -6,3 +6,4 @@
 202206040400|AerialPacificRim|Vue aérienne de la baie Clayoquot et de la Réserve de parc national Pacific Rim, Colombie Britannique (© Yuri Choufour/Danita Delimont)|Information|![](/fr-CA/2022/06/202206040400AerialPacificRim.jpg)|
 202206050400|RapadalenSNP|Vallée de Rapa dans le massif du Sarek, Suède (© Alena Vishina/Alamy)|Information|![](/fr-CA/2022/06/202206050400RapadalenSNP.jpg)|
 202206060400|IndigoBunting|Passerin indigo dans le centre John James Aubudon à Milll Grove, Pennsylvanie (© Vicki Jauron/Getty Images)|Information|![](/fr-CA/2022/06/202206060400IndigoBunting.jpg)|
+202206070400|HaagaRhododendron|Parc des rhododendrons de Haaga à Helsinki, Finlande (© Samuli Vainionpää/Getty Images)|Information|![](/fr-CA/2022/06/202206070400HaagaRhododendron.jpg)|
