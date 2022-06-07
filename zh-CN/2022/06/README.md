@@ -7,3 +7,4 @@
 202206041600|RapadalenSNP|萨勒克国家公园的拉帕谷，瑞典 (© Alena Vishina/Alamy)|只有一个地球|![](/zh-CN/2022/06/202206041600RapadalenSNP.jpg)|
 202206051600|IndigoBunting|奥杜邦中心的一只靛蓝彩鹀，美国宾夕法尼亚州 (© Vicki Jauron/Getty Images)|唱一首“蓝调”|![](/zh-CN/2022/06/202206051600IndigoBunting.jpg)|
 202206061600|HaagaRhododendron|赫尔辛基的哈加杜鹃花公园，芬兰 (© Samuli Vainionpää/Getty Images)|部分是科研园，部分是公园|![](/zh-CN/2022/06/202206061600HaagaRhododendron.jpg)|
+202206071600|CommonDolphin|正在狩猎太平洋沙丁鱼的长吻真海豚和南非鲣鸟，南非东开普省 (© Pete Oxford/Minden Pictures)|自助餐开放了|![](/zh-CN/2022/06/202206071600CommonDolphin.jpg)|
