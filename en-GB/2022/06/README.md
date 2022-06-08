@@ -8,3 +8,4 @@
 202206052300|IndigoBunting|An indigo bunting at the John James Audubon Center at Mill Grove in Audubon, Pennsylvania, USA (© Vicki Jauron/Getty Images)|Singing the blues|![](/en-GB/2022/06/202206052300IndigoBunting.jpg)|
 202206062300|HaagaRhododendron|Haaga Rhododendron Park, Helsinki, Finland (© Samuli Vainionpää/Getty Images)|Cool bloomers|![](/en-GB/2022/06/202206062300HaagaRhododendron.jpg)|
 202206072300|CommonDolphin|Long-beaked common dolphin pod and diving Cape gannets hunting Pacific sardines off the Eastern Cape, South Africa (© Pete Oxford/Minden Pictures)|The buffet is open|![](/en-GB/2022/06/202206072300CommonDolphin.jpg)|
+202206082300|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway (© Westend61/Getty Images)|A longstanding ode to love|![](/en-GB/2022/06/202206082300SweetheartAbbey.jpg)|
