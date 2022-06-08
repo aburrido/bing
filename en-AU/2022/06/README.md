@@ -8,3 +8,4 @@
 202206050700|RapadalenSNP|Rapa Valley, Sarek National Park, Sweden (© Alena Vishina/Alamy)|Info|![](/en-AU/2022/06/202206050700RapadalenSNP.jpg)|
 202206060700|IndigoBunting|Indigo bunting, Pennsylvania, USA (© Vicki Jauron/Getty Images)|Info|![](/en-AU/2022/06/202206060700IndigoBunting.jpg)|
 202206070700|HaagaRhododendron|Haaga Rhododendron Park, Helsinki, Finland (© Samuli Vainionpää/Getty Images)|Info|![](/en-AU/2022/06/202206070700HaagaRhododendron.jpg)|
+202206080700|CommonDolphin|Long-beaked common dolphin, Eastern Cape, South Africa (© Pete Oxford/Minden Pictures)|Info|![](/en-AU/2022/06/202206080700CommonDolphin.jpg)|
