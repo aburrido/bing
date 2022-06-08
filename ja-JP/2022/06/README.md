@@ -8,3 +8,4 @@
 202206051500|IndigoBunting|ルリノジコ, 米国 ペンシルバニア州 (© Vicki Jauron/Getty Images)|米国の野鳥|![](/ja-JP/2022/06/202206051500IndigoBunting.jpg)|
 202206061500|HaagaRhododendron|ハーガ・ シャクナゲ公園, フィンランド (© Samuli Vainionpää/Getty Images)|ヘルシンキのシャクナゲ公園|![](/ja-JP/2022/06/202206061500HaagaRhododendron.jpg)|
 202206071500|CommonDolphin|マイルカとケープシロカツオドリ, 南アフリカ (© Pete Oxford/Minden Pictures)|今日は世界海洋デー|![](/ja-JP/2022/06/202206071500CommonDolphin.jpg)|
+202206081500|SweetheartAbbey|スウィートハート修道院, イギリス スコットランド (© Westend61/Getty Images)|ダンフリーズ・アンド・ガロウェイの修道院|![](/ja-JP/2022/06/202206081500SweetheartAbbey.jpg)|
