@@ -8,3 +8,4 @@
 202206060400|IndigoBunting|Passerin indigo dans le centre John James Aubudon à Milll Grove, Pennsylvanie (© Vicki Jauron/Getty Images)|Information|![](/fr-CA/2022/06/202206060400IndigoBunting.jpg)|
 202206070400|HaagaRhododendron|Parc des rhododendrons de Haaga à Helsinki, Finlande (© Samuli Vainionpää/Getty Images)|Information|![](/fr-CA/2022/06/202206070400HaagaRhododendron.jpg)|
 202206080400|CommonDolphin|Dauphins communs à long bec et fous du cap chassant les sardines au large du Cap-Oriental, Afrique du sud (© Pete Oxford/Minden Pictures)|Information|![](/fr-CA/2022/06/202206080400CommonDolphin.jpg)|
+202206090400|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Écosse (© Westend61/Getty Images)|Information|![](/fr-CA/2022/06/202206090400SweetheartAbbey.jpg)|
