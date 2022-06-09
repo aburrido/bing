@@ -10,3 +10,4 @@
 202206071830|CommonDolphin|Long-beaked common dolphin pod and diving Cape gannets hunting Pacific sardines off the Eastern Cape, South Africa (© Pete Oxford/Minden Pictures)|The buffet is open|![](/en-IN/2022/06/202206071830CommonDolphin.jpg)|
 ||||![](/en-IN/2022/06/.jpg)|
 202206081830|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|A very public display of affection|![](/en-IN/2022/06/202206081830SweetheartAbbey.jpg)|
+202206091830|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|‘Moravian Tuscany’|![](/en-IN/2022/06/202206091830CRPoppies.jpg)|
