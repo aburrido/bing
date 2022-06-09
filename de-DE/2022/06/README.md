@@ -9,3 +9,4 @@
 202206062200|HaagaRhododendron|Haaga-Rhododendron-Park, Helsinki, Finnland (© Samuli Vainionpää/Getty Images)|Beliebt bei Jung und Alt|![](/de-DE/2022/06/202206062200HaagaRhododendron.jpg)|
 202206072200|CommonDolphin|Langschnäuziger Gemeiner Delfin und tauchende Kaptölpel bei der Jagd auf Pazifische Sardinen vor dem Ostkap, Südafrika (© Pete Oxford/Minden Pictures)|Das Buffet ist eröffnet|![](/de-DE/2022/06/202206072200CommonDolphin.jpg)|
 202206082200|SweetheartAbbey|Sweetheart Abbey, Dumfries und Galloway, Schottland, Vereinigtes Königreich (© Westend61/Getty Images)|Ein wahres Symbol der Liebe|![](/de-DE/2022/06/202206082200SweetheartAbbey.jpg)|
+202206092200|CRPoppies|Blühender Mohn, Mähren, Tschechische Republik (© rusm/Getty Images)|Mährische Toskana|![](/de-DE/2022/06/202206092200CRPoppies.jpg)|
