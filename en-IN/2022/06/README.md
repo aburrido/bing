@@ -11,3 +11,4 @@
 ||||![](/en-IN/2022/06/.jpg)|
 202206081830|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|A very public display of affection|![](/en-IN/2022/06/202206081830SweetheartAbbey.jpg)|
 202206091830|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|‘Moravian Tuscany’|![](/en-IN/2022/06/202206091830CRPoppies.jpg)|
+202206101830|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise to explore|![](/en-IN/2022/06/202206101830MisoolIsland.jpg)|
