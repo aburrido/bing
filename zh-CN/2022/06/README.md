@@ -10,3 +10,4 @@
 202206071600|CommonDolphin|正在狩猎太平洋沙丁鱼的长吻真海豚和南非鲣鸟，南非东开普省 (© Pete Oxford/Minden Pictures)|自助餐开放了|![](/zh-CN/2022/06/202206071600CommonDolphin.jpg)|
 202206081600|SweetheartAbbey|邓弗里斯和加洛韦的甜心修道院，苏格兰 (© Westend61/Getty Images)|一场光明正大的示爱|![](/zh-CN/2022/06/202206081600SweetheartAbbey.jpg)|
 202206091600|SpottedDeers|斑鹿，滕波尔国家公园，印度 (© Ondrej Prosicky/Shutterstock)|在野外发现斑鹿|![](/zh-CN/2022/06/202206091600SpottedDeers.jpg)|
+202206101600|MisoolIsland|米苏尔岛，拉贾安帕特群岛中的岛屿，印度尼西亚 (© rusm/Getty Images)|一个可供探险的水下天堂|![](/zh-CN/2022/06/202206101600MisoolIsland.jpg)|
