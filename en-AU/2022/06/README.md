@@ -10,3 +10,4 @@
 202206070700|HaagaRhododendron|Haaga Rhododendron Park, Helsinki, Finland (© Samuli Vainionpää/Getty Images)|Info|![](/en-AU/2022/06/202206070700HaagaRhododendron.jpg)|
 202206080700|CommonDolphin|Long-beaked common dolphin, Eastern Cape, South Africa (© Pete Oxford/Minden Pictures)|Info|![](/en-AU/2022/06/202206080700CommonDolphin.jpg)|
 202206090700|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|Info|![](/en-AU/2022/06/202206090700SweetheartAbbey.jpg)|
+202206100700|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|Info|![](/en-AU/2022/06/202206100700CRPoppies.jpg)|
