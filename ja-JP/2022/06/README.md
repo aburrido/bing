@@ -11,3 +11,4 @@
 202206081500|SweetheartAbbey|スウィートハート修道院, イギリス スコットランド (© Westend61/Getty Images)|ダンフリーズ・アンド・ガロウェイの修道院|![](/ja-JP/2022/06/202206081500SweetheartAbbey.jpg)|
 202206091500|CRPoppies|ポピーの丘, チェコ モラヴィア (© rusm/Getty Images)|モラヴィアのヒナゲシの丘|![](/ja-JP/2022/06/202206091500CRPoppies.jpg)|
 202206101500|Tsuyu2022|明月院のアジサイ, 神奈川 鎌倉 (© Kantaya/Shutterstock)|今日は入梅|![](/ja-JP/2022/06/202206101500Tsuyu2022.jpg)|
+202206111500|SierraPonce|リオ・グランデ川とシエラ・ポンセ, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)|ビッグ・ベンド国立公園の誕生日|![](/ja-JP/2022/06/202206111500SierraPonce.jpg)|
