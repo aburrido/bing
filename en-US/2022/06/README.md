@@ -11,3 +11,4 @@
 202206080700|CommonDolphin|Long-beaked common dolphin pod and diving Cape gannets hunting sardines off the Eastern Cape, South Africa (© Pete Oxford/Minden Pictures)|The buffet is open|![](/en-US/2022/06/202206080700CommonDolphin.jpg)|
 202206090700|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|A very public display of affection|![](/en-US/2022/06/202206090700SweetheartAbbey.jpg)|
 202206100700|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|'Moravian Tuscany'|![](/en-US/2022/06/202206100700CRPoppies.jpg)|
+202206110700|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise to explore|![](/en-US/2022/06/202206110700MisoolIsland.jpg)|
