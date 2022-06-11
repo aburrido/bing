@@ -10,3 +10,4 @@
 202206080400|CommonDolphin|Dauphins communs à long bec et fous du cap chassant les sardines au large du Cap-Oriental, Afrique du sud (© Pete Oxford/Minden Pictures)|Information|![](/fr-CA/2022/06/202206080400CommonDolphin.jpg)|
 202206090400|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Écosse (© Westend61/Getty Images)|Information|![](/fr-CA/2022/06/202206090400SweetheartAbbey.jpg)|
 202206100400|RedTrillium|Gros plan d’un trille rouge dans le Parc provincial Algonquin, Ontario (© Jaynes Gallery/Danita Delimont)|Information|![](/fr-CA/2022/06/202206100400RedTrillium.jpg)|
+202206110400|MisoolIsland|Île de Misool, l’une des quatre îles principales des îles Raja Ampat, Papouasie occidentale, Indonésie (© Elsy Saldek/Getty Images)|Information|![](/fr-CA/2022/06/202206110400MisoolIsland.jpg)|
