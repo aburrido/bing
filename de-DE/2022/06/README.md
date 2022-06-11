@@ -11,3 +11,4 @@
 202206082200|SweetheartAbbey|Sweetheart Abbey, Dumfries und Galloway, Schottland, Vereinigtes Königreich (© Westend61/Getty Images)|Ein wahres Symbol der Liebe|![](/de-DE/2022/06/202206082200SweetheartAbbey.jpg)|
 202206092200|CRPoppies|Blühender Mohn, Mähren, Tschechische Republik (© rusm/Getty Images)|Mährische Toskana|![](/de-DE/2022/06/202206092200CRPoppies.jpg)|
 202206102200|MisoolIsland|Misool, eine der vier Hauptinseln von Raja Ampat in Westpapua, Indonesien (© Elsy Saldek/Getty Images)|Ein Unterwasserparadies zum Entdecken|![](/de-DE/2022/06/202206102200MisoolIsland.jpg)|
+202206112200|KampLintfortGarten|Luftaufnahme von Kleingärten, Kamp-Lintfort, Nordrhein-Westfalen, (© Hans Blossey/Alamy Stock Photo)|In luftiger Höhe|![](/de-DE/2022/06/202206112200KampLintfortGarten.jpg)|

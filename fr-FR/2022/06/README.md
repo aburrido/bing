@@ -11,3 +11,4 @@
 202206082200|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Écosse (© Westend61/Getty Images)|L’Amour|![](/fr-FR/2022/06/202206082200SweetheartAbbey.jpg)|
 202206092200|CRPoppies|Coquelicots en fleur, Moravie, République Tchèque (© rusm/Getty Images)|Toscane moravienne|![](/fr-FR/2022/06/202206092200CRPoppies.jpg)|
 202206102200|LeMans|Action au lever du soleil sur le Circuit des 24h en septembre 2020 au Mans (© Photo by James Moy Photography/Getty Images)|Vroum, Vroum !|![](/fr-FR/2022/06/202206102200LeMans.jpg)|
+202206112200|SierraPonce|Les falaises Sierra Ponce et le Rio Grande, parc national de Big Bend, Texas (© Tim Fitzharris/Minden Pictures)|Seuls au monde|![](/fr-FR/2022/06/202206112200SierraPonce.jpg)|
