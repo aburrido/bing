@@ -12,3 +12,4 @@
 202206090700|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|A very public display of affection|![](/en-US/2022/06/202206090700SweetheartAbbey.jpg)|
 202206100700|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|'Moravian Tuscany'|![](/en-US/2022/06/202206100700CRPoppies.jpg)|
 202206110700|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise to explore|![](/en-US/2022/06/202206110700MisoolIsland.jpg)|
+202206120700|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|A remote oasis in the Chihuahuan Desert|![](/en-US/2022/06/202206120700SierraPonce.jpg)|
