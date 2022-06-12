@@ -12,3 +12,4 @@
 202206092300|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|The rolling hills of Moravia|![](/en-GB/2022/06/202206092300CRPoppies.jpg)|
 202206102300|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise|![](/en-GB/2022/06/202206102300MisoolIsland.jpg)|
 202206112300|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande River, Big Bend National Park, Texas, USA (© Tim Fitzharris/Minden Pictures)|A remote oasis in Texas|![](/en-GB/2022/06/202206112300SierraPonce.jpg)|
+202206122300|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world’s greatest oasis?|![](/en-GB/2022/06/202206122300OkavangoElephant.jpg)|
