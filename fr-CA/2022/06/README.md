@@ -11,3 +11,4 @@
 202206090400|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Écosse (© Westend61/Getty Images)|Information|![](/fr-CA/2022/06/202206090400SweetheartAbbey.jpg)|
 202206100400|RedTrillium|Gros plan d’un trille rouge dans le Parc provincial Algonquin, Ontario (© Jaynes Gallery/Danita Delimont)|Information|![](/fr-CA/2022/06/202206100400RedTrillium.jpg)|
 202206110400|MisoolIsland|Île de Misool, l’une des quatre îles principales des îles Raja Ampat, Papouasie occidentale, Indonésie (© Elsy Saldek/Getty Images)|Information|![](/fr-CA/2022/06/202206110400MisoolIsland.jpg)|
+202206120400|SierraPonce|Falaises Sierra Ponce et le Rio Grande, parc national de Big Bend, Texas (© Tim Fitzharris/Minden Pictures)|Information|![](/fr-CA/2022/06/202206120400SierraPonce.jpg)|

@@ -11,3 +11,4 @@
 202206090400|SweetheartAbbey|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|A very public display of affection|![](/en-CA/2022/06/202206090400SweetheartAbbey.jpg)|
 202206100400|RedTrillium|A close-up of the red trillium flower in Algonquin Provincial Park, Ont. (© Jaynes Gallery/Danita Delimont)|Three petals and three leaves|![](/en-CA/2022/06/202206100400RedTrillium.jpg)|
 202206110400|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise to explore|![](/en-CA/2022/06/202206110400MisoolIsland.jpg)|
+202206120400|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande River, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|A remote oasis in the Chihuahuan Desert|![](/en-CA/2022/06/202206120400SierraPonce.jpg)|
