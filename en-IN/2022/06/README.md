@@ -14,3 +14,4 @@
 202206101830|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise to explore|![](/en-IN/2022/06/202206101830MisoolIsland.jpg)|
 202206111830|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande River, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|A remote oasis in the Chihuahuan Desert|![](/en-IN/2022/06/202206111830SierraPonce.jpg)|
 202206121830|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world’s greatest oasis?|![](/en-IN/2022/06/202206121830OkavangoElephant.jpg)|
+202206131830|SahyadriMountain|The Sahyadri Mountain range in India (© Bhushan Patil Photography/Getty Images)|Monsoon awakens the sleeping mountains|![](/en-IN/2022/06/202206131830SahyadriMountain.jpg)|
