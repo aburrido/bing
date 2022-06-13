@@ -12,3 +12,4 @@
 202206100400|RedTrillium|A close-up of the red trillium flower in Algonquin Provincial Park, Ont. (© Jaynes Gallery/Danita Delimont)|Three petals and three leaves|![](/en-CA/2022/06/202206100400RedTrillium.jpg)|
 202206110400|MisoolIsland|Misool Island, one of the four major islands in the Raja Ampat Islands in West Papua, Indonesia (© Elsy Saldek/Getty Images)|An underwater paradise to explore|![](/en-CA/2022/06/202206110400MisoolIsland.jpg)|
 202206120400|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande River, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|A remote oasis in the Chihuahuan Desert|![](/en-CA/2022/06/202206120400SierraPonce.jpg)|
+202206130400|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world’s greatest oasis?|![](/en-CA/2022/06/202206130400OkavangoElephant.jpg)|
