@@ -13,3 +13,4 @@
 202206101600|MisoolIsland|米苏尔岛，拉贾安帕特群岛中的岛屿，印度尼西亚 (© rusm/Getty Images)|一个可供探险的水下天堂|![](/zh-CN/2022/06/202206101600MisoolIsland.jpg)|
 202206111600|SierraPonce|大弯曲国家公园的塞拉庞塞和格兰德河边的悬崖，美国得克萨斯州 (© Tim Fitzharris/Minden Pictures)|奇瓦瓦沙漠中的一处偏远绿洲|![](/zh-CN/2022/06/202206111600SierraPonce.jpg)|
 202206121600|OkavangoElephant|行走在奥卡万戈河中的大象，博茨瓦纳，非洲南部 (© Markus Pavlowsky/Getty Images)|世界上最美好的绿洲？|![](/zh-CN/2022/06/202206121600OkavangoElephant.jpg)|
+202206131600|MuseumMile|纽约大都会艺术博物馆 (© Susanne Pommer/Shutterstock)|当地人把这个地方简称为“大都会博物馆”|![](/zh-CN/2022/06/202206131600MuseumMile.jpg)|
