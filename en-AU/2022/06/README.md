@@ -13,3 +13,4 @@
 202206100700|CRPoppies|Poppies in bloom, Moravia, Czech Republic (© rusm/Getty Images)|Info|![](/en-AU/2022/06/202206100700CRPoppies.jpg)|
 202206110700|MisoolIsland|Misool Island, Raja Ampat Islands, West Papua, Indonesia (© Elsy Saldek/Getty Images)|Info|![](/en-AU/2022/06/202206110700MisoolIsland.jpg)|
 202206120700|SierraPonce|Big Bend National Park, Texas, USA  (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2022/06/202206120700SierraPonce.jpg)|
+202206130700|SpottedDeers|Spotted deer, Ranthambore National Park, Rajasthan, India (© Ondrej Prosicky/Shutterstock)|Info|![](/en-AU/2022/06/202206130700SpottedDeers.jpg)|
