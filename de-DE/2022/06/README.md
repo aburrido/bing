@@ -13,3 +13,4 @@
 202206102200|MisoolIsland|Misool, eine der vier Hauptinseln von Raja Ampat in Westpapua, Indonesien (© Elsy Saldek/Getty Images)|Ein Unterwasserparadies zum Entdecken|![](/de-DE/2022/06/202206102200MisoolIsland.jpg)|
 202206112200|KampLintfortGarten|Luftaufnahme von Kleingärten, Kamp-Lintfort, Nordrhein-Westfalen, (© Hans Blossey/Alamy Stock Photo)|In luftiger Höhe|![](/de-DE/2022/06/202206112200KampLintfortGarten.jpg)|
 202206122200|OkavangoElephant|Elefantenwanderung im Okavango-Fluss, Botswana (© Markus Pavlowsky/Getty Images)|Die schönste Oase der Welt?|![](/de-DE/2022/06/202206122200OkavangoElephant.jpg)|
+202206132200|MuseumMile|Das Metropolitan Museum of Art in New York City, USA (© Susanne Pommer/Shutterstock)|Der Spitzname lautet „The Met“|![](/de-DE/2022/06/202206132200MuseumMile.jpg)|
