@@ -14,3 +14,4 @@
 202206111600|SierraPonce|大弯曲国家公园的塞拉庞塞和格兰德河边的悬崖，美国得克萨斯州 (© Tim Fitzharris/Minden Pictures)|奇瓦瓦沙漠中的一处偏远绿洲|![](/zh-CN/2022/06/202206111600SierraPonce.jpg)|
 202206121600|OkavangoElephant|行走在奥卡万戈河中的大象，博茨瓦纳，非洲南部 (© Markus Pavlowsky/Getty Images)|世界上最美好的绿洲？|![](/zh-CN/2022/06/202206121600OkavangoElephant.jpg)|
 202206131600|MuseumMile|纽约大都会艺术博物馆 (© Susanne Pommer/Shutterstock)|当地人把这个地方简称为“大都会博物馆”|![](/zh-CN/2022/06/202206131600MuseumMile.jpg)|
+202206141600|ClingmansDome|大雾山国家公园，田纳西州 (© Tony Barber/Getty Images)|田纳西之巅|![](/zh-CN/2022/06/202206141600ClingmansDome.jpg)|
