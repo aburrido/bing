@@ -14,3 +14,4 @@
 202206112300|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande River, Big Bend National Park, Texas, USA (© Tim Fitzharris/Minden Pictures)|A remote oasis in Texas|![](/en-GB/2022/06/202206112300SierraPonce.jpg)|
 202206122300|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world’s greatest oasis?|![](/en-GB/2022/06/202206122300OkavangoElephant.jpg)|
 202206132300|LlangollenBridge|Bridges, Not Walls installation by Luke Jerram cover Llangollen Bridge, Denbighshire. (© Christopher Furlong/Getty Images)|Patchwork of peace|![](/en-GB/2022/06/202206132300LlangollenBridge.jpg)|
+202206142300|ClingmansDome|Great Smoky Mountains National Park, Tennessee, USA (© Tony Barber/Getty Images)|Picture perfect|![](/en-GB/2022/06/202206142300ClingmansDome.jpg)|
