@@ -14,3 +14,4 @@
 202206111500|SierraPonce|リオ・グランデ川とシエラ・ポンセ, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)|ビッグ・ベンド国立公園の誕生日|![](/ja-JP/2022/06/202206111500SierraPonce.jpg)|
 202206121500|OkavangoElephant|オカヴァンゴ・デルタを歩むゾウ, ボツワナ (© Markus Pavlowsky/Getty Images)|アフリカゾウの散歩|![](/ja-JP/2022/06/202206121500OkavangoElephant.jpg)|
 202206131500|MuseumMile|メトロポリタン美術館, 米国 ニューヨーク市 (© Susanne Pommer/Shutterstock)|今週はミュージアム・マイル・フェス|![](/ja-JP/2022/06/202206131500MuseumMile.jpg)|
+202206141500|Chiba2022|濃溝の滝・亀岩の洞窟, 千葉 君津市 (© Saha Entertainment/Gettyimages)|今日は千葉県民の日|![](/ja-JP/2022/06/202206141500Chiba2022.jpg)|
