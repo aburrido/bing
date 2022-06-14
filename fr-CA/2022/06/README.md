@@ -13,3 +13,4 @@
 202206110400|MisoolIsland|Île de Misool, l’une des quatre îles principales des îles Raja Ampat, Papouasie occidentale, Indonésie (© Elsy Saldek/Getty Images)|Information|![](/fr-CA/2022/06/202206110400MisoolIsland.jpg)|
 202206120400|SierraPonce|Falaises Sierra Ponce et le Rio Grande, parc national de Big Bend, Texas (© Tim Fitzharris/Minden Pictures)|Information|![](/fr-CA/2022/06/202206120400SierraPonce.jpg)|
 202206130400|OkavangoElephant|Éléphant dans le fleuve Okavango, Botswana (© Markus Pavlowsky/Getty Images)|Information|![](/fr-CA/2022/06/202206130400OkavangoElephant.jpg)|
+202206140400|MuseumMile|Le Metropolitan Museum of Art, New York (© Susanne Pommer/Shutterstock)|Information|![](/fr-CA/2022/06/202206140400MuseumMile.jpg)|
