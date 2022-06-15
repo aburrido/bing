@@ -15,3 +15,4 @@
 202206121600|OkavangoElephant|行走在奥卡万戈河中的大象，博茨瓦纳，非洲南部 (© Markus Pavlowsky/Getty Images)|世界上最美好的绿洲？|![](/zh-CN/2022/06/202206121600OkavangoElephant.jpg)|
 202206131600|MuseumMile|纽约大都会艺术博物馆 (© Susanne Pommer/Shutterstock)|当地人把这个地方简称为“大都会博物馆”|![](/zh-CN/2022/06/202206131600MuseumMile.jpg)|
 202206141600|ClingmansDome|大雾山国家公园，田纳西州 (© Tony Barber/Getty Images)|田纳西之巅|![](/zh-CN/2022/06/202206141600ClingmansDome.jpg)|
+202206151600|SeonamTemple|仙岩寺中的升仙桥，韩国曹溪山道立公园 (© Aaron Choi/Getty Images)|连接过去和现在|![](/zh-CN/2022/06/202206151600SeonamTemple.jpg)|
