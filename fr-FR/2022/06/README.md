@@ -15,3 +15,4 @@
 202206122200|OkavangoElephant|Éléphant dans le fleuve Okavango, Botswana (© Markus Pavlowsky/Getty Images)|Oasis salvatrice|![](/fr-FR/2022/06/202206122200OkavangoElephant.jpg)|
 202206132200|MuseumMile|Le Metropolitan Museum of Art, New York (© Susanne Pommer/Shutterstock)|Le Met|![](/fr-FR/2022/06/202206132200MuseumMile.jpg)|
 202206142200|ClingmansDome|Le parc national des Monts Great Smoky, Tennessee, États-Unis (© Tony Barber/Getty Images)|En haut du Tennessee|![](/fr-FR/2022/06/202206142200ClingmansDome.jpg)|
+202206152200|SeonamTemple|Pont Seungseon devant le temple de Seonam dans le parc provincial de Jogyesan, Corée du Sud (© Aaron Choi/Getty Images)|Sérénité venue de Corée|![](/fr-FR/2022/06/202206152200SeonamTemple.jpg)|
