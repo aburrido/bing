@@ -15,3 +15,4 @@
 202206120700|SierraPonce|Cliffs of the Sierra Ponce and Rio Grande, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|A remote oasis in the Chihuahuan Desert|![](/en-US/2022/06/202206120700SierraPonce.jpg)|
 202206130700|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world's greatest oasis?|![](/en-US/2022/06/202206130700OkavangoElephant.jpg)|
 202206140700|MuseumMile|The Metropolitan Museum of Art in New York City (© Susanne Pommer/Shutterstock)|Visiting the Met|![](/en-US/2022/06/202206140700MuseumMile.jpg)|
+202206150700|ClingmansDome|Great Smoky Mountains National Park, Tennessee (© Tony Barber/Getty Images)|The top of Tennessee|![](/en-US/2022/06/202206150700ClingmansDome.jpg)|
