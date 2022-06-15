@@ -14,3 +14,4 @@
 202206120400|SierraPonce|Falaises Sierra Ponce et le Rio Grande, parc national de Big Bend, Texas (© Tim Fitzharris/Minden Pictures)|Information|![](/fr-CA/2022/06/202206120400SierraPonce.jpg)|
 202206130400|OkavangoElephant|Éléphant dans le fleuve Okavango, Botswana (© Markus Pavlowsky/Getty Images)|Information|![](/fr-CA/2022/06/202206130400OkavangoElephant.jpg)|
 202206140400|MuseumMile|Le Metropolitan Museum of Art, New York (© Susanne Pommer/Shutterstock)|Information|![](/fr-CA/2022/06/202206140400MuseumMile.jpg)|
+202206150400|ClingmansDome|Parc national des Great Smoky Mountains, Tennessee (© Tony Barber/Getty Images)|Information|![](/fr-CA/2022/06/202206150400ClingmansDome.jpg)|
