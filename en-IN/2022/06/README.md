@@ -16,3 +16,4 @@
 202206121830|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world’s greatest oasis?|![](/en-IN/2022/06/202206121830OkavangoElephant.jpg)|
 202206131830|SahyadriMountain|The Sahyadri Mountain range in India (© Bhushan Patil Photography/Getty Images)|Monsoon awakens the sleeping mountains|![](/en-IN/2022/06/202206131830SahyadriMountain.jpg)|
 202206141830|ClingmansDome|Great Smoky Mountains National Park, Tennessee (© Tony Barber/Getty Images)|The top of Tennessee|![](/en-IN/2022/06/202206141830ClingmansDome.jpg)|
+202206151830|SeonamTemple|Seungseon Bridge at Seonam Temple in Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)|Bridging past and present|![](/en-IN/2022/06/202206151830SeonamTemple.jpg)|
