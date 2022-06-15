@@ -15,3 +15,4 @@
 202206122300|OkavangoElephant|Elephant walking in the Okavango River, Botswana (© Markus Pavlowsky/Getty Images)|The world’s greatest oasis?|![](/en-GB/2022/06/202206122300OkavangoElephant.jpg)|
 202206132300|LlangollenBridge|Bridges, Not Walls installation by Luke Jerram cover Llangollen Bridge, Denbighshire. (© Christopher Furlong/Getty Images)|Patchwork of peace|![](/en-GB/2022/06/202206132300LlangollenBridge.jpg)|
 202206142300|ClingmansDome|Great Smoky Mountains National Park, Tennessee, USA (© Tony Barber/Getty Images)|Picture perfect|![](/en-GB/2022/06/202206142300ClingmansDome.jpg)|
+202206152300|SeonamTemple|Seungseon Bridge at Seonam Temple in Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)|Bridging past and present|![](/en-GB/2022/06/202206152300SeonamTemple.jpg)|
