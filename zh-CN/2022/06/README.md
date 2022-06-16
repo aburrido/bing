@@ -16,3 +16,4 @@
 202206131600|MuseumMile|纽约大都会艺术博物馆 (© Susanne Pommer/Shutterstock)|当地人把这个地方简称为“大都会博物馆”|![](/zh-CN/2022/06/202206131600MuseumMile.jpg)|
 202206141600|ClingmansDome|大雾山国家公园，田纳西州 (© Tony Barber/Getty Images)|田纳西之巅|![](/zh-CN/2022/06/202206141600ClingmansDome.jpg)|
 202206151600|SeonamTemple|仙岩寺中的升仙桥，韩国曹溪山道立公园 (© Aaron Choi/Getty Images)|连接过去和现在|![](/zh-CN/2022/06/202206151600SeonamTemple.jpg)|
+202206161600|Balsamroot|山下盛开的箭叶脂根菊，美国大提顿国家公园 (© Mike Cavaroc/Tandem Stills + Motion)|壮丽的景色|![](/zh-CN/2022/06/202206161600Balsamroot.jpg)|
