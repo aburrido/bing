@@ -16,3 +16,4 @@
 202206132200|MuseumMile|Das Metropolitan Museum of Art in New York City, USA (© Susanne Pommer/Shutterstock)|Der Spitzname lautet „The Met“|![](/de-DE/2022/06/202206132200MuseumMile.jpg)|
 202206142200|ClingmansDome|Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© Tony Barber/Getty Images)|Der Gipfel von Tennessee|![](/de-DE/2022/06/202206142200ClingmansDome.jpg)|
 202206152200|SeonamTemple|Seungseon-Brücke am Seonam-Tempel im Jogyesan Provincial Park, Südkorea (© Aaron Choi/Getty Images)|Brücke zwischen Vergangenheit und Gegenwart|![](/de-DE/2022/06/202206152200SeonamTemple.jpg)|
+202206162200|Balsamroot|Pfeilblättrige Balsamwurzeln am Fuße der Bergkette Teton Range im Grand-Teton-Nationalpark, Wyoming, USA (© Mike Cavaroc/Tandem Stills + Motion)|Grandioser Anblick|![](/de-DE/2022/06/202206162200Balsamroot.jpg)|

@@ -16,3 +16,4 @@
 202206132200|MuseumMile|Le Metropolitan Museum of Art, New York (© Susanne Pommer/Shutterstock)|Le Met|![](/fr-FR/2022/06/202206132200MuseumMile.jpg)|
 202206142200|ClingmansDome|Le parc national des Monts Great Smoky, Tennessee, États-Unis (© Tony Barber/Getty Images)|En haut du Tennessee|![](/fr-FR/2022/06/202206142200ClingmansDome.jpg)|
 202206152200|SeonamTemple|Pont Seungseon devant le temple de Seonam dans le parc provincial de Jogyesan, Corée du Sud (© Aaron Choi/Getty Images)|Sérénité venue de Corée|![](/fr-FR/2022/06/202206152200SeonamTemple.jpg)|
+202206162200|Balsamroot|Fleurs sauvages devant la chaîne Teton dans le parc national de Grand Teton, Wyoming, États-Unis (© Mike Cavaroc/Tandem Stills + Motion)|Entre fleurs et montagne|![](/fr-FR/2022/06/202206162200Balsamroot.jpg)|
