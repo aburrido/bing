@@ -17,3 +17,4 @@
 202206141500|Chiba2022|濃溝の滝・亀岩の洞窟, 千葉 君津市 (© Saha Entertainment/Gettyimages)|今日は千葉県民の日|![](/ja-JP/2022/06/202206141500Chiba2022.jpg)|
 202206151500|ParrotDay|コンゴウインコ, コスタリカ (© Harry Collins/Getty Images)|南米の野鳥|![](/ja-JP/2022/06/202206151500ParrotDay.jpg)|
 202206161500|Balsamroot|グランド・ティトン山とバルサムルート, 米国 ワイオミング州 (© Mike Cavaroc/Tandem Stills + Motion)|ワイオミングの野草|![](/ja-JP/2022/06/202206161500Balsamroot.jpg)|
+202206171500|CelebratingSurfing|パームビーチのサーファー, オーストラリア ゴールドコースト (© Darren Tierney/Getty Images)|国際サーフィンの日|![](/ja-JP/2022/06/202206171500CelebratingSurfing.jpg)|
