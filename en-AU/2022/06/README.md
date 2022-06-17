@@ -17,3 +17,4 @@
 202206140700|MuseumMile|The Metropolitan Museum of Art, New York City, USA (© Susanne Pommer/Shutterstock)|Info|![](/en-AU/2022/06/202206140700MuseumMile.jpg)|
 202206150700|ClingmansDome|Great Smoky Mountains National Park, Tennessee, USA (© Tony Barber/Getty Images)|Info|![](/en-AU/2022/06/202206150700ClingmansDome.jpg)|
 202206160700|SeonamTemple|Seonam Temple, Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)|Info|![](/en-AU/2022/06/202206160700SeonamTemple.jpg)|
+202206170700|Balsamroot|Teton Mountains, Grand Teton National Park, Wyoming, USA (© Mike Cavaroc/Tandem Stills + Motion)|Info|![](/en-AU/2022/06/202206170700Balsamroot.jpg)|
