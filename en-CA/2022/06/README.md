@@ -16,3 +16,4 @@
 202206140400|MuseumMile|The Metropolitan Museum of Art in New York City (© Susanne Pommer/Shutterstock)|Locals know this place simply as ‘the Met’|![](/en-CA/2022/06/202206140400MuseumMile.jpg)|
 202206150400|ClingmansDome|Great Smoky Mountains National Park, Tennessee (© Tony Barber/Getty Images)|The top of Tennessee|![](/en-CA/2022/06/202206150400ClingmansDome.jpg)|
 202206160400|SeonamTemple|Seungseon Bridge at Seonam Temple in Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)|Bridging past and present|![](/en-CA/2022/06/202206160400SeonamTemple.jpg)|
+202206170400|Balsamroot|Balsamroot wildflowers bloom below the Teton Mountains in Grand Teton National Park, Wyoming (© Mike Cavaroc/Tandem Stills + Motion)|A grand view|![](/en-CA/2022/06/202206170400Balsamroot.jpg)|

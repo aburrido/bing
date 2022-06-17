@@ -16,3 +16,4 @@
 202206140400|MuseumMile|Le Metropolitan Museum of Art, New York (© Susanne Pommer/Shutterstock)|Information|![](/fr-CA/2022/06/202206140400MuseumMile.jpg)|
 202206150400|ClingmansDome|Parc national des Great Smoky Mountains, Tennessee (© Tony Barber/Getty Images)|Information|![](/fr-CA/2022/06/202206150400ClingmansDome.jpg)|
 202206160400|SeonamTemple|Pont Seungseon dans le temple de Seonam dans le parc provincial de Jogyesan, Corée du Sud (© Aaron Choi/Getty Images)|Information|![](/fr-CA/2022/06/202206160400SeonamTemple.jpg)|
+202206170400|Balsamroot|Fleurs d’astéracées dans le parc national de Grand Teton, Wyoming, États-Unis. (© Mike Cavaroc/Tandem Stills + Motion)|Information|![](/fr-CA/2022/06/202206170400Balsamroot.jpg)|
