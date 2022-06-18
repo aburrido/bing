@@ -18,3 +18,4 @@
 202206152300|SeonamTemple|Seungseon Bridge at Seonam Temple in Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)|Bridging past and present|![](/en-GB/2022/06/202206152300SeonamTemple.jpg)|
 202206162300|Balsamroot|Balsamroot wildflowers bloom below the Teton Mountains in Grand Teton National Park, Wyoming, USA (© Mike Cavaroc/Tandem Stills + Motion)|A grand view|![](/en-GB/2022/06/202206162300Balsamroot.jpg)|
 202206172300|CelebratingSurfing|Surfers catching waves at Palm Beach on the Gold Coast, Queensland, Australia (© Darren Tierney/Getty Images)|Waterborne wizardry|![](/en-GB/2022/06/202206172300CelebratingSurfing.jpg)|
+202206182300|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-GB/2022/06/202206182300Cassowary.jpg)|
