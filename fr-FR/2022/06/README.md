@@ -18,3 +18,4 @@
 202206152200|SeonamTemple|Pont Seungseon devant le temple de Seonam dans le parc provincial de Jogyesan, Corée du Sud (© Aaron Choi/Getty Images)|Sérénité venue de Corée|![](/fr-FR/2022/06/202206152200SeonamTemple.jpg)|
 202206162200|Balsamroot|Fleurs sauvages devant la chaîne Teton dans le parc national de Grand Teton, Wyoming, États-Unis (© Mike Cavaroc/Tandem Stills + Motion)|Entre fleurs et montagne|![](/fr-FR/2022/06/202206162200Balsamroot.jpg)|
 202206172200|CelebratingSurfing|Surfeurs sur une vague à Palm Beach, Gold Coast, Queensland, Australie (© Darren Tierney/Getty Images)|La bonne vague|![](/fr-FR/2022/06/202206172200CelebratingSurfing.jpg)|
+202206182200|DianeRiders|Cavaliers et leurs chevaux au petit matin, Chantilly, France (© Agencja Fotograficzna Caro/Alamy Stock Photo)|Au galop !|![](/fr-FR/2022/06/202206182200DianeRiders.jpg)|
