@@ -18,3 +18,4 @@
 202206150700|ClingmansDome|Great Smoky Mountains National Park, Tennessee (© Tony Barber/Getty Images)|The top of Tennessee|![](/en-US/2022/06/202206150700ClingmansDome.jpg)|
 202206160700|SeonamTemple|Seungseon Bridge at Seonam Temple in Jogyesan Provincial Park, South Korea (© Aaron Choi/Getty Images)|Bridging past and present|![](/en-US/2022/06/202206160700SeonamTemple.jpg)|
 202206170700|Balsamroot|Balsamroot wildflowers bloom below the Teton Mountains in Grand Teton National Park, Wyoming (© Mike Cavaroc/Tandem Stills + Motion)|A grand view|![](/en-US/2022/06/202206170700Balsamroot.jpg)|
+202206180700|CelebratingSurfing|Surfers catching waves at Palm Beach on the Gold Coast, Queensland, Australia (© Darren Tierney/Getty Images)|What waterborne wizardry is this?|![](/en-US/2022/06/202206180700CelebratingSurfing.jpg)|
