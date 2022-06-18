@@ -18,3 +18,4 @@
 202206151500|ParrotDay|コンゴウインコ, コスタリカ (© Harry Collins/Getty Images)|南米の野鳥|![](/ja-JP/2022/06/202206151500ParrotDay.jpg)|
 202206161500|Balsamroot|グランド・ティトン山とバルサムルート, 米国 ワイオミング州 (© Mike Cavaroc/Tandem Stills + Motion)|ワイオミングの野草|![](/ja-JP/2022/06/202206161500Balsamroot.jpg)|
 202206171500|CelebratingSurfing|パームビーチのサーファー, オーストラリア ゴールドコースト (© Darren Tierney/Getty Images)|国際サーフィンの日|![](/ja-JP/2022/06/202206171500CelebratingSurfing.jpg)|
+202206181500|Cassowary|ヒクイドリの父子, オーストラリア クイーンズランド (© Martin Willis/Minden Pictures)|今日は父の日|![](/ja-JP/2022/06/202206181500Cassowary.jpg)|
