@@ -19,3 +19,4 @@
 202206162200|Balsamroot|Pfeilblättrige Balsamwurzeln am Fuße der Bergkette Teton Range im Grand-Teton-Nationalpark, Wyoming, USA (© Mike Cavaroc/Tandem Stills + Motion)|Grandioser Anblick|![](/de-DE/2022/06/202206162200Balsamroot.jpg)|
 202206172200|CelebratingSurfing|Surfer am Palm Beach, Gold Coast, Queensland, Australien (© Darren Tierney/Getty Images)|Auf der Suche nach der perfekten Welle|![](/de-DE/2022/06/202206172200CelebratingSurfing.jpg)|
 202206182200|SchwanAischgrund|Schwan mit Küken, Aischgrund, Franken, Bayern (© Rüdiger Hess/geo-select FotoArt)|Schwimmunterricht für den Nachwuchs|![](/de-DE/2022/06/202206182200SchwanAischgrund.jpg)|
+202206192200|SwallowtailFlower|Zwei Schwalbenschwänze auf einer Blume (© Alberto Ghizzi Panizza/Getty Images)|Verabredung zum Mittagessen|![](/de-DE/2022/06/202206192200SwallowtailFlower.jpg)|
