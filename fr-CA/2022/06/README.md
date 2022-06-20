@@ -19,3 +19,4 @@
 202206170400|Balsamroot|Fleurs d’astéracées dans le parc national de Grand Teton, Wyoming, États-Unis. (© Mike Cavaroc/Tandem Stills + Motion)|Information|![](/fr-CA/2022/06/202206170400Balsamroot.jpg)|
 202206180400|CelebratingSurfing|Surfeurs en pleine action à Palm Beach dans le Queensland, Australie (© Darren Tierney/Getty Images)|Information|![](/fr-CA/2022/06/202206180400CelebratingSurfing.jpg)|
 202206190400|Cassowary|Casoar mâle et ses petits, Queensland, Australie (© Martin Willis/Minden Pictures)|Information|![](/fr-CA/2022/06/202206190400Cassowary.jpg)|
+202206200400|SwallowtailFlower|Deux papillons grand porte-queue se partagent une fleur (© Alberto Ghizzi Panizza/Getty Images)|Information|![](/fr-CA/2022/06/202206200400SwallowtailFlower.jpg)|

@@ -19,3 +19,4 @@
 202206170400|Balsamroot|Balsamroot wildflowers bloom below the Teton Mountains in Grand Teton National Park, Wyoming (© Mike Cavaroc/Tandem Stills + Motion)|A grand view|![](/en-CA/2022/06/202206170400Balsamroot.jpg)|
 202206180400|CelebratingSurfing|Surfers catching waves at Palm Beach on the Gold Coast, Queensland, Australia (© Darren Tierney/Getty Images)|What waterborne wizardry is this?|![](/en-CA/2022/06/202206180400CelebratingSurfing.jpg)|
 202206190400|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-CA/2022/06/202206190400Cassowary.jpg)|
+202206200400|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-CA/2022/06/202206200400SwallowtailFlower.jpg)|
