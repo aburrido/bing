@@ -20,3 +20,4 @@
 202206172200|CelebratingSurfing|Surfer am Palm Beach, Gold Coast, Queensland, Australien (© Darren Tierney/Getty Images)|Auf der Suche nach der perfekten Welle|![](/de-DE/2022/06/202206172200CelebratingSurfing.jpg)|
 202206182200|SchwanAischgrund|Schwan mit Küken, Aischgrund, Franken, Bayern (© Rüdiger Hess/geo-select FotoArt)|Schwimmunterricht für den Nachwuchs|![](/de-DE/2022/06/202206182200SchwanAischgrund.jpg)|
 202206192200|SwallowtailFlower|Zwei Schwalbenschwänze auf einer Blume (© Alberto Ghizzi Panizza/Getty Images)|Verabredung zum Mittagessen|![](/de-DE/2022/06/202206192200SwallowtailFlower.jpg)|
+202206202200|GlastonburySolstice|Blick vom Walton Hill auf den Glastonbury Tor, Somerset, England, Vereinigtes Königreich (© Guy Edwardes/Minden Pictures)|Heute beginnt der Sommer|![](/de-DE/2022/06/202206202200GlastonburySolstice.jpg)|

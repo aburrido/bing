@@ -20,3 +20,4 @@
 202206172200|CelebratingSurfing|Surfeurs sur une vague à Palm Beach, Gold Coast, Queensland, Australie (© Darren Tierney/Getty Images)|La bonne vague|![](/fr-FR/2022/06/202206172200CelebratingSurfing.jpg)|
 202206182200|DianeRiders|Cavaliers et leurs chevaux au petit matin, Chantilly, France (© Agencja Fotograficzna Caro/Alamy Stock Photo)|Au galop !|![](/fr-FR/2022/06/202206182200DianeRiders.jpg)|
 202206192200|SwallowtailFlower|Deux Grands porte-queue sur une fleur (© Alberto Ghizzi Panizza/Getty Images)|Gloire aux pollinisateurs|![](/fr-FR/2022/06/202206192200SwallowtailFlower.jpg)|
+202206202200|Musique|Guitare de jazz Aria de style Gibson 355 (© Claude thibault/Alamy)|Gastronomie acoustique|![](/fr-FR/2022/06/202206202200Musique.jpg)|
