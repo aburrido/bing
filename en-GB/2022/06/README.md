@@ -20,3 +20,4 @@
 202206172300|CelebratingSurfing|Surfers catching waves at Palm Beach on the Gold Coast, Queensland, Australia (© Darren Tierney/Getty Images)|Waterborne wizardry|![](/en-GB/2022/06/202206172300CelebratingSurfing.jpg)|
 202206182300|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-GB/2022/06/202206182300Cassowary.jpg)|
 202206192300|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-GB/2022/06/202206192300SwallowtailFlower.jpg)|
+202206202300|StonehengeSunrise|Cloudy sunrise over Stonehenge - prehistoric megalith monument arranged in circle. (© Valery Egorov/Getty Images)|Stones on the solstice|![](/en-GB/2022/06/202206202300StonehengeSunrise.jpg)|
