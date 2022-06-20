@@ -21,3 +21,4 @@
 202206171830|CelebratingSurfing|Surfers catching waves at Palm Beach on the Gold Coast, Queensland, Australia (© Darren Tierney/Getty Images)|What waterborne wizardry is this?|![](/en-IN/2022/06/202206171830CelebratingSurfing.jpg)|
 202206181830|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-IN/2022/06/202206181830Cassowary.jpg)|
 202206191830|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-IN/2022/06/202206191830SwallowtailFlower.jpg)|
+202206201830|GangaRiverRishikesh|Ganga river, Lakshman Jhula, and Tera Manzil Temple in Rishikesh, India (© Travelwild/Shutterstock)|Welcome to the world's yoga capital|![](/en-IN/2022/06/202206201830GangaRiverRishikesh.jpg)|
