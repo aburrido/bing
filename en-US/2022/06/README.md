@@ -21,3 +21,4 @@
 202206180700|CelebratingSurfing|Surfers catching waves at Palm Beach on the Gold Coast, Queensland, Australia (© Darren Tierney/Getty Images)|What waterborne wizardry is this?|![](/en-US/2022/06/202206180700CelebratingSurfing.jpg)|
 202206190700|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-US/2022/06/202206190700Cassowary.jpg)|
 202206200700|SwallowtailFlower|Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-US/2022/06/202206200700SwallowtailFlower.jpg)|
+202206210700|GlastonburySolstice|View of Glastonbury Tor from Walton Hill, Somerset, England (© Guy Edwardes/Minden Pictures)|Summer a-rising|![](/en-US/2022/06/202206210700GlastonburySolstice.jpg)|
