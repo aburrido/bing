@@ -20,3 +20,4 @@
 202206180400|CelebratingSurfing|Surfeurs en pleine action à Palm Beach dans le Queensland, Australie (© Darren Tierney/Getty Images)|Information|![](/fr-CA/2022/06/202206180400CelebratingSurfing.jpg)|
 202206190400|Cassowary|Casoar mâle et ses petits, Queensland, Australie (© Martin Willis/Minden Pictures)|Information|![](/fr-CA/2022/06/202206190400Cassowary.jpg)|
 202206200400|SwallowtailFlower|Deux papillons grand porte-queue se partagent une fleur (© Alberto Ghizzi Panizza/Getty Images)|Information|![](/fr-CA/2022/06/202206200400SwallowtailFlower.jpg)|
+202206210400|WritingOnStone|Writing-On-Stone Provincial Park/Áísínai'pi, Alberta (© Philippe Widling/Getty Images)|Information|![](/fr-CA/2022/06/202206210400WritingOnStone.jpg)|
