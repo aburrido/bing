@@ -22,3 +22,4 @@
 202206181830|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-IN/2022/06/202206181830Cassowary.jpg)|
 202206191830|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-IN/2022/06/202206191830SwallowtailFlower.jpg)|
 202206201830|GangaRiverRishikesh|Ganga river, Lakshman Jhula, and Tera Manzil Temple in Rishikesh, India (© Travelwild/Shutterstock)|Welcome to the world's yoga capital|![](/en-IN/2022/06/202206201830GangaRiverRishikesh.jpg)|
+202206211830|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-IN/2022/06/202206211830AmazonianEcuador.jpg)|
