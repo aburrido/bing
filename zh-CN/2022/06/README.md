@@ -21,3 +21,4 @@
 202206181600|Cassowary|双垂鹤鸵爸爸和它的宝宝们，澳大利亚 (© Martin Willis/Minden Pictures)|愤怒的小鸟，溺爱的爸爸|![](/zh-CN/2022/06/202206181600Cassowary.jpg)|
 202206191600|SwallowtailFlower|停在同一朵花上的两只金凤蝶 (© Alberto Ghizzi Panizza/Getty Images)|一起吃午饭吗?|![](/zh-CN/2022/06/202206191600SwallowtailFlower.jpg)|
 202206201600|GlastonburySolstice|格拉斯顿伯里山丘上的日出，英格兰 (© Guy Edwardes/Minden Pictures)|夏季来临|![](/zh-CN/2022/06/202206201600GlastonburySolstice.jpg)|
+202206211600|AmazonianEcuador|亚苏尼国家公园，厄瓜多尔 (© Paul Bertner/Minden Pictures)|地球之肺|![](/zh-CN/2022/06/202206211600AmazonianEcuador.jpg)|
