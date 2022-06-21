@@ -21,3 +21,4 @@
 202206182300|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-GB/2022/06/202206182300Cassowary.jpg)|
 202206192300|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-GB/2022/06/202206192300SwallowtailFlower.jpg)|
 202206202300|StonehengeSunrise|Cloudy sunrise over Stonehenge - prehistoric megalith monument arranged in circle. (© Valery Egorov/Getty Images)|Stones on the solstice|![](/en-GB/2022/06/202206202300StonehengeSunrise.jpg)|
+202206212300|GlastonburyLights|A view of the Glastonbury Festival site from Pennard Hill, Somerset at dawn, June 2009. (© Jim Dyson/Getty Images)|Glasto turns 50|![](/en-GB/2022/06/202206212300GlastonburyLights.jpg)|
