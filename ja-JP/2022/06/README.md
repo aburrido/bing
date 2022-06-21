@@ -21,3 +21,4 @@
 202206181500|Cassowary|ヒクイドリの父子, オーストラリア クイーンズランド (© Martin Willis/Minden Pictures)|今日は父の日|![](/ja-JP/2022/06/202206181500Cassowary.jpg)|
 202206191500|AmazonianEcuador|ヤスニ生物圏保護区, エクアドル (© Paul Bertner/Minden Pictures)|アマゾンの熱帯雨林|![](/ja-JP/2022/06/202206191500AmazonianEcuador.jpg)|
 202206201500|GlastonburySolstice|グラストンベリー・トー, イギリス サマセット (© Guy Edwardes/Minden Pictures)|今日は夏至|![](/ja-JP/2022/06/202206201500GlastonburySolstice.jpg)|
+202206211500|BactrianCamels|フタコブラクダ, カザフスタン (© Nurlan Kulcha/Alamy)|今日は世界ラクダの日|![](/ja-JP/2022/06/202206211500BactrianCamels.jpg)|
