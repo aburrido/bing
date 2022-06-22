@@ -22,3 +22,4 @@
 202206190700|Cassowary|Southern cassowary, Queensland, Australia (© Martin Willis/Minden Pictures)|Info|![](/en-AU/2022/06/202206190700Cassowary.jpg)|
 202206200700|SwallowtailFlower|Old World swallowtail butterflies (© Alberto Ghizzi Panizza/Getty Images)|Info|![](/en-AU/2022/06/202206200700SwallowtailFlower.jpg)|
 202206210700|GlastonburySolstice|Glastonbury Tor, Somerset, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2022/06/202206210700GlastonburySolstice.jpg)|
+202206220700|AmazonianEcuador|Yasuní National Park, Amazonian Ecuador (© Paul Bertner/Minden Pictures)|Info|![](/en-AU/2022/06/202206220700AmazonianEcuador.jpg)|
