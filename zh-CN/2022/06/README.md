@@ -22,3 +22,4 @@
 202206191600|SwallowtailFlower|停在同一朵花上的两只金凤蝶 (© Alberto Ghizzi Panizza/Getty Images)|一起吃午饭吗?|![](/zh-CN/2022/06/202206191600SwallowtailFlower.jpg)|
 202206201600|GlastonburySolstice|格拉斯顿伯里山丘上的日出，英格兰 (© Guy Edwardes/Minden Pictures)|夏季来临|![](/zh-CN/2022/06/202206201600GlastonburySolstice.jpg)|
 202206211600|AmazonianEcuador|亚苏尼国家公园，厄瓜多尔 (© Paul Bertner/Minden Pictures)|地球之肺|![](/zh-CN/2022/06/202206211600AmazonianEcuador.jpg)|
+202206221600|MostarBridge|莫斯塔尔古桥，波斯尼亚和黑塞哥维那 (© Ayhan Altun/Getty Images)|“古桥”的新生|![](/zh-CN/2022/06/202206221600MostarBridge.jpg)|
