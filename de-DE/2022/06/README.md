@@ -22,3 +22,4 @@
 202206192200|SwallowtailFlower|Zwei Schwalbenschwänze auf einer Blume (© Alberto Ghizzi Panizza/Getty Images)|Verabredung zum Mittagessen|![](/de-DE/2022/06/202206192200SwallowtailFlower.jpg)|
 202206202200|GlastonburySolstice|Blick vom Walton Hill auf den Glastonbury Tor, Somerset, England, Vereinigtes Königreich (© Guy Edwardes/Minden Pictures)|Heute beginnt der Sommer|![](/de-DE/2022/06/202206202200GlastonburySolstice.jpg)|
 202206212200|AmazonianEcuador|Nationalpark Yasuní im Amazonastiefland Ecuadors (© Paul Bertner/Minden Pictures)|Die Lunge der Erde|![](/de-DE/2022/06/202206212200AmazonianEcuador.jpg)|
+202206222200|MostarBridge|Stari Most in Mostar, Bosnien und Herzegowina (© Ayhan Altun/Getty Images)|Die „Alte Brücke“ neu errichtet|![](/de-DE/2022/06/202206222200MostarBridge.jpg)|

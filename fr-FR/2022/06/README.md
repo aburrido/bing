@@ -22,3 +22,4 @@
 202206192200|SwallowtailFlower|Deux Grands porte-queue sur une fleur (© Alberto Ghizzi Panizza/Getty Images)|Gloire aux pollinisateurs|![](/fr-FR/2022/06/202206192200SwallowtailFlower.jpg)|
 202206202200|Musique|Guitare de jazz Aria de style Gibson 355 (© Claude thibault/Alamy)|Gastronomie acoustique|![](/fr-FR/2022/06/202206202200Musique.jpg)|
 202206212200|AmazonianEcuador|Parc national Yasuní dans l’Amazonie équatorienne (© Paul Bertner/Minden Pictures)|Les poumons de la planète|![](/fr-FR/2022/06/202206212200AmazonianEcuador.jpg)|
+202206222200|MostarBridge|Le Stari Most de Mostar, Bosnie-Herzégovine (© Ayhan Altun/Getty Images)|Un pont vers l’Histoire|![](/fr-FR/2022/06/202206222200MostarBridge.jpg)|
