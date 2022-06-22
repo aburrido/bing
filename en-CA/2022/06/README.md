@@ -21,3 +21,4 @@
 202206190400|Cassowary|Southern cassowary father with chicks, Kuranda, Queensland, Australia (© Martin Willis/Minden Pictures)|Angry bird, doting dad|![](/en-CA/2022/06/202206190400Cassowary.jpg)|
 202206200400|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-CA/2022/06/202206200400SwallowtailFlower.jpg)|
 202206210400|WritingOnStone|Writing-On-Stone Provincial Park/Áísínai'pi, Alberta (© Philippe Widling/Getty Images)|Commemorating Indigenous Peoples|![](/en-CA/2022/06/202206210400WritingOnStone.jpg)|
+202206220400|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-CA/2022/06/202206220400AmazonianEcuador.jpg)|
