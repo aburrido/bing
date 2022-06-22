@@ -22,3 +22,4 @@
 202206192300|SwallowtailFlower|Two Old World swallowtail butterflies on a flower (© Alberto Ghizzi Panizza/Getty Images)|Meet for lunch?|![](/en-GB/2022/06/202206192300SwallowtailFlower.jpg)|
 202206202300|StonehengeSunrise|Cloudy sunrise over Stonehenge - prehistoric megalith monument arranged in circle. (© Valery Egorov/Getty Images)|Stones on the solstice|![](/en-GB/2022/06/202206202300StonehengeSunrise.jpg)|
 202206212300|GlastonburyLights|A view of the Glastonbury Festival site from Pennard Hill, Somerset at dawn, June 2009. (© Jim Dyson/Getty Images)|Glasto turns 50|![](/en-GB/2022/06/202206212300GlastonburyLights.jpg)|
+202206222300|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The Old Bridge, reborn|![](/en-GB/2022/06/202206222300MostarBridge.jpg)|
