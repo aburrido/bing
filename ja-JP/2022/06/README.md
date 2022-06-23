@@ -23,3 +23,4 @@
 202206201500|GlastonburySolstice|グラストンベリー・トー, イギリス サマセット (© Guy Edwardes/Minden Pictures)|今日は夏至|![](/ja-JP/2022/06/202206201500GlastonburySolstice.jpg)|
 202206211500|BactrianCamels|フタコブラクダ, カザフスタン (© Nurlan Kulcha/Alamy)|今日は世界ラクダの日|![](/ja-JP/2022/06/202206211500BactrianCamels.jpg)|
 202206221500|MostarBridge|スタリ・モスト, ボスニア・ヘルツェゴビナ (© Ayhan Altun/Getty Images)|ボスニア・ヘルツェゴビナの世界遺産|![](/ja-JP/2022/06/202206221500MostarBridge.jpg)|
+202206231500|CenoteDiver|セノーテ, メキシコ プエルト・アベンチュラス (© Extreme Photographer/Getty Images)|ユカタン半島の水中洞窟|![](/ja-JP/2022/06/202206231500CenoteDiver.jpg)|
