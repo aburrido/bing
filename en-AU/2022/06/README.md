@@ -23,3 +23,4 @@
 202206200700|SwallowtailFlower|Old World swallowtail butterflies (© Alberto Ghizzi Panizza/Getty Images)|Info|![](/en-AU/2022/06/202206200700SwallowtailFlower.jpg)|
 202206210700|GlastonburySolstice|Glastonbury Tor, Somerset, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2022/06/202206210700GlastonburySolstice.jpg)|
 202206220700|AmazonianEcuador|Yasuní National Park, Amazonian Ecuador (© Paul Bertner/Minden Pictures)|Info|![](/en-AU/2022/06/202206220700AmazonianEcuador.jpg)|
+202206230700|MostarBridge|Stari Most, Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|Info|![](/en-AU/2022/06/202206230700MostarBridge.jpg)|
