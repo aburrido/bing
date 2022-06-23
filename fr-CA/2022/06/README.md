@@ -22,3 +22,4 @@
 202206200400|SwallowtailFlower|Deux papillons grand porte-queue se partagent une fleur (© Alberto Ghizzi Panizza/Getty Images)|Information|![](/fr-CA/2022/06/202206200400SwallowtailFlower.jpg)|
 202206210400|WritingOnStone|Writing-On-Stone Provincial Park/Áísínai'pi, Alberta (© Philippe Widling/Getty Images)|Information|![](/fr-CA/2022/06/202206210400WritingOnStone.jpg)|
 202206220400|AmazonianEcuador|Parc national Yasuni, Amazonie, Équateur (© Paul Bertner/Minden Pictures)|Information|![](/fr-CA/2022/06/202206220400AmazonianEcuador.jpg)|
+202206230400|MostarBridge|Vieux pont de Mostar, Bosnie-Herzégovine (© Ayhan Altun/Getty Images)|Information|![](/fr-CA/2022/06/202206230400MostarBridge.jpg)|
