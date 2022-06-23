@@ -24,3 +24,4 @@
 202206201830|GangaRiverRishikesh|Ganga river, Lakshman Jhula, and Tera Manzil Temple in Rishikesh, India (© Travelwild/Shutterstock)|Welcome to the world's yoga capital|![](/en-IN/2022/06/202206201830GangaRiverRishikesh.jpg)|
 202206211830|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-IN/2022/06/202206211830AmazonianEcuador.jpg)|
 202206221830|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The ‘Old Bridge,’ reborn|![](/en-IN/2022/06/202206221830MostarBridge.jpg)|
+202206231830|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-IN/2022/06/202206231830CenoteDiver.jpg)|
