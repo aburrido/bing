@@ -24,3 +24,4 @@
 202206211500|BactrianCamels|フタコブラクダ, カザフスタン (© Nurlan Kulcha/Alamy)|今日は世界ラクダの日|![](/ja-JP/2022/06/202206211500BactrianCamels.jpg)|
 202206221500|MostarBridge|スタリ・モスト, ボスニア・ヘルツェゴビナ (© Ayhan Altun/Getty Images)|ボスニア・ヘルツェゴビナの世界遺産|![](/ja-JP/2022/06/202206221500MostarBridge.jpg)|
 202206231500|CenoteDiver|セノーテ, メキシコ プエルト・アベンチュラス (© Extreme Photographer/Getty Images)|ユカタン半島の水中洞窟|![](/ja-JP/2022/06/202206231500CenoteDiver.jpg)|
+202206241500|BBMomCub|アメリカヒグマの母子, 米国 アラスカ州 (© Suzi Eszterhas/Minden Pictures)|アラスカ半島のヒグマたち|![](/ja-JP/2022/06/202206241500BBMomCub.jpg)|
