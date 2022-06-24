@@ -25,3 +25,4 @@
 202206211830|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-IN/2022/06/202206211830AmazonianEcuador.jpg)|
 202206221830|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The ‘Old Bridge,’ reborn|![](/en-IN/2022/06/202206221830MostarBridge.jpg)|
 202206231830|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-IN/2022/06/202206231830CenoteDiver.jpg)|
+202206241830|BBMomCub|Brown bear mother and cub in Katmai National Park and Preserve, Alaska (© Suzi Eszterhas/Minden Pictures)|The bears of summer|![](/en-IN/2022/06/202206241830BBMomCub.jpg)|
