@@ -24,3 +24,4 @@
 202206210700|GlastonburySolstice|View of Glastonbury Tor from Walton Hill, Somerset, England (© Guy Edwardes/Minden Pictures)|Summer a-rising|![](/en-US/2022/06/202206210700GlastonburySolstice.jpg)|
 202206220700|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-US/2022/06/202206220700AmazonianEcuador.jpg)|
 202206230700|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The 'Old Bridge,' reborn|![](/en-US/2022/06/202206230700MostarBridge.jpg)|
+202206240700|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-US/2022/06/202206240700CenoteDiver.jpg)|
