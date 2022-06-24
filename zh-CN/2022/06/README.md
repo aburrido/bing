@@ -24,3 +24,4 @@
 202206211600|AmazonianEcuador|亚苏尼国家公园，厄瓜多尔 (© Paul Bertner/Minden Pictures)|地球之肺|![](/zh-CN/2022/06/202206211600AmazonianEcuador.jpg)|
 202206221600|MostarBridge|莫斯塔尔古桥，波斯尼亚和黑塞哥维那 (© Ayhan Altun/Getty Images)|“古桥”的新生|![](/zh-CN/2022/06/202206221600MostarBridge.jpg)|
 202206231600|CenoteDiver|潜水员探索文图拉斯港附近的水下天然井，墨西哥 (© Extreme Photographer/Getty Images)|地面之下的水中世界|![](/zh-CN/2022/06/202206231600CenoteDiver.jpg)|
+202206241600|BBMomCub|卡特迈国家公园和保护区的棕熊妈妈和幼崽，阿拉斯加 (© Suzi Eszterhas/Minden Pictures)|夏天的棕熊|![](/zh-CN/2022/06/202206241600BBMomCub.jpg)|
