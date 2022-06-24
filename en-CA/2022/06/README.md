@@ -23,3 +23,4 @@
 202206210400|WritingOnStone|Writing-On-Stone Provincial Park/Áísínai'pi, Alberta (© Philippe Widling/Getty Images)|Commemorating Indigenous Peoples|![](/en-CA/2022/06/202206210400WritingOnStone.jpg)|
 202206220400|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-CA/2022/06/202206220400AmazonianEcuador.jpg)|
 202206230400|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The ‘Old Bridge,’ reborn|![](/en-CA/2022/06/202206230400MostarBridge.jpg)|
+202206240400|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-CA/2022/06/202206240400CenoteDiver.jpg)|
