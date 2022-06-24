@@ -24,3 +24,4 @@
 202206212200|AmazonianEcuador|Parc national Yasuní dans l’Amazonie équatorienne (© Paul Bertner/Minden Pictures)|Les poumons de la planète|![](/fr-FR/2022/06/202206212200AmazonianEcuador.jpg)|
 202206222200|MostarBridge|Le Stari Most de Mostar, Bosnie-Herzégovine (© Ayhan Altun/Getty Images)|Un pont vers l’Histoire|![](/fr-FR/2022/06/202206222200MostarBridge.jpg)|
 202206232200|CenoteDiver|Plongeur explorant un cénote près de Puerto Aventuras au Mexique (© Extreme Photographer/Getty Images)|Réserve d’eau pure|![](/fr-FR/2022/06/202206232200CenoteDiver.jpg)|
+202206242200|Pride2022|Drapeau arc-en-ciel (© Matt Jeacock/Getty Images)|La marche des fiertés|![](/fr-FR/2022/06/202206242200Pride2022.jpg)|

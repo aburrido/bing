@@ -24,3 +24,4 @@
 202206212200|AmazonianEcuador|Nationalpark Yasuní im Amazonastiefland Ecuadors (© Paul Bertner/Minden Pictures)|Die Lunge der Erde|![](/de-DE/2022/06/202206212200AmazonianEcuador.jpg)|
 202206222200|MostarBridge|Stari Most in Mostar, Bosnien und Herzegowina (© Ayhan Altun/Getty Images)|Die „Alte Brücke“ neu errichtet|![](/de-DE/2022/06/202206222200MostarBridge.jpg)|
 202206232200|CenoteDiver|Ein Taucher erkundet die Unterwasserhöhlen (Cenoten) in der Nähe von Puerto Aventuras, Mexiko (© Extreme Photographer/Getty Images)|Faszinierende Unterwasserwelt|![](/de-DE/2022/06/202206232200CenoteDiver.jpg)|
+202206242200|MuenchenWelt|BMW-Welt, München, Bayern (© Stefan Huwiler/agefotostock)|Futuristische Architektur|![](/de-DE/2022/06/202206242200MuenchenWelt.jpg)|
