@@ -25,3 +25,4 @@
 202206222200|MostarBridge|Le Stari Most de Mostar, Bosnie-Herzégovine (© Ayhan Altun/Getty Images)|Un pont vers l’Histoire|![](/fr-FR/2022/06/202206222200MostarBridge.jpg)|
 202206232200|CenoteDiver|Plongeur explorant un cénote près de Puerto Aventuras au Mexique (© Extreme Photographer/Getty Images)|Réserve d’eau pure|![](/fr-FR/2022/06/202206232200CenoteDiver.jpg)|
 202206242200|Pride2022|Drapeau arc-en-ciel (© Matt Jeacock/Getty Images)|La marche des fiertés|![](/fr-FR/2022/06/202206242200Pride2022.jpg)|
+202206252200|BBMomCub|Maman ours brun et son ourson dans le parc national et réserve de Katmai, Alaska (© Suzi Eszterhas/Minden Pictures)|Des ours heureux|![](/fr-FR/2022/06/202206252200BBMomCub.jpg)|
