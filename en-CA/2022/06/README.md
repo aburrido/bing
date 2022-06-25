@@ -24,3 +24,4 @@
 202206220400|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|The lungs of Earth|![](/en-CA/2022/06/202206220400AmazonianEcuador.jpg)|
 202206230400|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The ‘Old Bridge,’ reborn|![](/en-CA/2022/06/202206230400MostarBridge.jpg)|
 202206240400|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-CA/2022/06/202206240400CenoteDiver.jpg)|
+202206250400|KellysBeach|The Kellys beach boardwalk in Kouchibouguac National Park, New Brunswick (© All Canada Photos/Alamy Stock Photo)|A destination for all seasons|![](/en-CA/2022/06/202206250400KellysBeach.jpg)|

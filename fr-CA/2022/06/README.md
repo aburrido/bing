@@ -24,3 +24,4 @@
 202206220400|AmazonianEcuador|Parc national Yasuni, Amazonie, Équateur (© Paul Bertner/Minden Pictures)|Information|![](/fr-CA/2022/06/202206220400AmazonianEcuador.jpg)|
 202206230400|MostarBridge|Vieux pont de Mostar, Bosnie-Herzégovine (© Ayhan Altun/Getty Images)|Information|![](/fr-CA/2022/06/202206230400MostarBridge.jpg)|
 202206240400|CenoteDiver|Plongeur dans un cénote immergé près de Puerto Aventuras, Mexique (© Extreme Photographer/Getty Images)|Information|![](/fr-CA/2022/06/202206240400CenoteDiver.jpg)|
+202206250400|KellysBeach|Ponton sur Kellys Beach, Parc national Kouchibouguac, New Brunswick (© All Canada Photos/Alamy Stock Photo)|Information|![](/fr-CA/2022/06/202206250400KellysBeach.jpg)|
