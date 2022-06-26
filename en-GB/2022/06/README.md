@@ -26,3 +26,4 @@
 202206232300|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-GB/2022/06/202206232300CenoteDiver.jpg)|
 202206242300|BBMomCub|Brown bear mother and cub in Katmai National Park and Preserve, Alaska, USA (© Suzi Eszterhas/Minden Pictures)|The bears of summer|![](/en-GB/2022/06/202206242300BBMomCub.jpg)|
 202206252300|TafilaletOasis|An old kasbah in the Tafilalet region, Morocco (© José Antonio Moreno/agefotostock)|An oasis in a sea of sand|![](/en-GB/2022/06/202206252300TafilaletOasis.jpg)|
+202206262300|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields|![](/en-GB/2022/06/202206262300ValensoleLavender.jpg)|
