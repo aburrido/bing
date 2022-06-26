@@ -26,3 +26,4 @@
 202206230700|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The 'Old Bridge,' reborn|![](/en-US/2022/06/202206230700MostarBridge.jpg)|
 202206240700|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-US/2022/06/202206240700CenoteDiver.jpg)|
 202206250700|BBMomCub|Brown bear mother and cub in Katmai National Park and Preserve, Alaska (© Suzi Eszterhas/Minden Pictures)|The bears of summer|![](/en-US/2022/06/202206250700BBMomCub.jpg)|
+202206260700|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-US/2022/06/202206260700Pride2022.jpg)|
