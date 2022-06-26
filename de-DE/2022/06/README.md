@@ -26,3 +26,4 @@
 202206232200|CenoteDiver|Ein Taucher erkundet die Unterwasserhöhlen (Cenoten) in der Nähe von Puerto Aventuras, Mexiko (© Extreme Photographer/Getty Images)|Faszinierende Unterwasserwelt|![](/de-DE/2022/06/202206232200CenoteDiver.jpg)|
 202206242200|MuenchenWelt|BMW-Welt, München, Bayern (© Stefan Huwiler/agefotostock)|Futuristische Architektur|![](/de-DE/2022/06/202206242200MuenchenWelt.jpg)|
 202206252200|BBMomCub|Braunbärenmutter mit ihrem Jungen, Katmai-Nationalpark, Alaska, USA (© Suzi Eszterhas/Minden Pictures)|Sommerbären|![](/de-DE/2022/06/202206252200BBMomCub.jpg)|
+202206262200|ValensoleLavender|Lavendelfelder auf dem Plateau von Valensole, Provence, Frankreich (© Shutterstock)|Duftende Felder, so weit das Auge reicht|![](/de-DE/2022/06/202206262200ValensoleLavender.jpg)|
