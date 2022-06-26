@@ -25,3 +25,4 @@
 202206230400|MostarBridge|Stari Most in Mostar, Bosnia and Herzegovina (© Ayhan Altun/Getty Images)|The ‘Old Bridge,’ reborn|![](/en-CA/2022/06/202206230400MostarBridge.jpg)|
 202206240400|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-CA/2022/06/202206240400CenoteDiver.jpg)|
 202206250400|KellysBeach|The Kellys beach boardwalk in Kouchibouguac National Park, New Brunswick (© All Canada Photos/Alamy Stock Photo)|A destination for all seasons|![](/en-CA/2022/06/202206250400KellysBeach.jpg)|
+202206260400|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-CA/2022/06/202206260400Pride2022.jpg)|

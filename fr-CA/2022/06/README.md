@@ -25,3 +25,4 @@
 202206230400|MostarBridge|Vieux pont de Mostar, Bosnie-Herzégovine (© Ayhan Altun/Getty Images)|Information|![](/fr-CA/2022/06/202206230400MostarBridge.jpg)|
 202206240400|CenoteDiver|Plongeur dans un cénote immergé près de Puerto Aventuras, Mexique (© Extreme Photographer/Getty Images)|Information|![](/fr-CA/2022/06/202206240400CenoteDiver.jpg)|
 202206250400|KellysBeach|Ponton sur Kellys Beach, Parc national Kouchibouguac, New Brunswick (© All Canada Photos/Alamy Stock Photo)|Information|![](/fr-CA/2022/06/202206250400KellysBeach.jpg)|
+202206260400|Pride2022|Drapeau arc-en-ciel (© Matt Jeacock/Getty Images)|Information|![](/fr-CA/2022/06/202206260400Pride2022.jpg)|
