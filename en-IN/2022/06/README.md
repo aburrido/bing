@@ -27,3 +27,4 @@
 202206231830|CenoteDiver|Scuba diver exploring the underwater cenotes near Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Underwater underground|![](/en-IN/2022/06/202206231830CenoteDiver.jpg)|
 202206241830|BBMomCub|Brown bear mother and cub in Katmai National Park and Preserve, Alaska (© Suzi Eszterhas/Minden Pictures)|The bears of summer|![](/en-IN/2022/06/202206241830BBMomCub.jpg)|
 202206251830|AmberFortJaipur|Amer Fort in Rajasthan, India (© Luigi Vaccarella/Sime/eStock Photo)|An architectural wonder in Rajasthan|![](/en-IN/2022/06/202206251830AmberFortJaipur.jpg)|
+202206261830|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields as far as the eye can see|![](/en-IN/2022/06/202206261830ValensoleLavender.jpg)|
