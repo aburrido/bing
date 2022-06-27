@@ -27,3 +27,4 @@
 202206242200|Pride2022|Drapeau arc-en-ciel (© Matt Jeacock/Getty Images)|La marche des fiertés|![](/fr-FR/2022/06/202206242200Pride2022.jpg)|
 202206252200|BBMomCub|Maman ours brun et son ourson dans le parc national et réserve de Katmai, Alaska (© Suzi Eszterhas/Minden Pictures)|Des ours heureux|![](/fr-FR/2022/06/202206252200BBMomCub.jpg)|
 202206262200|ValensoleLavender|Champ de lavande sur le plateau de Valensole en Provence (© Shutterstock)|Ça sent la Provence !|![](/fr-FR/2022/06/202206262200ValensoleLavender.jpg)|
+202206272200|TafilaletOasis|Ancienne kasbah dans la région du Tafilalet, Maroc (© José Antonio Moreno/age fotostock)|Une vraie oasis|![](/fr-FR/2022/06/202206272200TafilaletOasis.jpg)|
