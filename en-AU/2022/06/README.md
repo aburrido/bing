@@ -27,3 +27,4 @@
 202206240700|CenoteDiver|Underwater cenotes, Puerto Aventuras, Mexico (© Extreme Photographer/Getty Images)|Info|![](/en-AU/2022/06/202206240700CenoteDiver.jpg)|
 202206250700|BBMomCub|Brown bears, Katmai National Park and Preserve, Alaska, USA (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2022/06/202206250700BBMomCub.jpg)|
 202206260700|CapriViaKrupp|Via Krupp, Capri, Italy (© Mikolajn/Getty Images)|Info|![](/en-AU/2022/06/202206260700CapriViaKrupp.jpg)|
+202206270700|ValensoleLavender|Lavender fields, Valensole Plateau, Provence, France (© Shutterstock)|Info|![](/en-AU/2022/06/202206270700ValensoleLavender.jpg)|
