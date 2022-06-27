@@ -27,3 +27,4 @@
 202206241500|BBMomCub|アメリカヒグマの母子, 米国 アラスカ州 (© Suzi Eszterhas/Minden Pictures)|アラスカ半島のヒグマたち|![](/ja-JP/2022/06/202206241500BBMomCub.jpg)|
 202206251500|ValensoleLavender|ヴァレンソール高原のラベンダー畑, フランス プロヴァンス (© Shutterstock)|南仏はラベンダーの季節|![](/ja-JP/2022/06/202206251500ValensoleLavender.jpg)|
 202206261500|TafilaletOasis|カスバ, モロッコ タフィラルト (© José Antonio Moreno/age fotostock)|モロッコのカスバ|![](/ja-JP/2022/06/202206261500TafilaletOasis.jpg)|
+202206271500|Pride2022|レインボーフラッグ (© Matt Jeacock/Getty Images)|今月はプライド月間|![](/ja-JP/2022/06/202206271500Pride2022.jpg)|
