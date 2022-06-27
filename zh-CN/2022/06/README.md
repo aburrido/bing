@@ -27,3 +27,4 @@
 202206241600|BBMomCub|卡特迈国家公园和保护区的棕熊妈妈和幼崽，阿拉斯加 (© Suzi Eszterhas/Minden Pictures)|夏天的棕熊|![](/zh-CN/2022/06/202206241600BBMomCub.jpg)|
 202206251600|KoalaSleeping|一只正在树上睡觉的考拉 (© Anton Rogozin/Getty Images)|一天睡20个小时|![](/zh-CN/2022/06/202206251600KoalaSleeping.jpg)|
 202206261600|ValensoleLavender|普罗旺斯瓦朗索勒高原上的薰衣草田，法国 (© Shutterstock)|一望无际的田野|![](/zh-CN/2022/06/202206261600ValensoleLavender.jpg)|
+202206271600|TafilaletOasis|塔菲拉勒地区的一座古老古堡, 摩洛哥 (© José Antonio Moreno/agefotostock)|沙海中的绿洲|![](/zh-CN/2022/06/202206271600TafilaletOasis.jpg)|
