@@ -28,3 +28,4 @@
 202206251600|KoalaSleeping|一只正在树上睡觉的考拉 (© Anton Rogozin/Getty Images)|一天睡20个小时|![](/zh-CN/2022/06/202206251600KoalaSleeping.jpg)|
 202206261600|ValensoleLavender|普罗旺斯瓦朗索勒高原上的薰衣草田，法国 (© Shutterstock)|一望无际的田野|![](/zh-CN/2022/06/202206261600ValensoleLavender.jpg)|
 202206271600|TafilaletOasis|塔菲拉勒地区的一座古老古堡, 摩洛哥 (© José Antonio Moreno/agefotostock)|沙海中的绿洲|![](/zh-CN/2022/06/202206271600TafilaletOasis.jpg)|
+202206281600|PhangNgaBay|攀牙湾安达曼海的红树林，泰国 (© Ratnakorn Piyasirisorost/Getty Images)|在热带，陆地与海洋热情相拥|![](/zh-CN/2022/06/202206281600PhangNgaBay.jpg)|
