@@ -28,3 +28,4 @@
 202206252200|BBMomCub|Braunbärenmutter mit ihrem Jungen, Katmai-Nationalpark, Alaska, USA (© Suzi Eszterhas/Minden Pictures)|Sommerbären|![](/de-DE/2022/06/202206252200BBMomCub.jpg)|
 202206262200|ValensoleLavender|Lavendelfelder auf dem Plateau von Valensole, Provence, Frankreich (© Shutterstock)|Duftende Felder, so weit das Auge reicht|![](/de-DE/2022/06/202206262200ValensoleLavender.jpg)|
 202206272200|TafilaletOasis|Eine alte Kasbah in der Region Tafilalet, Marokko (© José Antonio Moreno/age fotostock)|Eine Oase in einem Meer aus Sand|![](/de-DE/2022/06/202206272200TafilaletOasis.jpg)|
+202206282200|PhangNgaBay|Mangrovenwald in der Bucht von Phang Nga, Andamanensee, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Tropische Begrüßung zwischen Land und Meer|![](/de-DE/2022/06/202206282200PhangNgaBay.jpg)|
