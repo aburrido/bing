@@ -27,3 +27,4 @@
 202206250400|KellysBeach|Ponton sur Kellys Beach, Parc national Kouchibouguac, New Brunswick (© All Canada Photos/Alamy Stock Photo)|Information|![](/fr-CA/2022/06/202206250400KellysBeach.jpg)|
 202206260400|Pride2022|Drapeau arc-en-ciel (© Matt Jeacock/Getty Images)|Information|![](/fr-CA/2022/06/202206260400Pride2022.jpg)|
 202206270400|ValensoleLavender|Champs de lavande sur le plateau de Valensole, Provence, France (© Shutterstock)|Information|![](/fr-CA/2022/06/202206270400ValensoleLavender.jpg)|
+202206280400|TafilaletOasis|Casbah ancienne dans la région du Tafilalet, Maroc (© José Antonio Moreno/agefotostock)|Information|![](/fr-CA/2022/06/202206280400TafilaletOasis.jpg)|

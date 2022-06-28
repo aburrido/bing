@@ -27,3 +27,4 @@
 202206250400|KellysBeach|The Kellys beach boardwalk in Kouchibouguac National Park, New Brunswick (© All Canada Photos/Alamy Stock Photo)|A destination for all seasons|![](/en-CA/2022/06/202206250400KellysBeach.jpg)|
 202206260400|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-CA/2022/06/202206260400Pride2022.jpg)|
 202206270400|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields as far as the eye can see|![](/en-CA/2022/06/202206270400ValensoleLavender.jpg)|
+202206280400|TafilaletOasis|An old kasbah in the Tafilalet region, Morocco (© José Antonio Moreno/agefotostock)|An oasis in a sea of sand|![](/en-CA/2022/06/202206280400TafilaletOasis.jpg)|
