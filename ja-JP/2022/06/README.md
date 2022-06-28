@@ -28,3 +28,4 @@
 202206251500|ValensoleLavender|ヴァレンソール高原のラベンダー畑, フランス プロヴァンス (© Shutterstock)|南仏はラベンダーの季節|![](/ja-JP/2022/06/202206251500ValensoleLavender.jpg)|
 202206261500|TafilaletOasis|カスバ, モロッコ タフィラルト (© José Antonio Moreno/age fotostock)|モロッコのカスバ|![](/ja-JP/2022/06/202206261500TafilaletOasis.jpg)|
 202206271500|Pride2022|レインボーフラッグ (© Matt Jeacock/Getty Images)|今月はプライド月間|![](/ja-JP/2022/06/202206271500Pride2022.jpg)|
+202206281500|PhangNgaBay|パンガー湾のマングローブ林, タイ  アンダマン海 (© Ratnakorn Piyasirisorost/Getty Images)|今日は国際熱帯デー|![](/ja-JP/2022/06/202206281500PhangNgaBay.jpg)|
