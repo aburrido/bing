@@ -28,3 +28,4 @@
 202206250700|BBMomCub|Brown bear mother and cub in Katmai National Park and Preserve, Alaska (© Suzi Eszterhas/Minden Pictures)|The bears of summer|![](/en-US/2022/06/202206250700BBMomCub.jpg)|
 202206260700|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-US/2022/06/202206260700Pride2022.jpg)|
 202206270700|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields as far as the eye can see|![](/en-US/2022/06/202206270700ValensoleLavender.jpg)|
+202206280700|TafilaletOasis|An old kasbah in the Tafilalet region, Morocco (© José Antonio Moreno/agefotostock)|An oasis in a sea of sand|![](/en-US/2022/06/202206280700TafilaletOasis.jpg)|

@@ -28,3 +28,4 @@
 202206250700|BBMomCub|Brown bears, Katmai National Park and Preserve, Alaska, USA (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2022/06/202206250700BBMomCub.jpg)|
 202206260700|CapriViaKrupp|Via Krupp, Capri, Italy (© Mikolajn/Getty Images)|Info|![](/en-AU/2022/06/202206260700CapriViaKrupp.jpg)|
 202206270700|ValensoleLavender|Lavender fields, Valensole Plateau, Provence, France (© Shutterstock)|Info|![](/en-AU/2022/06/202206270700ValensoleLavender.jpg)|
+202206280700|TafilaletOasis|Tafilalet, Morocco (© José Antonio Moreno/agefotostock)|Info|![](/en-AU/2022/06/202206280700TafilaletOasis.jpg)|
