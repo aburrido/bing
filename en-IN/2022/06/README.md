@@ -29,3 +29,4 @@
 202206251830|AmberFortJaipur|Amer Fort in Rajasthan, India (© Luigi Vaccarella/Sime/eStock Photo)|An architectural wonder in Rajasthan|![](/en-IN/2022/06/202206251830AmberFortJaipur.jpg)|
 202206261830|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields as far as the eye can see|![](/en-IN/2022/06/202206261830ValensoleLavender.jpg)|
 202206271830|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-IN/2022/06/202206271830Pride2022.jpg)|
+202206281830|PhangNgaBay|Mangrove forest in Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|In the tropics, land greets sea warmly|![](/en-IN/2022/06/202206281830PhangNgaBay.jpg)|
