@@ -29,3 +29,4 @@
 202206260700|CapriViaKrupp|Via Krupp, Capri, Italy (© Mikolajn/Getty Images)|Info|![](/en-AU/2022/06/202206260700CapriViaKrupp.jpg)|
 202206270700|ValensoleLavender|Lavender fields, Valensole Plateau, Provence, France (© Shutterstock)|Info|![](/en-AU/2022/06/202206270700ValensoleLavender.jpg)|
 202206280700|TafilaletOasis|Tafilalet, Morocco (© José Antonio Moreno/agefotostock)|Info|![](/en-AU/2022/06/202206280700TafilaletOasis.jpg)|
+202206290700|PhangNgaBay|Mangrove forest, Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Info|![](/en-AU/2022/06/202206290700PhangNgaBay.jpg)|

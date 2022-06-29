@@ -29,3 +29,4 @@
 202206260700|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-US/2022/06/202206260700Pride2022.jpg)|
 202206270700|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields as far as the eye can see|![](/en-US/2022/06/202206270700ValensoleLavender.jpg)|
 202206280700|TafilaletOasis|An old kasbah in the Tafilalet region, Morocco (© José Antonio Moreno/agefotostock)|An oasis in a sea of sand|![](/en-US/2022/06/202206280700TafilaletOasis.jpg)|
+202206290700|PhangNgaBay|Mangrove forest in Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|In the tropics, land greets sea warmly|![](/en-US/2022/06/202206290700PhangNgaBay.jpg)|
