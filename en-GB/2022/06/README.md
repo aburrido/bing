@@ -29,3 +29,4 @@
 202206262300|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields|![](/en-GB/2022/06/202206262300ValensoleLavender.jpg)|
 202206272300|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-GB/2022/06/202206272300Pride2022.jpg)|
 202206282300|PhangNgaBay|Mangrove forest in Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Celebrating the tropics|![](/en-GB/2022/06/202206282300PhangNgaBay.jpg)|
+202206292300|AcramanCrater|The Acraman crater, Australia (© USGS/Nasa Landsat data/Orbital Horizon/Gallo Images/Getty images)|Will we be ready for the ‘big one?’|![](/en-GB/2022/06/202206292300AcramanCrater.jpg)|
