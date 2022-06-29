@@ -29,3 +29,4 @@
 202206261500|TafilaletOasis|カスバ, モロッコ タフィラルト (© José Antonio Moreno/age fotostock)|モロッコのカスバ|![](/ja-JP/2022/06/202206261500TafilaletOasis.jpg)|
 202206271500|Pride2022|レインボーフラッグ (© Matt Jeacock/Getty Images)|今月はプライド月間|![](/ja-JP/2022/06/202206271500Pride2022.jpg)|
 202206281500|PhangNgaBay|パンガー湾のマングローブ林, タイ  アンダマン海 (© Ratnakorn Piyasirisorost/Getty Images)|今日は国際熱帯デー|![](/ja-JP/2022/06/202206281500PhangNgaBay.jpg)|
+202206291500|AcramanCrater|アクラマン・クレーター, オーストラリア (© USGS/NASA Landsat data/Orbital Horizon/Gallo Images/Getty images)|今日は小惑星の日|![](/ja-JP/2022/06/202206291500AcramanCrater.jpg)|
