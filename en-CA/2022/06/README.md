@@ -29,3 +29,4 @@
 202206270400|ValensoleLavender|Lavender fields on the Valensole Plateau in Provence, France (© Shutterstock)|Fragrant fields as far as the eye can see|![](/en-CA/2022/06/202206270400ValensoleLavender.jpg)|
 202206280400|TafilaletOasis|An old kasbah in the Tafilalet region, Morocco (© José Antonio Moreno/agefotostock)|An oasis in a sea of sand|![](/en-CA/2022/06/202206280400TafilaletOasis.jpg)|
 202206290400|PhangNgaBay|Mangrove forest in Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|In the tropics, land greets sea warmly|![](/en-CA/2022/06/202206290400PhangNgaBay.jpg)|
+202206300400|AcramanCrater|The Acraman crater, Australia (© USGS/NASA Landsat data/Orbital Horizon/Gallo Images/Getty images)|Will we be ready for the ‘big one?’|![](/en-CA/2022/06/202206300400AcramanCrater.jpg)|

@@ -29,3 +29,4 @@
 202206270400|ValensoleLavender|Champs de lavande sur le plateau de Valensole, Provence, France (© Shutterstock)|Information|![](/fr-CA/2022/06/202206270400ValensoleLavender.jpg)|
 202206280400|TafilaletOasis|Casbah ancienne dans la région du Tafilalet, Maroc (© José Antonio Moreno/agefotostock)|Information|![](/fr-CA/2022/06/202206280400TafilaletOasis.jpg)|
 202206290400|PhangNgaBay|Forêt de mangrove dans la baie de Phang Nga, mer d’Andaman, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)|Information|![](/fr-CA/2022/06/202206290400PhangNgaBay.jpg)|
+202206300400|AcramanCrater|Le cratère d’Acraman, Australie (© USGS/NASA Landsat data/Orbital Horizon/Gallo Images/Getty images)|Information|![](/fr-CA/2022/06/202206300400AcramanCrater.jpg)|
