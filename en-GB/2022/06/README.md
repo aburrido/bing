@@ -30,3 +30,4 @@
 202206272300|Pride2022|Rainbow flag (© Matt Jeacock/Getty Images)|Flying the flag for Pride|![](/en-GB/2022/06/202206272300Pride2022.jpg)|
 202206282300|PhangNgaBay|Mangrove forest in Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Celebrating the tropics|![](/en-GB/2022/06/202206282300PhangNgaBay.jpg)|
 202206292300|AcramanCrater|The Acraman crater, Australia (© USGS/Nasa Landsat data/Orbital Horizon/Gallo Images/Getty images)|Will we be ready for the ‘big one?’|![](/en-GB/2022/06/202206292300AcramanCrater.jpg)|
+202206302300|WeatherGirls|Vejrpigerne (The Weather Girls) sculpture on top of the Richshuset building in City Hall Square in Copenhagen, Denmark (© Stig Alenas/Shutterstock)|Perfect day for a ride|![](/en-GB/2022/06/202206302300WeatherGirls.jpg)|
