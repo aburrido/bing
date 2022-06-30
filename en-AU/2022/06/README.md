@@ -30,3 +30,4 @@
 202206270700|ValensoleLavender|Lavender fields, Valensole Plateau, Provence, France (© Shutterstock)|Info|![](/en-AU/2022/06/202206270700ValensoleLavender.jpg)|
 202206280700|TafilaletOasis|Tafilalet, Morocco (© José Antonio Moreno/agefotostock)|Info|![](/en-AU/2022/06/202206280700TafilaletOasis.jpg)|
 202206290700|PhangNgaBay|Mangrove forest, Phang Nga Bay, Andaman Sea, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Info|![](/en-AU/2022/06/202206290700PhangNgaBay.jpg)|
+202206300700|CoteSauvage|Quiberon peninsula, Côte Sauvage, Brittany, France (© hardyun/Adobe)|Info|![](/en-AU/2022/06/202206300700CoteSauvage.jpg)|
