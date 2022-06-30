@@ -30,3 +30,4 @@
 202206271600|TafilaletOasis|塔菲拉勒地区的一座古老古堡, 摩洛哥 (© José Antonio Moreno/agefotostock)|沙海中的绿洲|![](/zh-CN/2022/06/202206271600TafilaletOasis.jpg)|
 202206281600|PhangNgaBay|攀牙湾安达曼海的红树林，泰国 (© Ratnakorn Piyasirisorost/Getty Images)|在热带，陆地与海洋热情相拥|![](/zh-CN/2022/06/202206281600PhangNgaBay.jpg)|
 202206291600|CoteSauvage|基伯龙半岛上的海滩，法国布列塔尼地区 (© hardyun/Adobe)|假日的气息|![](/zh-CN/2022/06/202206291600CoteSauvage.jpg)|
+202206301600|AgueroVillage|阿圭罗村庄, 韦斯卡, 西班牙 (© Francesco Carovillano/eStock)|走进迷人小村庄|![](/zh-CN/2022/06/202206301600AgueroVillage.jpg)|
