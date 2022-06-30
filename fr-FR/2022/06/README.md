@@ -30,3 +30,4 @@
 202206272200|TafilaletOasis|Ancienne kasbah dans la région du Tafilalet, Maroc (© José Antonio Moreno/age fotostock)|Une vraie oasis|![](/fr-FR/2022/06/202206272200TafilaletOasis.jpg)|
 202206282200|PhangNgaBay|Forêt de mangrove dans la baie de Phang Nga Bay, Mer d'Andaman, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)|Sous les tropiques|![](/fr-FR/2022/06/202206282200PhangNgaBay.jpg)|
 202206292200|AcramanCrater|Le cratère d’Acraman, Australie (© USGS/NASA Landsat data/Orbital Horizon/Gallo Images/Getty images)|Très impactant|![](/fr-FR/2022/06/202206292200AcramanCrater.jpg)|
+202206302200|WeatherGirls|La sculpture ‘Vejrpigerne’ (“Les filles météo”) dominant la place de la mairie à Copenhague, Danemark (© Stig Alenas/Shutterstock)|Les filles météo|![](/fr-FR/2022/06/202206302200WeatherGirls.jpg)|
