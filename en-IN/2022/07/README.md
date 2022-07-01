@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202206301830|VittalaTemple|The stone chariot inside the Vittala Temple complex at Hampi in Karnataka, India (© Roop_Dey/Shutterstock)|The Jewel of Hampi|![](/en-IN/2022/07/202206301830VittalaTemple.jpg)|
+202207011830|HalfwayDay|Aerial of a road separating two lakes in the Scottish Highlands (© Abstract Aerial Art/Getty Images)|We’ve made it to Halfway Day!|![](/en-IN/2022/07/202207011830HalfwayDay.jpg)|
