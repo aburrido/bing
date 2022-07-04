@@ -4,3 +4,4 @@
 202207012300|HalfwayDay|Aerial of the A82 crossing Loch Dochfour, Highlands (© Abstract Aerial Art/Getty Images)|Halfway there|![](/en-GB/2022/07/202207012300HalfwayDay.jpg)|
 202207022300|SummerDogs|Red fox (© Yossi Eshbol/Minden Pictures)|The dog days of summer|![](/en-GB/2022/07/202207022300SummerDogs.jpg)|
 202207032300|HamptonYewTrees|Hampton Court Palace and gardens, London, UK (© Mistervlad/stock.adobe.com)|Fit for a king|![](/en-GB/2022/07/202207032300HamptonYewTrees.jpg)|
+202207042300|FannetteIsland|Fannette Island surrounded by Emerald Bay, Lake Tahoe, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|A mile-high island|![](/en-GB/2022/07/202207042300FannetteIsland.jpg)|
