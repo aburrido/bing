@@ -4,3 +4,4 @@
 202207012200|HalfwayDay|Luftaufnahme einer Straße, die zwei Seen im schottischen Hochland trennt (© Abstract Aerial Art/Getty Images)|Zwischen zwei Seen|![](/de-DE/2022/07/202207012200HalfwayDay.jpg)|
 202207022200|SummerDogs|Rotfuchs (© Yossi Eshbol/Minden Pictures)|Entspannungsübung|![](/de-DE/2022/07/202207022200SummerDogs.jpg)|
 202207032200|MehlingerHeide|Mehlinger Heide, Mehlingen, Rheinland-Pfalz (© Boris Jordan Photography/Getty Images)|Morgenstund‘ hat Gold im Mund|![](/de-DE/2022/07/202207032200MehlingerHeide.jpg)|
+202207042200|FannetteIsland|Fannette Island in der Emerald Bay, Lake Tahoe, Kalifornien, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Seepanorama auf 1.900 Metern Höhe|![](/de-DE/2022/07/202207042200FannetteIsland.jpg)|
