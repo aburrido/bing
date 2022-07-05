@@ -5,3 +5,4 @@
 202207021830|SummerDogs|Red fox (© Yossi Eshbol/Minden Pictures)|Meet an expert on the dog days of summer|![](/en-IN/2022/07/202207021830SummerDogs.jpg)|
 202207031830|SpiralHill|Bay Marker Lookout, Sydney Olympic Park, Australia (© ai_yoshi/Getty Images)|Spiralling upward...|![](/en-IN/2022/07/202207031830SpiralHill.jpg)|
 202207041830|FannetteIsland|Fannette Island surrounded by Emerald Bay, Lake Tahoe, California (© Rachid Dahnoun/Tandem Stills + Motion)|This island is more than a mile high|![](/en-IN/2022/07/202207041830FannetteIsland.jpg)|
+202207051830|KissingPuffins|Atlantic puffin pair billing, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Spring is the time for billing|![](/en-IN/2022/07/202207051830KissingPuffins.jpg)|
