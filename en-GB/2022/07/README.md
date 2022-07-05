@@ -5,3 +5,4 @@
 202207022300|SummerDogs|Red fox (© Yossi Eshbol/Minden Pictures)|The dog days of summer|![](/en-GB/2022/07/202207022300SummerDogs.jpg)|
 202207032300|HamptonYewTrees|Hampton Court Palace and gardens, London, UK (© Mistervlad/stock.adobe.com)|Fit for a king|![](/en-GB/2022/07/202207032300HamptonYewTrees.jpg)|
 202207042300|FannetteIsland|Fannette Island surrounded by Emerald Bay, Lake Tahoe, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|A mile-high island|![](/en-GB/2022/07/202207042300FannetteIsland.jpg)|
+202207052300|KissingPuffins|Atlantic puffin pair billing, Shetland Islands (© Vince Burton/Minden Pictures)|Puffins pucker up|![](/en-GB/2022/07/202207052300KissingPuffins.jpg)|
