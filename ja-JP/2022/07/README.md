@@ -5,3 +5,4 @@
 202207021500|Surfin2022|七里ヶ浜のサーファー, 神奈川 鎌倉 (© Taro Hama @ e-kamakura/Getty Images)|今日は波の日|![](/ja-JP/2022/07/202207021500Surfin2022.jpg)|
 202207031500|SummerDogs|朝日の中のアカギツネ, イスラエル (© Yossi Eshbol/Minden Pictures)|中東のアカギツネ|![](/ja-JP/2022/07/202207031500SummerDogs.jpg)|
 202207041500|SharavatiBridge|シャラヴァティ橋, インド カルナータカ州 (© Amith Nag Photography/Getty Images)|世界遺産を渡るインドの鉄道橋|![](/ja-JP/2022/07/202207041500SharavatiBridge.jpg)|
+202207051500|KissingPuffins|ニシツノメドリの求愛, イギリス スコットランド (© Vince Burton/Minden Pictures)|今日は国際キスデー|![](/ja-JP/2022/07/202207051500KissingPuffins.jpg)|
