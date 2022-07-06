@@ -6,3 +6,4 @@
 202207032200|MehlingerHeide|Mehlinger Heide, Mehlingen, Rheinland-Pfalz (© Boris Jordan Photography/Getty Images)|Morgenstund‘ hat Gold im Mund|![](/de-DE/2022/07/202207032200MehlingerHeide.jpg)|
 202207042200|FannetteIsland|Fannette Island in der Emerald Bay, Lake Tahoe, Kalifornien, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Seepanorama auf 1.900 Metern Höhe|![](/de-DE/2022/07/202207042200FannetteIsland.jpg)|
 202207052200|KissingPuffins|Papageitaucher, Shetlandinseln, Schottland, Vereinigtes Königreich (© Vince Burton/Minden Pictures)|Späte Frühlingsgefühle|![](/de-DE/2022/07/202207052200KissingPuffins.jpg)|
+202207062200|HecetaHead|Leuchtturm Heceta Head, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Ein Licht an der dunklen Küste|![](/de-DE/2022/07/202207062200HecetaHead.jpg)|

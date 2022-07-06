@@ -6,3 +6,4 @@
 202207032200|SharavatiBridge|Un train traversant le pont Sharavati dans le Karnataka, Inde (© Amith Nag Photography/Getty Images)|Prouesse d’ingénierie|![](/fr-FR/2022/07/202207032200SharavatiBridge.jpg)|
 202207042200|BacResults|Cérémonie de remise des diplômes à l’américaine, Troyes (© Andia/Getty Images)|Roulement de tambour|![](/fr-FR/2022/07/202207042200BacResults.jpg)|
 202207052200|KissingPuffins|Deux macareux moines sur les îles Shetland, Écosse (© Vince Burton/Minden Pictures)|Baisers d’oiseaux|![](/fr-FR/2022/07/202207052200KissingPuffins.jpg)|
+202207062200|HecetaHead|Phare Heceta Head, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Un phare aux mille facettes|![](/fr-FR/2022/07/202207062200HecetaHead.jpg)|
