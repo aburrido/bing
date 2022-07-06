@@ -6,3 +6,4 @@
 202207030700|SummerDogs|Red fox (© Yossi Eshbol/Minden Pictures)|Meet an expert on the dog days of summer|![](/en-US/2022/07/202207030700SummerDogs.jpg)|
 202207040700|WHFireworks|Fireworks explode during Independence Day celebrations on July 4, 2021, in Washington, DC (© White House Photo/Alamy)|Happy birthday to us|![](/en-US/2022/07/202207040700WHFireworks.jpg)|
 202207050700|FannetteIsland|Fannette Island surrounded by Emerald Bay, Lake Tahoe, California (© Rachid Dahnoun/Tandem Stills + Motion)|This island is more than a mile high|![](/en-US/2022/07/202207050700FannetteIsland.jpg)|
+202207060700|KissingPuffins|Atlantic puffin pair billing, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Billing time|![](/en-US/2022/07/202207060700KissingPuffins.jpg)|
