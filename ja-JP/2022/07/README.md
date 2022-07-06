@@ -6,3 +6,4 @@
 202207031500|SummerDogs|朝日の中のアカギツネ, イスラエル (© Yossi Eshbol/Minden Pictures)|中東のアカギツネ|![](/ja-JP/2022/07/202207031500SummerDogs.jpg)|
 202207041500|SharavatiBridge|シャラヴァティ橋, インド カルナータカ州 (© Amith Nag Photography/Getty Images)|世界遺産を渡るインドの鉄道橋|![](/ja-JP/2022/07/202207041500SharavatiBridge.jpg)|
 202207051500|KissingPuffins|ニシツノメドリの求愛, イギリス スコットランド (© Vince Burton/Minden Pictures)|今日は国際キスデー|![](/ja-JP/2022/07/202207051500KissingPuffins.jpg)|
+202207061500|Tanabata2022|湘南ひらつか七夕まつり, 神奈川県 平塚市 (© DigiPub/Getty Images)|今日は七夕|![](/ja-JP/2022/07/202207061500Tanabata2022.jpg)|
