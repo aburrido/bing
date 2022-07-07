@@ -7,3 +7,4 @@
 202207041600|FannetteIsland|被翡翠湾环绕的芬尼特岛，太浩湖，加利福尼亚 (© Rachid Dahnoun/Tandem Stills + Motion)|这座岛海拔超过一英里|![](/zh-CN/2022/07/202207041600FannetteIsland.jpg)|
 202207051600|KissingPuffins|一对大西洋海雀在接吻，设得兰群岛，苏格兰 (© Vince Burton/Minden Pictures)|春天是接吻的季节|![](/zh-CN/2022/07/202207051600KissingPuffins.jpg)|
 202207061600|HecetaHead|哈萨塔角灯塔，佛罗伦萨，俄勒冈州 (© Tom Schwabel/Tandem Stills + Motion)|黑夜海岸边的一盏灯|![](/zh-CN/2022/07/202207061600HecetaHead.jpg)|
+202207071600|PreveliGorge|普雷维利峡谷里的河流和棕榈树森林，希腊克里特岛 (© borchee/Getty Images)|值得一去的魅力峡谷|![](/zh-CN/2022/07/202207071600PreveliGorge.jpg)|
