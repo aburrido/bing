@@ -7,3 +7,4 @@
 202207040700|SharavatiBridge|A train crossing the Sharavati Bridge in Karnataka, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2022/07/202207040700SharavatiBridge.jpg)|
 202207050700|FannetteIsland|Fannette Island, Lake Tahoe, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207050700FannetteIsland.jpg)|
 202207060700|KissingPuffins|Atlantic puffin, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Info|![](/en-AU/2022/07/202207060700KissingPuffins.jpg)|
+202207070700|HecetaHead|Heceta Head Light, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207070700HecetaHead.jpg)|

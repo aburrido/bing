@@ -7,3 +7,4 @@
 202207040700|WHFireworks|Fireworks explode during Independence Day celebrations on July 4, 2021, in Washington, DC (© White House Photo/Alamy)|Happy birthday to us|![](/en-US/2022/07/202207040700WHFireworks.jpg)|
 202207050700|FannetteIsland|Fannette Island surrounded by Emerald Bay, Lake Tahoe, California (© Rachid Dahnoun/Tandem Stills + Motion)|This island is more than a mile high|![](/en-US/2022/07/202207050700FannetteIsland.jpg)|
 202207060700|KissingPuffins|Atlantic puffin pair billing, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Billing time|![](/en-US/2022/07/202207060700KissingPuffins.jpg)|
+202207070700|HecetaHead|Heceta Head Light, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)|A light in the coastal darkness|![](/en-US/2022/07/202207070700HecetaHead.jpg)|
