@@ -8,3 +8,4 @@
 202207051830|KissingPuffins|Atlantic puffin pair billing, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Spring is the time for billing|![](/en-IN/2022/07/202207051830KissingPuffins.jpg)|
 202207061830|HecetaHead|Heceta Head Light, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)|A light in the coastal darkness|![](/en-IN/2022/07/202207061830HecetaHead.jpg)|
 202207071830|PreveliGorge|Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-IN/2022/07/202207071830PreveliGorge.jpg)|
+202207081830|DolomitesMW|Dolomite Mountains at night with the Milky Way, Italy (© Carlos Fernandez/Getty Images)|The rainbow bridge|![](/en-IN/2022/07/202207081830DolomitesMW.jpg)|
