@@ -8,3 +8,4 @@
 202207052200|KissingPuffins|Papageitaucher, Shetlandinseln, Schottland, Vereinigtes Königreich (© Vince Burton/Minden Pictures)|Späte Frühlingsgefühle|![](/de-DE/2022/07/202207052200KissingPuffins.jpg)|
 202207062200|HecetaHead|Leuchtturm Heceta Head, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Ein Licht an der dunklen Küste|![](/de-DE/2022/07/202207062200HecetaHead.jpg)|
 202207072200|PreveliGorge|Palmenhain in der Schlucht von Preveli, Kreta, Griechenland (© borchee/Getty Images)|Palmen auf Griechenlands größter Insel|![](/de-DE/2022/07/202207072200PreveliGorge.jpg)|
+202207082200|DolomitesMW|Milchstraße über den Dolomiten, Italien (© Carlos Fernandez/Getty Images)|Die Regenbogenbrücke|![](/de-DE/2022/07/202207082200DolomitesMW.jpg)|
