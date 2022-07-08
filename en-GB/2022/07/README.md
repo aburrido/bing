@@ -8,3 +8,4 @@
 202207052300|KissingPuffins|Atlantic puffin pair billing, Shetland Islands (© Vince Burton/Minden Pictures)|Puffins pucker up|![](/en-GB/2022/07/202207052300KissingPuffins.jpg)|
 202207062300|HecetaHead|Heceta Head Light, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|A light in the coastal darkness|![](/en-GB/2022/07/202207062300HecetaHead.jpg)|
 202207072300|PreveliGorge|Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-GB/2022/07/202207072300PreveliGorge.jpg)|
+202207082300|DolomitesMW|Dolomite Mountains at night with the Milky Way, Italy (© Carlos Fernandez/Getty Images)|Lighting up the Dolomites|![](/en-GB/2022/07/202207082300DolomitesMW.jpg)|
