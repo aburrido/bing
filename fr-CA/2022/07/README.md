@@ -7,3 +7,4 @@
 202207050400|FannetteIsland|Fannette Island et le parc d’état d’Emerald Bay, Lac Tahoe, Californie, États-Unis (© Rachid Dahnoun/Tandem Stills + Motion)|Information|![](/fr-CA/2022/07/202207050400FannetteIsland.jpg)|
 202207060400|KissingPuffins|Deux macareux moines sur les îles Shetland, Écosse (© Vince Burton/Minden Pictures)|Information|![](/fr-CA/2022/07/202207060400KissingPuffins.jpg)|
 202207070400|HecetaHead|Phare Heceta Head, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)|Information|![](/fr-CA/2022/07/202207070400HecetaHead.jpg)|
+202207080400|StampedeBand|Membres de la fanfare lors du Stampede de Calgary de 2016 à Calgary (© Artur Widak/NurPhoto/Getty Images)|Information|![](/fr-CA/2022/07/202207080400StampedeBand.jpg)|
