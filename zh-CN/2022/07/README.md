@@ -9,3 +9,4 @@
 202207061600|HecetaHead|哈萨塔角灯塔，佛罗伦萨，俄勒冈州 (© Tom Schwabel/Tandem Stills + Motion)|黑夜海岸边的一盏灯|![](/zh-CN/2022/07/202207061600HecetaHead.jpg)|
 202207071600|PreveliGorge|普雷维利峡谷里的河流和棕榈树森林，希腊克里特岛 (© borchee/Getty Images)|值得一去的魅力峡谷|![](/zh-CN/2022/07/202207071600PreveliGorge.jpg)|
 202207081600|DolomitesMW|多洛米蒂山上空的银河，意大利 (© Carlos Fernandez/Getty Images)|彩虹桥|![](/zh-CN/2022/07/202207081600DolomitesMW.jpg)|
+202207091600|OludenizTurkey|鸟瞰视角下的彩色船只，土耳其欧鲁旦尼斯 (© den-belitsky/Getty Images)|绚丽多彩的海滩|![](/zh-CN/2022/07/202207091600OludenizTurkey.jpg)|
