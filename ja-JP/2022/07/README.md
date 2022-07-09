@@ -9,3 +9,4 @@
 202207061500|Tanabata2022|湘南ひらつか七夕まつり, 神奈川県 平塚市 (© DigiPub/Getty Images)|今日は七夕|![](/ja-JP/2022/07/202207061500Tanabata2022.jpg)|
 202207071500|DolomitesMW|ドロミーティの天の川, イタリア (© Carlos Fernandez/Getty Images)|ドロミーティと天の川|![](/ja-JP/2022/07/202207071500DolomitesMW.jpg)|
 202207081500|PortAventura|シャンバラ・ジェットコースター, スペイン, コスタ・ドラダ (© Joaquim F. P./Getty Images)|今日はジェットコースターの日|![](/ja-JP/2022/07/202207081500PortAventura.jpg)|
+202207091500|OludenizTurkey|海岸のボート, トルコ オルデニズ (© den-belitsky/Getty Images)|エーゲ海のブルーラグーン|![](/ja-JP/2022/07/202207091500OludenizTurkey.jpg)|
