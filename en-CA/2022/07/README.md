@@ -8,3 +8,4 @@
 202207060400|KissingPuffins|Atlantic puffin pair billing, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Spring is the time for billing|![](/en-CA/2022/07/202207060400KissingPuffins.jpg)|
 202207070400|HecetaHead|Heceta Head Light, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)|A light in the coastal darkness|![](/en-CA/2022/07/202207070400HecetaHead.jpg)|
 202207080400|StampedeBand|Members of the Calgary Stampede marching band in action, during the Calgary Stampede 2016 (© Artur Widak/NurPhoto/Getty Images)|It’s time for the Calgary Stampede!|![](/en-CA/2022/07/202207080400StampedeBand.jpg)|
+202207090400|DolomitesMW|Dolomite Mountains at night with the Milky Way, Italy (© Carlos Fernandez/Getty Images)|The Rainbow Bridge|![](/en-CA/2022/07/202207090400DolomitesMW.jpg)|
