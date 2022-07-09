@@ -9,3 +9,4 @@
 202207061830|HecetaHead|Heceta Head Light, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)|A light in the coastal darkness|![](/en-IN/2022/07/202207061830HecetaHead.jpg)|
 202207071830|PreveliGorge|Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-IN/2022/07/202207071830PreveliGorge.jpg)|
 202207081830|DolomitesMW|Dolomite Mountains at night with the Milky Way, Italy (© Carlos Fernandez/Getty Images)|The rainbow bridge|![](/en-IN/2022/07/202207081830DolomitesMW.jpg)|
+202207091830|OludenizTurkey|Aerial view of colourful boats in the Mediterranean Sea in Ölüdeniz, Turkey (© den-belitsky/Getty Images)|A beach of many colours|![](/en-IN/2022/07/202207091830OludenizTurkey.jpg)|
