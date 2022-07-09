@@ -9,3 +9,4 @@
 202207062200|HecetaHead|Phare Heceta Head, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Un phare aux mille facettes|![](/fr-FR/2022/07/202207062200HecetaHead.jpg)|
 202207072200|PreveliGorge|Gorges de Préveli bordées par des forêts de palmiers, Crète, Grèce (© borchee/Getty Images)|La meilleure escale|![](/fr-FR/2022/07/202207072200PreveliGorge.jpg)|
 202207082200|DolomitesMW|Les Dolomites et la Voie Lactée, Italie (© Carlos Fernandez/Getty Images)|Et là-haut, le ciel|![](/fr-FR/2022/07/202207082200DolomitesMW.jpg)|
+202207092200|OludenizTurkey|Vue aérienne de bateaux colorés sur la mer Méditerranée, Ölüdeniz, Turquie (© den-belitsky/Getty Images)|Le bleu de Turquie|![](/fr-FR/2022/07/202207092200OludenizTurkey.jpg)|
