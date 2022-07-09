@@ -9,3 +9,4 @@
 202207060700|KissingPuffins|Atlantic puffin, Shetland Islands, Scotland (© Vince Burton/Minden Pictures)|Info|![](/en-AU/2022/07/202207060700KissingPuffins.jpg)|
 202207070700|HecetaHead|Heceta Head Light, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207070700HecetaHead.jpg)|
 202207080700|PreveliGorge|Preveli Gorge, South Chania, Crete, Greece (© borchee/Getty Images)|Info|![](/en-AU/2022/07/202207080700PreveliGorge.jpg)|
+202207090700|DolomitesMW|Dolomite Mountains, Italy (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2022/07/202207090700DolomitesMW.jpg)|
