@@ -10,3 +10,4 @@
 202207070700|HecetaHead|Heceta Head Light, Florence, Oregon, USA (© Tom Schwabel/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207070700HecetaHead.jpg)|
 202207080700|PreveliGorge|Preveli Gorge, South Chania, Crete, Greece (© borchee/Getty Images)|Info|![](/en-AU/2022/07/202207080700PreveliGorge.jpg)|
 202207090700|DolomitesMW|Dolomite Mountains, Italy (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2022/07/202207090700DolomitesMW.jpg)|
+202207100700|OludenizTurkey|Mediterranean Sea, Ölüdeniz, Turkey (© den-belitsky/Getty Images)|Info|![](/en-AU/2022/07/202207100700OludenizTurkey.jpg)|
