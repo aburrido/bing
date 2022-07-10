@@ -10,3 +10,4 @@
 202207071500|DolomitesMW|ドロミーティの天の川, イタリア (© Carlos Fernandez/Getty Images)|ドロミーティと天の川|![](/ja-JP/2022/07/202207071500DolomitesMW.jpg)|
 202207081500|PortAventura|シャンバラ・ジェットコースター, スペイン, コスタ・ドラダ (© Joaquim F. P./Getty Images)|今日はジェットコースターの日|![](/ja-JP/2022/07/202207081500PortAventura.jpg)|
 202207091500|OludenizTurkey|海岸のボート, トルコ オルデニズ (© den-belitsky/Getty Images)|エーゲ海のブルーラグーン|![](/ja-JP/2022/07/202207091500OludenizTurkey.jpg)|
+202207101500|BarcelonaPop|バルセロナ, スペイン (© SW Photography/Getty Images)|今日は世界人口デー|![](/ja-JP/2022/07/202207101500BarcelonaPop.jpg)|
