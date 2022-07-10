@@ -9,3 +9,4 @@
 202207070400|HecetaHead|Phare Heceta Head, Florence, Oregon (© Tom Schwabel/Tandem Stills + Motion)|Information|![](/fr-CA/2022/07/202207070400HecetaHead.jpg)|
 202207080400|StampedeBand|Membres de la fanfare lors du Stampede de Calgary de 2016 à Calgary (© Artur Widak/NurPhoto/Getty Images)|Information|![](/fr-CA/2022/07/202207080400StampedeBand.jpg)|
 202207090400|DolomitesMW|Les Dolomites et la Voie Lactée, Italie (© Carlos Fernandez/Getty Images)|Information|![](/fr-CA/2022/07/202207090400DolomitesMW.jpg)|
+202207100400|OludenizTurkey|Vue aérienne de bateaux colorés sur la mer Méditerranée, Ölüdeniz, Turquie (© den-belitsky/Getty Images)|Information|![](/fr-CA/2022/07/202207100400OludenizTurkey.jpg)|
