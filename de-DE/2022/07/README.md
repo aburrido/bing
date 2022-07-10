@@ -10,3 +10,4 @@
 202207072200|PreveliGorge|Palmenhain in der Schlucht von Preveli, Kreta, Griechenland (© borchee/Getty Images)|Palmen auf Griechenlands größter Insel|![](/de-DE/2022/07/202207072200PreveliGorge.jpg)|
 202207082200|DolomitesMW|Milchstraße über den Dolomiten, Italien (© Carlos Fernandez/Getty Images)|Die Regenbogenbrücke|![](/de-DE/2022/07/202207082200DolomitesMW.jpg)|
 202207092200|OludenizTurkey|Luftaufnahme von bunten Booten im Mittelmeer, Ölüdeniz, Türkei (© den-belitsky/Getty Images)|Ein Strand mit vielen Farben|![](/de-DE/2022/07/202207092200OludenizTurkey.jpg)|
+202207102200|BarcelonaPop|Barcelona, Spanien (© SW Photography/Getty Images)|Stadtplanung hört nie auf|![](/de-DE/2022/07/202207102200BarcelonaPop.jpg)|

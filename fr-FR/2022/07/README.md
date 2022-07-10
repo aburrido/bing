@@ -10,3 +10,4 @@
 202207072200|PreveliGorge|Gorges de Préveli bordées par des forêts de palmiers, Crète, Grèce (© borchee/Getty Images)|La meilleure escale|![](/fr-FR/2022/07/202207072200PreveliGorge.jpg)|
 202207082200|DolomitesMW|Les Dolomites et la Voie Lactée, Italie (© Carlos Fernandez/Getty Images)|Et là-haut, le ciel|![](/fr-FR/2022/07/202207082200DolomitesMW.jpg)|
 202207092200|OludenizTurkey|Vue aérienne de bateaux colorés sur la mer Méditerranée, Ölüdeniz, Turquie (© den-belitsky/Getty Images)|Le bleu de Turquie|![](/fr-FR/2022/07/202207092200OludenizTurkey.jpg)|
+202207102200|BarcelonaPop|Barcelone, Espagne (© SW Photography/Getty Images)|Une vraie fourmilière|![](/fr-FR/2022/07/202207102200BarcelonaPop.jpg)|
