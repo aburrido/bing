@@ -11,3 +11,4 @@
 202207081600|DolomitesMW|多洛米蒂山上空的银河，意大利 (© Carlos Fernandez/Getty Images)|彩虹桥|![](/zh-CN/2022/07/202207081600DolomitesMW.jpg)|
 202207091600|OludenizTurkey|鸟瞰视角下的彩色船只，土耳其欧鲁旦尼斯 (© den-belitsky/Getty Images)|绚丽多彩的海滩|![](/zh-CN/2022/07/202207091600OludenizTurkey.jpg)|
 202207101600|BarcelonaPop|巴塞罗那城市上空，西班牙 (© SW Photography/Getty Images)|城市规划永不停歇|![](/zh-CN/2022/07/202207101600BarcelonaPop.jpg)|
+202207111600|SpiralHill|悉尼奥林匹克公园里的湾标瞭望台，澳大利亚 (© ai_yoshi/Getty Images)|螺旋上升……|![](/zh-CN/2022/07/202207111600SpiralHill.jpg)|
