@@ -11,3 +11,4 @@
 202207082200|DolomitesMW|Les Dolomites et la Voie Lactée, Italie (© Carlos Fernandez/Getty Images)|Et là-haut, le ciel|![](/fr-FR/2022/07/202207082200DolomitesMW.jpg)|
 202207092200|OludenizTurkey|Vue aérienne de bateaux colorés sur la mer Méditerranée, Ölüdeniz, Turquie (© den-belitsky/Getty Images)|Le bleu de Turquie|![](/fr-FR/2022/07/202207092200OludenizTurkey.jpg)|
 202207102200|BarcelonaPop|Barcelone, Espagne (© SW Photography/Getty Images)|Une vraie fourmilière|![](/fr-FR/2022/07/202207102200BarcelonaPop.jpg)|
+202207112200|SpiralHill|Point de vue Bay Marker, Parc Olympique de Sydney, Australie (© ai_yoshi/Getty Images)|Vestige olympique|![](/fr-FR/2022/07/202207112200SpiralHill.jpg)|
