@@ -11,3 +11,4 @@
 202207080700|PreveliGorge|Preveli Gorge with river and palm tree forest, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-US/2022/07/202207080700PreveliGorge.jpg)|
 202207090700|DolomitesMW|Dolomite Mountains at night with the Milky Way, Italy (© Carlos Fernandez/Getty Images)|The Rainbow Bridge|![](/en-US/2022/07/202207090700DolomitesMW.jpg)|
 202207100700|OludenizTurkey|Aerial view of colorful boats in the Mediterranean Sea in Ölüdeniz, Turkey (© den-belitsky/Getty Images)|A beach of many colors|![](/en-US/2022/07/202207100700OludenizTurkey.jpg)|
+202207110700|BarcelonaPop|Barcelona, Spain (© SW Photography/Getty Images)|Urban planning never stops|![](/en-US/2022/07/202207110700BarcelonaPop.jpg)|
