@@ -12,3 +12,4 @@
 202207091500|OludenizTurkey|海岸のボート, トルコ オルデニズ (© den-belitsky/Getty Images)|エーゲ海のブルーラグーン|![](/ja-JP/2022/07/202207091500OludenizTurkey.jpg)|
 202207101500|BarcelonaPop|バルセロナ, スペイン (© SW Photography/Getty Images)|今日は世界人口デー|![](/ja-JP/2022/07/202207101500BarcelonaPop.jpg)|
 202207111500|HecetaHead|ヘセタ岬灯台, 米国 オレゴン州 (© Tom Schwabel/Tandem Stills + Motion)|オレゴンの歴史ある灯台|![](/ja-JP/2022/07/202207111500HecetaHead.jpg)|
+202207121500|BasaltGiants|ジャイアンツ・コーズウェー, イギリス 北アイルランド  (© Olimpio Fantuz/eStock Photo)|北アイルランドの奇岩の海岸|![](/ja-JP/2022/07/202207121500BasaltGiants.jpg)|
