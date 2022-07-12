@@ -12,3 +12,4 @@
 202207092300|OludenizTurkey|Aerial view of colourful boats in the Mediterranean Sea in Ölüdeniz, Turkey (© den-belitsky/Getty Images)|A beach of many colours|![](/en-GB/2022/07/202207092300OludenizTurkey.jpg)|
 202207102300|BarcelonaPop|Barcelona, Spain (© SW Photography/Getty Images)|World Population Day|![](/en-GB/2022/07/202207102300BarcelonaPop.jpg)|
 202207112300|SpiralHill|Bay Marker Lookout, Sydney Olympic Park, Australia (© ai_yoshi/Getty Images)|Spiralling upward...|![](/en-GB/2022/07/202207112300SpiralHill.jpg)|
+202207122300|BasaltGiants|Basalt columns of Giant's Causeway, County Antrim (© Olimpio Fantuz/eStock Photo)|A rock giant|![](/en-GB/2022/07/202207122300BasaltGiants.jpg)|
