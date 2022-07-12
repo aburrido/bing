@@ -12,3 +12,4 @@
 202207091830|OludenizTurkey|Aerial view of colourful boats in the Mediterranean Sea in Ölüdeniz, Turkey (© den-belitsky/Getty Images)|A beach of many colours|![](/en-IN/2022/07/202207091830OludenizTurkey.jpg)|
 202207101830|BarcelonaPop|Barcelona, Spain (© SW Photography/Getty Images)|Urban planning never stops|![](/en-IN/2022/07/202207101830BarcelonaPop.jpg)|
 202207111830|SharavatiBridge|A train crossing the Sharavati Bridge in Karnataka, India (© Amith Nag Photography/Getty Images)|An engineering marvel|![](/en-IN/2022/07/202207111830SharavatiBridge.jpg)|
+202207121830|BasaltGiants|Basalt columns of Giant's Causeway, Northern Ireland, United Kingdom (© Olimpio Fantuz/eStock Photo)|Rocks rock!|![](/en-IN/2022/07/202207121830BasaltGiants.jpg)|
