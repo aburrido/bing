@@ -12,3 +12,4 @@
 202207092200|OludenizTurkey|Vue aérienne de bateaux colorés sur la mer Méditerranée, Ölüdeniz, Turquie (© den-belitsky/Getty Images)|Le bleu de Turquie|![](/fr-FR/2022/07/202207092200OludenizTurkey.jpg)|
 202207102200|BarcelonaPop|Barcelone, Espagne (© SW Photography/Getty Images)|Une vraie fourmilière|![](/fr-FR/2022/07/202207102200BarcelonaPop.jpg)|
 202207112200|SpiralHill|Point de vue Bay Marker, Parc Olympique de Sydney, Australie (© ai_yoshi/Getty Images)|Vestige olympique|![](/fr-FR/2022/07/202207112200SpiralHill.jpg)|
+202207122200|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|La Chaussée des Géants|![](/fr-FR/2022/07/202207122200BasaltGiants.jpg)|
