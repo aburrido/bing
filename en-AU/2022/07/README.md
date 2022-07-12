@@ -12,3 +12,4 @@
 202207090700|DolomitesMW|Dolomite Mountains, Italy (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2022/07/202207090700DolomitesMW.jpg)|
 202207100700|OludenizTurkey|Mediterranean Sea, Ölüdeniz, Turkey (© den-belitsky/Getty Images)|Info|![](/en-AU/2022/07/202207100700OludenizTurkey.jpg)|
 202207110700|BarcelonaPop|Barcelona, Spain (© SW Photography/Getty Images)|Info|![](/en-AU/2022/07/202207110700BarcelonaPop.jpg)|
+202207120700|SpiralHill|Bay Marker Lookout, Sydney Olympic Park, Australia (© ai_yoshi/Getty Images)|Info|![](/en-AU/2022/07/202207120700SpiralHill.jpg)|
