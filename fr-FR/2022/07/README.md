@@ -13,3 +13,4 @@
 202207102200|BarcelonaPop|Barcelone, Espagne (© SW Photography/Getty Images)|Une vraie fourmilière|![](/fr-FR/2022/07/202207102200BarcelonaPop.jpg)|
 202207112200|SpiralHill|Point de vue Bay Marker, Parc Olympique de Sydney, Australie (© ai_yoshi/Getty Images)|Vestige olympique|![](/fr-FR/2022/07/202207112200SpiralHill.jpg)|
 202207122200|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|La Chaussée des Géants|![](/fr-FR/2022/07/202207122200BasaltGiants.jpg)|
+202207132200|ByeByeMonarchy|Collection de timbres représentant Marianne, symbole de la République française (© Virginie Schleiermacher/Alamy Stock Photo)|La belle Marianne|![](/fr-FR/2022/07/202207132200ByeByeMonarchy.jpg)|

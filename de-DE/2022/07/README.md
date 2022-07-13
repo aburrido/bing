@@ -13,3 +13,4 @@
 202207102200|BarcelonaPop|Barcelona, Spanien (© SW Photography/Getty Images)|Stadtplanung hört nie auf|![](/de-DE/2022/07/202207102200BarcelonaPop.jpg)|
 202207112200|SpiralHill|Aussichtshügel Bay Marker im Sydney Olympic Park, Australien (© ai_yoshi/Getty Images)|Aufwärtsspirale|![](/de-DE/2022/07/202207112200SpiralHill.jpg)|
 202207122200|BasaltGiants|Basaltsäulen des Giant's Causeway, Nordirland, Vereinigtes Königreich (© Olimpio Fantuz/eStock Photo)|„Der Damm des Riesen“|![](/de-DE/2022/07/202207122200BasaltGiants.jpg)|
+202207132200|MarburgSommer|Grimm-Dich-Pfad, Marburg, Hessen (© Gianluca Santoni/eStock Photo)|Auf den Spuren der Brüder Grimm|![](/de-DE/2022/07/202207132200MarburgSommer.jpg)|
