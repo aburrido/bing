@@ -12,3 +12,4 @@
 202207100400|OludenizTurkey|Vue aérienne de bateaux colorés sur la mer Méditerranée, Ölüdeniz, Turquie (© den-belitsky/Getty Images)|Information|![](/fr-CA/2022/07/202207100400OludenizTurkey.jpg)|
 202207110400|BarcelonaPop|Barcelone, Espagne (© SW Photography/Getty Images)|Information|![](/fr-CA/2022/07/202207110400BarcelonaPop.jpg)|
 202207120400|SpiralHill|Point de vue Bay Marker, Parc Olympique de Sydney, Australie (© ai_yoshi/Getty Images)|Information|![](/fr-CA/2022/07/202207120400SpiralHill.jpg)|
+202207130400|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|Information|![](/fr-CA/2022/07/202207130400BasaltGiants.jpg)|
