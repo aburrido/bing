@@ -13,3 +13,4 @@
 202207101830|BarcelonaPop|Barcelona, Spain (© SW Photography/Getty Images)|Urban planning never stops|![](/en-IN/2022/07/202207101830BarcelonaPop.jpg)|
 202207111830|SharavatiBridge|A train crossing the Sharavati Bridge in Karnataka, India (© Amith Nag Photography/Getty Images)|An engineering marvel|![](/en-IN/2022/07/202207111830SharavatiBridge.jpg)|
 202207121830|BasaltGiants|Basalt columns of Giant's Causeway, Northern Ireland, United Kingdom (© Olimpio Fantuz/eStock Photo)|Rocks rock!|![](/en-IN/2022/07/202207121830BasaltGiants.jpg)|
+202207131830|BabyLemons|Baby lemon sharks swimming among mangroves near Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Sharks, just living their lives|![](/en-IN/2022/07/202207131830BabyLemons.jpg)|
