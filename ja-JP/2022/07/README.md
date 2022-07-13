@@ -13,3 +13,4 @@
 202207101500|BarcelonaPop|バルセロナ, スペイン (© SW Photography/Getty Images)|今日は世界人口デー|![](/ja-JP/2022/07/202207101500BarcelonaPop.jpg)|
 202207111500|HecetaHead|ヘセタ岬灯台, 米国 オレゴン州 (© Tom Schwabel/Tandem Stills + Motion)|オレゴンの歴史ある灯台|![](/ja-JP/2022/07/202207111500HecetaHead.jpg)|
 202207121500|BasaltGiants|ジャイアンツ・コーズウェー, イギリス 北アイルランド  (© Olimpio Fantuz/eStock Photo)|北アイルランドの奇岩の海岸|![](/ja-JP/2022/07/202207121500BasaltGiants.jpg)|
+202207131500|Himawari2022|明野のひまわり畑, 山梨県 北杜市 (© Takeshi.K/Getty Images)|今日はひまわりの日|![](/ja-JP/2022/07/202207131500Himawari2022.jpg)|
