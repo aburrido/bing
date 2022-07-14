@@ -14,3 +14,4 @@
 202207112200|SpiralHill|Point de vue Bay Marker, Parc Olympique de Sydney, Australie (© ai_yoshi/Getty Images)|Vestige olympique|![](/fr-FR/2022/07/202207112200SpiralHill.jpg)|
 202207122200|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|La Chaussée des Géants|![](/fr-FR/2022/07/202207122200BasaltGiants.jpg)|
 202207132200|ByeByeMonarchy|Collection de timbres représentant Marianne, symbole de la République française (© Virginie Schleiermacher/Alamy Stock Photo)|La belle Marianne|![](/fr-FR/2022/07/202207132200ByeByeMonarchy.jpg)|
+202207142200|Arrone|Le village d’Arrone en Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Figé dans le temps|![](/fr-FR/2022/07/202207142200Arrone.jpg)|
