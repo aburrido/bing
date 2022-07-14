@@ -14,3 +14,4 @@
 202207111600|SpiralHill|悉尼奥林匹克公园里的湾标瞭望台，澳大利亚 (© ai_yoshi/Getty Images)|螺旋上升……|![](/zh-CN/2022/07/202207111600SpiralHill.jpg)|
 202207121600|BasaltGiants|巨人堤道上的玄武岩柱，英国北爱尔兰 (© Olimpio Fantuz/eStock Photo)|巨石中的巨石|![](/zh-CN/2022/07/202207121600BasaltGiants.jpg)|
 202207131600|BabyLemons|爱丽丝镇附近水域中的柠檬鲨宝宝，巴哈马比米尼岛 (© Ken Kiefer 2/Getty Images)|自由自在的柠檬鲨|![](/zh-CN/2022/07/202207131600BabyLemons.jpg)|
+202207141600|Arrone|阿罗内镇的村落，意大利翁布里亚大区 (© Maurizio Rellini/eStock Photo)|时光倒流......|![](/zh-CN/2022/07/202207141600Arrone.jpg)|
