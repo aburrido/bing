@@ -14,3 +14,4 @@
 202207112300|SpiralHill|Bay Marker Lookout, Sydney Olympic Park, Australia (© ai_yoshi/Getty Images)|Spiralling upward...|![](/en-GB/2022/07/202207112300SpiralHill.jpg)|
 202207122300|BasaltGiants|Basalt columns of Giant's Causeway, County Antrim (© Olimpio Fantuz/eStock Photo)|A rock giant|![](/en-GB/2022/07/202207122300BasaltGiants.jpg)|
 202207132300|BabyLemons|Baby lemon sharks swimming among mangroves near Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Shark Awareness Day|![](/en-GB/2022/07/202207132300BabyLemons.jpg)|
+202207142300|Arrone|The village of Arrone in Umbria, Italy (© Maurizio Rellini/eStock Photo)|Step back in time...|![](/en-GB/2022/07/202207142300Arrone.jpg)|
