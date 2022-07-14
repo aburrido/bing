@@ -13,3 +13,4 @@
 202207110400|BarcelonaPop|Barcelone, Espagne (© SW Photography/Getty Images)|Information|![](/fr-CA/2022/07/202207110400BarcelonaPop.jpg)|
 202207120400|SpiralHill|Point de vue Bay Marker, Parc Olympique de Sydney, Australie (© ai_yoshi/Getty Images)|Information|![](/fr-CA/2022/07/202207120400SpiralHill.jpg)|
 202207130400|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|Information|![](/fr-CA/2022/07/202207130400BasaltGiants.jpg)|
+202207140400|BabyLemons|Bébés requins citron nageant dans la mangrove près de Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Information|![](/fr-CA/2022/07/202207140400BabyLemons.jpg)|
