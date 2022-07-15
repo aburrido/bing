@@ -15,3 +15,4 @@
 202207122200|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|La Chaussée des Géants|![](/fr-FR/2022/07/202207122200BasaltGiants.jpg)|
 202207132200|ByeByeMonarchy|Collection de timbres représentant Marianne, symbole de la République française (© Virginie Schleiermacher/Alamy Stock Photo)|La belle Marianne|![](/fr-FR/2022/07/202207132200ByeByeMonarchy.jpg)|
 202207142200|Arrone|Le village d’Arrone en Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Figé dans le temps|![](/fr-FR/2022/07/202207142200Arrone.jpg)|
+202207152200|AmericanGoldfinch|Chardonneret jaune sur un tournesol à McConnells, Caroline du Sud, États-Unis (© Teresa Kopec/Getty Images)|Ton sur ton|![](/fr-FR/2022/07/202207152200AmericanGoldfinch.jpg)|
