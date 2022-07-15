@@ -15,3 +15,4 @@
 202207120700|SpiralHill|Bay Marker Lookout, Sydney Olympic Park, Australia (© ai_yoshi/Getty Images)|Info|![](/en-AU/2022/07/202207120700SpiralHill.jpg)|
 202207130700|BasaltGiants|Giant's Causeway, Antrim, Northern Ireland (© Olimpio Fantuz/eStock Photo)|Info|![](/en-AU/2022/07/202207130700BasaltGiants.jpg)|
 202207140700|BabyLemons|Baby lemon sharks, Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Info|![](/en-AU/2022/07/202207140700BabyLemons.jpg)|
+202207150700|Arrone|Arrone, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Info|![](/en-AU/2022/07/202207150700Arrone.jpg)|
