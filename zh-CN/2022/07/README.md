@@ -15,3 +15,4 @@
 202207121600|BasaltGiants|巨人堤道上的玄武岩柱，英国北爱尔兰 (© Olimpio Fantuz/eStock Photo)|巨石中的巨石|![](/zh-CN/2022/07/202207121600BasaltGiants.jpg)|
 202207131600|BabyLemons|爱丽丝镇附近水域中的柠檬鲨宝宝，巴哈马比米尼岛 (© Ken Kiefer 2/Getty Images)|自由自在的柠檬鲨|![](/zh-CN/2022/07/202207131600BabyLemons.jpg)|
 202207141600|Arrone|阿罗内镇的村落，意大利翁布里亚大区 (© Maurizio Rellini/eStock Photo)|时光倒流......|![](/zh-CN/2022/07/202207141600Arrone.jpg)|
+202207151600|AmericanGoldfinch|向日葵上的金翅雀，美国南卡罗来纳州 (© Teresa Kopec/Getty Images)|“薯片鸟”|![](/zh-CN/2022/07/202207151600AmericanGoldfinch.jpg)|
