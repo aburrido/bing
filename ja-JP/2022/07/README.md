@@ -15,3 +15,4 @@
 202207121500|BasaltGiants|ジャイアンツ・コーズウェー, イギリス 北アイルランド  (© Olimpio Fantuz/eStock Photo)|北アイルランドの奇岩の海岸|![](/ja-JP/2022/07/202207121500BasaltGiants.jpg)|
 202207131500|Himawari2022|明野のひまわり畑, 山梨県 北杜市 (© Takeshi.K/Getty Images)|今日はひまわりの日|![](/ja-JP/2022/07/202207131500Himawari2022.jpg)|
 202207141500|Arrone|アッローネ村, イタリア ウンブリア (© Maurizio Rellini/eStock Photo)|イタリア中部の空中都市|![](/ja-JP/2022/07/202207141500Arrone.jpg)|
+202207151500|AmericanGoldfinch|オウゴンヒワとヒマワリ, 米国 サウスカロライナ州 (© Teresa Kopec/Getty Images)|米国の野鳥とヒマワリ|![](/ja-JP/2022/07/202207151500AmericanGoldfinch.jpg)|
