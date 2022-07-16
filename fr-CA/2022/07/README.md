@@ -15,3 +15,4 @@
 202207130400|BasaltGiants|Colonnes de basalte de la Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Olimpio Fantuz/eStock Photo)|Information|![](/fr-CA/2022/07/202207130400BasaltGiants.jpg)|
 202207140400|BabyLemons|Bébés requins citron nageant dans la mangrove près de Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Information|![](/fr-CA/2022/07/202207140400BabyLemons.jpg)|
 202207150400|Arrone|Le village d’Arrone en Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Information|![](/fr-CA/2022/07/202207150400Arrone.jpg)|
+202207160400|AmericanGoldfinch|Chardonneret jaune sur un tournesol à McConnells, Caroline du Sud, États-Unis (© Teresa Kopec/Getty Images)|Information|![](/fr-CA/2022/07/202207160400AmericanGoldfinch.jpg)|
