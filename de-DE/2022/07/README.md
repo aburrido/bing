@@ -16,3 +16,4 @@
 202207132200|MarburgSommer|Grimm-Dich-Pfad, Marburg, Hessen (© Gianluca Santoni/eStock Photo)|Auf den Spuren der Brüder Grimm|![](/de-DE/2022/07/202207132200MarburgSommer.jpg)|
 202207142200|Arrone|Das Dorf Arrone in Umbrien, Italien (© Maurizio Rellini/eStock Photo)|Reise in die Vergangenheit|![](/de-DE/2022/07/202207142200Arrone.jpg)|
 202207152200|AmericanGoldfinch|Goldzeisig auf einer Sonnenblume, McConnells, South Carolina, USA (© Teresa Kopec/Getty Images)|Seine Leibspeise ist angerichtet|![](/de-DE/2022/07/202207152200AmericanGoldfinch.jpg)|
+202207162200|CoyoteButtes|Versteinerte Sanddüne „The Wave“ in den Coyote Buttes North, Vermilion Cliffs National Monument, Arizona, USA (© Dennis Frates/Alamy)|„Die Welle“ reiten|![](/de-DE/2022/07/202207162200CoyoteButtes.jpg)|
