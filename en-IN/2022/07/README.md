@@ -16,3 +16,4 @@
 202207131830|BabyLemons|Baby lemon sharks swimming among mangroves near Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Sharks, just living their lives|![](/en-IN/2022/07/202207131830BabyLemons.jpg)|
 202207141830|Arrone|The village of Arrone in Umbria, Italy (© Maurizio Rellini/eStock Photo)|Step back in time...|![](/en-IN/2022/07/202207141830Arrone.jpg)|
 202207151830|AmericanGoldfinch|Goldfinch on a sunflower in McConnells, South Carolina (© Teresa Kopec/Getty Images)|The ‘potato chip bird’|![](/en-IN/2022/07/202207151830AmericanGoldfinch.jpg)|
+202207161830|CoyoteButtes|'The Wave' sandstone formation in Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|Ride the wave|![](/en-IN/2022/07/202207161830CoyoteButtes.jpg)|
