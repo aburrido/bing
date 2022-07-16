@@ -16,3 +16,4 @@
 202207130700|BasaltGiants|Basalt columns of Giant's Causeway, Northern Ireland (© Olimpio Fantuz/eStock Photo)|Rocks rock!|![](/en-US/2022/07/202207130700BasaltGiants.jpg)|
 202207140700|BabyLemons|Baby lemon sharks swimming among mangroves near Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Sharks, just living their lives|![](/en-US/2022/07/202207140700BabyLemons.jpg)|
 202207150700|Arrone|The village of Arrone in Umbria, Italy (© Maurizio Rellini/eStock Photo)|Step back in time...|![](/en-US/2022/07/202207150700Arrone.jpg)|
+202207160700|AmericanGoldfinch|Goldfinch on a sunflower in McConnells, South Carolina (© Teresa Kopec/Getty Images)|The 'potato chip bird'|![](/en-US/2022/07/202207160700AmericanGoldfinch.jpg)|
