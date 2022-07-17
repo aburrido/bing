@@ -16,3 +16,4 @@
 202207140400|BabyLemons|Bébés requins citron nageant dans la mangrove près de Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Information|![](/fr-CA/2022/07/202207140400BabyLemons.jpg)|
 202207150400|Arrone|Le village d’Arrone en Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Information|![](/fr-CA/2022/07/202207150400Arrone.jpg)|
 202207160400|AmericanGoldfinch|Chardonneret jaune sur un tournesol à McConnells, Caroline du Sud, États-Unis (© Teresa Kopec/Getty Images)|Information|![](/fr-CA/2022/07/202207160400AmericanGoldfinch.jpg)|
+202207170400|CoyoteButtes|Formation rocheuse 'The Wave’ dans le Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona, États-Unis (© Dennis Frates/Alamy)|Information|![](/fr-CA/2022/07/202207170400CoyoteButtes.jpg)|
