@@ -17,3 +17,4 @@
 202207142200|Arrone|Le village d’Arrone en Ombrie, Italie (© Maurizio Rellini/eStock Photo)|Figé dans le temps|![](/fr-FR/2022/07/202207142200Arrone.jpg)|
 202207152200|AmericanGoldfinch|Chardonneret jaune sur un tournesol à McConnells, Caroline du Sud, États-Unis (© Teresa Kopec/Getty Images)|Ton sur ton|![](/fr-FR/2022/07/202207152200AmericanGoldfinch.jpg)|
 202207162200|CoyoteButtes|Formation rocheuse 'The Wave’ dans le Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona, États-Unis (© Dennis Frates/Alamy)|La Vague|![](/fr-FR/2022/07/202207162200CoyoteButtes.jpg)|
+202207172200|OmijimaIsland|L’île Omijima dans le Parc quasi national de Kita-Nagato Kaigan, Japon (© Sean Pavone Photo/Adobe Stock)|Le Japon fête l’océan|![](/fr-FR/2022/07/202207172200OmijimaIsland.jpg)|
