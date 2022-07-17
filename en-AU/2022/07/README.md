@@ -17,3 +17,4 @@
 202207140700|BabyLemons|Baby lemon sharks, Alice Town, Bimini, Bahamas (© Ken Kiefer 2/Getty Images)|Info|![](/en-AU/2022/07/202207140700BabyLemons.jpg)|
 202207150700|Arrone|Arrone, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Info|![](/en-AU/2022/07/202207150700Arrone.jpg)|
 202207160700|AmericanGoldfinch|Goldfinch, South Carolina, USA (© Teresa Kopec/Getty Images)|Info|![](/en-AU/2022/07/202207160700AmericanGoldfinch.jpg)|
+202207170700|CoyoteButtes|The Wave, Coyote Buttes North, Arizona, USA (© Dennis Frates/Alamy)|Info|![](/en-AU/2022/07/202207170700CoyoteButtes.jpg)|
