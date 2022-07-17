@@ -17,3 +17,4 @@
 202207141500|Arrone|アッローネ村, イタリア ウンブリア (© Maurizio Rellini/eStock Photo)|イタリア中部の空中都市|![](/ja-JP/2022/07/202207141500Arrone.jpg)|
 202207151500|AmericanGoldfinch|オウゴンヒワとヒマワリ, 米国 サウスカロライナ州 (© Teresa Kopec/Getty Images)|米国の野鳥とヒマワリ|![](/ja-JP/2022/07/202207151500AmericanGoldfinch.jpg)|
 202207161500|CoyoteButtes|ザ・ウェーブ, 米国 アリゾナ州 (© Dennis Frates/Alamy)|アリゾナ州の紅の渓谷|![](/ja-JP/2022/07/202207161500CoyoteButtes.jpg)|
+202207171500|OmijimaIsland|青海島, 山口県 長門市  (© Sean Pavone Photo/Adobe Stock)|今日は海の日|![](/ja-JP/2022/07/202207171500OmijimaIsland.jpg)|
