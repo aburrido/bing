@@ -18,3 +18,4 @@
 202207152300|RapadalenSNP|Rapa Valley in Sarek National Park, Sweden (© Alena Vishina/Alamy)|Swedish wilderness|![](/en-GB/2022/07/202207152300RapadalenSNP.jpg)|
 202207162300|CoyoteButtes|The Wave sandstone formation in Coyote Buttes North, Arizona, USA (© Dennis Frates/Alamy)|Ride the wave|![](/en-GB/2022/07/202207162300CoyoteButtes.jpg)|
 202207172300|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the sea|![](/en-GB/2022/07/202207172300OmijimaIsland.jpg)|
+202207182300|DolbadarnCastle|Dolbadarn Castle at the base of the Llanberis Pass, Snowdonia (© Viktoria Rodriguez/Getty Images)|Guarding the pass|![](/en-GB/2022/07/202207182300DolbadarnCastle.jpg)|
