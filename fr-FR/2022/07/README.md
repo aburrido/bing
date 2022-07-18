@@ -18,3 +18,4 @@
 202207152200|AmericanGoldfinch|Chardonneret jaune sur un tournesol à McConnells, Caroline du Sud, États-Unis (© Teresa Kopec/Getty Images)|Ton sur ton|![](/fr-FR/2022/07/202207152200AmericanGoldfinch.jpg)|
 202207162200|CoyoteButtes|Formation rocheuse 'The Wave’ dans le Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona, États-Unis (© Dennis Frates/Alamy)|La Vague|![](/fr-FR/2022/07/202207162200CoyoteButtes.jpg)|
 202207172200|OmijimaIsland|L’île Omijima dans le Parc quasi national de Kita-Nagato Kaigan, Japon (© Sean Pavone Photo/Adobe Stock)|Le Japon fête l’océan|![](/fr-FR/2022/07/202207172200OmijimaIsland.jpg)|
+202207182200|StPaul|Allée fleurie à Saint-Paul-de-Vence, Alpes Maritimes, Provence-Alpes-Côte-D’azur (© Susanne Kremer/Huber/eStock Photo)|Un art de Provence|![](/fr-FR/2022/07/202207182200StPaul.jpg)|

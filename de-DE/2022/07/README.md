@@ -18,3 +18,4 @@
 202207152200|AmericanGoldfinch|Goldzeisig auf einer Sonnenblume, McConnells, South Carolina, USA (© Teresa Kopec/Getty Images)|Seine Leibspeise ist angerichtet|![](/de-DE/2022/07/202207152200AmericanGoldfinch.jpg)|
 202207162200|CoyoteButtes|Versteinerte Sanddüne „The Wave“ in den Coyote Buttes North, Vermilion Cliffs National Monument, Arizona, USA (© Dennis Frates/Alamy)|„Die Welle“ reiten|![](/de-DE/2022/07/202207162200CoyoteButtes.jpg)|
 202207172200|OmijimaIsland|Die Insel Omijima im Kita-Nagato-Kaigan-Quasi-Nationalpark, Japan (© Sean Pavone Photo/Adobe Stock)|„Die Alpen des Meeres“|![](/de-DE/2022/07/202207172200OmijimaIsland.jpg)|
+202207182200|FraueninselChiemsee|Luftbild der Fraueninsel im Chiemsee, Bayern (© Malorny/Getty Images)|Inselflair im „Bayerischen Meer“|![](/de-DE/2022/07/202207182200FraueninselChiemsee.jpg)|
