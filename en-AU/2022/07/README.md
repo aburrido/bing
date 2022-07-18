@@ -18,3 +18,4 @@
 202207150700|Arrone|Arrone, Umbria, Italy (© Maurizio Rellini/eStock Photo)|Info|![](/en-AU/2022/07/202207150700Arrone.jpg)|
 202207160700|AmericanGoldfinch|Goldfinch, South Carolina, USA (© Teresa Kopec/Getty Images)|Info|![](/en-AU/2022/07/202207160700AmericanGoldfinch.jpg)|
 202207170700|CoyoteButtes|The Wave, Coyote Buttes North, Arizona, USA (© Dennis Frates/Alamy)|Info|![](/en-AU/2022/07/202207170700CoyoteButtes.jpg)|
+202207180700|OmijimaIsland|Omijima Island, Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Info|![](/en-AU/2022/07/202207180700OmijimaIsland.jpg)|

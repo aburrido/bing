@@ -18,3 +18,4 @@
 202207150700|Arrone|The village of Arrone in Umbria, Italy (© Maurizio Rellini/eStock Photo)|Step back in time...|![](/en-US/2022/07/202207150700Arrone.jpg)|
 202207160700|AmericanGoldfinch|Goldfinch on a sunflower in McConnells, South Carolina (© Teresa Kopec/Getty Images)|The 'potato chip bird'|![](/en-US/2022/07/202207160700AmericanGoldfinch.jpg)|
 202207170700|CoyoteButtes|The Wave sandstone formation in Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|Ride the wave|![](/en-US/2022/07/202207170700CoyoteButtes.jpg)|
+202207180700|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the Sea|![](/en-US/2022/07/202207180700OmijimaIsland.jpg)|
