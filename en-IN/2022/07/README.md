@@ -18,3 +18,4 @@
 202207151830|AmericanGoldfinch|Goldfinch on a sunflower in McConnells, South Carolina (© Teresa Kopec/Getty Images)|The ‘potato chip bird’|![](/en-IN/2022/07/202207151830AmericanGoldfinch.jpg)|
 202207161830|CoyoteButtes|'The Wave' sandstone formation in Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|Ride the wave|![](/en-IN/2022/07/202207161830CoyoteButtes.jpg)|
 202207171830|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the sea|![](/en-IN/2022/07/202207171830OmijimaIsland.jpg)|
+202207181830|SilkClothVaranasi|Silk cloth made in Varanasi, India (© Westend61/Getty Images)|The epitome of luxury|![](/en-IN/2022/07/202207181830SilkClothVaranasi.jpg)|
