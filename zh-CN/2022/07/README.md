@@ -18,3 +18,4 @@
 202207151600|AmericanGoldfinch|向日葵上的金翅雀，美国南卡罗来纳州 (© Teresa Kopec/Getty Images)|“薯片鸟”|![](/zh-CN/2022/07/202207151600AmericanGoldfinch.jpg)|
 202207161600|CoyoteButtes|北狼丘里的"波浪谷"，美国亚利桑那州 (© Dennis Frates/Alamy)|乘风破浪|![](/zh-CN/2022/07/202207161600CoyoteButtes.jpg)|
 202207171600|OmijimaIsland|布满奇石的青海岛，日本北长门海岸国定公园 (© Sean Pavone Photo/Adobe Stock)|海上阿尔卑斯山|![](/zh-CN/2022/07/202207171600OmijimaIsland.jpg)|
+202207181600|FraueninselChiemsee|基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)|“巴伐利亚海”中的岛屿|![](/zh-CN/2022/07/202207181600FraueninselChiemsee.jpg)|
