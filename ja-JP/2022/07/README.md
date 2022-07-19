@@ -19,3 +19,4 @@
 202207161500|CoyoteButtes|ザ・ウェーブ, 米国 アリゾナ州 (© Dennis Frates/Alamy)|アリゾナ州の紅の渓谷|![](/ja-JP/2022/07/202207161500CoyoteButtes.jpg)|
 202207171500|OmijimaIsland|青海島, 山口県 長門市  (© Sean Pavone Photo/Adobe Stock)|今日は海の日|![](/ja-JP/2022/07/202207171500OmijimaIsland.jpg)|
 202207181500|FraueninselChiemsee|フラウエンインゼル, ドイツ バイエルン州 (© Malorny/Getty Images)|バイエルン州の女島|![](/ja-JP/2022/07/202207181500FraueninselChiemsee.jpg)|
+202207191500|MoonPhases|月の満ち欠け  (© Delpixart/Getty Images)|今日は月面着陸の日|![](/ja-JP/2022/07/202207191500MoonPhases.jpg)|
