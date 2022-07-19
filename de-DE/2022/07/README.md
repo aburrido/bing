@@ -19,3 +19,4 @@
 202207162200|CoyoteButtes|Versteinerte Sanddüne „The Wave“ in den Coyote Buttes North, Vermilion Cliffs National Monument, Arizona, USA (© Dennis Frates/Alamy)|„Die Welle“ reiten|![](/de-DE/2022/07/202207162200CoyoteButtes.jpg)|
 202207172200|OmijimaIsland|Die Insel Omijima im Kita-Nagato-Kaigan-Quasi-Nationalpark, Japan (© Sean Pavone Photo/Adobe Stock)|„Die Alpen des Meeres“|![](/de-DE/2022/07/202207172200OmijimaIsland.jpg)|
 202207182200|FraueninselChiemsee|Luftbild der Fraueninsel im Chiemsee, Bayern (© Malorny/Getty Images)|Inselflair im „Bayerischen Meer“|![](/de-DE/2022/07/202207182200FraueninselChiemsee.jpg)|
+202207192200|MoonPhases|Ein aus mehreren Aufnahmen zusammengesetztes Foto zeigt die verschiedenen Mondphasen (© Delpixart/Getty Images)|Ein kleiner Schritt für die Menschheit|![](/de-DE/2022/07/202207192200MoonPhases.jpg)|
