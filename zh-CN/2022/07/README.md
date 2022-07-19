@@ -19,3 +19,4 @@
 202207161600|CoyoteButtes|北狼丘里的"波浪谷"，美国亚利桑那州 (© Dennis Frates/Alamy)|乘风破浪|![](/zh-CN/2022/07/202207161600CoyoteButtes.jpg)|
 202207171600|OmijimaIsland|布满奇石的青海岛，日本北长门海岸国定公园 (© Sean Pavone Photo/Adobe Stock)|海上阿尔卑斯山|![](/zh-CN/2022/07/202207171600OmijimaIsland.jpg)|
 202207181600|FraueninselChiemsee|基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)|“巴伐利亚海”中的岛屿|![](/zh-CN/2022/07/202207181600FraueninselChiemsee.jpg)|
+202207191600|MoonPhases|一组月相照片 (© Delpixart/Getty Images)|人类迈出的一大步|![](/zh-CN/2022/07/202207191600MoonPhases.jpg)|
