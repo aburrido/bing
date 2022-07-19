@@ -18,3 +18,4 @@
 202207160400|AmericanGoldfinch|Chardonneret jaune sur un tournesol à McConnells, Caroline du Sud, États-Unis (© Teresa Kopec/Getty Images)|Information|![](/fr-CA/2022/07/202207160400AmericanGoldfinch.jpg)|
 202207170400|CoyoteButtes|Formation rocheuse 'The Wave’ dans le Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona, États-Unis (© Dennis Frates/Alamy)|Information|![](/fr-CA/2022/07/202207170400CoyoteButtes.jpg)|
 202207180400|OmijimaIsland|L’île Omijima dans le Parc quasi national de Kita-Nagato Kaigan, Japon (© Sean Pavone Photo/Adobe Stock)|Information|![](/fr-CA/2022/07/202207180400OmijimaIsland.jpg)|
+202207190400|TwoJackLake|Lac Two Jack au coucher du soleil, parc national de Banff, Alberta (© SnapRapid/Offset)|Information|![](/fr-CA/2022/07/202207190400TwoJackLake.jpg)|
