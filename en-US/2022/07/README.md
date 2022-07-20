@@ -20,3 +20,4 @@
 202207170700|CoyoteButtes|The Wave sandstone formation in Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|Ride the wave|![](/en-US/2022/07/202207170700CoyoteButtes.jpg)|
 202207180700|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the Sea|![](/en-US/2022/07/202207180700OmijimaIsland.jpg)|
 202207190700|YellowstoneBison|Male American bison in Yellowstone National Park, Wyoming (© Donyanedomam/Getty Images)|Oh, give me a home|![](/en-US/2022/07/202207190700YellowstoneBison.jpg)|
+202207200700|MoonPhases|Composite photo showing the phases of the moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-US/2022/07/202207200700MoonPhases.jpg)|

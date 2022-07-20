@@ -20,3 +20,4 @@
 202207170700|CoyoteButtes|The Wave, Coyote Buttes North, Arizona, USA (© Dennis Frates/Alamy)|Info|![](/en-AU/2022/07/202207170700CoyoteButtes.jpg)|
 202207180700|OmijimaIsland|Omijima Island, Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Info|![](/en-AU/2022/07/202207180700OmijimaIsland.jpg)|
 202207190700|FraueninselChiemsee|Fraueninsel island, Chiemsee, Bavaria, Germany (© Malorny/Getty Images)|Info|![](/en-AU/2022/07/202207190700FraueninselChiemsee.jpg)|
+202207200700|MoonPhases|Phases of the Moon (© Delpixart/Getty Images)|Info|![](/en-AU/2022/07/202207200700MoonPhases.jpg)|
