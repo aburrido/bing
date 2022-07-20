@@ -19,3 +19,4 @@
 202207170400|CoyoteButtes|'The Wave' sandstone formation in Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona (© Dennis Frates/Alamy)|Ride the wave|![](/en-CA/2022/07/202207170400CoyoteButtes.jpg)|
 202207180400|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the sea|![](/en-CA/2022/07/202207180400OmijimaIsland.jpg)|
 202207190400|TwoJackLake|Two Jack Lake, Banff National Park, Alberta (© SnapRapid/Offset)|Among the most photographed in the Rockies|![](/en-CA/2022/07/202207190400TwoJackLake.jpg)|
+202207200400|MoonPhases|Composite photo showing the phases of the moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-CA/2022/07/202207200400MoonPhases.jpg)|

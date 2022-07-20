@@ -19,3 +19,4 @@
 202207170400|CoyoteButtes|Formation rocheuse 'The Wave’ dans le Coyote Buttes North, Paria Canyon-Vermilion Cliffs National Monument, Arizona, États-Unis (© Dennis Frates/Alamy)|Information|![](/fr-CA/2022/07/202207170400CoyoteButtes.jpg)|
 202207180400|OmijimaIsland|L’île Omijima dans le Parc quasi national de Kita-Nagato Kaigan, Japon (© Sean Pavone Photo/Adobe Stock)|Information|![](/fr-CA/2022/07/202207180400OmijimaIsland.jpg)|
 202207190400|TwoJackLake|Lac Two Jack au coucher du soleil, parc national de Banff, Alberta (© SnapRapid/Offset)|Information|![](/fr-CA/2022/07/202207190400TwoJackLake.jpg)|
+202207200400|MoonPhases|Image composite montrant les différentes phases de la lune (© Delpixart/Getty Images)|Information|![](/fr-CA/2022/07/202207200400MoonPhases.jpg)|
