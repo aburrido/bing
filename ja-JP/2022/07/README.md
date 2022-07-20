@@ -20,3 +20,4 @@
 202207171500|OmijimaIsland|青海島, 山口県 長門市  (© Sean Pavone Photo/Adobe Stock)|今日は海の日|![](/ja-JP/2022/07/202207171500OmijimaIsland.jpg)|
 202207181500|FraueninselChiemsee|フラウエンインゼル, ドイツ バイエルン州 (© Malorny/Getty Images)|バイエルン州の女島|![](/ja-JP/2022/07/202207181500FraueninselChiemsee.jpg)|
 202207191500|MoonPhases|月の満ち欠け  (© Delpixart/Getty Images)|今日は月面着陸の日|![](/ja-JP/2022/07/202207191500MoonPhases.jpg)|
+202207201500|AbbeyGardens|アビー・ガーデンズ, イギリス サフォーク (© Charles Martinez/Amazing Aerial Agency)|イギリスの古い幾何学庭園|![](/ja-JP/2022/07/202207201500AbbeyGardens.jpg)|
