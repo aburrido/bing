@@ -20,3 +20,4 @@
 202207172200|OmijimaIsland|L’île Omijima dans le Parc quasi national de Kita-Nagato Kaigan, Japon (© Sean Pavone Photo/Adobe Stock)|Le Japon fête l’océan|![](/fr-FR/2022/07/202207172200OmijimaIsland.jpg)|
 202207182200|StPaul|Allée fleurie à Saint-Paul-de-Vence, Alpes Maritimes, Provence-Alpes-Côte-D’azur (© Susanne Kremer/Huber/eStock Photo)|Un art de Provence|![](/fr-FR/2022/07/202207182200StPaul.jpg)|
 202207192200|MoonPhases|Image composite montrant les différentes phases de la lune (© Delpixart/Getty Images)|Lunaire|![](/fr-FR/2022/07/202207192200MoonPhases.jpg)|
+202207202200|AbbeyGardens|Les jardins de l’abbey de Bury St Edmunds, Suffolk, Angleterre (© Charles Martinez/Amazing Aerial Agency)|Symétriquement vôtre|![](/fr-FR/2022/07/202207202200AbbeyGardens.jpg)|
