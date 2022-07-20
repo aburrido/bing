@@ -20,3 +20,4 @@
 202207171600|OmijimaIsland|布满奇石的青海岛，日本北长门海岸国定公园 (© Sean Pavone Photo/Adobe Stock)|海上阿尔卑斯山|![](/zh-CN/2022/07/202207171600OmijimaIsland.jpg)|
 202207181600|FraueninselChiemsee|基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)|“巴伐利亚海”中的岛屿|![](/zh-CN/2022/07/202207181600FraueninselChiemsee.jpg)|
 202207191600|MoonPhases|一组月相照片 (© Delpixart/Getty Images)|人类迈出的一大步|![](/zh-CN/2022/07/202207191600MoonPhases.jpg)|
+202207201600|AbbeyGardens|伯里圣埃德蒙兹镇的修道院公园，英国萨福克郡 (© Charles Martinez/Amazing Aerial Agency)|绝妙的对称性|![](/zh-CN/2022/07/202207201600AbbeyGardens.jpg)|
