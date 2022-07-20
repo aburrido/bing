@@ -20,3 +20,4 @@
 202207171830|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the sea|![](/en-IN/2022/07/202207171830OmijimaIsland.jpg)|
 202207181830|SilkClothVaranasi|Silk cloth made in Varanasi, India (© Westend61/Getty Images)|The epitome of luxury|![](/en-IN/2022/07/202207181830SilkClothVaranasi.jpg)|
 202207191830|MoonPhases|Composite photo showing the phases of the moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-IN/2022/07/202207191830MoonPhases.jpg)|
+202207201830|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Stunning symmetry|![](/en-IN/2022/07/202207201830AbbeyGardens.jpg)|
