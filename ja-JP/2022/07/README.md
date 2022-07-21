@@ -21,3 +21,4 @@
 202207181500|FraueninselChiemsee|フラウエンインゼル, ドイツ バイエルン州 (© Malorny/Getty Images)|バイエルン州の女島|![](/ja-JP/2022/07/202207181500FraueninselChiemsee.jpg)|
 202207191500|MoonPhases|月の満ち欠け  (© Delpixart/Getty Images)|今日は月面着陸の日|![](/ja-JP/2022/07/202207191500MoonPhases.jpg)|
 202207201500|AbbeyGardens|アビー・ガーデンズ, イギリス サフォーク (© Charles Martinez/Amazing Aerial Agency)|イギリスの古い幾何学庭園|![](/ja-JP/2022/07/202207201500AbbeyGardens.jpg)|
+202207211500|SGIMontenegro|岩礁の聖母と聖ジョージ島, モンテネグロ ペラスト (© Dmitrii Sakharov/Shutterstock)|アドリア海に浮かぶ中世の人工島|![](/ja-JP/2022/07/202207211500SGIMontenegro.jpg)|
