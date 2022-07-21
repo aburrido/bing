@@ -21,3 +21,4 @@
 202207181600|FraueninselChiemsee|基姆湖上的淑女岛，德国巴伐利亚州 (© Malorny/Getty Images)|“巴伐利亚海”中的岛屿|![](/zh-CN/2022/07/202207181600FraueninselChiemsee.jpg)|
 202207191600|MoonPhases|一组月相照片 (© Delpixart/Getty Images)|人类迈出的一大步|![](/zh-CN/2022/07/202207191600MoonPhases.jpg)|
 202207201600|AbbeyGardens|伯里圣埃德蒙兹镇的修道院公园，英国萨福克郡 (© Charles Martinez/Amazing Aerial Agency)|绝妙的对称性|![](/zh-CN/2022/07/202207201600AbbeyGardens.jpg)|
+202207211600|SGIMontenegro|科托尔湾的圣乔治海峡和圣母湾，黑山 (© Dmitrii Sakharov/Shutterstock)|用誓言打造的岛屿|![](/zh-CN/2022/07/202207211600SGIMontenegro.jpg)|
