@@ -20,3 +20,4 @@
 202207180400|OmijimaIsland|L’île Omijima dans le Parc quasi national de Kita-Nagato Kaigan, Japon (© Sean Pavone Photo/Adobe Stock)|Information|![](/fr-CA/2022/07/202207180400OmijimaIsland.jpg)|
 202207190400|TwoJackLake|Lac Two Jack au coucher du soleil, parc national de Banff, Alberta (© SnapRapid/Offset)|Information|![](/fr-CA/2022/07/202207190400TwoJackLake.jpg)|
 202207200400|MoonPhases|Image composite montrant les différentes phases de la lune (© Delpixart/Getty Images)|Information|![](/fr-CA/2022/07/202207200400MoonPhases.jpg)|
+202207210400|AbbeyGardens|Les jardins de l’Abbey de Bury St Edmunds, Suffolk, Angleterre (© Charles Martinez/Amazing Aerial Agency)|Information|![](/fr-CA/2022/07/202207210400AbbeyGardens.jpg)|
