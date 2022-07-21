@@ -21,3 +21,4 @@
 202207182200|FraueninselChiemsee|Luftbild der Fraueninsel im Chiemsee, Bayern (© Malorny/Getty Images)|Inselflair im „Bayerischen Meer“|![](/de-DE/2022/07/202207182200FraueninselChiemsee.jpg)|
 202207192200|MoonPhases|Ein aus mehreren Aufnahmen zusammengesetztes Foto zeigt die verschiedenen Mondphasen (© Delpixart/Getty Images)|Ein kleiner Schritt für die Menschheit|![](/de-DE/2022/07/202207192200MoonPhases.jpg)|
 202207202200|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England, Vereinigtes Königreich (© Charles Martinez/Amazing Aerial Agency)|Verblüffende Symmetrie|![](/de-DE/2022/07/202207202200AbbeyGardens.jpg)|
+202207212200|SGIMontenegro|Die beiden Inseln „Heiliger Georg“ und „Maria vom Felsen“ in der Bucht von Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Ein Gelübde führte zum Bau dieser Insel|![](/de-DE/2022/07/202207212200SGIMontenegro.jpg)|
