@@ -21,3 +21,4 @@
 202207181830|SilkClothVaranasi|Silk cloth made in Varanasi, India (© Westend61/Getty Images)|The epitome of luxury|![](/en-IN/2022/07/202207181830SilkClothVaranasi.jpg)|
 202207191830|MoonPhases|Composite photo showing the phases of the moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-IN/2022/07/202207191830MoonPhases.jpg)|
 202207201830|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Stunning symmetry|![](/en-IN/2022/07/202207201830AbbeyGardens.jpg)|
+202207211830|SGIMontenegro|Saint George Island and Our Lady of the Rocks in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|An island made from a vow|![](/en-IN/2022/07/202207211830SGIMontenegro.jpg)|
