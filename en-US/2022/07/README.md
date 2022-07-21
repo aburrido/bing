@@ -21,3 +21,4 @@
 202207180700|OmijimaIsland|Omijima Island in Kita-Nagato Kaigan Quasi-National Park, Japan (© Sean Pavone Photo/Adobe Stock)|Alps of the Sea|![](/en-US/2022/07/202207180700OmijimaIsland.jpg)|
 202207190700|YellowstoneBison|Male American bison in Yellowstone National Park, Wyoming (© Donyanedomam/Getty Images)|Oh, give me a home|![](/en-US/2022/07/202207190700YellowstoneBison.jpg)|
 202207200700|MoonPhases|Composite photo showing the phases of the moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-US/2022/07/202207200700MoonPhases.jpg)|
+202207210700|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Stunning symmetry|![](/en-US/2022/07/202207210700AbbeyGardens.jpg)|
