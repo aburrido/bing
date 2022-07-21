@@ -21,3 +21,4 @@
 202207182300|DolbadarnCastle|Dolbadarn Castle at the base of the Llanberis Pass, Snowdonia (© Viktoria Rodriguez/Getty Images)|Guarding the pass|![](/en-GB/2022/07/202207182300DolbadarnCastle.jpg)|
 202207192300|MoonPhases|Composite photo showing the phases of the Moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-GB/2022/07/202207192300MoonPhases.jpg)|
 202207202300|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk (© Charles Martinez/Amazing Aerial Agency)|Stunning symmetry|![](/en-GB/2022/07/202207202300AbbeyGardens.jpg)|
+202207212300|SGIMontenegro|Saint George Island and Our Lady of the Rocks in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|A legendary islet|![](/en-GB/2022/07/202207212300SGIMontenegro.jpg)|
