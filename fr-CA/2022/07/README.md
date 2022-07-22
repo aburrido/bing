@@ -21,3 +21,4 @@
 202207190400|TwoJackLake|Lac Two Jack au coucher du soleil, parc national de Banff, Alberta (© SnapRapid/Offset)|Information|![](/fr-CA/2022/07/202207190400TwoJackLake.jpg)|
 202207200400|MoonPhases|Image composite montrant les différentes phases de la lune (© Delpixart/Getty Images)|Information|![](/fr-CA/2022/07/202207200400MoonPhases.jpg)|
 202207210400|AbbeyGardens|Les jardins de l’Abbey de Bury St Edmunds, Suffolk, Angleterre (© Charles Martinez/Amazing Aerial Agency)|Information|![](/fr-CA/2022/07/202207210400AbbeyGardens.jpg)|
+202207220400|SGIMontenegro|Notre Dame du Rocher sur l’île Saint George, dans les Bouches de Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Information|![](/fr-CA/2022/07/202207220400SGIMontenegro.jpg)|
