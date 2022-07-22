@@ -22,3 +22,4 @@
 202207191500|MoonPhases|月の満ち欠け  (© Delpixart/Getty Images)|今日は月面着陸の日|![](/ja-JP/2022/07/202207191500MoonPhases.jpg)|
 202207201500|AbbeyGardens|アビー・ガーデンズ, イギリス サフォーク (© Charles Martinez/Amazing Aerial Agency)|イギリスの古い幾何学庭園|![](/ja-JP/2022/07/202207201500AbbeyGardens.jpg)|
 202207211500|SGIMontenegro|岩礁の聖母と聖ジョージ島, モンテネグロ ペラスト (© Dmitrii Sakharov/Shutterstock)|アドリア海に浮かぶ中世の人工島|![](/ja-JP/2022/07/202207211500SGIMontenegro.jpg)|
+202207221500|Marine2022|青の洞窟, 沖縄 宮古島  (© Daisuke Kurashima/Alamy Stock Photo)|沖縄、宮古島の海底洞窟|![](/ja-JP/2022/07/202207221500Marine2022.jpg)|
