@@ -22,3 +22,4 @@
 202207192200|MoonPhases|Image composite montrant les différentes phases de la lune (© Delpixart/Getty Images)|Lunaire|![](/fr-FR/2022/07/202207192200MoonPhases.jpg)|
 202207202200|AbbeyGardens|Les jardins de l’abbey de Bury St Edmunds, Suffolk, Angleterre (© Charles Martinez/Amazing Aerial Agency)|Symétriquement vôtre|![](/fr-FR/2022/07/202207202200AbbeyGardens.jpg)|
 202207212200|SGIMontenegro|Notre Dame du Rocher sur l’île Saint Georges, dans les Bouches de Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|La force de la foi|![](/fr-FR/2022/07/202207212200SGIMontenegro.jpg)|
+202207222200|SailAway|Voiliers au crépuscule devant un phare au large de Roscoff, Finistère, Bretagne (© Cristina Granena/iStock/Getty Images Plus)|La Bretagne, ça nous gagne|![](/fr-FR/2022/07/202207222200SailAway.jpg)|

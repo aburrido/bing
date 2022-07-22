@@ -22,3 +22,4 @@
 202207192200|MoonPhases|Ein aus mehreren Aufnahmen zusammengesetztes Foto zeigt die verschiedenen Mondphasen (© Delpixart/Getty Images)|Ein kleiner Schritt für die Menschheit|![](/de-DE/2022/07/202207192200MoonPhases.jpg)|
 202207202200|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England, Vereinigtes Königreich (© Charles Martinez/Amazing Aerial Agency)|Verblüffende Symmetrie|![](/de-DE/2022/07/202207202200AbbeyGardens.jpg)|
 202207212200|SGIMontenegro|Die beiden Inseln „Heiliger Georg“ und „Maria vom Felsen“ in der Bucht von Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Ein Gelübde führte zum Bau dieser Insel|![](/de-DE/2022/07/202207212200SGIMontenegro.jpg)|
+202207222200|Pride2022|Regenbogenflagge (© Matt Jeacock/Getty Images)|Flagge zeigen zum CSD Berlin Pride|![](/de-DE/2022/07/202207222200Pride2022.jpg)|
