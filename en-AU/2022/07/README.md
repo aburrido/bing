@@ -22,3 +22,4 @@
 202207190700|FraueninselChiemsee|Fraueninsel island, Chiemsee, Bavaria, Germany (© Malorny/Getty Images)|Info|![](/en-AU/2022/07/202207190700FraueninselChiemsee.jpg)|
 202207200700|MoonPhases|Phases of the Moon (© Delpixart/Getty Images)|Info|![](/en-AU/2022/07/202207200700MoonPhases.jpg)|
 202207210700|AbbeyGardens|Abbey Gardens, Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Info|![](/en-AU/2022/07/202207210700AbbeyGardens.jpg)|
+202207220700|SGIMontenegro|Our Lady of the Rocks, Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Info|![](/en-AU/2022/07/202207220700SGIMontenegro.jpg)|
