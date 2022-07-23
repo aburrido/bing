@@ -23,3 +23,4 @@
 202207201600|AbbeyGardens|伯里圣埃德蒙兹镇的修道院公园，英国萨福克郡 (© Charles Martinez/Amazing Aerial Agency)|绝妙的对称性|![](/zh-CN/2022/07/202207201600AbbeyGardens.jpg)|
 202207211600|SGIMontenegro|科托尔湾的圣乔治海峡和圣母湾，黑山 (© Dmitrii Sakharov/Shutterstock)|用誓言打造的岛屿|![](/zh-CN/2022/07/202207211600SGIMontenegro.jpg)|
 202207221600|FoxgloveHawkmoth|毛地黄上的红天蛾 (© David Chapman/Alamy)|隐秘的传粉者|![](/zh-CN/2022/07/202207221600FoxgloveHawkmoth.jpg)|
+202207231600|TwoJackLake|双杰克湖，班夫国家公园，艾伯塔省，加拿大 (© SnapRapid/Offset)|落基山脉中出镜率最高的地方|![](/zh-CN/2022/07/202207231600TwoJackLake.jpg)|
