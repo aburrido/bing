@@ -22,3 +22,4 @@
 202207200400|MoonPhases|Composite photo showing the phases of the moon (© Delpixart/Getty Images)|One giant leap for mankind|![](/en-CA/2022/07/202207200400MoonPhases.jpg)|
 202207210400|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Stunning symmetry|![](/en-CA/2022/07/202207210400AbbeyGardens.jpg)|
 202207220400|SGIMontenegro|Saint George Island and Our Lady of the Rocks in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|An island made from a vow|![](/en-CA/2022/07/202207220400SGIMontenegro.jpg)|
+202207230400|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Stealthy pollinators|![](/en-CA/2022/07/202207230400FoxgloveHawkmoth.jpg)|
