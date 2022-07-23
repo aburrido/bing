@@ -23,3 +23,4 @@
 202207202200|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England, Vereinigtes Königreich (© Charles Martinez/Amazing Aerial Agency)|Verblüffende Symmetrie|![](/de-DE/2022/07/202207202200AbbeyGardens.jpg)|
 202207212200|SGIMontenegro|Die beiden Inseln „Heiliger Georg“ und „Maria vom Felsen“ in der Bucht von Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Ein Gelübde führte zum Bau dieser Insel|![](/de-DE/2022/07/202207212200SGIMontenegro.jpg)|
 202207222200|Pride2022|Regenbogenflagge (© Matt Jeacock/Getty Images)|Flagge zeigen zum CSD Berlin Pride|![](/de-DE/2022/07/202207222200Pride2022.jpg)|
+202207232200|AmeliaEarhart|Amelia Earhart unterrichtet Studenten in Newark, New Jersey, USA (© Bettmann/Getty Images)|Ihr legendärer Ruf hat bis heute Bestand|![](/de-DE/2022/07/202207232200AmeliaEarhart.jpg)|

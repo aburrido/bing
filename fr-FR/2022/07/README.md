@@ -23,3 +23,4 @@
 202207202200|AbbeyGardens|Les jardins de l’abbey de Bury St Edmunds, Suffolk, Angleterre (© Charles Martinez/Amazing Aerial Agency)|Symétriquement vôtre|![](/fr-FR/2022/07/202207202200AbbeyGardens.jpg)|
 202207212200|SGIMontenegro|Notre Dame du Rocher sur l’île Saint Georges, dans les Bouches de Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|La force de la foi|![](/fr-FR/2022/07/202207212200SGIMontenegro.jpg)|
 202207222200|SailAway|Voiliers au crépuscule devant un phare au large de Roscoff, Finistère, Bretagne (© Cristina Granena/iStock/Getty Images Plus)|La Bretagne, ça nous gagne|![](/fr-FR/2022/07/202207222200SailAway.jpg)|
+202207232200|AmeliaEarhart|Amelia Earhart en train d’enseigner à Newark, New Jersey, USA (© Bettmann/Getty Images)|Une vie héroïque|![](/fr-FR/2022/07/202207232200AmeliaEarhart.jpg)|
