@@ -24,3 +24,4 @@
 202207211830|SGIMontenegro|Saint George Island and Our Lady of the Rocks in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|An island made from a vow|![](/en-IN/2022/07/202207211830SGIMontenegro.jpg)|
 202207221830|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Stealthy pollinators|![](/en-IN/2022/07/202207221830FoxgloveHawkmoth.jpg)|
 202207231830|IndianEagleOwl|Indian eagle-owl at Jhalana Leopard Reserve in Jaipur, India (© Sourabh Bharti/Shutterstock)|On the trail of the Indian eagle-owl|![](/en-IN/2022/07/202207231830IndianEagleOwl.jpg)|
+202207241830|MGRBrighton|Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)|Boardwalk nostalgia|![](/en-IN/2022/07/202207241830MGRBrighton.jpg)|
