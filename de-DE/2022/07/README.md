@@ -24,3 +24,4 @@
 202207212200|SGIMontenegro|Die beiden Inseln „Heiliger Georg“ und „Maria vom Felsen“ in der Bucht von Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Ein Gelübde führte zum Bau dieser Insel|![](/de-DE/2022/07/202207212200SGIMontenegro.jpg)|
 202207222200|Pride2022|Regenbogenflagge (© Matt Jeacock/Getty Images)|Flagge zeigen zum CSD Berlin Pride|![](/de-DE/2022/07/202207222200Pride2022.jpg)|
 202207232200|AmeliaEarhart|Amelia Earhart unterrichtet Studenten in Newark, New Jersey, USA (© Bettmann/Getty Images)|Ihr legendärer Ruf hat bis heute Bestand|![](/de-DE/2022/07/202207232200AmeliaEarhart.jpg)|
+202207242200|MGRBrighton|„Golden Gallopers Carousel“ an der Strandpromenade in Brighton, East Sussex, England, Vereinigtes Königreich (© Graham Prentice/Alamy)|Nostalgie an der Strandpromenade|![](/de-DE/2022/07/202207242200MGRBrighton.jpg)|
