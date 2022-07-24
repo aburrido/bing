@@ -24,3 +24,4 @@
 202207210700|AbbeyGardens|Abbey Gardens in Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Stunning symmetry|![](/en-US/2022/07/202207210700AbbeyGardens.jpg)|
 202207220700|SGIMontenegro|Our Lady of the Rocks and Saint George Island in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|An island made from a vow|![](/en-US/2022/07/202207220700SGIMontenegro.jpg)|
 202207230700|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Stealthy pollinator|![](/en-US/2022/07/202207230700FoxgloveHawkmoth.jpg)|
+202207240700|AmeliaEarhart|Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)|Her legend and mystery endure|![](/en-US/2022/07/202207240700AmeliaEarhart.jpg)|

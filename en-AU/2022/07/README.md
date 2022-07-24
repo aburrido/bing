@@ -24,3 +24,4 @@
 202207210700|AbbeyGardens|Abbey Gardens, Bury St Edmunds, Suffolk, England (© Charles Martinez/Amazing Aerial Agency)|Info|![](/en-AU/2022/07/202207210700AbbeyGardens.jpg)|
 202207220700|SGIMontenegro|Our Lady of the Rocks, Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Info|![](/en-AU/2022/07/202207220700SGIMontenegro.jpg)|
 202207230700|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Info|![](/en-AU/2022/07/202207230700FoxgloveHawkmoth.jpg)|
+202207240700|TwoJackLake|Two Jack Lake, Banff National Park, Alberta, Canada (© SnapRapid/Offset)|Info|![](/en-AU/2022/07/202207240700TwoJackLake.jpg)|
