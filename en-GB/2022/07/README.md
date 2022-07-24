@@ -24,3 +24,4 @@
 202207212300|SGIMontenegro|Saint George Island and Our Lady of the Rocks in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|A legendary islet|![](/en-GB/2022/07/202207212300SGIMontenegro.jpg)|
 202207222300|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Stealthy pollinators|![](/en-GB/2022/07/202207222300FoxgloveHawkmoth.jpg)|
 202207232300|AmeliaEarhart|Amelia Earhart teaching pupils in Newark, New Jersey, USA (© Bettmann/Getty Images)|Her legend and mystery endure|![](/en-GB/2022/07/202207232300AmeliaEarhart.jpg)|
+202207242300|PalacePier|An aerial view of Brighton Pier, East Sussex (© Karl Hendon/Getty Images)|Pier perfect|![](/en-GB/2022/07/202207242300PalacePier.jpg)|
