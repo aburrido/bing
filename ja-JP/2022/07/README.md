@@ -24,3 +24,4 @@
 202207211500|SGIMontenegro|岩礁の聖母と聖ジョージ島, モンテネグロ ペラスト (© Dmitrii Sakharov/Shutterstock)|アドリア海に浮かぶ中世の人工島|![](/ja-JP/2022/07/202207211500SGIMontenegro.jpg)|
 202207221500|Marine2022|青の洞窟, 沖縄 宮古島  (© Daisuke Kurashima/Alamy Stock Photo)|沖縄、宮古島の海底洞窟|![](/ja-JP/2022/07/202207221500Marine2022.jpg)|
 202207231500|AmeliaEarhart|アメリア・イアハートと学生たち, 米国 ニュージャージー州 (© Bettmann/Getty Images)|今日はアメリア・イアハートの誕生日|![](/ja-JP/2022/07/202207231500AmeliaEarhart.jpg)|
+202207241500|MGRBrighton|海辺のメリーゴーランド イギリス ブライトン (© Graham Prentice/Alamy)|英国の海辺のメリーゴーランド|![](/ja-JP/2022/07/202207241500MGRBrighton.jpg)|
