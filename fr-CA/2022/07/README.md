@@ -24,3 +24,4 @@
 202207220400|SGIMontenegro|Notre Dame du Rocher sur l’île Saint George, dans les Bouches de Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Information|![](/fr-CA/2022/07/202207220400SGIMontenegro.jpg)|
 202207230400|FoxgloveHawkmoth|Grand sphinx de la vigne sur une digitale (© David Chapman/Alamy)|Information|![](/fr-CA/2022/07/202207230400FoxgloveHawkmoth.jpg)|
 202207240400|AmeliaEarhart|Amelia Earhart en train d’enseigner à Newark, New Jersey (© Bettmann/Getty Images)|Information|![](/fr-CA/2022/07/202207240400AmeliaEarhart.jpg)|
+202207250400|MGRBrighton|Le carrousel Golden Gallopers sur la plage de Brighton, East Sussex, Angleterre (© Graham Prentice/Alamy)|Information|![](/fr-CA/2022/07/202207250400MGRBrighton.jpg)|

@@ -24,3 +24,4 @@
 202207220400|SGIMontenegro|Saint George Island and Our Lady of the Rocks in the Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|An island made from a vow|![](/en-CA/2022/07/202207220400SGIMontenegro.jpg)|
 202207230400|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Stealthy pollinators|![](/en-CA/2022/07/202207230400FoxgloveHawkmoth.jpg)|
 202207240400|AmeliaEarhart|Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)|Her legend and mystery endure|![](/en-CA/2022/07/202207240400AmeliaEarhart.jpg)|
+202207250400|MGRBrighton|Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)|Boardwalk nostalgia|![](/en-CA/2022/07/202207250400MGRBrighton.jpg)|
