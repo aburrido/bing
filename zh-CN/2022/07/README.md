@@ -25,3 +25,4 @@
 202207221600|FoxgloveHawkmoth|毛地黄上的红天蛾 (© David Chapman/Alamy)|隐秘的传粉者|![](/zh-CN/2022/07/202207221600FoxgloveHawkmoth.jpg)|
 202207231600|TwoJackLake|双杰克湖，班夫国家公园，艾伯塔省，加拿大 (© SnapRapid/Offset)|落基山脉中出镜率最高的地方|![](/zh-CN/2022/07/202207231600TwoJackLake.jpg)|
 202207241600|DolbadarnCastle|兰贝里斯山口脚下的多尔巴达恩城堡，威尔士 (© Viktoria Rodriguez/Getty Images)|守住关口|![](/zh-CN/2022/07/202207241600DolbadarnCastle.jpg)|
+202207251600|MangroveDay|萨卢姆三角洲国家公园的红树林，塞内加尔共和国 (© mariusz_prusaczyk/Getty Images)|被人类遗忘的森林|![](/zh-CN/2022/07/202207251600MangroveDay.jpg)|
