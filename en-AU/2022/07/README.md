@@ -25,3 +25,4 @@
 202207220700|SGIMontenegro|Our Lady of the Rocks, Bay of Kotor, Perast, Montenegro (© Dmitrii Sakharov/Shutterstock)|Info|![](/en-AU/2022/07/202207220700SGIMontenegro.jpg)|
 202207230700|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Info|![](/en-AU/2022/07/202207230700FoxgloveHawkmoth.jpg)|
 202207240700|TwoJackLake|Two Jack Lake, Banff National Park, Alberta, Canada (© SnapRapid/Offset)|Info|![](/en-AU/2022/07/202207240700TwoJackLake.jpg)|
+202207250700|DolbadarnCastle|Dolbadarn Castle, Llanberis Pass, Wales (© Viktoria Rodriguez/Getty Images)|Info|![](/en-AU/2022/07/202207250700DolbadarnCastle.jpg)|
