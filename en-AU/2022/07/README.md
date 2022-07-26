@@ -26,3 +26,4 @@
 202207230700|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Info|![](/en-AU/2022/07/202207230700FoxgloveHawkmoth.jpg)|
 202207240700|TwoJackLake|Two Jack Lake, Banff National Park, Alberta, Canada (© SnapRapid/Offset)|Info|![](/en-AU/2022/07/202207240700TwoJackLake.jpg)|
 202207250700|DolbadarnCastle|Dolbadarn Castle, Llanberis Pass, Wales (© Viktoria Rodriguez/Getty Images)|Info|![](/en-AU/2022/07/202207250700DolbadarnCastle.jpg)|
+202207260700|MangroveDay|Mangrove forest, Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Info|![](/en-AU/2022/07/202207260700MangroveDay.jpg)|
