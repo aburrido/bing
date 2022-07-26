@@ -26,3 +26,4 @@
 202207232200|AmeliaEarhart|Amelia Earhart unterrichtet Studenten in Newark, New Jersey, USA (© Bettmann/Getty Images)|Ihr legendärer Ruf hat bis heute Bestand|![](/de-DE/2022/07/202207232200AmeliaEarhart.jpg)|
 202207242200|MGRBrighton|„Golden Gallopers Carousel“ an der Strandpromenade in Brighton, East Sussex, England, Vereinigtes Königreich (© Graham Prentice/Alamy)|Nostalgie an der Strandpromenade|![](/de-DE/2022/07/202207242200MGRBrighton.jpg)|
 202207252200|MangroveDay|Mangrovenwald im Nationalpark Delta du Saloum, Senegal (© mariusz_prusaczyk/Getty Images)|Unsere vergessenen Wälder|![](/de-DE/2022/07/202207252200MangroveDay.jpg)|
+202207262200|NabateanTomb|Nabatäische Felsgräber in Mada'in Salih, Saudi-Arabien (© Tuul & Bruno Morandi/Getty Images)|Das einsame Schloss|![](/de-DE/2022/07/202207262200NabateanTomb.jpg)|

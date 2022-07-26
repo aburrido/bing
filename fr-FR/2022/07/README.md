@@ -26,3 +26,4 @@
 202207232200|AmeliaEarhart|Amelia Earhart en train d’enseigner à Newark, New Jersey, USA (© Bettmann/Getty Images)|Une vie héroïque|![](/fr-FR/2022/07/202207232200AmeliaEarhart.jpg)|
 202207242200|MGRBrighton|Le carrousel Golden Gallopers sur la plage de Brighton, East Sussex, Angleterre  (© Graham Prentice/Alamy)|Tournez manège !|![](/fr-FR/2022/07/202207242200MGRBrighton.jpg)|
 202207252200|MangroveDay|Forêt de mangrove dans le parc national du delta du Saloum, Sénégal (© mariusz_prusaczyk/Getty Images)|Gardienne de nos littoraux|![](/fr-FR/2022/07/202207252200MangroveDay.jpg)|
+202207262200|NabateanTomb|Tombes nabatéennes à Madain Saleh (Hégra), Arabie Saoudite (© Tuul & Bruno Morandi/Getty Images)|Le château isolé|![](/fr-FR/2022/07/202207262200NabateanTomb.jpg)|
