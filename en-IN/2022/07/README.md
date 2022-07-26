@@ -26,3 +26,4 @@
 202207231830|IndianEagleOwl|Indian eagle-owl at Jhalana Leopard Reserve in Jaipur, India (© Sourabh Bharti/Shutterstock)|On the trail of the Indian eagle-owl|![](/en-IN/2022/07/202207231830IndianEagleOwl.jpg)|
 202207241830|MGRBrighton|Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)|Boardwalk nostalgia|![](/en-IN/2022/07/202207241830MGRBrighton.jpg)|
 202207251830|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Our forgotten forests|![](/en-IN/2022/07/202207251830MangroveDay.jpg)|
+202207261830|NabateanTomb|Nabatean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-IN/2022/07/202207261830NabateanTomb.jpg)|
