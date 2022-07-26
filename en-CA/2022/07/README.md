@@ -25,3 +25,4 @@
 202207230400|FoxgloveHawkmoth|Elephant hawk-moth on foxglove flower (© David Chapman/Alamy)|Stealthy pollinators|![](/en-CA/2022/07/202207230400FoxgloveHawkmoth.jpg)|
 202207240400|AmeliaEarhart|Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)|Her legend and mystery endure|![](/en-CA/2022/07/202207240400AmeliaEarhart.jpg)|
 202207250400|MGRBrighton|Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)|Boardwalk nostalgia|![](/en-CA/2022/07/202207250400MGRBrighton.jpg)|
+202207260400|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Our forgotten forests|![](/en-CA/2022/07/202207260400MangroveDay.jpg)|
