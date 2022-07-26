@@ -26,3 +26,4 @@
 202207231500|AmeliaEarhart|アメリア・イアハートと学生たち, 米国 ニュージャージー州 (© Bettmann/Getty Images)|今日はアメリア・イアハートの誕生日|![](/ja-JP/2022/07/202207231500AmeliaEarhart.jpg)|
 202207241500|MGRBrighton|海辺のメリーゴーランド イギリス ブライトン (© Graham Prentice/Alamy)|英国の海辺のメリーゴーランド|![](/ja-JP/2022/07/202207241500MGRBrighton.jpg)|
 202207251500|MangroveDay|サルーム・デルタ, セネガル (© mariusz_prusaczyk/Getty Images)|国際マングローブの日|![](/ja-JP/2022/07/202207251500MangroveDay.jpg)|
+202207261500|NabateanTomb|カスル・アル・ファリード, サウジアラビア マダイン・サーレハ (© Tuul & Bruno Morandi/Getty Images)|サウジアラビアの世界遺産|![](/ja-JP/2022/07/202207261500NabateanTomb.jpg)|
