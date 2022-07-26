@@ -26,3 +26,4 @@
 202207232300|AmeliaEarhart|Amelia Earhart teaching pupils in Newark, New Jersey, USA (© Bettmann/Getty Images)|Her legend and mystery endure|![](/en-GB/2022/07/202207232300AmeliaEarhart.jpg)|
 202207242300|PalacePier|An aerial view of Brighton Pier, East Sussex (© Karl Hendon/Getty Images)|Pier perfect|![](/en-GB/2022/07/202207242300PalacePier.jpg)|
 202207252300|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Our forgotten forests|![](/en-GB/2022/07/202207252300MangroveDay.jpg)|
+202207262300|NabateanTomb|Nabatean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-GB/2022/07/202207262300NabateanTomb.jpg)|
