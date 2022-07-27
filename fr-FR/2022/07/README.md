@@ -27,3 +27,4 @@
 202207242200|MGRBrighton|Le carrousel Golden Gallopers sur la plage de Brighton, East Sussex, Angleterre  (© Graham Prentice/Alamy)|Tournez manège !|![](/fr-FR/2022/07/202207242200MGRBrighton.jpg)|
 202207252200|MangroveDay|Forêt de mangrove dans le parc national du delta du Saloum, Sénégal (© mariusz_prusaczyk/Getty Images)|Gardienne de nos littoraux|![](/fr-FR/2022/07/202207252200MangroveDay.jpg)|
 202207262200|NabateanTomb|Tombes nabatéennes à Madain Saleh (Hégra), Arabie Saoudite (© Tuul & Bruno Morandi/Getty Images)|Le château isolé|![](/fr-FR/2022/07/202207262200NabateanTomb.jpg)|
+202207272200|LongsPeak|Pic Longs dans le parc national de Rocky Mountain, Colorado, États-Unis (© Andrew R. Slaton/Tandem Stills + Motion)|Le plus haut sommet|![](/fr-FR/2022/07/202207272200LongsPeak.jpg)|
