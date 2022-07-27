@@ -27,3 +27,4 @@
 202207241830|MGRBrighton|Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)|Boardwalk nostalgia|![](/en-IN/2022/07/202207241830MGRBrighton.jpg)|
 202207251830|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Our forgotten forests|![](/en-IN/2022/07/202207251830MangroveDay.jpg)|
 202207261830|NabateanTomb|Nabatean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-IN/2022/07/202207261830NabateanTomb.jpg)|
+202207271830|LongsPeak|Longs Peak in Rocky Mountain National Park, Colorado (© Andrew R. Slaton/Tandem Stills + Motion)|Purple mountain majesties|![](/en-IN/2022/07/202207271830LongsPeak.jpg)|
