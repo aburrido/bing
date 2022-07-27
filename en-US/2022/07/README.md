@@ -27,3 +27,4 @@
 202207240700|AmeliaEarhart|Amelia Earhart teaching students in Newark, New Jersey (© Bettmann/Getty Images)|Her legend and mystery endure|![](/en-US/2022/07/202207240700AmeliaEarhart.jpg)|
 202207250700|MGRBrighton|Golden Gallopers Carousel on the seafront in Brighton, East Sussex, England (© Graham Prentice/Alamy)|Boardwalk nostalgia|![](/en-US/2022/07/202207250700MGRBrighton.jpg)|
 202207260700|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Saviors of the shoreline|![](/en-US/2022/07/202207260700MangroveDay.jpg)|
+202207270700|NabateanTomb|Nabataean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-US/2022/07/202207270700NabateanTomb.jpg)|
