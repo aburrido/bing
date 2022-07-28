@@ -28,3 +28,4 @@
 202207250700|DolbadarnCastle|Dolbadarn Castle, Llanberis Pass, Wales (© Viktoria Rodriguez/Getty Images)|Info|![](/en-AU/2022/07/202207250700DolbadarnCastle.jpg)|
 202207260700|MangroveDay|Mangrove forest, Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Info|![](/en-AU/2022/07/202207260700MangroveDay.jpg)|
 202207270700|NabateanTomb|Nabatean tomb, Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|Info|![](/en-AU/2022/07/202207270700NabateanTomb.jpg)|
+202207280700|LongsPeak|Longs Peak, Rocky Mountain National Park, Colorado, USA (© Andrew R. Slaton/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207280700LongsPeak.jpg)|
