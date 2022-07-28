@@ -28,3 +28,4 @@
 202207252300|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Our forgotten forests|![](/en-GB/2022/07/202207252300MangroveDay.jpg)|
 202207262300|NabateanTomb|Nabatean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-GB/2022/07/202207262300NabateanTomb.jpg)|
 202207272300|LongsPeak|Longs Peak in Rocky Mountain National Park, Colorado, USA (© Andrew R. Slaton/Tandem Stills + Motion)|Purple mountain majesties|![](/en-GB/2022/07/202207272300LongsPeak.jpg)|
+202207282300|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-GB/2022/07/202207282300FourTigresses.jpg)|
