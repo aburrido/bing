@@ -27,3 +27,4 @@
 202207250400|MGRBrighton|Le carrousel Golden Gallopers sur la plage de Brighton, East Sussex, Angleterre (© Graham Prentice/Alamy)|Information|![](/fr-CA/2022/07/202207250400MGRBrighton.jpg)|
 202207260400|MangroveDay|Forêt de mangrove dans le parc national du delta du Saloum, Sénégal (© mariusz_prusaczyk/Getty Images)|Information|![](/fr-CA/2022/07/202207260400MangroveDay.jpg)|
 202207270400|NabateanTomb|Tombes nabatéennes à Madain Saleh (Hégra), Arabie Saoudite (© Tuul & Bruno Morandi/Getty Images)|Information|![](/fr-CA/2022/07/202207270400NabateanTomb.jpg)|
+202207280400|TobermoryRocks|Rochers dans l’eau à Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)|Information|![](/fr-CA/2022/07/202207280400TobermoryRocks.jpg)|
