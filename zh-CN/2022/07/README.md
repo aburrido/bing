@@ -28,3 +28,4 @@
 202207251600|MangroveDay|萨卢姆三角洲国家公园的红树林，塞内加尔共和国 (© mariusz_prusaczyk/Getty Images)|被人类遗忘的森林|![](/zh-CN/2022/07/202207251600MangroveDay.jpg)|
 202207261600|NabateanTomb|玛甸沙勒（也被称为黑格拉）的纳巴泰墓，沙特阿拉伯 (© Tuul & Bruno Morandi/Getty Images)|孤独的城堡|![](/zh-CN/2022/07/202207261600NabateanTomb.jpg)|
 202207271600|LongsPeak|落基山国家公园的朗斯峰，科罗拉多州 (© Andrew R. Slaton/Tandem Stills + Motion)|雄伟的紫色山峰|![](/zh-CN/2022/07/202207271600LongsPeak.jpg)|
+202207281600|FourTigresses|塔多巴老虎保护区里的老虎四姐妹，印度 (© Ashish Parmar/Alamy)|一种罕见的条纹|![](/zh-CN/2022/07/202207281600FourTigresses.jpg)|
