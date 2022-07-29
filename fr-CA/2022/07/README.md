@@ -28,3 +28,4 @@
 202207260400|MangroveDay|Forêt de mangrove dans le parc national du delta du Saloum, Sénégal (© mariusz_prusaczyk/Getty Images)|Information|![](/fr-CA/2022/07/202207260400MangroveDay.jpg)|
 202207270400|NabateanTomb|Tombes nabatéennes à Madain Saleh (Hégra), Arabie Saoudite (© Tuul & Bruno Morandi/Getty Images)|Information|![](/fr-CA/2022/07/202207270400NabateanTomb.jpg)|
 202207280400|TobermoryRocks|Rochers dans l’eau à Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)|Information|![](/fr-CA/2022/07/202207280400TobermoryRocks.jpg)|
+202207290400|FourTigresses|Tigresses dans le parc national de Tadoba, Inde (© Ashish Parmar/Alamy)|Information|![](/fr-CA/2022/07/202207290400FourTigresses.jpg)|

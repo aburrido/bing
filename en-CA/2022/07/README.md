@@ -28,3 +28,4 @@
 202207260400|MangroveDay|Mangrove forest in the Saloum Delta National Park, Senegal (© mariusz_prusaczyk/Getty Images)|Our forgotten forests|![](/en-CA/2022/07/202207260400MangroveDay.jpg)|
 202207270400|NabateanTomb|Nabatean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-CA/2022/07/202207270400NabateanTomb.jpg)|
 202207280400|TobermoryRocks|Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)|Freshwater diving capital|![](/en-CA/2022/07/202207280400TobermoryRocks.jpg)|
+202207290400|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-CA/2022/07/202207290400FourTigresses.jpg)|
