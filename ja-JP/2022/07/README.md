@@ -29,3 +29,4 @@
 202207261500|NabateanTomb|カスル・アル・ファリード, サウジアラビア マダイン・サーレハ (© Tuul & Bruno Morandi/Getty Images)|サウジアラビアの世界遺産|![](/ja-JP/2022/07/202207261500NabateanTomb.jpg)|
 202207271500|LongsPeak|ロングスピーク山, 米国 コロラド州 (© Andrew R. Slaton/Tandem Stills + Motion)|ロッキー山脈の夕暮れ|![](/ja-JP/2022/07/202207271500LongsPeak.jpg)|
 202207281500|FourTigresses|テリア湖のトラ, インド (© Ashish Parmar/Alamy)|今日は世界トラの日|![](/ja-JP/2022/07/202207281500FourTigresses.jpg)|
+202207291500|FiordlandRainforest|ミルフォード・サウンドの多雨林, ニュージーランド (© Jim Patterson/Tandem Stills + Motion)|ニュージーランドの世界遺産|![](/ja-JP/2022/07/202207291500FiordlandRainforest.jpg)|
