@@ -30,3 +30,4 @@
 202207271500|LongsPeak|ロングスピーク山, 米国 コロラド州 (© Andrew R. Slaton/Tandem Stills + Motion)|ロッキー山脈の夕暮れ|![](/ja-JP/2022/07/202207271500LongsPeak.jpg)|
 202207281500|FourTigresses|テリア湖のトラ, インド (© Ashish Parmar/Alamy)|今日は世界トラの日|![](/ja-JP/2022/07/202207281500FourTigresses.jpg)|
 202207291500|FiordlandRainforest|ミルフォード・サウンドの多雨林, ニュージーランド (© Jim Patterson/Tandem Stills + Motion)|ニュージーランドの世界遺産|![](/ja-JP/2022/07/202207291500FiordlandRainforest.jpg)|
+202207301500|NoctilucentClouds|夜光雲, リトアニア  (© ljphoto7/Getty Images)|バルト三国の夜光雲|![](/ja-JP/2022/07/202207301500NoctilucentClouds.jpg)|
