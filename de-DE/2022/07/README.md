@@ -30,3 +30,4 @@
 202207272200|RapsEichen|Eichen in einem Rapsfeld bei aufziehendem Gewitter, Sachsen-Anhalt (© mauritius images GmbH/Alamy Stock Photo)|Bald ist Erntezeit|![](/de-DE/2022/07/202207272200RapsEichen.jpg)|
 202207282200|FourTigresses|Die Tigerinnen vom Telia-See im Tadoba Andhari Tiger Reserve, Indien (© Ashish Parmar/Alamy)|Ein seltener Anblick|![](/de-DE/2022/07/202207282200FourTigresses.jpg)|
 202207292200|FiordlandRainforest|Regenwald in der Nähe des Milford Sound/Piopiotahi, Südinsel, Neuseeland (© Jim Patterson/Tandem Stills + Motion)|Das „achte Weltwunder“?|![](/de-DE/2022/07/202207292200FiordlandRainforest.jpg)|
+202207302200|NoctilucentClouds|Leuchtende Nachtwolken über Litauen (© ljphoto7/Getty Images)|Leuchtende Nachtwolken|![](/de-DE/2022/07/202207302200NoctilucentClouds.jpg)|

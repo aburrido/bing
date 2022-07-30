@@ -30,3 +30,4 @@
 202207272200|LongsPeak|Pic Longs dans le parc national de Rocky Mountain, Colorado, États-Unis (© Andrew R. Slaton/Tandem Stills + Motion)|Le plus haut sommet|![](/fr-FR/2022/07/202207272200LongsPeak.jpg)|
 202207282200|FourTigresses|Tigresses dans le parc national de Tadoba, Inde (© Ashish Parmar/Alamy)|Beautés en danger|![](/fr-FR/2022/07/202207282200FourTigresses.jpg)|
 202207292200|FiordlandRainforest|Randonnée dans une forêt tropicale près du Milford Sound/Piopiotahi en Nouvelle-Zélande (© Jim Patterson/Tandem Stills + Motion)|La huitième merveille du monde|![](/fr-FR/2022/07/202207292200FiordlandRainforest.jpg)|
+202207302200|NoctilucentClouds|Nuages noctulescents en Lituanie (© ljphoto7/Getty Images)|Drôles de nuages|![](/fr-FR/2022/07/202207302200NoctilucentClouds.jpg)|
