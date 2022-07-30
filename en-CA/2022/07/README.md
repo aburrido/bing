@@ -29,3 +29,4 @@
 202207270400|NabateanTomb|Nabatean tomb in Mada'in Saleh (aka Hegra), Saudi Arabia (© Tuul & Bruno Morandi/Getty Images)|The lonely castle|![](/en-CA/2022/07/202207270400NabateanTomb.jpg)|
 202207280400|TobermoryRocks|Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)|Freshwater diving capital|![](/en-CA/2022/07/202207280400TobermoryRocks.jpg)|
 202207290400|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-CA/2022/07/202207290400FourTigresses.jpg)|
+202207300400|FiordlandRainforest|Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)|The ‘eighth wonder?’|![](/en-CA/2022/07/202207300400FiordlandRainforest.jpg)|
