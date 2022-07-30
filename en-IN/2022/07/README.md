@@ -30,3 +30,4 @@
 202207271830|LongsPeak|Longs Peak in Rocky Mountain National Park, Colorado (© Andrew R. Slaton/Tandem Stills + Motion)|Purple mountain majesties|![](/en-IN/2022/07/202207271830LongsPeak.jpg)|
 202207281830|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-IN/2022/07/202207281830FourTigresses.jpg)|
 202207291830|FiordlandRainforest|Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)|The ‘eighth wonder’?|![](/en-IN/2022/07/202207291830FiordlandRainforest.jpg)|
+202207301830|NoctilucentClouds|Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)|‘Night shining’ clouds|![](/en-IN/2022/07/202207301830NoctilucentClouds.jpg)|
