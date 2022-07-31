@@ -31,3 +31,4 @@
 202207280700|LongsPeak|Longs Peak, Rocky Mountain National Park, Colorado, USA (© Andrew R. Slaton/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207280700LongsPeak.jpg)|
 202207290700|FourTigresses|Tigresses, Telia Lake, Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|Info|![](/en-AU/2022/07/202207290700FourTigresses.jpg)|
 202207300700|FiordlandRainforest|Milford Sound/Piopiotahi, New Zealand (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2022/07/202207300700FiordlandRainforest.jpg)|
+202207310700|NoctilucentClouds|Noctilucent clouds, Lithuania (© ljphoto7/Getty Images)|Info|![](/en-AU/2022/07/202207310700NoctilucentClouds.jpg)|
