@@ -31,3 +31,4 @@
 202207281830|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-IN/2022/07/202207281830FourTigresses.jpg)|
 202207291830|FiordlandRainforest|Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)|The ‘eighth wonder’?|![](/en-IN/2022/07/202207291830FiordlandRainforest.jpg)|
 202207301830|NoctilucentClouds|Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)|‘Night shining’ clouds|![](/en-IN/2022/07/202207301830NoctilucentClouds.jpg)|
+202207311830|KausaniIndia|The hill station of Kausani in Uttarakhand, India (© Amit kg/Shutterstock)|'Switzerland of India'|![](/en-IN/2022/07/202207311830KausaniIndia.jpg)|
