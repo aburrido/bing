@@ -31,3 +31,4 @@
 202207281600|FourTigresses|塔多巴老虎保护区里的老虎四姐妹，印度 (© Ashish Parmar/Alamy)|一种罕见的条纹|![](/zh-CN/2022/07/202207281600FourTigresses.jpg)|
 202207291600|FiordlandRainforest|米尔福德峡湾附近的徒步雨林，新西兰 (© Jim Patterson/Tandem Stills + Motion)|“第八大奇迹”?|![](/zh-CN/2022/07/202207291600FiordlandRainforest.jpg)|
 202207301600|NoctilucentClouds|立陶宛的夜光云 (© ljphoto7/Getty Images)|“夜光”云|![](/zh-CN/2022/07/202207301600NoctilucentClouds.jpg)|
+202207311600|LavaTube|漏出“天窗”的熔岩管，夏威夷火山国家公园 (© Tom Schwabel/Tandem Stills + Motion)|世界上最活跃的火山|![](/zh-CN/2022/07/202207311600LavaTube.jpg)|
