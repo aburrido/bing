@@ -31,3 +31,4 @@
 202207282300|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-GB/2022/07/202207282300FourTigresses.jpg)|
 202207292300|CowesWeek|Aerial photo of yachts racing in Cowes Week on the Solent, Isle of Wight, Hampshire (© Peter Barritt/Alamy)|Race to the finish|![](/en-GB/2022/07/202207292300CowesWeek.jpg)|
 202207302300|NoctilucentClouds|Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)|‘Night shining’ clouds|![](/en-GB/2022/07/202207302300NoctilucentClouds.jpg)|
+202207312300|StaithesLights|Staithes, North York Moors National Park, North Yorkshire (© Andrea Pucci/Getty Images)|Happy Yorkshire Day!|![](/en-GB/2022/07/202207312300StaithesLights.jpg)|
