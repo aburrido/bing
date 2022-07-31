@@ -30,3 +30,4 @@
 202207280400|TobermoryRocks|Shot of rocks in water in Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)|Freshwater diving capital|![](/en-CA/2022/07/202207280400TobermoryRocks.jpg)|
 202207290400|FourTigresses|Tigresses of Telia Lake in Tadoba Andhari Tiger Reserve, India (© Ashish Parmar/Alamy)|One rare streak|![](/en-CA/2022/07/202207290400FourTigresses.jpg)|
 202207300400|FiordlandRainforest|Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)|The ‘eighth wonder?’|![](/en-CA/2022/07/202207300400FiordlandRainforest.jpg)|
+202207310400|NoctilucentClouds|Noctilucent clouds in Lithuania (© ljphoto7/Getty Images)|‘Night shining’ clouds|![](/en-CA/2022/07/202207310400NoctilucentClouds.jpg)|

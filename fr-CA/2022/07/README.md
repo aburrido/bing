@@ -30,3 +30,4 @@
 202207280400|TobermoryRocks|Rochers dans l’eau à Tobermory, Ontario (© Reese Lassman/EyeEm/Getty Images)|Information|![](/fr-CA/2022/07/202207280400TobermoryRocks.jpg)|
 202207290400|FourTigresses|Tigresses dans le parc national de Tadoba, Inde (© Ashish Parmar/Alamy)|Information|![](/fr-CA/2022/07/202207290400FourTigresses.jpg)|
 202207300400|FiordlandRainforest|Randonnée dans une forêt tropicale près du Milford Sound/Piopiotahi en Nouvelle-Zélande (© Jim Patterson/Tandem Stills + Motion)|Information|![](/fr-CA/2022/07/202207300400FiordlandRainforest.jpg)|
+202207310400|NoctilucentClouds|Nuages noctulescents en Lituanie (© ljphoto7/Getty Images)|Information|![](/fr-CA/2022/07/202207310400NoctilucentClouds.jpg)|
