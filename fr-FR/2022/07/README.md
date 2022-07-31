@@ -31,3 +31,4 @@
 202207282200|FourTigresses|Tigresses dans le parc national de Tadoba, Inde (© Ashish Parmar/Alamy)|Beautés en danger|![](/fr-FR/2022/07/202207282200FourTigresses.jpg)|
 202207292200|FiordlandRainforest|Randonnée dans une forêt tropicale près du Milford Sound/Piopiotahi en Nouvelle-Zélande (© Jim Patterson/Tandem Stills + Motion)|La huitième merveille du monde|![](/fr-FR/2022/07/202207292200FiordlandRainforest.jpg)|
 202207302200|NoctilucentClouds|Nuages noctulescents en Lituanie (© ljphoto7/Getty Images)|Drôles de nuages|![](/fr-FR/2022/07/202207302200NoctilucentClouds.jpg)|
+202207312200|Malo|Le fort national de Saint-Malo à marée haute (© stevanzz/Adobe Photostock)|La capitale corsaire|![](/fr-FR/2022/07/202207312200Malo.jpg)|

@@ -31,3 +31,4 @@
 202207282200|FourTigresses|Die Tigerinnen vom Telia-See im Tadoba Andhari Tiger Reserve, Indien (© Ashish Parmar/Alamy)|Ein seltener Anblick|![](/de-DE/2022/07/202207282200FourTigresses.jpg)|
 202207292200|FiordlandRainforest|Regenwald in der Nähe des Milford Sound/Piopiotahi, Südinsel, Neuseeland (© Jim Patterson/Tandem Stills + Motion)|Das „achte Weltwunder“?|![](/de-DE/2022/07/202207292200FiordlandRainforest.jpg)|
 202207302200|NoctilucentClouds|Leuchtende Nachtwolken über Litauen (© ljphoto7/Getty Images)|Leuchtende Nachtwolken|![](/de-DE/2022/07/202207302200NoctilucentClouds.jpg)|
+202207312200|LavaTube|Öffnung in einer aktiven Lavaröhre, Hawaiʻi-Volcanoes-Nationalpark, Hawaii, USA (© Tom Schwabel/Tandem Stills + Motion)|Der aktivste Vulkan der Welt|![](/de-DE/2022/07/202207312200LavaTube.jpg)|
