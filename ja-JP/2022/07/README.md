@@ -31,3 +31,4 @@
 202207281500|FourTigresses|テリア湖のトラ, インド (© Ashish Parmar/Alamy)|今日は世界トラの日|![](/ja-JP/2022/07/202207281500FourTigresses.jpg)|
 202207291500|FiordlandRainforest|ミルフォード・サウンドの多雨林, ニュージーランド (© Jim Patterson/Tandem Stills + Motion)|ニュージーランドの世界遺産|![](/ja-JP/2022/07/202207291500FiordlandRainforest.jpg)|
 202207301500|NoctilucentClouds|夜光雲, リトアニア  (© ljphoto7/Getty Images)|バルト三国の夜光雲|![](/ja-JP/2022/07/202207301500NoctilucentClouds.jpg)|
+202207311500|LavaTube|ハワイ火山国立公園, 米国 ハワイ (© Tom Schwabel/Tandem Stills + Motion)|火山島ハワイの世界遺産|![](/ja-JP/2022/07/202207311500LavaTube.jpg)|
