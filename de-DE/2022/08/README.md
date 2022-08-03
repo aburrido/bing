@@ -4,3 +4,4 @@
 202208012200|HickmanBridge|Hickman Bridge im Capitol-Reef-Nationalpark, Utah, USA (© Tim Fitzharris/Minden Pictures)|Nehmen Sie den am meisten begangenen Weg|![](/de-DE/2022/08/202208012200HickmanBridge.jpg)|
 202208022200|BoltenhagenBoote|Boote im Fischereihafen, Boltenhagen, Mecklenburg-Vorpommern (© iStock/Getty Images)|Grüne Perle an der Ostsee|![](/de-DE/2022/08/202208022200BoltenhagenBoote.jpg)|
 ||||![](/de-DE/2022/08/.jpg)|
+202208032200|BangladeshWaterLilies|Landwirte bei der Seerosen-Ernte im Feuchtgebiet bei Satla nahe Bagdha, Barishal, Bangladesch (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Pastellfarbene Perfektion|![](/de-DE/2022/08/202208032200BangladeshWaterLilies.jpg)|
