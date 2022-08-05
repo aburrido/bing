@@ -5,3 +5,4 @@
 202208021600|RedneckedGrebe|在德国的赤颈鸊鷉 (© Edo van Uchelen/Minden Pictures)|赤颈鸊鷉|![](/zh-CN/2022/08/202208021600RedneckedGrebe.jpg)|
 202208031600|QiXiFestival2022|上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)|最浪漫的中国传统节日|![](/zh-CN/2022/08/202208031600QiXiFestival2022.jpg)|
 202208041600|MilitaryTattoo|夜晚的爱丁堡城市天际线，苏格兰 (© Suranga Weeratuna/Alamy)|节日热潮|![](/zh-CN/2022/08/202208041600MilitaryTattoo.jpg)|
+202208051600|SFSaltFlats|旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)|一个咸咸的地点|![](/zh-CN/2022/08/202208051600SFSaltFlats.jpg)|
