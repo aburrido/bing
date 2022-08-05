@@ -5,3 +5,4 @@
 202208022300|RedneckedGrebe|Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)|A little bird told me...|![](/en-GB/2022/08/202208022300RedneckedGrebe.jpg)|
 202208032300|BangladeshWaterLilies|Farmers collecting the water lilies in the Satla marshland near Bagdha, Barishal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Pastel perfection|![](/en-GB/2022/08/202208032300BangladeshWaterLilies.jpg)|
 202208042300|MilitaryTattoo|Edinburgh city skyline at night (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-GB/2022/08/202208042300MilitaryTattoo.jpg)|
+202208052300|SFSaltFlats|Salt flats in San Francisco Bay, USA (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-GB/2022/08/202208052300SFSaltFlats.jpg)|
