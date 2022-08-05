@@ -5,3 +5,4 @@
 202208020700|HickmanBridge|The Hickman Bridge at Capitol Reef National Park, Utah (© Tim Fitzharris/Minden Pictures)|Take the trail more traveled by|![](/en-US/2022/08/202208020700HickmanBridge.jpg)|
 202208030700|RedneckedGrebe|Red-necked grebes in Germany (© Edo van Uchelen/Minden Pictures)|You might be a red-necked grebe if…|![](/en-US/2022/08/202208030700RedneckedGrebe.jpg)|
 202208040700|BangladeshWaterLilies|Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Pastel perfection|![](/en-US/2022/08/202208040700BangladeshWaterLilies.jpg)|
+202208050700|MilitaryTattoo|Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-US/2022/08/202208050700MilitaryTattoo.jpg)|
