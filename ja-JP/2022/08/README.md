@@ -6,3 +6,4 @@
 202208031500|BangladeshWaterLilies|熱帯スイレンを集めるボート, バングラディッシュ バリサル (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|バグダ村のスイレンの収穫|![](/ja-JP/2022/08/202208031500BangladeshWaterLilies.jpg)|
 202208041500|MilitaryTattoo|エディンバラ城, イギリス スコットランド (© Suranga Weeratuna/Alamy)|今日からミリタリー・タトゥー|![](/ja-JP/2022/08/202208041500MilitaryTattoo.jpg)|
 202208051500|Hiroshima2022|原爆ドームと元安川, 広島 (© Sean Pavone/Alamy Stock Photo)|今日は広島平和記念日|![](/ja-JP/2022/08/202208051500Hiroshima2022.jpg)|
+202208061500|Furin2022|風鈴まつり (© blew_i/gettyimages)|今日は立秋|![](/ja-JP/2022/08/202208061500Furin2022.jpg)|
