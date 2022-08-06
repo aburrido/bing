@@ -7,3 +7,4 @@
 202208042300|MilitaryTattoo|Edinburgh city skyline at night (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-GB/2022/08/202208042300MilitaryTattoo.jpg)|
 202208052300|SFSaltFlats|Salt flats in San Francisco Bay, USA (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-GB/2022/08/202208052300SFSaltFlats.jpg)|
 ||||![](/en-GB/2022/08/.jpg)|
+202208062300|SpringPoint|Spring Point Ledge Light in South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Small but mighty|![](/en-GB/2022/08/202208062300SpringPoint.jpg)|
