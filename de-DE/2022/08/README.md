@@ -7,3 +7,4 @@
 202208032200|BangladeshWaterLilies|Landwirte bei der Seerosen-Ernte im Feuchtgebiet bei Satla nahe Bagdha, Barishal, Bangladesch (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Pastellfarbene Perfektion|![](/de-DE/2022/08/202208032200BangladeshWaterLilies.jpg)|
 202208042200|MilitaryTattoo|Nächtliche Skyline von Edinburgh, Schottland, Vereinigtes Königreich (© Suranga Weeratuna/Alamy)|Stadt im Festival-Fieber|![](/de-DE/2022/08/202208042200MilitaryTattoo.jpg)|
 202208052200|EsPantaleu|Luftbild der Insel Pantaleu nahe Sant Elm, Mallorca, Spanien (© Dimitri Weber/Amazing Aerial Agency)|Kleine Insel, großes Meer|![](/de-DE/2022/08/202208052200EsPantaleu.jpg)|
+202208062200|SpringPoint|Leuchtturm Spring Point Ledge, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Ein kleiner, aber mächtiger Wächter|![](/de-DE/2022/08/202208062200SpringPoint.jpg)|
