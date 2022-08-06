@@ -6,3 +6,4 @@
 202208031600|QiXiFestival2022|上海浦东森林心形洞穴鸟瞰图，中国 (© Yaorusheng/Getty Images)|最浪漫的中国传统节日|![](/zh-CN/2022/08/202208031600QiXiFestival2022.jpg)|
 202208041600|MilitaryTattoo|夜晚的爱丁堡城市天际线，苏格兰 (© Suranga Weeratuna/Alamy)|节日热潮|![](/zh-CN/2022/08/202208041600MilitaryTattoo.jpg)|
 202208051600|SFSaltFlats|旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)|一个咸咸的地点|![](/zh-CN/2022/08/202208051600SFSaltFlats.jpg)|
+202208061600|theBeginningofAutumn2022|杭州西湖的古典中国园林 (© DANNY HU/Getty Images)|贴秋膘了吗？|![](/zh-CN/2022/08/202208061600theBeginningofAutumn2022.jpg)|
