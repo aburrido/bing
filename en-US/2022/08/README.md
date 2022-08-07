@@ -7,3 +7,4 @@
 202208040700|BangladeshWaterLilies|Farmers collecting water lilies in the Satla marshland near Bagdha, Barisal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Pastel perfection|![](/en-US/2022/08/202208040700BangladeshWaterLilies.jpg)|
 202208050700|MilitaryTattoo|Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-US/2022/08/202208050700MilitaryTattoo.jpg)|
 202208060700|SFSaltFlats|Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-US/2022/08/202208060700SFSaltFlats.jpg)|
+202208070700|SpringPoint|Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)|A small but mighty guardian|![](/en-US/2022/08/202208070700SpringPoint.jpg)|
