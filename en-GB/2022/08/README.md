@@ -8,3 +8,4 @@
 202208052300|SFSaltFlats|Salt flats in San Francisco Bay, USA (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-GB/2022/08/202208052300SFSaltFlats.jpg)|
 ||||![](/en-GB/2022/08/.jpg)|
 202208062300|SpringPoint|Spring Point Ledge Light in South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Small but mighty|![](/en-GB/2022/08/202208062300SpringPoint.jpg)|
+202208072300|EsPantaleu|Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|A Balearic islet|![](/en-GB/2022/08/202208072300EsPantaleu.jpg)|
