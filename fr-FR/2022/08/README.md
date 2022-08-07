@@ -7,3 +7,4 @@
 202208042200|MilitaryTattoo|Édimbourg à la tombée de la nuit, Écosse (© Suranga Weeratuna/Alamy)|C’est la fête à Édimbourg !|![](/fr-FR/2022/08/202208042200MilitaryTattoo.jpg)|
 202208052200|SFSaltFlats|Marais salants de la baie de San Francisco, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|De la lave ?|![](/fr-FR/2022/08/202208052200SFSaltFlats.jpg)|
 202208062200|SpringPoint|Phare de Spring Point Ledge à South Portland, Maine, États-Unis (© Haizhan Zheng/Getty Images)|De la nécessité des phares|![](/fr-FR/2022/08/202208062200SpringPoint.jpg)|
+202208072200|EsPantaleu|Vue aérienne de l’île de Pantaleu près de Sant Elm, Majorque, Espagne (© Dimitri Weber/Amazing Aerial Agency)|À l’abri du vent|![](/fr-FR/2022/08/202208072200EsPantaleu.jpg)|
