@@ -7,3 +7,4 @@
 202208041830|MilitaryTattoo|Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-IN/2022/08/202208041830MilitaryTattoo.jpg)|
 202208051830|SFSaltFlats|Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-IN/2022/08/202208051830SFSaltFlats.jpg)|
 202208061830|SpringPoint|Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)|A small but mighty guardian|![](/en-IN/2022/08/202208061830SpringPoint.jpg)|
+202208071830|EsPantaleu|Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Little Island, Big Sea|![](/en-IN/2022/08/202208071830EsPantaleu.jpg)|
