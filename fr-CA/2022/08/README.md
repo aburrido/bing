@@ -6,3 +6,4 @@
 202208040400|BangladeshWaterLilies|Agriculteurs cueillant des nénuphars près de Bagdha, Barishal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Information|![](/fr-CA/2022/08/202208040400BangladeshWaterLilies.jpg)|
 202208050400|MilitaryTattoo|Édimbourg à la tombée de la nuit, Écosse (© Suranga Weeratuna/Alamy)|Information|![](/fr-CA/2022/08/202208050400MilitaryTattoo.jpg)|
 202208060400|SFSaltFlats|Marais salants de la baie de San Francisco (© Jeffrey Lewis/Tandem Stills + Motion)|Information|![](/fr-CA/2022/08/202208060400SFSaltFlats.jpg)|
+202208070400|NuchatlitzDusk|Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)|Information|![](/fr-CA/2022/08/202208070400NuchatlitzDusk.jpg)|

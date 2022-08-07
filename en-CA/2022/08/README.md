@@ -6,3 +6,4 @@
 202208040400|BangladeshWaterLilies|Farmers collecting the water lilies in the Satla marshland near Bagdha, Barishal, Bangladesh (© Mustasinur Rahman Alvi/Future Publishing via Getty Images)|Pastel perfection|![](/en-CA/2022/08/202208040400BangladeshWaterLilies.jpg)|
 202208050400|MilitaryTattoo|Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-CA/2022/08/202208050400MilitaryTattoo.jpg)|
 202208060400|SFSaltFlats|Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-CA/2022/08/202208060400SFSaltFlats.jpg)|
+202208070400|NuchatlitzDusk|Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)|An archaelogical treasure|![](/en-CA/2022/08/202208070400NuchatlitzDusk.jpg)|
