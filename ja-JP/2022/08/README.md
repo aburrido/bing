@@ -8,3 +8,4 @@
 202208051500|Hiroshima2022|原爆ドームと元安川, 広島 (© Sean Pavone/Alamy Stock Photo)|今日は広島平和記念日|![](/ja-JP/2022/08/202208051500Hiroshima2022.jpg)|
 202208061500|Furin2022|風鈴まつり (© blew_i/gettyimages)|今日は立秋|![](/ja-JP/2022/08/202208061500Furin2022.jpg)|
 202208071500|SpringPoint|スプリング・ポイント・レッジ灯台, 米国 メイン州 (© Haizhan Zheng/Getty Images)|ニューイングランドの古い灯台|![](/ja-JP/2022/08/202208071500SpringPoint.jpg)|
+202208081500|CuevaManos|クエバ・デ・ラス・マノス, アルゼンチン (© Adwo/Alamy)|今日は世界の先住民族の国際デー|![](/ja-JP/2022/08/202208081500CuevaManos.jpg)|
