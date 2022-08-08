@@ -9,3 +9,4 @@
 202208052200|EsPantaleu|Luftbild der Insel Pantaleu nahe Sant Elm, Mallorca, Spanien (© Dimitri Weber/Amazing Aerial Agency)|Kleine Insel, großes Meer|![](/de-DE/2022/08/202208052200EsPantaleu.jpg)|
 202208062200|SpringPoint|Leuchtturm Spring Point Ledge, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Ein kleiner, aber mächtiger Wächter|![](/de-DE/2022/08/202208062200SpringPoint.jpg)|
 202208072200|RiesenlauchAllium|Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)|Violette Riesen|![](/de-DE/2022/08/202208072200RiesenlauchAllium.jpg)|
+202208082200|CuevaManos|Cueva de las Manos (Höhle der Hände), Santa Cruz, Argentinien (© Adwo/Alamy)|9.000 Jahre alte Handabdrücke|![](/de-DE/2022/08/202208082200CuevaManos.jpg)|
