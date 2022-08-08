@@ -8,3 +8,4 @@
 202208050700|MilitaryTattoo|Edinburgh city, Scotland (© Suranga Weeratuna/Alamy)|Info|![](/en-AU/2022/08/202208050700MilitaryTattoo.jpg)|
 202208060700|SFSaltFlats|Salt flats, San Francisco Bay, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2022/08/202208060700SFSaltFlats.jpg)|
 202208070700|SpringPoint|Spring Point Ledge Light, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Info|![](/en-AU/2022/08/202208070700SpringPoint.jpg)|
+202208080700|EsPantaleu|Pantaleu, Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Info|![](/en-AU/2022/08/202208080700EsPantaleu.jpg)|
