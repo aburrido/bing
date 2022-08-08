@@ -7,3 +7,4 @@
 202208050400|MilitaryTattoo|Edinburgh city skyline at night, Scotland (© Suranga Weeratuna/Alamy)|Festival fever|![](/en-CA/2022/08/202208050400MilitaryTattoo.jpg)|
 202208060400|SFSaltFlats|Salt flats in San Francisco Bay (© Jeffrey Lewis/Tandem Stills + Motion)|A salty situation|![](/en-CA/2022/08/202208060400SFSaltFlats.jpg)|
 202208070400|NuchatlitzDusk|Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)|An archaelogical treasure|![](/en-CA/2022/08/202208070400NuchatlitzDusk.jpg)|
+202208080400|EsPantaleu|Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Little Island, Big Sea|![](/en-CA/2022/08/202208080400EsPantaleu.jpg)|
