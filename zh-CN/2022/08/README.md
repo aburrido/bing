@@ -8,3 +8,4 @@
 202208051600|SFSaltFlats|旧金山湾的盐滩 (© Jeffrey Lewis/Tandem Stills + Motion)|一个咸咸的地点|![](/zh-CN/2022/08/202208051600SFSaltFlats.jpg)|
 202208061600|theBeginningofAutumn2022|杭州西湖的古典中国园林 (© DANNY HU/Getty Images)|贴秋膘了吗？|![](/zh-CN/2022/08/202208061600theBeginningofAutumn2022.jpg)|
 202208071600|EsPantaleu|圣埃尔姆附近的潘塔留岛鸟瞰图，西班牙马略卡岛 (© Dimitri Weber/Azing航空公司)|汪洋中的小岛|![](/zh-CN/2022/08/202208071600EsPantaleu.jpg)|
+202208081600|CuevaManos|阿根廷圣克鲁斯的洛斯马诺斯洞穴 (© Adwo/Alamy)|9000年前的手印|![](/zh-CN/2022/08/202208081600CuevaManos.jpg)|
