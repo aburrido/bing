@@ -9,3 +9,4 @@
 202208061830|SpringPoint|Spring Point Ledge Light in South Portland, Maine (© Haizhan Zheng/Getty Images)|A small but mighty guardian|![](/en-IN/2022/08/202208061830SpringPoint.jpg)|
 202208071830|EsPantaleu|Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Little Island, Big Sea|![](/en-IN/2022/08/202208071830EsPantaleu.jpg)|
 202208081830|CuevaManos|Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)|9,000-year-old handprints|![](/en-IN/2022/08/202208081830CuevaManos.jpg)|
+202208091830|AnniversaryJTNP|Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)|Desert daggers?|![](/en-IN/2022/08/202208091830AnniversaryJTNP.jpg)|
