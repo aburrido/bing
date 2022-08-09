@@ -9,3 +9,4 @@
 202208070400|NuchatlitzDusk|Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)|Information|![](/fr-CA/2022/08/202208070400NuchatlitzDusk.jpg)|
 202208080400|EsPantaleu|Vue aérienne de l’île de Pantaleu près de Sant Elm, Majorque, Espagne (© Dimitri Weber/Amazing Aerial Agency)|Information|![](/fr-CA/2022/08/202208080400EsPantaleu.jpg)|
 ||||![](/fr-CA/2022/08/.jpg)|
+202208090400|CuevaManos|Cueva de las Manos (Grotte des mains) à Santa Cruz, Argentine (© Adwo/Alamy)|Information|![](/fr-CA/2022/08/202208090400CuevaManos.jpg)|
