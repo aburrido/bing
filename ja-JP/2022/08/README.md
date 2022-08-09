@@ -9,3 +9,4 @@
 202208061500|Furin2022|風鈴まつり (© blew_i/gettyimages)|今日は立秋|![](/ja-JP/2022/08/202208061500Furin2022.jpg)|
 202208071500|SpringPoint|スプリング・ポイント・レッジ灯台, 米国 メイン州 (© Haizhan Zheng/Getty Images)|ニューイングランドの古い灯台|![](/ja-JP/2022/08/202208071500SpringPoint.jpg)|
 202208081500|CuevaManos|クエバ・デ・ラス・マノス, アルゼンチン (© Adwo/Alamy)|今日は世界の先住民族の国際デー|![](/ja-JP/2022/08/202208081500CuevaManos.jpg)|
+202208091500|WWDLions|ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)|今日は世界ライオンの日|![](/ja-JP/2022/08/202208091500WWDLions.jpg)|
