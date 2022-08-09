@@ -10,3 +10,4 @@
 202208072200|EsPantaleu|Vue aérienne de l’île de Pantaleu près de Sant Elm, Majorque, Espagne (© Dimitri Weber/Amazing Aerial Agency)|À l’abri du vent|![](/fr-FR/2022/08/202208072200EsPantaleu.jpg)|
 ||||![](/fr-FR/2022/08/.jpg)|
 202208082200|CuevaManos|Cueva de las Manos (Grotte des mains) à Santa Cruz, Argentine (© Adwo/Alamy)|Aux mains de la préhistoire|![](/fr-FR/2022/08/202208082200CuevaManos.jpg)|
+202208092200|MtTsubakuro|Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)|En faire des montagnes|![](/fr-FR/2022/08/202208092200MtTsubakuro.jpg)|

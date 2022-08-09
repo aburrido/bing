@@ -10,3 +10,4 @@
 202208062200|SpringPoint|Leuchtturm Spring Point Ledge, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Ein kleiner, aber mächtiger Wächter|![](/de-DE/2022/08/202208062200SpringPoint.jpg)|
 202208072200|RiesenlauchAllium|Riesen-Lauch (Allium giganteum), Hamburg (© Jasmin Sander/plainpicture)|Violette Riesen|![](/de-DE/2022/08/202208072200RiesenlauchAllium.jpg)|
 202208082200|CuevaManos|Cueva de las Manos (Höhle der Hände), Santa Cruz, Argentinien (© Adwo/Alamy)|9.000 Jahre alte Handabdrücke|![](/de-DE/2022/08/202208082200CuevaManos.jpg)|
+202208092200|AnniversaryJTNP|Josua-Palmlilien (Joshua Trees) im Joshua-Tree-Nationalpark, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)|1.000 Jahre alte Wüstenbewohner|![](/de-DE/2022/08/202208092200AnniversaryJTNP.jpg)|
