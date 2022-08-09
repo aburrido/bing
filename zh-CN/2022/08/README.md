@@ -9,3 +9,4 @@
 202208061600|theBeginningofAutumn2022|杭州西湖的古典中国园林 (© DANNY HU/Getty Images)|贴秋膘了吗？|![](/zh-CN/2022/08/202208061600theBeginningofAutumn2022.jpg)|
 202208071600|EsPantaleu|圣埃尔姆附近的潘塔留岛鸟瞰图，西班牙马略卡岛 (© Dimitri Weber/Azing航空公司)|汪洋中的小岛|![](/zh-CN/2022/08/202208071600EsPantaleu.jpg)|
 202208081600|CuevaManos|阿根廷圣克鲁斯的洛斯马诺斯洞穴 (© Adwo/Alamy)|9000年前的手印|![](/zh-CN/2022/08/202208081600CuevaManos.jpg)|
+202208091600|AnniversaryJTNP|约书亚树，加利福尼亚州约书亚树国家公园 (© Tim Fitzharris/Minden Pictures)|沙漠中的匕首？|![](/zh-CN/2022/08/202208091600AnniversaryJTNP.jpg)|
