@@ -10,3 +10,4 @@
 202208080400|EsPantaleu|Vue aérienne de l’île de Pantaleu près de Sant Elm, Majorque, Espagne (© Dimitri Weber/Amazing Aerial Agency)|Information|![](/fr-CA/2022/08/202208080400EsPantaleu.jpg)|
 ||||![](/fr-CA/2022/08/.jpg)|
 202208090400|CuevaManos|Cueva de las Manos (Grotte des mains) à Santa Cruz, Argentine (© Adwo/Alamy)|Information|![](/fr-CA/2022/08/202208090400CuevaManos.jpg)|
+202208100400|AnniversaryJTNP|Arbre de Josué dans le parc national de Joshua Tree, Californie (© Tim Fitzharris/Minden Pictures)|Information|![](/fr-CA/2022/08/202208100400AnniversaryJTNP.jpg)|

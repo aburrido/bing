@@ -9,3 +9,4 @@
 202208070400|NuchatlitzDusk|Dusk falls over Vancouver Island viewed from an islet in Nuchatlitz Provincial Park, British Columbia (© plainpicture/Design Pics/Ron Watts)|An archaelogical treasure|![](/en-CA/2022/08/202208070400NuchatlitzDusk.jpg)|
 202208080400|EsPantaleu|Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Little Island, Big Sea|![](/en-CA/2022/08/202208080400EsPantaleu.jpg)|
 202208090400|CuevaManos|Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)|9,000-year-old handprints|![](/en-CA/2022/08/202208090400CuevaManos.jpg)|
+202208100400|AnniversaryJTNP|Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)|Desert daggers?|![](/en-CA/2022/08/202208100400AnniversaryJTNP.jpg)|
