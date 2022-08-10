@@ -10,3 +10,4 @@
 202208070700|SpringPoint|Spring Point Ledge Light, South Portland, Maine, USA (© Haizhan Zheng/Getty Images)|Info|![](/en-AU/2022/08/202208070700SpringPoint.jpg)|
 202208080700|EsPantaleu|Pantaleu, Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Info|![](/en-AU/2022/08/202208080700EsPantaleu.jpg)|
 202208090700|CuevaManos|Cueva de las Manos (Cave of the Hands), Santa Cruz, Argentina (© Adwo/Alamy)|Info|![](/en-AU/2022/08/202208090700CuevaManos.jpg)|
+202208100700|AnniversaryJTNP|Joshua trees, Joshua Tree National Park, California, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2022/08/202208100700AnniversaryJTNP.jpg)|
