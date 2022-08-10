@@ -11,3 +11,4 @@
 ||||![](/fr-FR/2022/08/.jpg)|
 202208082200|CuevaManos|Cueva de las Manos (Grotte des mains) à Santa Cruz, Argentine (© Adwo/Alamy)|Aux mains de la préhistoire|![](/fr-FR/2022/08/202208082200CuevaManos.jpg)|
 202208092200|MtTsubakuro|Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)|En faire des montagnes|![](/fr-FR/2022/08/202208092200MtTsubakuro.jpg)|
+202208102200|Dax|Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)|La vraie fête|![](/fr-FR/2022/08/202208102200Dax.jpg)|
