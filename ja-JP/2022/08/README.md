@@ -11,3 +11,4 @@
 202208081500|CuevaManos|クエバ・デ・ラス・マノス, アルゼンチン (© Adwo/Alamy)|今日は世界の先住民族の国際デー|![](/ja-JP/2022/08/202208081500CuevaManos.jpg)|
 202208091500|WWDLions|ナクル湖畔の雌ライオン, ケニア (© Scott Davis/Tandem Stills + Motion)|今日は世界ライオンの日|![](/ja-JP/2022/08/202208091500WWDLions.jpg)|
 202208101500|MtTsubakuro|燕岳, 長野県 (© Joshua Hawley/Getty Images)|今日は山の日|![](/ja-JP/2022/08/202208101500MtTsubakuro.jpg)|
+202208111500|AmboseliElephants|アフリカゾウの群れ, ケニア  (© Shutterstock)|今日は世界ゾウの日|![](/ja-JP/2022/08/202208111500AmboseliElephants.jpg)|
