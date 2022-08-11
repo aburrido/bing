@@ -10,3 +10,4 @@
 202208080400|EsPantaleu|Aerial view of the island Pantaleu near Sant Elm, Mallorca, Spain (© Dimitri Weber/Amazing Aerial Agency)|Little Island, Big Sea|![](/en-CA/2022/08/202208080400EsPantaleu.jpg)|
 202208090400|CuevaManos|Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)|9,000-year-old handprints|![](/en-CA/2022/08/202208090400CuevaManos.jpg)|
 202208100400|AnniversaryJTNP|Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)|Desert daggers?|![](/en-CA/2022/08/202208100400AnniversaryJTNP.jpg)|
+202208110400|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Go hug a mountain, if you can|![](/en-CA/2022/08/202208110400MtTsubakuro.jpg)|
