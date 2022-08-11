@@ -12,3 +12,4 @@
 202208082300|CuevaManos|Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)|A show of prehistoric hands|![](/en-GB/2022/08/202208082300CuevaManos.jpg)|
 202208092300|FiordlandRainforest|Rainforest hike near Milford Sound/Piopiotahi in New Zealand (© Jim Patterson/Tandem Stills + Motion)|The ‘eighth wonder’?|![](/en-GB/2022/08/202208092300FiordlandRainforest.jpg)|
 202208102300|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|The mountains are calling|![](/en-GB/2022/08/202208102300MtTsubakuro.jpg)|
+202208112300|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|World Elephant Day|![](/en-GB/2022/08/202208112300AmboseliElephants.jpg)|
