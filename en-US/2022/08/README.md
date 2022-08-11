@@ -12,3 +12,4 @@
 202208090700|CuevaManos|Cueva de las Manos (Cave of the Hands) in Santa Cruz, Argentina (© Adwo/Alamy)|9,000-year-old handprints|![](/en-US/2022/08/202208090700CuevaManos.jpg)|
 202208100700|AnniversaryJTNP|Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)|Desert daggers?|![](/en-US/2022/08/202208100700AnniversaryJTNP.jpg)|
 202208110700|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Go hug a mountain, if you can|![](/en-US/2022/08/202208110700MtTsubakuro.jpg)|
+||||![](/en-US/2022/08/.jpg)|
