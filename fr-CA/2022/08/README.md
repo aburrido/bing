@@ -12,3 +12,4 @@
 202208090400|CuevaManos|Cueva de las Manos (Grotte des mains) à Santa Cruz, Argentine (© Adwo/Alamy)|Information|![](/fr-CA/2022/08/202208090400CuevaManos.jpg)|
 202208100400|AnniversaryJTNP|Arbre de Josué dans le parc national de Joshua Tree, Californie (© Tim Fitzharris/Minden Pictures)|Information|![](/fr-CA/2022/08/202208100400AnniversaryJTNP.jpg)|
 202208110400|MtTsubakuro|Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)|Information|![](/fr-CA/2022/08/202208110400MtTsubakuro.jpg)|
+202208120400|AmboseliElephants|Troupeau d’éléphants africains dans le parc national d’Amboseli, Kenya (© Susan Portnoy/Shutterstock)|Information|![](/fr-CA/2022/08/202208120400AmboseliElephants.jpg)|
