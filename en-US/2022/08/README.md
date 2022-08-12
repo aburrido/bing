@@ -13,3 +13,4 @@
 202208100700|AnniversaryJTNP|Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)|Desert daggers?|![](/en-US/2022/08/202208100700AnniversaryJTNP.jpg)|
 202208110700|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Go hug a mountain, if you can|![](/en-US/2022/08/202208110700MtTsubakuro.jpg)|
 ||||![](/en-US/2022/08/.jpg)|
+202208120700|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Family on parade|![](/en-US/2022/08/202208120700AmboseliElephants.jpg)|
