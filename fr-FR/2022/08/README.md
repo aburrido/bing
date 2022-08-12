@@ -13,3 +13,4 @@
 202208092200|MtTsubakuro|Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)|En faire des montagnes|![](/fr-FR/2022/08/202208092200MtTsubakuro.jpg)|
 202208102200|Dax|Détail de la façade des arènes de Dax, Landes (© Daniele Schneider/Photononstop/Alamy)|La vraie fête|![](/fr-FR/2022/08/202208102200Dax.jpg)|
 202208112200|AmboseliElephants|Groupe d’éléphants d’Afrique dans le parc national d’Amboseli, Kenya (© Shutterstock)|Majestueuses créatures|![](/fr-FR/2022/08/202208112200AmboseliElephants.jpg)|
+202208122200|BoundaryWaters|Route frontalière des Voyageurs, Forêt nationale Superior, Minnesota, États-Unis (© Dukas/Universal Images Group via Getty Images)|La route des voyageurs|![](/fr-FR/2022/08/202208122200BoundaryWaters.jpg)|

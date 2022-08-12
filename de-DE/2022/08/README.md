@@ -13,3 +13,4 @@
 202208092200|AnniversaryJTNP|Josua-Palmlilien (Joshua Trees) im Joshua-Tree-Nationalpark, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)|1.000 Jahre alte Wüstenbewohner|![](/de-DE/2022/08/202208092200AnniversaryJTNP.jpg)|
 202208102200|MtTsubakuro|Der Berg Tsubakuro in der Nähe von Azumino, Präfektur Nagano, Japan (© Joshua Hawley/Getty Images)|Umarmen Sie einen Berg, falls Sie das schaffen|![](/de-DE/2022/08/202208102200MtTsubakuro.jpg)|
 202208112200|AmboseliElephants|Elefantenherde im Amboseli-Nationalpark, Kenia (© Shutterstock)|Familienparade|![](/de-DE/2022/08/202208112200AmboseliElephants.jpg)|
+202208122200|AquarioNatural|Unterwasseraufnahme von Wasserpflanzen und Echten Salmlern, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brasilien (© Michel Roggo/Minden Pictures)|So frisch, so sauber|![](/de-DE/2022/08/202208122200AquarioNatural.jpg)|
