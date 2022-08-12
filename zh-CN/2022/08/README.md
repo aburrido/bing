@@ -12,3 +12,4 @@
 202208091600|AnniversaryJTNP|约书亚树，加利福尼亚州约书亚树国家公园 (© Tim Fitzharris/Minden Pictures)|沙漠中的匕首？|![](/zh-CN/2022/08/202208091600AnniversaryJTNP.jpg)|
 202208101600|MtTsubakuro|日本长野县安昙野附近的燕岳山 (© Joshua Hawley/Getty Images)|如果可以的话，请拥抱一座山吧|![](/zh-CN/2022/08/202208101600MtTsubakuro.jpg)|
 202208111600|AmboseliElephants|安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)|家庭出游|![](/zh-CN/2022/08/202208111600AmboseliElephants.jpg)|
+202208121600|LacMontagnon|阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)|一颗值得的心|![](/zh-CN/2022/08/202208121600LacMontagnon.jpg)|
