@@ -12,3 +12,4 @@
 202208100400|AnniversaryJTNP|Joshua trees in Joshua Tree National Park, California (© Tim Fitzharris/Minden Pictures)|Desert daggers?|![](/en-CA/2022/08/202208100400AnniversaryJTNP.jpg)|
 202208110400|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Go hug a mountain, if you can|![](/en-CA/2022/08/202208110400MtTsubakuro.jpg)|
 202208120400|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Family on parade|![](/en-CA/2022/08/202208120400AmboseliElephants.jpg)|
+202208130400|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-CA/2022/08/202208130400BoundaryWaters.jpg)|
