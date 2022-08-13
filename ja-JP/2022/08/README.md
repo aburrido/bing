@@ -13,3 +13,4 @@
 202208101500|MtTsubakuro|燕岳, 長野県 (© Joshua Hawley/Getty Images)|今日は山の日|![](/ja-JP/2022/08/202208101500MtTsubakuro.jpg)|
 202208111500|AmboseliElephants|アフリカゾウの群れ, ケニア  (© Shutterstock)|今日は世界ゾウの日|![](/ja-JP/2022/08/202208111500AmboseliElephants.jpg)|
 202208121500|BoundaryWaters|バウンダリー・ウォーターズ・カヌー・エリア, 米国 (© Dukas/Universal Images Group via Getty Images)|五大湖ほとりのカヌー・エリア|![](/ja-JP/2022/08/202208121500BoundaryWaters.jpg)|
+202208131500|AquarioNatural|アクアリオ・ナチュラル, ブラジル ボニータ (© Michel Roggo/Minden Pictures)|南米の天然水族館|![](/ja-JP/2022/08/202208131500AquarioNatural.jpg)|
