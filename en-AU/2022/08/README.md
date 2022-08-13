@@ -13,3 +13,4 @@
 202208100700|AnniversaryJTNP|Joshua trees, Joshua Tree National Park, California, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2022/08/202208100700AnniversaryJTNP.jpg)|
 202208110700|MtTsubakuro|Mount Tsubakuro, Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Info|![](/en-AU/2022/08/202208110700MtTsubakuro.jpg)|
 202208120700|AmboseliElephants|African elephants, Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Info|![](/en-AU/2022/08/202208120700AmboseliElephants.jpg)|
+202208130700|LacMontagnon|Montagnon Lake, Pyrénées-Atlantiques, France (© thieury/Adobe Stock)|Info|![](/en-AU/2022/08/202208130700LacMontagnon.jpg)|

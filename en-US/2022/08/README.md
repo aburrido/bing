@@ -14,3 +14,4 @@
 202208110700|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Go hug a mountain, if you can|![](/en-US/2022/08/202208110700MtTsubakuro.jpg)|
 ||||![](/en-US/2022/08/.jpg)|
 202208120700|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Family on parade|![](/en-US/2022/08/202208120700AmboseliElephants.jpg)|
+202208130700|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-US/2022/08/202208130700BoundaryWaters.jpg)|
