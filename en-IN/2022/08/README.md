@@ -13,3 +13,4 @@
 202208101830|RakhiIndia|Handmade threads (rakhis) kept on a wooden surface (© Avijit Sadhu/iStock/Getty Images Plus)|An unbreakable bond between siblings|![](/en-IN/2022/08/202208101830RakhiIndia.jpg)|
 202208111830|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Family on parade|![](/en-IN/2022/08/202208111830AmboseliElephants.jpg)|
 202208121830|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-IN/2022/08/202208121830BoundaryWaters.jpg)|
+202208131830|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Hide-and-go-seek world champion|![](/en-IN/2022/08/202208131830PantherChameleon.jpg)|
