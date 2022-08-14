@@ -15,3 +15,4 @@
 ||||![](/en-US/2022/08/.jpg)|
 202208120700|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Family on parade|![](/en-US/2022/08/202208120700AmboseliElephants.jpg)|
 202208130700|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-US/2022/08/202208130700BoundaryWaters.jpg)|
+202208140700|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Hide-and-go-seek world champion|![](/en-US/2022/08/202208140700PantherChameleon.jpg)|
