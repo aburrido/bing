@@ -15,3 +15,4 @@
 202208112300|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|World Elephant Day|![](/en-GB/2022/08/202208112300AmboseliElephants.jpg)|
 202208122300|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota, USA (© Dukas/Universal Images Group via Getty Images)|Call of the wilderness|![](/en-GB/2022/08/202208122300BoundaryWaters.jpg)|
 202208132300|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Blending in nicely|![](/en-GB/2022/08/202208132300PantherChameleon.jpg)|
+202208142300|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|Today, a nation was born|![](/en-GB/2022/08/202208142300ChittorgarhFort.jpg)|
