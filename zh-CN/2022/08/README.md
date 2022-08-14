@@ -14,3 +14,4 @@
 202208111600|AmboseliElephants|安博塞利国家公园里的非洲象群，肯尼亚 (© Susan Portnoy/Shutterstock)|家庭出游|![](/zh-CN/2022/08/202208111600AmboseliElephants.jpg)|
 202208121600|LacMontagnon|阿斯佩山谷中的蒙塔尼翁湖，法国 (© thieury/Adobe photo stock)|一颗值得的心|![](/zh-CN/2022/08/202208121600LacMontagnon.jpg)|
 202208131600|PantherChameleon|琥珀山国家公园里的豹变色龙，马达加斯加 (© Christian Ziegler/Minden Pictures)|捉迷藏世界冠军|![](/zh-CN/2022/08/202208131600PantherChameleon.jpg)|
+202208141600|ChittorgarhFort|奇陶尔加尔堡，印度 (© Anand Purohit/Getty Images)|古代中世纪城堡|![](/zh-CN/2022/08/202208141600ChittorgarhFort.jpg)|
