@@ -14,3 +14,4 @@
 202208110400|MtTsubakuro|Mont Tsubakuro près d’Azumino, Nagano, Japon (© Joshua Hawley/Getty Images)|Information|![](/fr-CA/2022/08/202208110400MtTsubakuro.jpg)|
 202208120400|AmboseliElephants|Troupeau d’éléphants africains dans le parc national d’Amboseli, Kenya (© Susan Portnoy/Shutterstock)|Information|![](/fr-CA/2022/08/202208120400AmboseliElephants.jpg)|
 202208130400|BoundaryWaters|Route frontalière des Voyageurs, Minnesota, États-Unis (© Dukas/Universal Images Group via Getty Images)|Information|![](/fr-CA/2022/08/202208130400BoundaryWaters.jpg)|
+202208140400|PantherChameleon|Caméléon panthère dans le Parc National de Montagne d’Ambre, Madagascar (© Christian Ziegler/Minden Pictures)|Information|![](/fr-CA/2022/08/202208140400PantherChameleon.jpg)|

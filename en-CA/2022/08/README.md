@@ -13,3 +13,4 @@
 202208110400|MtTsubakuro|Mount Tsubakuro near Azumino, Nagano, Japan (© Joshua Hawley/Getty Images)|Go hug a mountain, if you can|![](/en-CA/2022/08/202208110400MtTsubakuro.jpg)|
 202208120400|AmboseliElephants|Herd of African elephants in Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Family on parade|![](/en-CA/2022/08/202208120400AmboseliElephants.jpg)|
 202208130400|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-CA/2022/08/202208130400BoundaryWaters.jpg)|
+202208140400|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Hide-and-go-seek world champion|![](/en-CA/2022/08/202208140400PantherChameleon.jpg)|
