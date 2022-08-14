@@ -15,3 +15,4 @@
 202208112200|AmboseliElephants|Groupe d’éléphants d’Afrique dans le parc national d’Amboseli, Kenya (© Shutterstock)|Majestueuses créatures|![](/fr-FR/2022/08/202208112200AmboseliElephants.jpg)|
 202208122200|BoundaryWaters|Route frontalière des Voyageurs, Forêt nationale Superior, Minnesota, États-Unis (© Dukas/Universal Images Group via Getty Images)|La route des voyageurs|![](/fr-FR/2022/08/202208122200BoundaryWaters.jpg)|
 202208132200|PantherChameleon|Caméléon panthère dans le parc national d’Amber Mountain, Madagascar (© Christian Ziegler/Minden Pictures)|Le roi du camouflage|![](/fr-FR/2022/08/202208132200PantherChameleon.jpg)|
+202208142200|ChittorgarhFort|Fort de Chittorgarh, Rajasthan, Inde (© Anand Purohit/Getty Images)|Grandeur indienne|![](/fr-FR/2022/08/202208142200ChittorgarhFort.jpg)|
