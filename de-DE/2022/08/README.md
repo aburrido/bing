@@ -16,3 +16,4 @@
 202208122200|AquarioNatural|Unterwasseraufnahme von Wasserpflanzen und Echten Salmlern, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brasilien (© Michel Roggo/Minden Pictures)|So frisch, so sauber|![](/de-DE/2022/08/202208122200AquarioNatural.jpg)|
 202208132200|PantherChameleon|Pantherchamäleon im Nationalpark Montagne d’Ambre, Madagaskar (© Christian Ziegler/Minden Pictures)|Weltmeister im Verstecken|![](/de-DE/2022/08/202208132200PantherChameleon.jpg)|
 202208142200|ChittorgarhFort|Festung Chittorgarh, Indien (© Anand Purohit/Getty Images)|Vor 75 Jahren: Die Geburt einer Nation|![](/de-DE/2022/08/202208142200ChittorgarhFort.jpg)|
+202208152200|GreatWhiteRoller|Achterbahn „The Great White“ in Wildwood, New Jersey, USA (© John Van Decker/Alamy)|Nervenkitzel pur|![](/de-DE/2022/08/202208152200GreatWhiteRoller.jpg)|
