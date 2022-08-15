@@ -15,3 +15,4 @@
 202208121830|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-IN/2022/08/202208121830BoundaryWaters.jpg)|
 202208131830|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Hide-and-go-seek world champion|![](/en-IN/2022/08/202208131830PantherChameleon.jpg)|
 202208141830|IndiaGateDelhi|India Gate in New Delhi, India (© Ashish Shashidharan/iStock/Getty Images)|The dawn of a new beginning|![](/en-IN/2022/08/202208141830IndiaGateDelhi.jpg)|
+202208151830|GreatWhiteRoller|The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)|Ready for a thrill ride|![](/en-IN/2022/08/202208151830GreatWhiteRoller.jpg)|
