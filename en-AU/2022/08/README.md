@@ -15,3 +15,4 @@
 202208120700|AmboseliElephants|African elephants, Amboseli National Park, Kenya (© Susan Portnoy/Shutterstock)|Info|![](/en-AU/2022/08/202208120700AmboseliElephants.jpg)|
 202208130700|LacMontagnon|Montagnon Lake, Pyrénées-Atlantiques, France (© thieury/Adobe Stock)|Info|![](/en-AU/2022/08/202208130700LacMontagnon.jpg)|
 202208140700|PantherChameleon|Panther chameleon, Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Info|![](/en-AU/2022/08/202208140700PantherChameleon.jpg)|
+202208150700|ChittorgarhFort|Chittorgarh Fort, Rajasthan, India (© Anand Purohit/Getty Images)|Info|![](/en-AU/2022/08/202208150700ChittorgarhFort.jpg)|
