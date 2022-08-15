@@ -15,3 +15,4 @@
 202208121500|BoundaryWaters|バウンダリー・ウォーターズ・カヌー・エリア, 米国 (© Dukas/Universal Images Group via Getty Images)|五大湖ほとりのカヌー・エリア|![](/ja-JP/2022/08/202208121500BoundaryWaters.jpg)|
 202208131500|AquarioNatural|アクアリオ・ナチュラル, ブラジル ボニータ (© Michel Roggo/Minden Pictures)|南米の天然水族館|![](/ja-JP/2022/08/202208131500AquarioNatural.jpg)|
 202208141500|ChittorgarhFort|チットールガル, インド (© Anand Purohit/Getty Images)|今日はインドの独立記念日|![](/ja-JP/2022/08/202208141500ChittorgarhFort.jpg)|
+202208151500|Daimonji2022|五山送り火, 京都 (© Hideaki Tanaka/AFLO)|今日は五山送り火|![](/ja-JP/2022/08/202208151500Daimonji2022.jpg)|
