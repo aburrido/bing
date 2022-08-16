@@ -17,3 +17,4 @@
 202208132200|PantherChameleon|Caméléon panthère dans le parc national d’Amber Mountain, Madagascar (© Christian Ziegler/Minden Pictures)|Le roi du camouflage|![](/fr-FR/2022/08/202208132200PantherChameleon.jpg)|
 202208142200|ChittorgarhFort|Fort de Chittorgarh, Rajasthan, Inde (© Anand Purohit/Getty Images)|Grandeur indienne|![](/fr-FR/2022/08/202208142200ChittorgarhFort.jpg)|
 202208152200|CascadesNP|Parc national des North Cascades, Washington, États-Unis (© Ethan Welty/Tandem Stills + Motion)|Océan de montagnes|![](/fr-FR/2022/08/202208152200CascadesNP.jpg)|
+202208162200|AquarioNatural|Vue sous l’eau de l’Aquário Natural avec plantes d’eau douce et poissons, Rio Baia Bonito, Mato Grosso do Sul, Brésil (© Michel Roggo/Minden Pictures)|Un aquarium naturel|![](/fr-FR/2022/08/202208162200AquarioNatural.jpg)|
