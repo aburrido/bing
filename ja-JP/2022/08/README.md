@@ -16,3 +16,4 @@
 202208131500|AquarioNatural|アクアリオ・ナチュラル, ブラジル ボニータ (© Michel Roggo/Minden Pictures)|南米の天然水族館|![](/ja-JP/2022/08/202208131500AquarioNatural.jpg)|
 202208141500|ChittorgarhFort|チットールガル, インド (© Anand Purohit/Getty Images)|今日はインドの独立記念日|![](/ja-JP/2022/08/202208141500ChittorgarhFort.jpg)|
 202208151500|Daimonji2022|五山送り火, 京都 (© Hideaki Tanaka/AFLO)|今日は五山送り火|![](/ja-JP/2022/08/202208151500Daimonji2022.jpg)|
+202208161500|GreatWhiteRoller|ザ・グレート・ホワイト, 米国 ニュージャージー州 (© John Van Decker/Alamy)|モリーズ・ピアのローラーコースター|![](/ja-JP/2022/08/202208161500GreatWhiteRoller.jpg)|
