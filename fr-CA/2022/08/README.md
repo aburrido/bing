@@ -16,3 +16,4 @@
 202208130400|BoundaryWaters|Route frontalière des Voyageurs, Minnesota, États-Unis (© Dukas/Universal Images Group via Getty Images)|Information|![](/fr-CA/2022/08/202208130400BoundaryWaters.jpg)|
 202208140400|PantherChameleon|Caméléon panthère dans le Parc National de Montagne d’Ambre, Madagascar (© Christian Ziegler/Minden Pictures)|Information|![](/fr-CA/2022/08/202208140400PantherChameleon.jpg)|
 202208150400|ChittorgarhFort|Fort de Chittorgarh, Inde (© Anand Purohit/Getty Images)|Information|![](/fr-CA/2022/08/202208150400ChittorgarhFort.jpg)|
+202208160400|SasquatchStream|Cours d’eau dans le Parc provincial Sasquatch, Colombie-Britannique (© Jason Wilde/Tandem Stills + Motion)|Information|![](/fr-CA/2022/08/202208160400SasquatchStream.jpg)|

@@ -15,3 +15,4 @@
 202208130400|BoundaryWaters|Boundary Waters Canoe Area Wilderness, Superior National Forest, Minnesota (© Dukas/Universal Images Group via Getty Images)|Canoeing in solitude|![](/en-CA/2022/08/202208130400BoundaryWaters.jpg)|
 202208140400|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Hide-and-go-seek world champion|![](/en-CA/2022/08/202208140400PantherChameleon.jpg)|
 202208150400|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|Today, a nation was born|![](/en-CA/2022/08/202208150400ChittorgarhFort.jpg)|
+202208160400|SasquatchStream|A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)|Fresh finds in Fraser Valley|![](/en-CA/2022/08/202208160400SasquatchStream.jpg)|
