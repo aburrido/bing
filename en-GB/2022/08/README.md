@@ -17,3 +17,4 @@
 202208132300|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Blending in nicely|![](/en-GB/2022/08/202208132300PantherChameleon.jpg)|
 202208142300|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|Today, a nation was born|![](/en-GB/2022/08/202208142300ChittorgarhFort.jpg)|
 202208152300|TheNeedles|The Needles chalk pinnacles and lighthouse on the Isle of Wight. (© CBCK-Christine/iStock/Getty Images Plus)|Looking sharp|![](/en-GB/2022/08/202208152300TheNeedles.jpg)|
+202208162300|KyleskuBridge|Kylesku Bridge along the NC500 in the Highlands (© Lukas Bischoff/Getty Images)|Ahead of the curve|![](/en-GB/2022/08/202208162300KyleskuBridge.jpg)|
