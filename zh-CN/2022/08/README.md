@@ -16,3 +16,4 @@
 202208131600|PantherChameleon|琥珀山国家公园里的豹变色龙，马达加斯加 (© Christian Ziegler/Minden Pictures)|捉迷藏世界冠军|![](/zh-CN/2022/08/202208131600PantherChameleon.jpg)|
 202208141600|ChittorgarhFort|奇陶尔加尔堡，印度 (© Anand Purohit/Getty Images)|古代中世纪城堡|![](/zh-CN/2022/08/202208141600ChittorgarhFort.jpg)|
 202208151600|GreatWhiteRoller|夕阳下的大白鲨过山车，美国新泽西州 (© John Van Decker/Alamy)|惊险之旅|![](/zh-CN/2022/08/202208151600GreatWhiteRoller.jpg)|
+202208161600|AquarioNatural|大自然的水族馆中的水下景观，巴西 (© Michel Roggo/Minden Pictures)|如此清澈，如此洁净|![](/zh-CN/2022/08/202208161600AquarioNatural.jpg)|
