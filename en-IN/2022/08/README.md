@@ -17,3 +17,4 @@
 202208141830|IndiaGateDelhi|India Gate in New Delhi, India (© Ashish Shashidharan/iStock/Getty Images)|The dawn of a new beginning|![](/en-IN/2022/08/202208141830IndiaGateDelhi.jpg)|
 202208151830|GreatWhiteRoller|The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)|Ready for a thrill ride|![](/en-IN/2022/08/202208151830GreatWhiteRoller.jpg)|
 202208161830|SourHerring|Island of Källö-Knippla in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the ‘world’s worst smelling food’?|![](/en-IN/2022/08/202208161830SourHerring.jpg)|
+202208171830|PushkarniKarnataka|Pushkarani at Krishna Temple in Hampi, Karnataka (© ImagesofIndia/Shutterstock)|A sacred water tank in Hampi|![](/en-IN/2022/08/202208171830PushkarniKarnataka.jpg)|
