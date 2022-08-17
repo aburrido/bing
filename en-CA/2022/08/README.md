@@ -16,3 +16,4 @@
 202208140400|PantherChameleon|Panther chameleon in Amber Mountain National Park, Madagascar (© Christian Ziegler/Minden Pictures)|Hide-and-go-seek world champion|![](/en-CA/2022/08/202208140400PantherChameleon.jpg)|
 202208150400|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|Today, a nation was born|![](/en-CA/2022/08/202208150400ChittorgarhFort.jpg)|
 202208160400|SasquatchStream|A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)|Fresh finds in Fraser Valley|![](/en-CA/2022/08/202208160400SasquatchStream.jpg)|
+202208170400|AquarioNatural|Underwater river scene with freshwater plants and tetra fish, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)|So fresh, so clean|![](/en-CA/2022/08/202208170400AquarioNatural.jpg)|
