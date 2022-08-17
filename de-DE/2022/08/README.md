@@ -18,3 +18,4 @@
 202208142200|ChittorgarhFort|Festung Chittorgarh, Indien (© Anand Purohit/Getty Images)|Vor 75 Jahren: Die Geburt einer Nation|![](/de-DE/2022/08/202208142200ChittorgarhFort.jpg)|
 202208152200|GreatWhiteRoller|Achterbahn „The Great White“ in Wildwood, New Jersey, USA (© John Van Decker/Alamy)|Nervenkitzel pur|![](/de-DE/2022/08/202208152200GreatWhiteRoller.jpg)|
 202208162200|SyltNordseeHoernum|Reetdachhäuser bei Hörnum auf Sylt, Schleswig-Holstein (© Francesco Carovillano/eStock Photo)|An Sylts südlichster Spitze|![](/de-DE/2022/08/202208162200SyltNordseeHoernum.jpg)|
+202208172200|SourHerring|Die Insel Källö-Knippla im Göteborger Schärengarten, Schweden (© Martin Wahlborg/Getty Images)|Heimat des „am schlimmsten riechenden Essens“?|![](/de-DE/2022/08/202208172200SourHerring.jpg)|
