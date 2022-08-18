@@ -18,3 +18,4 @@
 202208151500|Daimonji2022|五山送り火, 京都 (© Hideaki Tanaka/AFLO)|今日は五山送り火|![](/ja-JP/2022/08/202208151500Daimonji2022.jpg)|
 202208161500|GreatWhiteRoller|ザ・グレート・ホワイト, 米国 ニュージャージー州 (© John Van Decker/Alamy)|モリーズ・ピアのローラーコースター|![](/ja-JP/2022/08/202208161500GreatWhiteRoller.jpg)|
 202208171500|SourHerring|ケロ・クニプラ島, スウェーデン  (© Martin Wahlborg/Getty Images)|今日はシュールストレミング解禁日|![](/ja-JP/2022/08/202208171500SourHerring.jpg)|
+||||![](/ja-JP/2022/08/.jpg)|
