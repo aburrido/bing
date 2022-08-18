@@ -19,3 +19,4 @@
 202208150700|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|On this day, a nation was born|![](/en-US/2022/08/202208150700ChittorgarhFort.jpg)|
 202208160700|GreatWhiteRoller|The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)|Thrill ride|![](/en-US/2022/08/202208160700GreatWhiteRoller.jpg)|
 202208170700|AquarioNatural|Freshwater plants and tetra fish, Aquário Natural, Rio Baía Bonita, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)|So fresh, so clean|![](/en-US/2022/08/202208170700AquarioNatural.jpg)|
+202208180700|SourHerring|Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the world's worst-smelling food?|![](/en-US/2022/08/202208180700SourHerring.jpg)|
