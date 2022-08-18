@@ -19,3 +19,4 @@
 202208161500|GreatWhiteRoller|ザ・グレート・ホワイト, 米国 ニュージャージー州 (© John Van Decker/Alamy)|モリーズ・ピアのローラーコースター|![](/ja-JP/2022/08/202208161500GreatWhiteRoller.jpg)|
 202208171500|SourHerring|ケロ・クニプラ島, スウェーデン  (© Martin Wahlborg/Getty Images)|今日はシュールストレミング解禁日|![](/ja-JP/2022/08/202208171500SourHerring.jpg)|
 ||||![](/ja-JP/2022/08/.jpg)|
+202208181500|PenzancePool|ペンザンス, イギリス コーンウォール (© Murray Bosley Photography/Getty Images)|コーンウォールの海辺の街|![](/ja-JP/2022/08/202208181500PenzancePool.jpg)|
