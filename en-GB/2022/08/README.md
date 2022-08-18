@@ -19,3 +19,4 @@
 202208152300|TheNeedles|The Needles chalk pinnacles and lighthouse on the Isle of Wight. (© CBCK-Christine/iStock/Getty Images Plus)|Looking sharp|![](/en-GB/2022/08/202208152300TheNeedles.jpg)|
 202208162300|KyleskuBridge|Kylesku Bridge along the NC500 in the Highlands (© Lukas Bischoff/Getty Images)|Ahead of the curve|![](/en-GB/2022/08/202208162300KyleskuBridge.jpg)|
 202208172300|SourHerring|Island of Källö-Knippla in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the worst-smelling food?|![](/en-GB/2022/08/202208172300SourHerring.jpg)|
+202208182300|PenzancePool|Penzance in Cornwall (© Murray Bosley Photography/Getty Images)|Panoramic Penzance|![](/en-GB/2022/08/202208182300PenzancePool.jpg)|
