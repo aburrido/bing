@@ -19,3 +19,4 @@
 202208161600|AquarioNatural|大自然的水族馆中的水下景观，巴西 (© Michel Roggo/Minden Pictures)|如此清澈，如此洁净|![](/zh-CN/2022/08/202208161600AquarioNatural.jpg)|
 202208171600|SourHerring|哥德堡群岛的岸边，瑞典 (© Martin Wahlborg/Getty Images)|世界最臭食物之乡？|![](/zh-CN/2022/08/202208171600SourHerring.jpg)|
 ||||![](/zh-CN/2022/08/.jpg)|
+202208181600|PenzancePool|康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)|彭赞斯全景|![](/zh-CN/2022/08/202208181600PenzancePool.jpg)|
