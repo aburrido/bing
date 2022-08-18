@@ -18,3 +18,4 @@
 202208150400|ChittorgarhFort|Fort de Chittorgarh, Inde (© Anand Purohit/Getty Images)|Information|![](/fr-CA/2022/08/202208150400ChittorgarhFort.jpg)|
 202208160400|SasquatchStream|Cours d’eau dans le Parc provincial Sasquatch, Colombie-Britannique (© Jason Wilde/Tandem Stills + Motion)|Information|![](/fr-CA/2022/08/202208160400SasquatchStream.jpg)|
 202208170400|AquarioNatural|Scène sous-marine avec plantes d’eau douce et tétras, Aquário Natural, Rio Baia Bonito, Matto Grosso del Sul, Brésil (© Michel Roggo/Minden Pictures)|Information|![](/fr-CA/2022/08/202208170400AquarioNatural.jpg)|
+202208180400|SourHerring|Île de Källö-Knippla, archipel de Göteborg, Suède (© Martin Wahlborg/Getty Images)|Information|![](/fr-CA/2022/08/202208180400SourHerring.jpg)|
