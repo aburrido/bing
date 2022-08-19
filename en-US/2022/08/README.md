@@ -20,3 +20,4 @@
 202208160700|GreatWhiteRoller|The Great White Roller Coaster at Wildwood, New Jersey (© John Van Decker/Alamy)|Thrill ride|![](/en-US/2022/08/202208160700GreatWhiteRoller.jpg)|
 202208170700|AquarioNatural|Freshwater plants and tetra fish, Aquário Natural, Rio Baía Bonita, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)|So fresh, so clean|![](/en-US/2022/08/202208170700AquarioNatural.jpg)|
 202208180700|SourHerring|Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the world's worst-smelling food?|![](/en-US/2022/08/202208180700SourHerring.jpg)|
+202208190700|SolarImpulse2|Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)|A flight to remember|![](/en-US/2022/08/202208190700SolarImpulse2.jpg)|

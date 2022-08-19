@@ -19,3 +19,4 @@
 202208160700|GreatWhiteRoller|The Great White Roller Coaster, Wildwood, New Jersey, USA (© John Van Decker/Alamy)|Info|![](/en-AU/2022/08/202208160700GreatWhiteRoller.jpg)|
 202208170700|AquarioNatural|Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)|Info|![](/en-AU/2022/08/202208170700AquarioNatural.jpg)|
 202208180700|SourHerring|Island of Källö-Knippla, archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Info|![](/en-AU/2022/08/202208180700SourHerring.jpg)|
+202208190700|PenzancePool|Penzance, Cornwall, England, UK (© Murray Bosley Photography/Getty Images)|Info|![](/en-AU/2022/08/202208190700PenzancePool.jpg)|
