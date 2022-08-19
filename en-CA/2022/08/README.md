@@ -18,3 +18,4 @@
 202208160400|SasquatchStream|A stream of water flows through the Sasquatch Provincial Park, Fraser Valley, B.C. (© Jason Wilde/Tandem Stills + Motion)|Fresh finds in Fraser Valley|![](/en-CA/2022/08/202208160400SasquatchStream.jpg)|
 202208170400|AquarioNatural|Underwater river scene with freshwater plants and tetra fish, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)|So fresh, so clean|![](/en-CA/2022/08/202208170400AquarioNatural.jpg)|
 202208180400|SourHerring|Island of Källö-Knippla in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the ‘world’s worst smelling food?’|![](/en-CA/2022/08/202208180400SourHerring.jpg)|
+202208190400|SwingEx|The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)|Let’s go to the Ex!|![](/en-CA/2022/08/202208190400SwingEx.jpg)|
