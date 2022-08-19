@@ -20,3 +20,4 @@
 202208162200|AquarioNatural|Vue sous l’eau de l’Aquário Natural avec plantes d’eau douce et poissons, Rio Baia Bonito, Mato Grosso do Sul, Brésil (© Michel Roggo/Minden Pictures)|Un aquarium naturel|![](/fr-FR/2022/08/202208162200AquarioNatural.jpg)|
 202208172200|SourHerring|Île de Källö-Knippla dans l’archipel de Göteborg, Suède (© Martin Wahlborg/Getty Images)|Gastronomie suédoise|![](/fr-FR/2022/08/202208172200SourHerring.jpg)|
 202208182200|LacMontagnon|Lac du Montagnon, Aydius, Haut-Béarn, Pyrénées Atlantiques, Nouvelle Aquitaine (© thieury/Adobe photo stock)|Un cœur qui se mérite|![](/fr-FR/2022/08/202208182200LacMontagnon.jpg)|
+202208192200|BearProof|Ruches dans la Réserve de biosphère de Muniellos, Asturies, Espagne  (© ABB Photo/Shutterstock)|Bien gardées !|![](/fr-FR/2022/08/202208192200BearProof.jpg)|
