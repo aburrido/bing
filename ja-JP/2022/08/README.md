@@ -20,3 +20,4 @@
 202208171500|SourHerring|ケロ・クニプラ島, スウェーデン  (© Martin Wahlborg/Getty Images)|今日はシュールストレミング解禁日|![](/ja-JP/2022/08/202208171500SourHerring.jpg)|
 ||||![](/ja-JP/2022/08/.jpg)|
 202208181500|PenzancePool|ペンザンス, イギリス コーンウォール (© Murray Bosley Photography/Getty Images)|コーンウォールの海辺の街|![](/ja-JP/2022/08/202208181500PenzancePool.jpg)|
+202208191500|BearProof|ミツバチの巣箱, スペイン アストゥリアス州 (© ABB Photo/Shutterstock)|イベリア半島の養蜂場|![](/ja-JP/2022/08/202208191500BearProof.jpg)|
