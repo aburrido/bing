@@ -21,3 +21,4 @@
 ||||![](/ja-JP/2022/08/.jpg)|
 202208181500|PenzancePool|ペンザンス, イギリス コーンウォール (© Murray Bosley Photography/Getty Images)|コーンウォールの海辺の街|![](/ja-JP/2022/08/202208181500PenzancePool.jpg)|
 202208191500|BearProof|ミツバチの巣箱, スペイン アストゥリアス州 (© ABB Photo/Shutterstock)|イベリア半島の養蜂場|![](/ja-JP/2022/08/202208191500BearProof.jpg)|
+202208201500|CostadaMorte|プラヤ・ラゴ灯台, スペイン (© Carlos Fernandez/Getty Images)|大西洋を守るスペインの灯台|![](/ja-JP/2022/08/202208201500CostadaMorte.jpg)|
