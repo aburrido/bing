@@ -21,3 +21,4 @@
 ||||![](/zh-CN/2022/08/.jpg)|
 202208181600|PenzancePool|康沃尔郡的彭赞斯，英国 (© Murray Bosley Photography/Getty Images)|彭赞斯全景|![](/zh-CN/2022/08/202208181600PenzancePool.jpg)|
 202208191600|BearProof|西班牙阿斯图里亚斯省穆涅略斯自然保护区的蜂箱 (© ABB Photo/Shutterstock)|保护蜜蜂、赞美蜜蜂|![](/zh-CN/2022/08/202208191600BearProof.jpg)|
+202208201600|CostadaMorte|加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)|死亡海岸|![](/zh-CN/2022/08/202208201600CostadaMorte.jpg)|
