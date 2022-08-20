@@ -21,3 +21,4 @@
 202208172200|SourHerring|Die Insel Källö-Knippla im Göteborger Schärengarten, Schweden (© Martin Wahlborg/Getty Images)|Heimat des „am schlimmsten riechenden Essens“?|![](/de-DE/2022/08/202208172200SourHerring.jpg)|
 202208182200|PenzancePool|Penzance in Cornwall, England, Vereinigtes Königreich (© Murray Bosley Photography/Getty Images)|Panoramablick auf Penzance|![](/de-DE/2022/08/202208182200PenzancePool.jpg)|
 202208192200|BearProof|Bienenstöcke im Biosphärenreservat Muniellos, Provinz Asturien, Spanien (© ABB Photo/Shutterstock)|Retten und feiern Sie die Honigbienen|![](/de-DE/2022/08/202208192200BearProof.jpg)|
+202208202200|CostadaMorte|Leuchtturm von Muxía, Costa da Morte, Galicien, Spanien (© Carlos Fernandez/Getty Images)|An der „Todesküste“|![](/de-DE/2022/08/202208202200CostadaMorte.jpg)|
