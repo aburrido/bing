@@ -21,3 +21,4 @@
 202208180700|SourHerring|Island of Källö-Knippla, archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Info|![](/en-AU/2022/08/202208180700SourHerring.jpg)|
 202208190700|PenzancePool|Penzance, Cornwall, England, UK (© Murray Bosley Photography/Getty Images)|Info|![](/en-AU/2022/08/202208190700PenzancePool.jpg)|
 202208200700|BearProof|Muniellos Nature Reserve, Asturias, Spain (© ABB Photo/Shutterstock)|Info|![](/en-AU/2022/08/202208200700BearProof.jpg)|
+202208210700|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2022/08/202208210700CostadaMorte.jpg)|

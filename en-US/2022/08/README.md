@@ -22,3 +22,4 @@
 202208180700|SourHerring|Källö-Knippla, an island in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the world's worst-smelling food?|![](/en-US/2022/08/202208180700SourHerring.jpg)|
 202208190700|SolarImpulse2|Solar Impulse 2 flying over the pyramids in Giza, Egypt (© Jean Revillard/Solar Impulse2 via Getty Images)|A flight to remember|![](/en-US/2022/08/202208190700SolarImpulse2.jpg)|
 202208200700|BearProof|Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)|Saving and celebrating honey bees|![](/en-US/2022/08/202208200700BearProof.jpg)|
+202208210700|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|The Coast of Death|![](/en-US/2022/08/202208210700CostadaMorte.jpg)|
