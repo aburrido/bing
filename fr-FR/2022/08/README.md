@@ -22,3 +22,4 @@
 202208182200|LacMontagnon|Lac du Montagnon, Aydius, Haut-Béarn, Pyrénées Atlantiques, Nouvelle Aquitaine (© thieury/Adobe photo stock)|Un cœur qui se mérite|![](/fr-FR/2022/08/202208182200LacMontagnon.jpg)|
 202208192200|BearProof|Ruches dans la Réserve de biosphère de Muniellos, Asturies, Espagne  (© ABB Photo/Shutterstock)|Bien gardées !|![](/fr-FR/2022/08/202208192200BearProof.jpg)|
 202208202200|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxía, Galice, Espagne (© Carlos Fernandez/Getty Images)|Lumière dans la nuit|![](/fr-FR/2022/08/202208202200CostadaMorte.jpg)|
+202208212200|TenderMoment|Une chouette des terriers et son petit, Floride, États-Unis (© Carlos Carreno/Getty Images)|Squatteuse du monde aviaire|![](/fr-FR/2022/08/202208212200TenderMoment.jpg)|
