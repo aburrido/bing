@@ -20,3 +20,4 @@
 202208180400|SourHerring|Island of Källö-Knippla in the archipelago of Gothenburg, Sweden (© Martin Wahlborg/Getty Images)|Home of the ‘world’s worst smelling food?’|![](/en-CA/2022/08/202208180400SourHerring.jpg)|
 202208190400|SwingEx|The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)|Let’s go to the Ex!|![](/en-CA/2022/08/202208190400SwingEx.jpg)|
 202208200400|BearProof|Beehives in the Muniellos Nature Reserve in the province of Asturias, Spain (© ABB Photo/Shutterstock)|Saving and celebrating honey bees|![](/en-CA/2022/08/202208200400BearProof.jpg)|
+202208210400|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|The Coast of Death|![](/en-CA/2022/08/202208210400CostadaMorte.jpg)|
