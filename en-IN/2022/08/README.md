@@ -22,3 +22,4 @@
 202208191830|BearProof|Beehives in the Muniellos Nature Reserve in the province of Asturias, Spain (© ABB Photo/Shutterstock)|Saving and celebrating honey bees|![](/en-IN/2022/08/202208191830BearProof.jpg)|
 202208201830|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|The Coast of Death|![](/en-IN/2022/08/202208201830CostadaMorte.jpg)|
 202208211830|TenderMoment|A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)|Rebels of the owl world|![](/en-IN/2022/08/202208211830TenderMoment.jpg)|
+202208221830|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|A true symbol of heritage and royalty|![](/en-IN/2022/08/202208221830ChittorgarhFort.jpg)|
