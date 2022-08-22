@@ -23,3 +23,4 @@
 202208192200|BearProof|Ruches dans la Réserve de biosphère de Muniellos, Asturies, Espagne  (© ABB Photo/Shutterstock)|Bien gardées !|![](/fr-FR/2022/08/202208192200BearProof.jpg)|
 202208202200|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxía, Galice, Espagne (© Carlos Fernandez/Getty Images)|Lumière dans la nuit|![](/fr-FR/2022/08/202208202200CostadaMorte.jpg)|
 202208212200|TenderMoment|Une chouette des terriers et son petit, Floride, États-Unis (© Carlos Carreno/Getty Images)|Squatteuse du monde aviaire|![](/fr-FR/2022/08/202208212200TenderMoment.jpg)|
+202208222200|MentonFrance|Menton, Côte d’Azur (© Flavio Foglietta/Getty Images)|La ville du citron|![](/fr-FR/2022/08/202208222200MentonFrance.jpg)|
