@@ -21,3 +21,4 @@
 202208190400|SwingEx|The Swing Tower at CNE, Toronto (© Brett Ida/Shutterstock)|Let’s go to the Ex!|![](/en-CA/2022/08/202208190400SwingEx.jpg)|
 202208200400|BearProof|Beehives in the Muniellos Nature Reserve in the province of Asturias, Spain (© ABB Photo/Shutterstock)|Saving and celebrating honey bees|![](/en-CA/2022/08/202208200400BearProof.jpg)|
 202208210400|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|The Coast of Death|![](/en-CA/2022/08/202208210400CostadaMorte.jpg)|
+202208220400|TenderMoment|A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)|Rebels of the owl world|![](/en-CA/2022/08/202208220400TenderMoment.jpg)|

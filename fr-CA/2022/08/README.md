@@ -22,3 +22,4 @@
 202208190400|SwingEx|Attractions à l’Exposition Nationale Canadienne, Toronto (© Brett Ida/Shutterstock)|Information|![](/fr-CA/2022/08/202208190400SwingEx.jpg)|
 202208200400|BearProof|Ruches dans la réserve naturelle de Muniellos, Asturies, Espagne (© ABB Photo/Shutterstock)|Information|![](/fr-CA/2022/08/202208200400BearProof.jpg)|
 202208210400|CostadaMorte|Phare de Playa Lago, Costa da Morte, Muxia, Galicie, Espagne (© Carlos Fernandez/Getty Images)|Information|![](/fr-CA/2022/08/202208210400CostadaMorte.jpg)|
+202208220400|TenderMoment|Chouette chevêche adulte et bébé, Floride, États-Unis (© Carlos Carreno/Getty Images)|Information|![](/fr-CA/2022/08/202208220400TenderMoment.jpg)|
