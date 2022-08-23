@@ -24,3 +24,4 @@
 202208202200|CostadaMorte|Leuchtturm von Muxía, Costa da Morte, Galicien, Spanien (© Carlos Fernandez/Getty Images)|An der „Todesküste“|![](/de-DE/2022/08/202208202200CostadaMorte.jpg)|
 202208212200|TenderMoment|Kaninchenkäuze im südlichen Florida, USA (© Carlos Carreno/Getty Images)|Rebellen in der Eulenwelt|![](/de-DE/2022/08/202208212200TenderMoment.jpg)|
 202208222200|MentonFrance|Menton, Frankreich (© Flavio Foglietta/Getty Images)|„Die Perle Frankreichs“|![](/de-DE/2022/08/202208222200MentonFrance.jpg)|
+202208232200|WheatField|Weizenfeld in der Ukraine (© Yuriy Kulik/Getty Images)|Bernsteinfarbenes Getreide|![](/de-DE/2022/08/202208232200WheatField.jpg)|

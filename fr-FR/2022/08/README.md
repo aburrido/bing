@@ -24,3 +24,4 @@
 202208202200|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxía, Galice, Espagne (© Carlos Fernandez/Getty Images)|Lumière dans la nuit|![](/fr-FR/2022/08/202208202200CostadaMorte.jpg)|
 202208212200|TenderMoment|Une chouette des terriers et son petit, Floride, États-Unis (© Carlos Carreno/Getty Images)|Squatteuse du monde aviaire|![](/fr-FR/2022/08/202208212200TenderMoment.jpg)|
 202208222200|MentonFrance|Menton, Côte d’Azur (© Flavio Foglietta/Getty Images)|La ville du citron|![](/fr-FR/2022/08/202208222200MentonFrance.jpg)|
+202208232200|WheatField|Champ de blé en Ukraine (© Yuriy Kulik/Getty Images)|Pour la liberté|![](/fr-FR/2022/08/202208232200WheatField.jpg)|
