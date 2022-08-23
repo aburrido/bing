@@ -24,3 +24,4 @@
 202208201600|CostadaMorte|加利西亚省科斯塔达莫尔特的灯塔，西班牙 (© Carlos Fernandez/Getty Images)|死亡海岸|![](/zh-CN/2022/08/202208201600CostadaMorte.jpg)|
 202208211600|TenderMoment|南佛罗里达的一只穴小鸮雏鸟和一只成年穴小鸮，美国 (© Carlos Carreno/Getty Images)|猫头鹰界的叛逆小鸟|![](/zh-CN/2022/08/202208211600TenderMoment.jpg)|
 202208221600|MentonFrance|芒通，法国 (© Flavio Foglietta/Getty Images)|到了芒通，就来点柠檬汁吧|![](/zh-CN/2022/08/202208221600MentonFrance.jpg)|
+202208231600|MarinaDaGloria|格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)|里约热内卢的象征|![](/zh-CN/2022/08/202208231600MarinaDaGloria.jpg)|
