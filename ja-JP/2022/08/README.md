@@ -24,3 +24,4 @@
 202208201500|CostadaMorte|プラヤ・ラゴ灯台, スペイン (© Carlos Fernandez/Getty Images)|大西洋を守るスペインの灯台|![](/ja-JP/2022/08/202208201500CostadaMorte.jpg)|
 202208211500|TenderMoment|アナホリフクロウ, 米国 フロリダ州 (© Carlos Carreno/Getty Images)|フロリダの野鳥|![](/ja-JP/2022/08/202208211500TenderMoment.jpg)|
 202208221500|MentonFrance|マントン, フランス (© Flavio Foglietta/Getty Images)|フランスの真珠、マントン|![](/ja-JP/2022/08/202208221500MentonFrance.jpg)|
+202208231500|WheatField|小麦畑, ウクライナ (© Yuriy Kulik/Getty Images)|今日はウクライナ独立記念日|![](/ja-JP/2022/08/202208231500WheatField.jpg)|
