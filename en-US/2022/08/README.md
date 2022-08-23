@@ -24,3 +24,4 @@
 202208200700|BearProof|Beehives in the Muniellos Nature Reserve, Asturias province, Spain (© ABB Photo/Shutterstock)|Saving and celebrating honey bees|![](/en-US/2022/08/202208200700BearProof.jpg)|
 202208210700|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|The Coast of Death|![](/en-US/2022/08/202208210700CostadaMorte.jpg)|
 202208220700|TenderMoment|A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)|Rebels of the owl world|![](/en-US/2022/08/202208220700TenderMoment.jpg)|
+202208230700|MentonFrance|Menton, France (© Flavio Foglietta/Getty Images)|If given Menton, make lemonade|![](/en-US/2022/08/202208230700MentonFrance.jpg)|
