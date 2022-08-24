@@ -24,3 +24,4 @@
 202208210700|CostadaMorte|Faro de Playa Lago, Costa da Morte, Muxia, Galicia, Spain (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2022/08/202208210700CostadaMorte.jpg)|
 202208220700|TenderMoment|A burrowing owl chick and adult, South Florida, USA (© Carlos Carreno/Getty Images)|Info|![](/en-AU/2022/08/202208220700TenderMoment.jpg)|
 202208230700|MentonFrance|Menton, Cote d’Azur, France (© Flavio Foglietta/Getty Images)|Info|![](/en-AU/2022/08/202208230700MentonFrance.jpg)|
+202208240700|SantaBarbara|Santa Bárbara Waterfall, Cavalcante, Goiás, Brazil (© Rafael Serathiuk/Getty Images)|Info|![](/en-AU/2022/08/202208240700SantaBarbara.jpg)|
