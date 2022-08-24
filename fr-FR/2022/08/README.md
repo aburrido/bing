@@ -25,3 +25,4 @@
 202208212200|TenderMoment|Une chouette des terriers et son petit, Floride, États-Unis (© Carlos Carreno/Getty Images)|Squatteuse du monde aviaire|![](/fr-FR/2022/08/202208212200TenderMoment.jpg)|
 202208222200|MentonFrance|Menton, Côte d’Azur (© Flavio Foglietta/Getty Images)|La ville du citron|![](/fr-FR/2022/08/202208222200MentonFrance.jpg)|
 202208232200|WheatField|Champ de blé en Ukraine (© Yuriy Kulik/Getty Images)|Pour la liberté|![](/fr-FR/2022/08/202208232200WheatField.jpg)|
+202208242200|RockenSeine|Foule lors d’un concert au festival Rock en Seine le 31 août 2015, Domaine national de Saint-Cloud (© Christian Bertrand/Alamy Stock Photo)|Musique maestro !|![](/fr-FR/2022/08/202208242200RockenSeine.jpg)|
