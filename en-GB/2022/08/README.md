@@ -25,3 +25,4 @@
 202208212300|TenderMoment|A burrowing owl chick and adult in Florida, USA (© Carlos Carreno/Getty Images)|Wise guys|![](/en-GB/2022/08/202208212300TenderMoment.jpg)|
 202208222300|MentonFrance|Menton waterfront, Cote d’Azur, France (© Flavio Foglietta/Getty Images)|Gem of the Côte d'Azur|![](/en-GB/2022/08/202208222300MentonFrance.jpg)|
 202208232300|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-GB/2022/08/202208232300WheatField.jpg)|
+202208242300|CascadesNP|North Cascades National Park, Washington, USA (© Ethan Welty/Tandem Stills + Motion)|America’s backyard|![](/en-GB/2022/08/202208242300CascadesNP.jpg)|
