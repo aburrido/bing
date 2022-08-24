@@ -24,3 +24,4 @@
 202208210400|CostadaMorte|Phare de Playa Lago, Costa da Morte, Muxia, Galicie, Espagne (© Carlos Fernandez/Getty Images)|Information|![](/fr-CA/2022/08/202208210400CostadaMorte.jpg)|
 202208220400|TenderMoment|Chouette chevêche adulte et bébé, Floride, États-Unis (© Carlos Carreno/Getty Images)|Information|![](/fr-CA/2022/08/202208220400TenderMoment.jpg)|
 202208230400|MentonFrance|Menton, France (© Flavio Foglietta/Getty Images)|Information|![](/fr-CA/2022/08/202208230400MentonFrance.jpg)|
+202208240400|WheatField|Champs de blé en Ukraine (© Yuriy Kulik/Getty Images)|Information|![](/fr-CA/2022/08/202208240400WheatField.jpg)|
