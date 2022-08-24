@@ -24,3 +24,4 @@
 202208211830|TenderMoment|A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)|Rebels of the owl world|![](/en-IN/2022/08/202208211830TenderMoment.jpg)|
 202208221830|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|A true symbol of heritage and royalty|![](/en-IN/2022/08/202208221830ChittorgarhFort.jpg)|
 202208231830|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-IN/2022/08/202208231830WheatField.jpg)|
+202208241830|CascadesNP|North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)|America’s backyard|![](/en-IN/2022/08/202208241830CascadesNP.jpg)|
