@@ -25,3 +25,4 @@
 202208221830|ChittorgarhFort|Chittorgarh Fort, India (© Anand Purohit/Getty Images)|A true symbol of heritage and royalty|![](/en-IN/2022/08/202208221830ChittorgarhFort.jpg)|
 202208231830|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-IN/2022/08/202208231830WheatField.jpg)|
 202208241830|CascadesNP|North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)|America’s backyard|![](/en-IN/2022/08/202208241830CascadesNP.jpg)|
+202208251830|PeljesacWind|Kitesurfers and windsurfers near the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Combine wind and water, and you’ll get...|![](/en-IN/2022/08/202208251830PeljesacWind.jpg)|
