@@ -24,3 +24,4 @@
 202208220400|TenderMoment|A burrowing owl chick and adult in South Florida (© Carlos Carreno/Getty Images)|Rebels of the owl world|![](/en-CA/2022/08/202208220400TenderMoment.jpg)|
 202208230400|MentonFrance|Menton, France (© Flavio Foglietta/Getty Images)|If given Menton, make lemonade|![](/en-CA/2022/08/202208230400MentonFrance.jpg)|
 202208240400|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-CA/2022/08/202208240400WheatField.jpg)|
+202208250400|PenzancePool|Penzance in Cornwall, England (© Murray Bosley Photography/Getty Images)|The sea pool of Penzance|![](/en-CA/2022/08/202208250400PenzancePool.jpg)|
