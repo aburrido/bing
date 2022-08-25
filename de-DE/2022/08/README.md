@@ -26,3 +26,4 @@
 202208222200|MentonFrance|Menton, Frankreich (© Flavio Foglietta/Getty Images)|„Die Perle Frankreichs“|![](/de-DE/2022/08/202208222200MentonFrance.jpg)|
 202208232200|WheatField|Weizenfeld in der Ukraine (© Yuriy Kulik/Getty Images)|Bernsteinfarbenes Getreide|![](/de-DE/2022/08/202208232200WheatField.jpg)|
 202208242200|KoelnRheinDom|Skyline von Köln im Sonnenuntergang, Nordrhein-Westfalen (© SnapRapid/Offset/Shutterstock)|Eine Stadt im Spielefieber|![](/de-DE/2022/08/202208242200KoelnRheinDom.jpg)|
+202208252200|PeljesacWind|Kitesurfer und Windsurfer in der Nähe der Halbinsel Pelješac, Kroatien (© helivideo/Getty Images)|Die Verbindung von Wind und Wasser|![](/de-DE/2022/08/202208252200PeljesacWind.jpg)|

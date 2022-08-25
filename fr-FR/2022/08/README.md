@@ -26,3 +26,4 @@
 202208222200|MentonFrance|Menton, Côte d’Azur (© Flavio Foglietta/Getty Images)|La ville du citron|![](/fr-FR/2022/08/202208222200MentonFrance.jpg)|
 202208232200|WheatField|Champ de blé en Ukraine (© Yuriy Kulik/Getty Images)|Pour la liberté|![](/fr-FR/2022/08/202208232200WheatField.jpg)|
 202208242200|RockenSeine|Foule lors d’un concert au festival Rock en Seine le 31 août 2015, Domaine national de Saint-Cloud (© Christian Bertrand/Alamy Stock Photo)|Musique maestro !|![](/fr-FR/2022/08/202208242200RockenSeine.jpg)|
+202208252200|PeljesacWind|Kitesurfeurs et windsurfeurs près de la péninsule de Pelješac, Croatie (© helivideo/Getty Images)|L’art de la glisse|![](/fr-FR/2022/08/202208252200PeljesacWind.jpg)|
