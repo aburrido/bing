@@ -26,3 +26,4 @@
 202208222300|MentonFrance|Menton waterfront, Cote d’Azur, France (© Flavio Foglietta/Getty Images)|Gem of the Côte d'Azur|![](/en-GB/2022/08/202208222300MentonFrance.jpg)|
 202208232300|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-GB/2022/08/202208232300WheatField.jpg)|
 202208242300|CascadesNP|North Cascades National Park, Washington, USA (© Ethan Welty/Tandem Stills + Motion)|America’s backyard|![](/en-GB/2022/08/202208242300CascadesNP.jpg)|
+202208252300|PeljesacWind|Kitesurfers and windsurfers near the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Close to the wind|![](/en-GB/2022/08/202208252300PeljesacWind.jpg)|
