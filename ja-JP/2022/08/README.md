@@ -26,3 +26,4 @@
 202208221500|MentonFrance|マントン, フランス (© Flavio Foglietta/Getty Images)|フランスの真珠、マントン|![](/ja-JP/2022/08/202208221500MentonFrance.jpg)|
 202208231500|WheatField|小麦畑, ウクライナ (© Yuriy Kulik/Getty Images)|今日はウクライナ独立記念日|![](/ja-JP/2022/08/202208231500WheatField.jpg)|
 202208241500|CascadesNP|ノース・カスケード国立公園, 米国 ワシントン州 (© Ethan Welty/Tandem Stills + Motion)|ワシントン州の山岳公園|![](/ja-JP/2022/08/202208241500CascadesNP.jpg)|
+202208251500|PeljesacWind|ペリェシャツ半島のカイトサーフィン, クロアチア  (© helivideo/Getty Images)|クロアチアのウィンドサーフィン|![](/ja-JP/2022/08/202208251500PeljesacWind.jpg)|
