@@ -25,3 +25,4 @@
 202208230400|MentonFrance|Menton, France (© Flavio Foglietta/Getty Images)|If given Menton, make lemonade|![](/en-CA/2022/08/202208230400MentonFrance.jpg)|
 202208240400|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-CA/2022/08/202208240400WheatField.jpg)|
 202208250400|PenzancePool|Penzance in Cornwall, England (© Murray Bosley Photography/Getty Images)|The sea pool of Penzance|![](/en-CA/2022/08/202208250400PenzancePool.jpg)|
+202208260400|PeljesacWind|Kitesurfers and windsurfers near the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Add wind, combine with water, and you’ll get...|![](/en-CA/2022/08/202208260400PeljesacWind.jpg)|
