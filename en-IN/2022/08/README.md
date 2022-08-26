@@ -26,3 +26,4 @@
 202208231830|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-IN/2022/08/202208231830WheatField.jpg)|
 202208241830|CascadesNP|North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)|America’s backyard|![](/en-IN/2022/08/202208241830CascadesNP.jpg)|
 202208251830|PeljesacWind|Kitesurfers and windsurfers near the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Combine wind and water, and you’ll get...|![](/en-IN/2022/08/202208251830PeljesacWind.jpg)|
+202208261830|MSHV|Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)|40 years of recovery|![](/en-IN/2022/08/202208261830MSHV.jpg)|
