@@ -27,3 +27,4 @@
 202208231600|MarinaDaGloria|格洛里亚附近的码头和糖面包山，巴西里约热内卢 (© f11photo/Getty Images)|里约热内卢的象征|![](/zh-CN/2022/08/202208231600MarinaDaGloria.jpg)|
 202208241600|CascadesNP|华盛顿州北瀑布国家公园，美国 (© Ethan Welty/Tandem Stills + Motion)|令人惊叹的后花园|![](/zh-CN/2022/08/202208241600CascadesNP.jpg)|
 202208251600|PeljesacWind|克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)|既有风，又有水|![](/zh-CN/2022/08/202208251600PeljesacWind.jpg)|
+202208261600|MSHV|圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)|40年的休养生息|![](/zh-CN/2022/08/202208261600MSHV.jpg)|
