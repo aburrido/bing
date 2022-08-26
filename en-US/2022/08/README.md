@@ -27,3 +27,4 @@
 202208230700|MentonFrance|Menton, France (© Flavio Foglietta/Getty Images)|If given Menton, make lemonade|![](/en-US/2022/08/202208230700MentonFrance.jpg)|
 202208240700|WheatField|Wheat field in Ukraine (© Yuriy Kulik/Getty Images)|Amber waves of grain|![](/en-US/2022/08/202208240700WheatField.jpg)|
 202208250700|CascadesNP|North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)|America's backyard|![](/en-US/2022/08/202208250700CascadesNP.jpg)|
+202208260700|PeljesacWind|Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Add wind, combine with water, and you'll get...|![](/en-US/2022/08/202208260700PeljesacWind.jpg)|
