@@ -27,3 +27,4 @@
 202208240400|WheatField|Champs de blé en Ukraine (© Yuriy Kulik/Getty Images)|Information|![](/fr-CA/2022/08/202208240400WheatField.jpg)|
 202208250400|PenzancePool|Penzance, Cornouailles, Angelterre (© Murray Bosley Photography/Getty Images)|Information|![](/fr-CA/2022/08/202208250400PenzancePool.jpg)|
 202208260400|PeljesacWind|Kitesurfeurs et windsurfers près de la péninsule de Pelješac, Croatie (© helivideo/Getty Images)|Information|![](/fr-CA/2022/08/202208260400PeljesacWind.jpg)|
+202208270400|MSHV|Le Mont Saint Helens, état de Washington, États-Unis (© Don Geyer/Alamy)|Information|![](/fr-CA/2022/08/202208270400MSHV.jpg)|
