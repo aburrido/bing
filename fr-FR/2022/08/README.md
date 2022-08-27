@@ -28,3 +28,4 @@
 202208242200|RockenSeine|Foule lors d’un concert au festival Rock en Seine le 31 août 2015, Domaine national de Saint-Cloud (© Christian Bertrand/Alamy Stock Photo)|Musique maestro !|![](/fr-FR/2022/08/202208242200RockenSeine.jpg)|
 202208252200|PeljesacWind|Kitesurfeurs et windsurfeurs près de la péninsule de Pelješac, Croatie (© helivideo/Getty Images)|L’art de la glisse|![](/fr-FR/2022/08/202208252200PeljesacWind.jpg)|
 202208262200|MSHV|Le Mont Saint Helens, État de Washington, États-Unis (© Don Geyer/Alamy)|Géant endormi|![](/fr-FR/2022/08/202208262200MSHV.jpg)|
+202208272200|BeardedTit|Panures à moustache dans le Flevoland, Pays-Bas (© Gert-Jan IJzerman/Minden Pictures)|Hors de l’eau|![](/fr-FR/2022/08/202208272200BeardedTit.jpg)|
