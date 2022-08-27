@@ -28,3 +28,4 @@
 202208241500|CascadesNP|ノース・カスケード国立公園, 米国 ワシントン州 (© Ethan Welty/Tandem Stills + Motion)|ワシントン州の山岳公園|![](/ja-JP/2022/08/202208241500CascadesNP.jpg)|
 202208251500|PeljesacWind|ペリェシャツ半島のカイトサーフィン, クロアチア  (© helivideo/Getty Images)|クロアチアのウィンドサーフィン|![](/ja-JP/2022/08/202208251500PeljesacWind.jpg)|
 202208261500|MSHV|セント・ヘレンズ国立火山記念公園, 米国 ワシントン州 (© Don Geyer/Alamy)|米国、ワシントン州の国立公園|![](/ja-JP/2022/08/202208261500MSHV.jpg)|
+202208271500|BeardedTit|ヒゲガラ, オランダ フレヴォラント州  (© Gert-Jan IJzerman/Minden Pictures)|オランダの野鳥|![](/ja-JP/2022/08/202208271500BeardedTit.jpg)|
