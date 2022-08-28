@@ -27,3 +27,4 @@
 202208250400|PenzancePool|Penzance in Cornwall, England (© Murray Bosley Photography/Getty Images)|The sea pool of Penzance|![](/en-CA/2022/08/202208250400PenzancePool.jpg)|
 202208260400|PeljesacWind|Kitesurfers and windsurfers near the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Add wind, combine with water, and you’ll get...|![](/en-CA/2022/08/202208260400PeljesacWind.jpg)|
 202208270400|MSHV|Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)|40 years of recovery|![](/en-CA/2022/08/202208270400MSHV.jpg)|
+202208280400|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a moustache than a beard?|![](/en-CA/2022/08/202208280400BeardedTit.jpg)|
