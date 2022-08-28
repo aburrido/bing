@@ -29,3 +29,4 @@
 202208250700|CascadesNP|North Cascades National Park, Washington (© Ethan Welty/Tandem Stills + Motion)|America's backyard|![](/en-US/2022/08/202208250700CascadesNP.jpg)|
 202208260700|PeljesacWind|Kiteboarders and windsurfers off the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Add wind, combine with water, and you'll get...|![](/en-US/2022/08/202208260700PeljesacWind.jpg)|
 202208270700|MSHV|Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)|The recovery continues|![](/en-US/2022/08/202208270700MSHV.jpg)|
+202208280700|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a mustache than a beard?|![](/en-US/2022/08/202208280700BeardedTit.jpg)|

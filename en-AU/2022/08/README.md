@@ -28,3 +28,4 @@
 202208250700|CascadesNP|North Cascades National Park, Washington, USA (© Ethan Welty/Tandem Stills + Motion)|Info|![](/en-AU/2022/08/202208250700CascadesNP.jpg)|
 202208260700|PeljesacWind|Pelješac peninsula, southern Dalmatia, Croatia (© helivideo/Getty Images)|Info|![](/en-AU/2022/08/202208260700PeljesacWind.jpg)|
 202208270700|MSHV|Mount St. Helens National Volcanic Monument, Washington, USA (© Don Geyer/Alamy)|Info|![](/en-AU/2022/08/202208270700MSHV.jpg)|
+202208280700|BeardedTit|Bearded reedlings, Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|Info|![](/en-AU/2022/08/202208280700BeardedTit.jpg)|
