@@ -28,3 +28,4 @@
 202208251830|PeljesacWind|Kitesurfers and windsurfers near the Pelješac Peninsula, Croatia (© helivideo/Getty Images)|Combine wind and water, and you’ll get...|![](/en-IN/2022/08/202208251830PeljesacWind.jpg)|
 202208261830|MSHV|Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)|40 years of recovery|![](/en-IN/2022/08/202208261830MSHV.jpg)|
 202208271830|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a moustache than a beard?|![](/en-IN/2022/08/202208271830BeardedTit.jpg)|
+202208281830|EstoniaBaltic|Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)|The sea that acts like a lake|![](/en-IN/2022/08/202208281830EstoniaBaltic.jpg)|
