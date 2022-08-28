@@ -29,3 +29,4 @@
 202208251600|PeljesacWind|克罗地亚佩列沙茨半岛附近的风筝冲浪者和风帆冲浪者 (© helivideo/Getty Images)|既有风，又有水|![](/zh-CN/2022/08/202208251600PeljesacWind.jpg)|
 202208261600|MSHV|圣海伦斯山国家火山纪念区的边界小径，美国华盛顿州 (© Don Geyer/Alamy)|40年的休养生息|![](/zh-CN/2022/08/202208261600MSHV.jpg)|
 202208271600|BeardedTit|荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)|这鸟长着小胡子|![](/zh-CN/2022/08/202208271600BeardedTit.jpg)|
+202208281600|EstoniaBaltic|爱沙尼亚波罗的海 (© fotoman-kharkov/Getty Images)|像湖一样的大海|![](/zh-CN/2022/08/202208281600EstoniaBaltic.jpg)|
