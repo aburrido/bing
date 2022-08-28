@@ -29,3 +29,4 @@
 202208252200|PeljesacWind|Kitesurfer und Windsurfer in der Nähe der Halbinsel Pelješac, Kroatien (© helivideo/Getty Images)|Die Verbindung von Wind und Wasser|![](/de-DE/2022/08/202208252200PeljesacWind.jpg)|
 202208262200|MSHV|Boundary Trail im Mount St. Helens National Volcanic Monument, Washington, USA (© Don Geyer/Alamy)|40 Jahre Erholung|![](/de-DE/2022/08/202208262200MSHV.jpg)|
 202208272200|EstoniaBaltic|Ostseeküste, Estland (© fotoman-kharkov/Getty Images)|Das Meer, das wie ein See wirkt|![](/de-DE/2022/08/202208272200EstoniaBaltic.jpg)|
+202208282200|HausbooteHamburg|Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)|Wohnen auf dem Wasser|![](/de-DE/2022/08/202208282200HausbooteHamburg.jpg)|
