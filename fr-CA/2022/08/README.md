@@ -29,3 +29,4 @@
 202208260400|PeljesacWind|Kitesurfeurs et windsurfers près de la péninsule de Pelješac, Croatie (© helivideo/Getty Images)|Information|![](/fr-CA/2022/08/202208260400PeljesacWind.jpg)|
 202208270400|MSHV|Le Mont Saint Helens, état de Washington, États-Unis (© Don Geyer/Alamy)|Information|![](/fr-CA/2022/08/202208270400MSHV.jpg)|
 202208280400|BeardedTit|Panures à moustache dans le Flevoland, Pays-Bas (© Gert-Jan IJzerman/Minden Pictures)|Information|![](/fr-CA/2022/08/202208280400BeardedTit.jpg)|
+202208290400|EstoniaBaltic|Mer Baltique en Estonie (© fotoman-kharkov/Getty Images)|Information|![](/fr-CA/2022/08/202208290400EstoniaBaltic.jpg)|
