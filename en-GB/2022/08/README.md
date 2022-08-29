@@ -30,3 +30,4 @@
 202208262300|MSHV|Boundary Trail in Mount St Helens National Volcanic Monument, Washington, USA (© Don Geyer/Alamy)|An explosive history|![](/en-GB/2022/08/202208262300MSHV.jpg)|
 202208272300|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a moustache than a beard?|![](/en-GB/2022/08/202208272300BeardedTit.jpg)|
 202208282300|CarnivalDancer|Mas performers in costume perform at the Notting Hill Carnival, London (© Daniel Berehulak/Getty Images)|It’s party time|![](/en-GB/2022/08/202208282300CarnivalDancer.jpg)|
+202208292300|Migliarino|Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)|Towering trees of Tuscany|![](/en-GB/2022/08/202208292300Migliarino.jpg)|
