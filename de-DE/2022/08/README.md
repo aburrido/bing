@@ -30,3 +30,4 @@
 202208262200|MSHV|Boundary Trail im Mount St. Helens National Volcanic Monument, Washington, USA (© Don Geyer/Alamy)|40 Jahre Erholung|![](/de-DE/2022/08/202208262200MSHV.jpg)|
 202208272200|EstoniaBaltic|Ostseeküste, Estland (© fotoman-kharkov/Getty Images)|Das Meer, das wie ein See wirkt|![](/de-DE/2022/08/202208272200EstoniaBaltic.jpg)|
 202208282200|HausbooteHamburg|Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)|Wohnen auf dem Wasser|![](/de-DE/2022/08/202208282200HausbooteHamburg.jpg)|
+202208292200|Migliarino|Regionalpark Migliarino, San Rossore und Massaciuccoli, Italien (© Stefano Valeri/Alamy)|Pisa bietet mehr als nur schiefe Türme|![](/de-DE/2022/08/202208292200Migliarino.jpg)|
