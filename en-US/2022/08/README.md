@@ -31,3 +31,4 @@
 202208270700|MSHV|Boundary Trail in Mount St. Helens National Volcanic Monument, Washington (© Don Geyer/Alamy)|The recovery continues|![](/en-US/2022/08/202208270700MSHV.jpg)|
 202208280700|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a mustache than a beard?|![](/en-US/2022/08/202208280700BeardedTit.jpg)|
 202208290700|EstoniaBaltic|Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)|The sea that acts like a lake|![](/en-US/2022/08/202208290700EstoniaBaltic.jpg)|
+202208300700|Migliarino|Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)|There's more to Pisa than leaning towers|![](/en-US/2022/08/202208300700Migliarino.jpg)|
