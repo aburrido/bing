@@ -31,3 +31,4 @@
 202208271500|BeardedTit|ヒゲガラ, オランダ フレヴォラント州  (© Gert-Jan IJzerman/Minden Pictures)|オランダの野鳥|![](/ja-JP/2022/08/202208271500BeardedTit.jpg)|
 202208281500|EstoniaBaltic|バルト海, エストニア (© fotoman-kharkov/Getty Images)|エストニアの静かな海|![](/ja-JP/2022/08/202208281500EstoniaBaltic.jpg)|
 202208291500|Migliarino|ミリアリーノ・サンロッソーレ・マッサチウッコリ州立公園, イタリア (© Stefano Valeri/Alamy)|イタリア、ピサの自然公園|![](/ja-JP/2022/08/202208291500Migliarino.jpg)|
+202208301500|WildlifeCrossing|エコダクト, オランダ ウィールデン (© Frans Lemmens/Alamy)|オランダのエコダクト|![](/ja-JP/2022/08/202208301500WildlifeCrossing.jpg)|
