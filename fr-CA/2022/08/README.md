@@ -30,3 +30,4 @@
 202208270400|MSHV|Le Mont Saint Helens, état de Washington, États-Unis (© Don Geyer/Alamy)|Information|![](/fr-CA/2022/08/202208270400MSHV.jpg)|
 202208280400|BeardedTit|Panures à moustache dans le Flevoland, Pays-Bas (© Gert-Jan IJzerman/Minden Pictures)|Information|![](/fr-CA/2022/08/202208280400BeardedTit.jpg)|
 202208290400|EstoniaBaltic|Mer Baltique en Estonie (© fotoman-kharkov/Getty Images)|Information|![](/fr-CA/2022/08/202208290400EstoniaBaltic.jpg)|
+202208300400|Migliarino|Parc régional de Migliarino, San Rossore, Massaciuccoli, Italie  (© Stefano Valeri/Alamy)|Information|![](/fr-CA/2022/08/202208300400Migliarino.jpg)|
