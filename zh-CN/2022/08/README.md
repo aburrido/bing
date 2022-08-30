@@ -31,3 +31,4 @@
 202208271600|BeardedTit|荷兰弗莱福兰湿地的文须雀 (© Gert-Jan IJzerman/Minden Pictures)|这鸟长着小胡子|![](/zh-CN/2022/08/202208271600BeardedTit.jpg)|
 202208281600|EstoniaBaltic|爱沙尼亚波罗的海 (© fotoman-kharkov/Getty Images)|像湖一样的大海|![](/zh-CN/2022/08/202208281600EstoniaBaltic.jpg)|
 202208291600|Migliarino|米利亚里诺自然公园，圣罗索尔，意大利马萨西犹可利 (© Stefano Valeri/Alamy)|比萨不仅有斜塔|![](/zh-CN/2022/08/202208291600Migliarino.jpg)|
+202208301600|BlueLinckia|新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)|漂在海里的蓝色星星|![](/zh-CN/2022/08/202208301600BlueLinckia.jpg)|
