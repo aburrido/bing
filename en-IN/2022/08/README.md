@@ -30,3 +30,4 @@
 202208271830|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a moustache than a beard?|![](/en-IN/2022/08/202208271830BeardedTit.jpg)|
 202208281830|EstoniaBaltic|Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)|The sea that acts like a lake|![](/en-IN/2022/08/202208281830EstoniaBaltic.jpg)|
 202208291830|Migliarino|Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)|There’s more to Pisa than leaning towers|![](/en-IN/2022/08/202208291830Migliarino.jpg)|
+202208301830|GaneshChaturthiIndia|Colourful Ganpati idols for the Ganesha festival (© Deepesh Dongre/iStock/Getty Images Plus)|The lord of all beginnings|![](/en-IN/2022/08/202208301830GaneshChaturthiIndia.jpg)|
