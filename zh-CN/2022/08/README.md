@@ -32,3 +32,4 @@
 202208281600|EstoniaBaltic|爱沙尼亚波罗的海 (© fotoman-kharkov/Getty Images)|像湖一样的大海|![](/zh-CN/2022/08/202208281600EstoniaBaltic.jpg)|
 202208291600|Migliarino|米利亚里诺自然公园，圣罗索尔，意大利马萨西犹可利 (© Stefano Valeri/Alamy)|比萨不仅有斜塔|![](/zh-CN/2022/08/202208291600Migliarino.jpg)|
 202208301600|BlueLinckia|新爱尔兰岛上的蓝指海星，巴布亚新几内亚 (© Jurgen Freund/Minden Pictures)|漂在海里的蓝色星星|![](/zh-CN/2022/08/202208301600BlueLinckia.jpg)|
+202208311600|WildlifeCrossing|维尔登的野生动物通道，荷兰 (© Frans Lemmens/Alamy)|谁在使用这座绿草如茵的桥？|![](/zh-CN/2022/08/202208311600WildlifeCrossing.jpg)|
