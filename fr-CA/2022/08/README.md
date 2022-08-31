@@ -31,3 +31,4 @@
 202208280400|BeardedTit|Panures à moustache dans le Flevoland, Pays-Bas (© Gert-Jan IJzerman/Minden Pictures)|Information|![](/fr-CA/2022/08/202208280400BeardedTit.jpg)|
 202208290400|EstoniaBaltic|Mer Baltique en Estonie (© fotoman-kharkov/Getty Images)|Information|![](/fr-CA/2022/08/202208290400EstoniaBaltic.jpg)|
 202208300400|Migliarino|Parc régional de Migliarino, San Rossore, Massaciuccoli, Italie  (© Stefano Valeri/Alamy)|Information|![](/fr-CA/2022/08/202208300400Migliarino.jpg)|
+202208310400|BlueLinckia|Étoiles de mer Linckias bleues en Nouvelle-Irlande, Papouasie-Nouvelle-Guinée (© Jurgen Freund/Minden Pictures)|Information|![](/fr-CA/2022/08/202208310400BlueLinckia.jpg)|

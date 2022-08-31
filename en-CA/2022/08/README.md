@@ -30,3 +30,4 @@
 202208280400|BeardedTit|Bearded reedlings at a wetland in Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|More of a moustache than a beard?|![](/en-CA/2022/08/202208280400BeardedTit.jpg)|
 202208290400|EstoniaBaltic|Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)|The sea that acts like a lake|![](/en-CA/2022/08/202208290400EstoniaBaltic.jpg)|
 202208300400|Migliarino|Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)|There’s more to Pisa than leaning towers|![](/en-CA/2022/08/202208300400Migliarino.jpg)|
+202208310400|BlueLinckia|Blue linckia sea stars at New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)|How sweet to be a star, floating in the blue.|![](/en-CA/2022/08/202208310400BlueLinckia.jpg)|
