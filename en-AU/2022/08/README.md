@@ -31,3 +31,4 @@
 202208280700|BeardedTit|Bearded reedlings, Flevoland, Netherlands (© Gert-Jan IJzerman/Minden Pictures)|Info|![](/en-AU/2022/08/202208280700BeardedTit.jpg)|
 202208290700|EstoniaBaltic|Baltic Sea, Estonia (© fotoman-kharkov/Getty Images)|Info|![](/en-AU/2022/08/202208290700EstoniaBaltic.jpg)|
 202208300700|Migliarino|Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)|Info|![](/en-AU/2022/08/202208300700Migliarino.jpg)|
+202208310700|BlueLinckia|Blue Linckia sea stars, New Ireland, Papua New Guinea (© Jurgen Freund/Minden Pictures)|Info|![](/en-AU/2022/08/202208310700BlueLinckia.jpg)|
