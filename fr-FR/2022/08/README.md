@@ -32,3 +32,4 @@
 202208282200|EstoniaBaltic|Mer Baltique en Estonie  (© fotoman-kharkov/Getty Images)|Une mer tranquille|![](/fr-FR/2022/08/202208282200EstoniaBaltic.jpg)|
 202208292200|Migliarino|Parc régional de Migliarino, San Rossore, Massaciuccoli, Italie (© Stefano Valeri/Alamy)|Secret d’Italie|![](/fr-FR/2022/08/202208292200Migliarino.jpg)|
 202208302200|BlueLinckia|Étoiles de mer Linckias bleues en Nouvelle-Irlande, Papouasie-Nouvelle-Guinée (© Jurgen Freund/Minden Pictures)|Deux étoiles bleues|![](/fr-FR/2022/08/202208302200BlueLinckia.jpg)|
+202208312200|LearningTime|Clôture en bois en forme de crayons de couleur devant une école de Bretagne (© PeterAprahamian/Getty Images)|C'est reparti pour un tour !|![](/fr-FR/2022/08/202208312200LearningTime.jpg)|

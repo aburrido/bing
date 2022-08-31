@@ -32,3 +32,4 @@
 202208282200|HausbooteHamburg|Hausboote auf dem Eilbekkanal, Hamburg (© Kerstin Bittner/Offset)|Wohnen auf dem Wasser|![](/de-DE/2022/08/202208282200HausbooteHamburg.jpg)|
 202208292200|Migliarino|Regionalpark Migliarino, San Rossore und Massaciuccoli, Italien (© Stefano Valeri/Alamy)|Pisa bietet mehr als nur schiefe Türme|![](/de-DE/2022/08/202208292200Migliarino.jpg)|
 202208302200|BlueLinckia|Blaue Seesterne vor der Insel Neuirland, Papua-Neuguinea (© Jurgen Freund/Minden Pictures)|Blaue Sterne am „Unterwasserhimmel“|![](/de-DE/2022/08/202208302200BlueLinckia.jpg)|
+202208312200|WildlifeCrossing|Grünbrücke in Wierden, Niederlande (© Frans Lemmens/Alamy)|Wer benutzt diese Brücke?|![](/de-DE/2022/08/202208312200WildlifeCrossing.jpg)|
