@@ -32,3 +32,4 @@
 202208282300|CarnivalDancer|Mas performers in costume perform at the Notting Hill Carnival, London (© Daniel Berehulak/Getty Images)|It’s party time|![](/en-GB/2022/08/202208282300CarnivalDancer.jpg)|
 202208292300|Migliarino|Regional Park of Migliarino, San Rossore, Massaciuccoli, Italy (© Stefano Valeri/Alamy)|Towering trees of Tuscany|![](/en-GB/2022/08/202208292300Migliarino.jpg)|
 202208302300|BlueLinckia|Blue linckia sea stars at New Ireland in Papua New Guinea (© Jurgen Freund/Minden Pictures)|How sweet to be a star, floating in the blue.|![](/en-GB/2022/08/202208302300BlueLinckia.jpg)|
+202208312300|WildlifeCrossing|Wildlife crossing in Wierden, Netherlands (© Frans Lemmens/Alamy)|Who uses this grassy bridge?|![](/en-GB/2022/08/202208312300WildlifeCrossing.jpg)|
