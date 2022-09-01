@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202208312200|WildlifeCrossing|Grünbrücke in Wierden, Niederlande (© Frans Lemmens/Alamy)|Wer benutzt diese Brücke?|![](/de-DE/2022/09/202208312200WildlifeCrossing.jpg)|
+202209012200|FernsehturmNah|Nahaufnahme des Berliner Fernsehturms (© Nico Gel/Getty Images)|Deutschlands höchstes Bauwerk|![](/de-DE/2022/09/202209012200FernsehturmNah.jpg)|
