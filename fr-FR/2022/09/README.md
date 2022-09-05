@@ -5,3 +5,4 @@
 202209022200|MalaysiaTwinTowers|Tours Petronas, Kuala Lumpur, Malaisie (© tampatra/Getty Images)|La taille compte|![](/fr-FR/2022/09/202209022200MalaysiaTwinTowers.jpg)|
 202209032200|ArambolBeach|Plage d’Arambol à Goa, Inde (© Ben Pipe/Alamy)|L'autre facette de l'Inde|![](/fr-FR/2022/09/202209032200ArambolBeach.jpg)|
 202209042200|SeitanLimania|Plage de Seitan Limania en Crète, Grèce (© Georgios Tsichlis/Alamy)|Tout petit coin de paradis|![](/fr-FR/2022/09/202209042200SeitanLimania.jpg)|
+202209052200|SquirrelMushroom|Écureuil roux et son champignon (© Michael Quinton/Minden Pictures)|Par ici la bonne soupe|![](/fr-FR/2022/09/202209052200SquirrelMushroom.jpg)|
