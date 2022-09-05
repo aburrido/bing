@@ -4,3 +4,4 @@
 202209020400|SeitanLimania|Plage de Seitan Limania Beach en Crète, Grèce (© Georgios Tsichlis/Alamy)|Information|![](/fr-CA/2022/09/202209020400SeitanLimania.jpg)|
 202209030400|MalaysiaTwinTowers|Tours Petronas, Kuala Lumpur, Malaisie (© tampatra/Getty Images)|Information|![](/fr-CA/2022/09/202209030400MalaysiaTwinTowers.jpg)|
 202209040400|ArambolBeach|Plage d’Arambol à Goa, Inde  (© Ben Pipe/Alamy)|Information|![](/fr-CA/2022/09/202209040400ArambolBeach.jpg)|
+202209050400|TaigaRoad|Route Transtaïga dans le Nord-du-Québec (© Posnov/Getty Images)|Information|![](/fr-CA/2022/09/202209050400TaigaRoad.jpg)|
