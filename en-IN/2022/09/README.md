@@ -5,3 +5,4 @@
 202209021830|MalaysiaTwinTowers|Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)|A pair of high achievers|![](/en-IN/2022/09/202209021830MalaysiaTwinTowers.jpg)|
 202209031830|ArambolBeach|Arambol Beach in Goa, India (© Ben Pipe/Alamy)|The Riviera of India|![](/en-IN/2022/09/202209031830ArambolBeach.jpg)|
 202209041830|TaigaRoad|Trans-Taiga Road in northern Quebec, Canada (© Posnov/Getty Images)|A road not for the faint of heart|![](/en-IN/2022/09/202209041830TaigaRoad.jpg)|
+202209051830|SquirrelMushroom|Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)|A real fun guy…er, squirrel|![](/en-IN/2022/09/202209051830SquirrelMushroom.jpg)|
