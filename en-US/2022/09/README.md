@@ -5,3 +5,4 @@
 202209020700|SeitanLimania|Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)|This magical beach is worth the hike|![](/en-US/2022/09/202209020700SeitanLimania.jpg)|
 202209030700|MalaysiaTwinTowers|Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)|A pair of high achievers|![](/en-US/2022/09/202209030700MalaysiaTwinTowers.jpg)|
 202209040700|ArambolBeach|Arambol Beach in Goa, India (© Ben Pipe/Alamy)|The Riviera of India|![](/en-US/2022/09/202209040700ArambolBeach.jpg)|
+202209050700|GastoniaParade|Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)|Celebrating workers' fights and rights|![](/en-US/2022/09/202209050700GastoniaParade.jpg)|
