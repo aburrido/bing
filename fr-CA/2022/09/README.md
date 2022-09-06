@@ -5,3 +5,4 @@
 202209030400|MalaysiaTwinTowers|Tours Petronas, Kuala Lumpur, Malaisie (© tampatra/Getty Images)|Information|![](/fr-CA/2022/09/202209030400MalaysiaTwinTowers.jpg)|
 202209040400|ArambolBeach|Plage d’Arambol à Goa, Inde  (© Ben Pipe/Alamy)|Information|![](/fr-CA/2022/09/202209040400ArambolBeach.jpg)|
 202209050400|TaigaRoad|Route Transtaïga dans le Nord-du-Québec (© Posnov/Getty Images)|Information|![](/fr-CA/2022/09/202209050400TaigaRoad.jpg)|
+202209060400|EmeraldYoho|Lac Émeraude, parc national de Yoho, Colombie-Britannique (© Cavan Images/Offset)|Information|![](/fr-CA/2022/09/202209060400EmeraldYoho.jpg)|

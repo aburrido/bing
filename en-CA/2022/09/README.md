@@ -5,3 +5,4 @@
 202209030400|MalaysiaTwinTowers|Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)|A pair of high achievers|![](/en-CA/2022/09/202209030400MalaysiaTwinTowers.jpg)|
 202209040400|ArambolBeach|Arambol Beach in Goa, India (© Ben Pipe/Alamy)|The Riviera of India|![](/en-CA/2022/09/202209040400ArambolBeach.jpg)|
 202209050400|TaigaRoad|Trans-Taiga Road in Northern Quebec (© Posnov/Getty Images)|A road not for the faint of heart|![](/en-CA/2022/09/202209050400TaigaRoad.jpg)|
+202209060400|EmeraldYoho|Emerald Lake, Yoho National Park, B.C. (© Cavan Images/Offset)|Immersing in nature|![](/en-CA/2022/09/202209060400EmeraldYoho.jpg)|
