@@ -6,3 +6,4 @@
 202209031500|ArambolBeach|アランボル・ビーチ, インド ゴア (© Ben Pipe/Alamy)|インド、ゴアのビーチリゾート|![](/ja-JP/2022/09/202209031500ArambolBeach.jpg)|
 202209041500|TaigaRoad|トランスタイガロード, カナダ ケベック州 (© Posnov/Getty Images)|カナダのトランスタイガロード|![](/ja-JP/2022/09/202209041500TaigaRoad.jpg)|
 202209051500|SquirrelMushroom|キノコを運ぶアメリカアカリス  (© Michael Quinton/Minden Pictures)|キノコを運ぶアメリカアカリス|![](/ja-JP/2022/09/202209051500SquirrelMushroom.jpg)|
+202209061500|MuseudoAmanha|明日の博物館, ブラジル リオデジャネイロ (© Nido Huebl/Shutterstock)|ブラジル独立 200 周年|![](/ja-JP/2022/09/202209061500MuseudoAmanha.jpg)|
