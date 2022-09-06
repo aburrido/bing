@@ -6,3 +6,4 @@
 202209030700|MalaysiaTwinTowers|Petronas Twin Towers, Kuala Lumpur, Malaysia (© tampatra/Getty Images)|Info|![](/en-AU/2022/09/202209030700MalaysiaTwinTowers.jpg)|
 202209040700|ArambolBeach|Arambol beach, Goa, India (© Ben Pipe/Alamy)|Info|![](/en-AU/2022/09/202209040700ArambolBeach.jpg)|
 202209050700|TaigaRoad|Trans-Taiga Road, Northern Quebec, Canada (© Posnov/Getty Images)|Info|![](/en-AU/2022/09/202209050700TaigaRoad.jpg)|
+202209060700|SquirrelMushroom|Red squirrel, Alaska, USA (© Michael Quinton/Minden Pictures)|Info|![](/en-AU/2022/09/202209060700SquirrelMushroom.jpg)|
