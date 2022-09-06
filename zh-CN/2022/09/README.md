@@ -6,3 +6,4 @@
 202209031600|ArambolBeach|果阿邦的阿兰博尔海滩，印度 (© Ben Pipe/Alamy)|印度的里维埃拉|![](/zh-CN/2022/09/202209031600ArambolBeach.jpg)|
 202209041600|TaigaRoad|北魁北克的公路，加拿大 (© Posnov/Getty Images)|一次偏远的旅途|![](/zh-CN/2022/09/202209041600TaigaRoad.jpg)|
 202209051600|SquirrelMushroom|叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)|一只有趣的小家伙|![](/zh-CN/2022/09/202209051600SquirrelMushroom.jpg)|
+202209061600|TheNeedles|英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)|看起来很锋利的岩石|![](/zh-CN/2022/09/202209061600TheNeedles.jpg)|
