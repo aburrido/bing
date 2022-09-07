@@ -7,3 +7,4 @@
 202209041500|TaigaRoad|トランスタイガロード, カナダ ケベック州 (© Posnov/Getty Images)|カナダのトランスタイガロード|![](/ja-JP/2022/09/202209041500TaigaRoad.jpg)|
 202209051500|SquirrelMushroom|キノコを運ぶアメリカアカリス  (© Michael Quinton/Minden Pictures)|キノコを運ぶアメリカアカリス|![](/ja-JP/2022/09/202209051500SquirrelMushroom.jpg)|
 202209061500|MuseudoAmanha|明日の博物館, ブラジル リオデジャネイロ (© Nido Huebl/Shutterstock)|ブラジル独立 200 周年|![](/ja-JP/2022/09/202209061500MuseudoAmanha.jpg)|
+202209071500|CircumnavigationAnni|メトロポール・パラソル, スペイン セビリア (© LucVi/Shutterstock)|マゼランの世界周航 500 周年|![](/ja-JP/2022/09/202209071500CircumnavigationAnni.jpg)|
