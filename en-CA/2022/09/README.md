@@ -6,3 +6,4 @@
 202209040400|ArambolBeach|Arambol Beach in Goa, India (© Ben Pipe/Alamy)|The Riviera of India|![](/en-CA/2022/09/202209040400ArambolBeach.jpg)|
 202209050400|TaigaRoad|Trans-Taiga Road in Northern Quebec (© Posnov/Getty Images)|A road not for the faint of heart|![](/en-CA/2022/09/202209050400TaigaRoad.jpg)|
 202209060400|EmeraldYoho|Emerald Lake, Yoho National Park, B.C. (© Cavan Images/Offset)|Immersing in nature|![](/en-CA/2022/09/202209060400EmeraldYoho.jpg)|
+202209070400|MuseudoAmanha|Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)|Back to the future|![](/en-CA/2022/09/202209070400MuseudoAmanha.jpg)|

@@ -6,3 +6,4 @@
 202209040400|ArambolBeach|Plage d’Arambol à Goa, Inde  (© Ben Pipe/Alamy)|Information|![](/fr-CA/2022/09/202209040400ArambolBeach.jpg)|
 202209050400|TaigaRoad|Route Transtaïga dans le Nord-du-Québec (© Posnov/Getty Images)|Information|![](/fr-CA/2022/09/202209050400TaigaRoad.jpg)|
 202209060400|EmeraldYoho|Lac Émeraude, parc national de Yoho, Colombie-Britannique (© Cavan Images/Offset)|Information|![](/fr-CA/2022/09/202209060400EmeraldYoho.jpg)|
+202209070400|MuseudoAmanha|Le musée de Demain à Rio de Janeiro, Brésil (© Nido Huebl/Shutterstock)|Information|![](/fr-CA/2022/09/202209070400MuseudoAmanha.jpg)|
