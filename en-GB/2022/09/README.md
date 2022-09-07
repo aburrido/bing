@@ -7,3 +7,4 @@
 202209042300|EstoniaBaltic|Baltic Sea in Estonia (© fotoman-kharkov/Getty Images)|A shallow sea|![](/en-GB/2022/09/202209042300EstoniaBaltic.jpg)|
 202209052300|SeitanLimania|Seitan Limania Beach in Crete, Greece (© Georgios Tsichlis/Alamy)|Turquoise delight|![](/en-GB/2022/09/202209052300SeitanLimania.jpg)|
 202209062300|MuseudoAmanha|Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)|Back to the future|![](/en-GB/2022/09/202209062300MuseudoAmanha.jpg)|
+202209072300|CircumnavigationAnni|View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)|What returned to this city 500 years ago?|![](/en-GB/2022/09/202209072300CircumnavigationAnni.jpg)|
