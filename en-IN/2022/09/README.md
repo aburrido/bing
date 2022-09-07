@@ -7,3 +7,4 @@
 202209041830|TaigaRoad|Trans-Taiga Road in northern Quebec, Canada (© Posnov/Getty Images)|A road not for the faint of heart|![](/en-IN/2022/09/202209041830TaigaRoad.jpg)|
 202209051830|SquirrelMushroom|Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)|A real fun guy…er, squirrel|![](/en-IN/2022/09/202209051830SquirrelMushroom.jpg)|
 202209061830|MuseudoAmanha|Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)|Back to the future|![](/en-IN/2022/09/202209061830MuseudoAmanha.jpg)|
+202209071830|KathakaliDance|Kathakali dancers performing in Kerala, India (© Sunil P.S/Shutterstock)|The festival of joy and happiness|![](/en-IN/2022/09/202209071830KathakaliDance.jpg)|
