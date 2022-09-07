@@ -7,3 +7,4 @@
 202209042200|BrehatIsland|Luftaufnahme der Bréhat-Inseln im Ärmelkanal, Bretagne, Frankreich (© LECLERCQ Olivier/hemis.fr/Alamy)|„Insel der Blumen und der rosa Felsen“|![](/de-DE/2022/09/202209042200BrehatIsland.jpg)|
 202209052200|SquirrelMushroom|Eichhörnchen beim Transport eines Pilzes (© Michael Quinton/Minden Pictures)|Hier kommt das Abendessen!|![](/de-DE/2022/09/202209052200SquirrelMushroom.jpg)|
 202209062200|MuseudoAmanha|Museu do Amanhã (Museum von Morgen), Rio de Janeiro, Brasilien (© Nido Huebl/Shutterstock)|Zurück in die Zukunft|![](/de-DE/2022/09/202209062200MuseudoAmanha.jpg)|
+202209072200|CircumnavigationAnni|Blick vom Metropol Parasol auf Sevilla, Spanien (© LucVi/Shutterstock)|Was kehrte vor 500 Jahren in die Stadt zurück?|![](/de-DE/2022/09/202209072200CircumnavigationAnni.jpg)|
