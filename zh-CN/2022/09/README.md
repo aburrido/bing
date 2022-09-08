@@ -8,3 +8,4 @@
 202209051600|SquirrelMushroom|叼着蘑菇的红松鼠 (© Michael Quinton/Minden Pictures)|一只有趣的小家伙|![](/zh-CN/2022/09/202209051600SquirrelMushroom.jpg)|
 202209061600|TheNeedles|英格兰怀特岛上的尼德尔斯白垩岩石和19世纪的灯塔。 (© CBCK Christine/iStock/Getty Images Plus)|看起来很锋利的岩石|![](/zh-CN/2022/09/202209061600TheNeedles.jpg)|
 202209071600|CircumnavigationAnni|从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)|500年前，是谁回到了这座城市？|![](/zh-CN/2022/09/202209071600CircumnavigationAnni.jpg)|
+202209081600|BHNMBelize|伯利兹堡礁保护区, 伯利兹 (© Tom Till/Alamy)|另一个大堡礁|![](/zh-CN/2022/09/202209081600BHNMBelize.jpg)|
