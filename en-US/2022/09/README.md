@@ -8,3 +8,4 @@
 202209050700|GastoniaParade|Labor Day parade in 1934, Gastonia, North Carolina (© Bettmann/Getty Images)|Celebrating workers' fights and rights|![](/en-US/2022/09/202209050700GastoniaParade.jpg)|
 202209060700|SquirrelMushroom|Red squirrel carrying a mushroom (© Michael Quinton/Minden Pictures)|A real fun guy…er, squirrel|![](/en-US/2022/09/202209060700SquirrelMushroom.jpg)|
 202209070700|MuseudoAmanha|Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)|Back to the future|![](/en-US/2022/09/202209070700MuseudoAmanha.jpg)|
+202209080700|CircumnavigationAnni|View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)|500th anniversary of the world getting smaller|![](/en-US/2022/09/202209080700CircumnavigationAnni.jpg)|
