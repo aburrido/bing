@@ -8,3 +8,4 @@
 202209052200|SquirrelMushroom|Écureuil roux et son champignon (© Michael Quinton/Minden Pictures)|Par ici la bonne soupe|![](/fr-FR/2022/09/202209052200SquirrelMushroom.jpg)|
 202209062200|MuseudoAmanha|Le musée de Demain à Rio de Janeiro, Brésil (© Nido Huebl/Shutterstock)|Le musée de Demain|![](/fr-FR/2022/09/202209062200MuseudoAmanha.jpg)|
 202209072200|CircumnavigationAnni|Vue sur la ville depuis le Metropol Parasol à Séville, Espagne (© LucVi/Shutterstock)|La Terre est ronde|![](/fr-FR/2022/09/202209072200CircumnavigationAnni.jpg)|
+202209082200|BHNMBelize|Parc national de Blue Hole, Belize (© Tom Till/Alamy)|L’autre grande barrière de corail|![](/fr-FR/2022/09/202209082200BHNMBelize.jpg)|
