@@ -8,3 +8,4 @@
 202209051500|SquirrelMushroom|キノコを運ぶアメリカアカリス  (© Michael Quinton/Minden Pictures)|キノコを運ぶアメリカアカリス|![](/ja-JP/2022/09/202209051500SquirrelMushroom.jpg)|
 202209061500|MuseudoAmanha|明日の博物館, ブラジル リオデジャネイロ (© Nido Huebl/Shutterstock)|ブラジル独立 200 周年|![](/ja-JP/2022/09/202209061500MuseudoAmanha.jpg)|
 202209071500|CircumnavigationAnni|メトロポール・パラソル, スペイン セビリア (© LucVi/Shutterstock)|マゼランの世界周航 500 周年|![](/ja-JP/2022/09/202209071500CircumnavigationAnni.jpg)|
+202209081500|BHNMBelize|グレートブルーホール, ベリーズ (© Tom Till/Alamy)|グレートブルーホール|![](/ja-JP/2022/09/202209081500BHNMBelize.jpg)|
