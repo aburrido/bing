@@ -9,3 +9,4 @@
 202209062200|MuseudoAmanha|Museu do Amanhã (Museum von Morgen), Rio de Janeiro, Brasilien (© Nido Huebl/Shutterstock)|Zurück in die Zukunft|![](/de-DE/2022/09/202209062200MuseudoAmanha.jpg)|
 202209072200|CircumnavigationAnni|Blick vom Metropol Parasol auf Sevilla, Spanien (© LucVi/Shutterstock)|Was kehrte vor 500 Jahren in die Stadt zurück?|![](/de-DE/2022/09/202209072200CircumnavigationAnni.jpg)|
 202209082200|BHNMBelize|Bewaldetes Riff, Nationaldenkmal Great Blue Hole, Belize (© Tom Till/Alamy)|Das zweitgrößte Riffsystem der Erde|![](/de-DE/2022/09/202209082200BHNMBelize.jpg)|
+202209092200|KLMidAutumn|Mond-Installation während der Feierlichkeiten zum Mondfest in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Heute wird der Mond gefeiert!|![](/de-DE/2022/09/202209092200KLMidAutumn.jpg)|
