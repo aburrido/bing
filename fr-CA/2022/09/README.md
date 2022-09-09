@@ -8,3 +8,4 @@
 202209060400|EmeraldYoho|Lac Émeraude, parc national de Yoho, Colombie-Britannique (© Cavan Images/Offset)|Information|![](/fr-CA/2022/09/202209060400EmeraldYoho.jpg)|
 202209070400|MuseudoAmanha|Le musée de Demain à Rio de Janeiro, Brésil (© Nido Huebl/Shutterstock)|Information|![](/fr-CA/2022/09/202209070400MuseudoAmanha.jpg)|
 202209080400|CircumnavigationAnni|Le musée de Demain à Rio de Janeiro, Brésil  (© LucVi/Shutterstock)|Information|![](/fr-CA/2022/09/202209080400CircumnavigationAnni.jpg)|
+202209090400|TorontoTIFF|La ville de Toronto et son reflet (© Istvan Kadar Photography/Getty Images)|Information|![](/fr-CA/2022/09/202209090400TorontoTIFF.jpg)|

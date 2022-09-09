@@ -8,3 +8,4 @@
 202209060400|EmeraldYoho|Emerald Lake, Yoho National Park, B.C. (© Cavan Images/Offset)|Immersing in nature|![](/en-CA/2022/09/202209060400EmeraldYoho.jpg)|
 202209070400|MuseudoAmanha|Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)|Back to the future|![](/en-CA/2022/09/202209070400MuseudoAmanha.jpg)|
 202209080400|CircumnavigationAnni|View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)|What returned to this city 500 years ago?|![](/en-CA/2022/09/202209080400CircumnavigationAnni.jpg)|
+202209090400|TorontoTIFF|Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)|Roll out the red carpet|![](/en-CA/2022/09/202209090400TorontoTIFF.jpg)|
