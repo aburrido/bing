@@ -9,3 +9,4 @@
 202209061830|MuseudoAmanha|Museu do Amanhã (Museum of Tomorrow) in Rio de Janeiro, Brazil (© Nido Huebl/Shutterstock)|Back to the future|![](/en-IN/2022/09/202209061830MuseudoAmanha.jpg)|
 202209071830|KathakaliDance|Kathakali dancers performing in Kerala, India (© Sunil P.S/Shutterstock)|The festival of joy and happiness|![](/en-IN/2022/09/202209071830KathakaliDance.jpg)|
 202209081830|BHNMBelize|Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-IN/2022/09/202209081830BHNMBelize.jpg)|
+202209091830|KLMidAutumn|Moon installation during celebrations for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Getting starry-eyed at the moon|![](/en-IN/2022/09/202209091830KLMidAutumn.jpg)|
