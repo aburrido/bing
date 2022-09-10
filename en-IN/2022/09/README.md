@@ -10,3 +10,4 @@
 202209071830|KathakaliDance|Kathakali dancers performing in Kerala, India (© Sunil P.S/Shutterstock)|The festival of joy and happiness|![](/en-IN/2022/09/202209071830KathakaliDance.jpg)|
 202209081830|BHNMBelize|Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-IN/2022/09/202209081830BHNMBelize.jpg)|
 202209091830|KLMidAutumn|Moon installation during celebrations for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Getting starry-eyed at the moon|![](/en-IN/2022/09/202209091830KLMidAutumn.jpg)|
+202209101830|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|God’s Own Country|![](/en-IN/2022/09/202209101830KeralaIndia.jpg)|
