@@ -10,3 +10,4 @@
 202209071600|CircumnavigationAnni|从塞维利亚的都市阳伞俯瞰城市，西班牙 (© LucVi/Shutterstock)|500年前，是谁回到了这座城市？|![](/zh-CN/2022/09/202209071600CircumnavigationAnni.jpg)|
 202209081600|BHNMBelize|伯利兹堡礁保护区, 伯利兹 (© Tom Till/Alamy)|另一个大堡礁|![](/zh-CN/2022/09/202209081600BHNMBelize.jpg)|
 202209091600|MidAutumn2022|中秋之夜, 上海豫园 (© Zyxeos30/Getty images)|海上生明月，天涯共此时|![](/zh-CN/2022/09/202209091600MidAutumn2022.jpg)|
+202209101600|KeralaIndia|在喀拉拉邦河流中行驶的一艘小船，印度 (© Shutterstock)|椰林国|![](/zh-CN/2022/09/202209101600KeralaIndia.jpg)|
