@@ -10,3 +10,4 @@
 202209072300|CircumnavigationAnni|View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)|What returned to this city 500 years ago?|![](/en-GB/2022/09/202209072300CircumnavigationAnni.jpg)|
 202209082300|QueenCoronation|The coronation of Queen Elizabeth II, 2 June 1953 (© Mirrorpix/Alamy)|Queen Elizabeth II (1926–2022)|![](/en-GB/2022/09/202209082300QueenCoronation.jpg)|
 202209092300|BHNMBelize|Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-GB/2022/09/202209092300BHNMBelize.jpg)|
+202209102300|GreatNorthRun|Runners cross the Tyne Bridge during the BUPA Great North Run in Newcastle (© Owen Humphreys – PA Images/Getty Images)|In the running|![](/en-GB/2022/09/202209102300GreatNorthRun.jpg)|
