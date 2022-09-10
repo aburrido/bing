@@ -10,3 +10,4 @@
 202209071500|CircumnavigationAnni|メトロポール・パラソル, スペイン セビリア (© LucVi/Shutterstock)|マゼランの世界周航 500 周年|![](/ja-JP/2022/09/202209071500CircumnavigationAnni.jpg)|
 202209081500|BHNMBelize|グレートブルーホール, ベリーズ (© Tom Till/Alamy)|グレートブルーホール|![](/ja-JP/2022/09/202209081500BHNMBelize.jpg)|
 202209091500|SkyTreeMoon2022|東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)|今日は十五夜|![](/ja-JP/2022/09/202209091500SkyTreeMoon2022.jpg)|
+202209101500|KeralaIndia|運河を進むボート, インド ケーララ州 (© Shutterstock)|バックウォータークルーズ|![](/ja-JP/2022/09/202209101500KeralaIndia.jpg)|
