@@ -10,3 +10,4 @@
 202209072200|CircumnavigationAnni|Blick vom Metropol Parasol auf Sevilla, Spanien (© LucVi/Shutterstock)|Was kehrte vor 500 Jahren in die Stadt zurück?|![](/de-DE/2022/09/202209072200CircumnavigationAnni.jpg)|
 202209082200|BHNMBelize|Bewaldetes Riff, Nationaldenkmal Great Blue Hole, Belize (© Tom Till/Alamy)|Das zweitgrößte Riffsystem der Erde|![](/de-DE/2022/09/202209082200BHNMBelize.jpg)|
 202209092200|KLMidAutumn|Mond-Installation während der Feierlichkeiten zum Mondfest in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Heute wird der Mond gefeiert!|![](/de-DE/2022/09/202209092200KLMidAutumn.jpg)|
+202209102200|AugustusburgBruehl|Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)|Schlossbesichtigung|![](/de-DE/2022/09/202209102200AugustusburgBruehl.jpg)|
