@@ -10,3 +10,4 @@
 202209080400|CircumnavigationAnni|View of the city from the Setas de Sevilla (Metropol Parasol) in Seville, Spain (© LucVi/Shutterstock)|What returned to this city 500 years ago?|![](/en-CA/2022/09/202209080400CircumnavigationAnni.jpg)|
 202209090400|TorontoTIFF|Toronto skyline and its reflection, Toronto (© Istvan Kadar Photography/Getty Images)|Roll out the red carpet|![](/en-CA/2022/09/202209090400TorontoTIFF.jpg)|
 202209100400|KLMidAutumn|Moon installation during celebrations for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Getting starry-eyed at the moon|![](/en-CA/2022/09/202209100400KLMidAutumn.jpg)|
+202209110400|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|God’s Own Country|![](/en-CA/2022/09/202209110400KeralaIndia.jpg)|

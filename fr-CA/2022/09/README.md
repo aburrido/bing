@@ -10,3 +10,4 @@
 202209080400|CircumnavigationAnni|Le musée de Demain à Rio de Janeiro, Brésil  (© LucVi/Shutterstock)|Information|![](/fr-CA/2022/09/202209080400CircumnavigationAnni.jpg)|
 202209090400|TorontoTIFF|La ville de Toronto et son reflet (© Istvan Kadar Photography/Getty Images)|Information|![](/fr-CA/2022/09/202209090400TorontoTIFF.jpg)|
 202209100400|KLMidAutumn|Décoration lunaire pour la fête de la mi-automne, Kuala Lumpur, Malaisie (© Lim Huey Teng/Reuters)|Information|![](/fr-CA/2022/09/202209100400KLMidAutumn.jpg)|
+202209110400|KeralaIndia|Bateau dans le Kerala, Inde (© Ebin Francis/Shutterstock)|Information|![](/fr-CA/2022/09/202209110400KeralaIndia.jpg)|
