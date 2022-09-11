@@ -11,3 +11,4 @@
 202209082200|BHNMBelize|Parc national de Blue Hole, Belize (© Tom Till/Alamy)|L’autre grande barrière de corail|![](/fr-FR/2022/09/202209082200BHNMBelize.jpg)|
 202209092200|KLMidAutumn|Installation artistique représentant la lune pendant la fête de la mi-automne à Kuala Lumpur, Malaisie (© Lim Huey Teng/Reuters)|La lune à l’honneur|![](/fr-FR/2022/09/202209092200KLMidAutumn.jpg)|
 202209102200|LacChesserys|Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)|Là où l’air est le plus pur|![](/fr-FR/2022/09/202209102200LacChesserys.jpg)|
+202209112200|Aracari|Araçari à oreillons roux dans la région du Pantanal au Brésil (© Ana Gram/Shutterstock)|Comme un toucan|![](/fr-FR/2022/09/202209112200Aracari.jpg)|
