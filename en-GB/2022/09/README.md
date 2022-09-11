@@ -11,3 +11,4 @@
 202209082300|QueenCoronation|The coronation of Queen Elizabeth II, 2 June 1953 (© Mirrorpix/Alamy)|Queen Elizabeth II (1926–2022)|![](/en-GB/2022/09/202209082300QueenCoronation.jpg)|
 202209092300|BHNMBelize|Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-GB/2022/09/202209092300BHNMBelize.jpg)|
 202209102300|GreatNorthRun|Runners cross the Tyne Bridge during the BUPA Great North Run in Newcastle (© Owen Humphreys – PA Images/Getty Images)|In the running|![](/en-GB/2022/09/202209102300GreatNorthRun.jpg)|
+202209112300|Aracari|Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)|A different kind of toucan|![](/en-GB/2022/09/202209112300Aracari.jpg)|
