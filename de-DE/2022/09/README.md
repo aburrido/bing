@@ -12,3 +12,4 @@
 202209092200|KLMidAutumn|Mond-Installation während der Feierlichkeiten zum Mondfest in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Heute wird der Mond gefeiert!|![](/de-DE/2022/09/202209092200KLMidAutumn.jpg)|
 202209102200|AugustusburgBruehl|Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)|Schlossbesichtigung|![](/de-DE/2022/09/202209102200AugustusburgBruehl.jpg)|
 202209112200|Aracari|Braunohrarassari im Pantanal, Brasilien (© Ana Gram/Shutterstock)|Ein Tukan der etwas anderen Art|![](/de-DE/2022/09/202209112200Aracari.jpg)|
+202209122200|GSDNPest|Great-Sand-Dunes-Nationalpark, Colorado, USA (© Y Paudel/Getty Images)|Wie Sand im Stundenglas|![](/de-DE/2022/09/202209122200GSDNPest.jpg)|
