@@ -12,3 +12,4 @@
 202209091500|SkyTreeMoon2022|東京スカイツリー, 東京 墨田区 (© Krzysztof Baranowski/Getty Images)|今日は十五夜|![](/ja-JP/2022/09/202209091500SkyTreeMoon2022.jpg)|
 202209101500|KeralaIndia|運河を進むボート, インド ケーララ州 (© Shutterstock)|バックウォータークルーズ|![](/ja-JP/2022/09/202209101500KeralaIndia.jpg)|
 202209111500|SpaceDay2022|H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)|今日は宇宙の日|![](/ja-JP/2022/09/202209111500SpaceDay2022.jpg)|
+202209121500|Aracari|パンタナル自然保護区域の栗耳アラカリ, ブラジル (© Ana Gram/Shutterstock)|生物の楽園パンタナル|![](/ja-JP/2022/09/202209121500Aracari.jpg)|
