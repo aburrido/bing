@@ -12,3 +12,4 @@
 202209090700|BHNMBelize|Lighthouse Reef, Blue Hole Natural Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-US/2022/09/202209090700BHNMBelize.jpg)|
 202209100700|KLMidAutumn|Moon installation for the Mid-Autumn Festival in Kuala Lumpur, Malaysia (© Lim Huey Teng/Reuters)|Looking starry-eyed at the moon|![](/en-US/2022/09/202209100700KLMidAutumn.jpg)|
 202209110700|SOLHalfStaff|Statue of Liberty seen behind US flags at half-staff for the anniversary of September 11 in 2014, New York City (© Adam Parent/Shutterstock)|America remembers|![](/en-US/2022/09/202209110700SOLHalfStaff.jpg)|
+202209120700|Aracari|Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)|A different kind of toucan|![](/en-US/2022/09/202209120700Aracari.jpg)|
