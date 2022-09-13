@@ -13,3 +13,4 @@
 202209102300|GreatNorthRun|Runners cross the Tyne Bridge during the BUPA Great North Run in Newcastle (© Owen Humphreys – PA Images/Getty Images)|In the running|![](/en-GB/2022/09/202209102300GreatNorthRun.jpg)|
 202209112300|Aracari|Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)|A different kind of toucan|![](/en-GB/2022/09/202209112300Aracari.jpg)|
 202209122300|GSDNPest|Great Sand Dunes National Park and Preserve, Colorado, USA (© Y Paudel/Getty Images)|Mountains of sand|![](/en-GB/2022/09/202209122300GSDNPest.jpg)|
+202209132300|MarbleCanyon|Marble Canyon bridges over the Colorado River, Arizona, USA (© trekandshoot/Alamy)|So good, they built it twice|![](/en-GB/2022/09/202209132300MarbleCanyon.jpg)|
