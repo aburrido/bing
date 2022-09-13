@@ -13,3 +13,4 @@
 202209102200|LacChesserys|Massif du Mont Blanc au coucher du soleil se reflétant sur l’un des lacs de Chéserys, Chamonix, France (© Stefan Huwiler/imageBROKER/Alamy)|Là où l’air est le plus pur|![](/fr-FR/2022/09/202209102200LacChesserys.jpg)|
 202209112200|Aracari|Araçari à oreillons roux dans la région du Pantanal au Brésil (© Ana Gram/Shutterstock)|Comme un toucan|![](/fr-FR/2022/09/202209112200Aracari.jpg)|
 202209122200|GSDNPest|Parc national et réserve des Great Sand Dunes, Colorado, USA (© Y Paudel/Getty Images)|Mer de sable|![](/fr-FR/2022/09/202209122200GSDNPest.jpg)|
+202209132200|MarbleCanyon|Les ponts de Marble Canyon au-dessus du Colorado, la Glen Canyon National Recreation Area dans le nord Arizona, USA (© trekandshoot/Alamy)|Pas de problème pour traverser|![](/fr-FR/2022/09/202209132200MarbleCanyon.jpg)|

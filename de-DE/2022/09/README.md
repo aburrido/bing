@@ -13,3 +13,4 @@
 202209102200|AugustusburgBruehl|Treppenhaus im Schloss Augustusburg, Brühl, Nordrhein-Westfalen (© Florian Monheim/age fotostock)|Schlossbesichtigung|![](/de-DE/2022/09/202209102200AugustusburgBruehl.jpg)|
 202209112200|Aracari|Braunohrarassari im Pantanal, Brasilien (© Ana Gram/Shutterstock)|Ein Tukan der etwas anderen Art|![](/de-DE/2022/09/202209112200Aracari.jpg)|
 202209122200|GSDNPest|Great-Sand-Dunes-Nationalpark, Colorado, USA (© Y Paudel/Getty Images)|Wie Sand im Stundenglas|![](/de-DE/2022/09/202209122200GSDNPest.jpg)|
+202209132200|MarbleCanyon|Navajo-Brücke über den Marble Canyon in der Glen Canyon National Recreation Area, Arizona, USA (© trekandshoot/Alamy)|Wieso gibt es hier zwei Brücken?|![](/de-DE/2022/09/202209132200MarbleCanyon.jpg)|
