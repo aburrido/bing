@@ -14,3 +14,4 @@
 202209111500|SpaceDay2022|H-IIB ロケット打ち上げ, 鹿児島 (© The Asahi Shimbun/Getty Images)|今日は宇宙の日|![](/ja-JP/2022/09/202209111500SpaceDay2022.jpg)|
 202209121500|Aracari|パンタナル自然保護区域の栗耳アラカリ, ブラジル (© Ana Gram/Shutterstock)|生物の楽園パンタナル|![](/ja-JP/2022/09/202209121500Aracari.jpg)|
 202209131500|MarbleCanyon|マーブルキャニオンのナバホ橋, 米国 アリゾナ州 (© trekandshoot/Alamy)|ナバホ橋|![](/ja-JP/2022/09/202209131500MarbleCanyon.jpg)|
+202209141500|SanMartinoVillage|カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)|カステルメッツァーノ|![](/ja-JP/2022/09/202209141500SanMartinoVillage.jpg)|
