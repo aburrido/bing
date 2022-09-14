@@ -13,3 +13,4 @@
 202209110400|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|God’s Own Country|![](/en-CA/2022/09/202209110400KeralaIndia.jpg)|
 202209120400|Aracari|Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)|A different kind of toucan|![](/en-CA/2022/09/202209120400Aracari.jpg)|
 202209130400|BHNMBelize|Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-CA/2022/09/202209130400BHNMBelize.jpg)|
+202209140400|MarbleCanyon|Marble Canyon bridges over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-CA/2022/09/202209140400MarbleCanyon.jpg)|

@@ -13,3 +13,4 @@
 202209110400|KeralaIndia|Bateau dans le Kerala, Inde (© Ebin Francis/Shutterstock)|Information|![](/fr-CA/2022/09/202209110400KeralaIndia.jpg)|
 202209120400|Aracari|Acaraçari à oreillons roux dans la region du Pantanal, Brésil (© Ana Gram/Shutterstock)|Information|![](/fr-CA/2022/09/202209120400Aracari.jpg)|
 202209130400|BHNMBelize|Récif près du Grand Trou Bleu, Belize (© Tom Till/Alamy)|Information|![](/fr-CA/2022/09/202209130400BHNMBelize.jpg)|
+202209140400|MarbleCanyon|Marble Canyon, Glen Canyon National Recreation Area, Arizona, États-Unis (© trekandshoot/Alamy)|Information|![](/fr-CA/2022/09/202209140400MarbleCanyon.jpg)|
