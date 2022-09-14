@@ -14,3 +14,4 @@
 202209111600|Aracari|栗耳簇舌巨嘴鸟，巴西潘塔纳尔保护区里 (© Ana Gram/Shutterstock)|一种巨嘴鸟|![](/zh-CN/2022/09/202209111600Aracari.jpg)|
 202209121600|GSDNPest|大沙丘国家公园和保护区，美国科罗拉多州 (© Y Paudel/Getty Images)|如沙漏中的沙子一般|![](/zh-CN/2022/09/202209121600GSDNPest.jpg)|
 202209131600|MarbleCanyon|大理石峡谷中横跨科罗拉多河的纳瓦霍桥，美国亚利桑那州北部  (© trekandshoot/Alamy)|横跨峡谷裂缝的两座桥|![](/zh-CN/2022/09/202209131600MarbleCanyon.jpg)|
+202209141600|PyreneesPark|罗兰豁口上空的银河，法国上比利牛斯省 (© SPANI Arnaud/Alamy)|从天而降的魔法|![](/zh-CN/2022/09/202209141600PyreneesPark.jpg)|
