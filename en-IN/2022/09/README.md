@@ -14,3 +14,4 @@
 202209111830|Aracari|Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)|A different kind of toucan|![](/en-IN/2022/09/202209111830Aracari.jpg)|
 202209121830|GSDNPest|Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)|Like sands through the hourglass|![](/en-IN/2022/09/202209121830GSDNPest.jpg)|
 202209131830|NalandaUniversity|Ruins of the ancient university of Nalanda in Bihar, India (© Olaf Schubert/imageBROKER/Alamy Stock Photo)|The ancient ruins of Nalanda|![](/en-IN/2022/09/202209131830NalandaUniversity.jpg)|
+202209141830|MarbleCanyon|Marble Canyon bridges over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-IN/2022/09/202209141830MarbleCanyon.jpg)|
