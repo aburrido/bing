@@ -14,3 +14,4 @@
 202209110700|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|Info|![](/en-AU/2022/09/202209110700KeralaIndia.jpg)|
 202209120700|Aracari|Chestnut-eared aracari, Pantanal region, Brazil (© Ana Gram/Shutterstock)|Info|![](/en-AU/2022/09/202209120700Aracari.jpg)|
 202209130700|GSDNPest|Great Sand Dunes National Park and Preserve, Colorado, USA (© Y Paudel/Getty Images)|Info|![](/en-AU/2022/09/202209130700GSDNPest.jpg)|
+202209140700|MarbleCanyon|Marble Canyon, Colorado River, Glen Canyon National Recreation Area, northern Arizona, USA (© trekandshoot/Alamy)|Info|![](/en-AU/2022/09/202209140700MarbleCanyon.jpg)|
