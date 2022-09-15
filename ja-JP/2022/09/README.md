@@ -15,3 +15,4 @@
 202209121500|Aracari|パンタナル自然保護区域の栗耳アラカリ, ブラジル (© Ana Gram/Shutterstock)|生物の楽園パンタナル|![](/ja-JP/2022/09/202209121500Aracari.jpg)|
 202209131500|MarbleCanyon|マーブルキャニオンのナバホ橋, 米国 アリゾナ州 (© trekandshoot/Alamy)|ナバホ橋|![](/ja-JP/2022/09/202209131500MarbleCanyon.jpg)|
 202209141500|SanMartinoVillage|カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)|カステルメッツァーノ|![](/ja-JP/2022/09/202209141500SanMartinoVillage.jpg)|
+202209151500|PyreneesPark|ローランの裂け目と天の川, フランス オート＝ピレネー県 (© SPANI Arnaud/Alamy)|ローランの裂け目|![](/ja-JP/2022/09/202209151500PyreneesPark.jpg)|
