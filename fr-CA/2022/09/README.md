@@ -14,3 +14,4 @@
 202209120400|Aracari|Acaraçari à oreillons roux dans la region du Pantanal, Brésil (© Ana Gram/Shutterstock)|Information|![](/fr-CA/2022/09/202209120400Aracari.jpg)|
 202209130400|BHNMBelize|Récif près du Grand Trou Bleu, Belize (© Tom Till/Alamy)|Information|![](/fr-CA/2022/09/202209130400BHNMBelize.jpg)|
 202209140400|MarbleCanyon|Marble Canyon, Glen Canyon National Recreation Area, Arizona, États-Unis (© trekandshoot/Alamy)|Information|![](/fr-CA/2022/09/202209140400MarbleCanyon.jpg)|
+202209150400|JohnstonWater|Cours d’eau dans le Parc national de Banff, Alberta (© Jason Hatfield/TANDEM Stills + Motion)|Information|![](/fr-CA/2022/09/202209150400JohnstonWater.jpg)|

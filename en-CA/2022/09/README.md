@@ -14,3 +14,4 @@
 202209120400|Aracari|Chestnut-eared aracari in the Pantanal region of Brazil (© Ana Gram/Shutterstock)|A different kind of toucan|![](/en-CA/2022/09/202209120400Aracari.jpg)|
 202209130400|BHNMBelize|Forested reef, Blue Hole National Monument, Belize (© Tom Till/Alamy)|The other great barrier reef|![](/en-CA/2022/09/202209130400BHNMBelize.jpg)|
 202209140400|MarbleCanyon|Marble Canyon bridges over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-CA/2022/09/202209140400MarbleCanyon.jpg)|
+202209150400|JohnstonWater|Water flows through Johnston Canyon in Banff National Park (© Jason Hatfield/TANDEM Stills + Motion)|A gem in the Rockies|![](/en-CA/2022/09/202209150400JohnstonWater.jpg)|
