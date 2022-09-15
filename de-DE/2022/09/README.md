@@ -15,3 +15,4 @@
 202209122200|GSDNPest|Great-Sand-Dunes-Nationalpark, Colorado, USA (© Y Paudel/Getty Images)|Wie Sand im Stundenglas|![](/de-DE/2022/09/202209122200GSDNPest.jpg)|
 202209132200|MarbleCanyon|Navajo-Brücke über den Marble Canyon in der Glen Canyon National Recreation Area, Arizona, USA (© trekandshoot/Alamy)|Wieso gibt es hier zwei Brücken?|![](/de-DE/2022/09/202209132200MarbleCanyon.jpg)|
 202209142200|PyreneesPark|Die Milchstraße über der Brèche de Roland, Cirque de Gavarnie, Hautes-Pyrénées, Frankreich (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)|Magischer Nachthimmel|![](/de-DE/2022/09/202209142200PyreneesPark.jpg)|
+202209152200|PianePuma|Puma im Nationalpark Torres del Paine, Patagonien, Chile (© Ingo Arndt/Minden Pictures)|Leichtfüßig und unauffällig|![](/de-DE/2022/09/202209152200PianePuma.jpg)|

@@ -15,3 +15,4 @@
 202209122200|GSDNPest|Parc national et réserve des Great Sand Dunes, Colorado, USA (© Y Paudel/Getty Images)|Mer de sable|![](/fr-FR/2022/09/202209122200GSDNPest.jpg)|
 202209132200|MarbleCanyon|Les ponts de Marble Canyon au-dessus du Colorado, la Glen Canyon National Recreation Area dans le nord Arizona, USA (© trekandshoot/Alamy)|Pas de problème pour traverser|![](/fr-FR/2022/09/202209132200MarbleCanyon.jpg)|
 202209142200|PyreneesPark|La voie lactée derrière la brèche de Roland, Cirque de Gavarnie, Hautes-Pyrénées, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)|Magie tombée du ciel|![](/fr-FR/2022/09/202209142200PyreneesPark.jpg)|
+202209152200|PianePuma|Puma dans le parc national Torres del Paine, Patagonie, Chili (© Ingo Arndt/Minden Pictures)|Miaou !|![](/fr-FR/2022/09/202209152200PianePuma.jpg)|
