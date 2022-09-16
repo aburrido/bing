@@ -16,3 +16,4 @@
 202209132300|MarbleCanyon|Marble Canyon bridges over the Colorado River, Arizona, USA (© trekandshoot/Alamy)|So good, they built it twice|![](/en-GB/2022/09/202209132300MarbleCanyon.jpg)|
 202209142300|PyreneesPark|Roland's Breach in the Pyrenees, France (© SPANI Arnaud/Alamy)|Into the breach|![](/en-GB/2022/09/202209142300PyreneesPark.jpg)|
 202209152300|AmazonianEcuador|Yasuní National Park in Amazonian Ecuador (© Paul Bertner/Minden Pictures)|Mists over the Amazon|![](/en-GB/2022/09/202209152300AmazonianEcuador.jpg)|
+202209162300|AquarioNatural|Underwater river scene with freshwater plants and tetra fish, Aquário Natural, Rio Baia Bonito, Mato Grosso do Sul, Brazil (© Michel Roggo/Minden Pictures)|Crystal clear|![](/en-GB/2022/09/202209162300AquarioNatural.jpg)|
