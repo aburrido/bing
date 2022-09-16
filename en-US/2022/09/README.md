@@ -16,3 +16,4 @@
 202209130700|GSDNPest|Great Sand Dunes National Park and Preserve, Colorado (© Y Paudel/Getty Images)|Like sands through the hourglass|![](/en-US/2022/09/202209130700GSDNPest.jpg)|
 202209140700|MarbleCanyon|Navajo Bridge over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-US/2022/09/202209140700MarbleCanyon.jpg)|
 202209150700|BuffaloMural|Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)|Celebrating Hispanic Heritage Month|![](/en-US/2022/09/202209150700BuffaloMural.jpg)|
+202209160700|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-US/2022/09/202209160700PianePuma.jpg)|
