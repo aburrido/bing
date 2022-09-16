@@ -16,3 +16,4 @@
 202209131830|NalandaUniversity|Ruins of the ancient university of Nalanda in Bihar, India (© Olaf Schubert/imageBROKER/Alamy Stock Photo)|The ancient ruins of Nalanda|![](/en-IN/2022/09/202209131830NalandaUniversity.jpg)|
 202209141830|MarbleCanyon|Marble Canyon bridges over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-IN/2022/09/202209141830MarbleCanyon.jpg)|
 202209151830|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-IN/2022/09/202209151830PianePuma.jpg)|
+202209161830|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-IN/2022/09/202209161830Wellenflug.jpg)|
