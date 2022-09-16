@@ -16,3 +16,4 @@
 202209131500|MarbleCanyon|マーブルキャニオンのナバホ橋, 米国 アリゾナ州 (© trekandshoot/Alamy)|ナバホ橋|![](/ja-JP/2022/09/202209131500MarbleCanyon.jpg)|
 202209141500|SanMartinoVillage|カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)|カステルメッツァーノ|![](/ja-JP/2022/09/202209141500SanMartinoVillage.jpg)|
 202209151500|PyreneesPark|ローランの裂け目と天の川, フランス オート＝ピレネー県 (© SPANI Arnaud/Alamy)|ローランの裂け目|![](/ja-JP/2022/09/202209151500PyreneesPark.jpg)|
+202209161500|Wellenflug|オクトーバーフェスト, ドイツ ミュンヘン (© Karl-Josef Hildenbrand/Getty Images)|ドイツのオクトーバーフェスト|![](/ja-JP/2022/09/202209161500Wellenflug.jpg)|
