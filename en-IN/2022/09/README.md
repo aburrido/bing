@@ -17,3 +17,4 @@
 202209141830|MarbleCanyon|Marble Canyon bridges over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-IN/2022/09/202209141830MarbleCanyon.jpg)|
 202209151830|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-IN/2022/09/202209151830PianePuma.jpg)|
 202209161830|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-IN/2022/09/202209161830Wellenflug.jpg)|
+202209171830|ArashiyamaBamboo|Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|A grove glows green|![](/en-IN/2022/09/202209171830ArashiyamaBamboo.jpg)|
