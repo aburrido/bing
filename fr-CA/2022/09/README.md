@@ -16,3 +16,4 @@
 202209140400|MarbleCanyon|Marble Canyon, Glen Canyon National Recreation Area, Arizona, États-Unis (© trekandshoot/Alamy)|Information|![](/fr-CA/2022/09/202209140400MarbleCanyon.jpg)|
 202209150400|JohnstonWater|Cours d’eau dans le Parc national de Banff, Alberta (© Jason Hatfield/TANDEM Stills + Motion)|Information|![](/fr-CA/2022/09/202209150400JohnstonWater.jpg)|
 202209160400|PianePuma|Puma dans le Parc national Torres del Paine, Patagonie, Chili (© Ingo Arndt/Minden Pictures)|Information|![](/fr-CA/2022/09/202209160400PianePuma.jpg)|
+202209170400|Wellenflug|Visiteurs à l’Oktoberfest, Munich, Allemagne (© Karl-Josef Hildenbrand/Getty Images)|Information|![](/fr-CA/2022/09/202209170400Wellenflug.jpg)|

@@ -16,3 +16,4 @@
 202209140400|MarbleCanyon|Marble Canyon bridges over the Colorado River at the Glen Canyon National Recreation Area in northern Arizona (© trekandshoot/Alamy)|Bridging the gap two ways|![](/en-CA/2022/09/202209140400MarbleCanyon.jpg)|
 202209150400|JohnstonWater|Water flows through Johnston Canyon in Banff National Park (© Jason Hatfield/TANDEM Stills + Motion)|A gem in the Rockies|![](/en-CA/2022/09/202209150400JohnstonWater.jpg)|
 202209160400|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-CA/2022/09/202209160400PianePuma.jpg)|
+202209170400|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-CA/2022/09/202209170400Wellenflug.jpg)|
