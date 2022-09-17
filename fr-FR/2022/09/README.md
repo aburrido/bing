@@ -17,3 +17,4 @@
 202209142200|PyreneesPark|La voie lactée derrière la brèche de Roland, Cirque de Gavarnie, Hautes-Pyrénées, France (© SPANI Arnaud/hemis.fr/Alamy Stock Photo)|Magie tombée du ciel|![](/fr-FR/2022/09/202209142200PyreneesPark.jpg)|
 202209152200|PianePuma|Puma dans le parc national Torres del Paine, Patagonie, Chili (© Ingo Arndt/Minden Pictures)|Miaou !|![](/fr-FR/2022/09/202209152200PianePuma.jpg)|
 202209162200|Wellenflug|Festivaliers de l’Oktoberfest à Munich, Allemagne (© Karl-Josef Hildenbrand/Getty Images)|Bien arrosé !|![](/fr-FR/2022/09/202209162200Wellenflug.jpg)|
+202209172200|ArashiyamaBamboo|Sentier dans la bambouseraie d'Arashiyama, Kyoto, Japan (© Razvan Ciuca/Getty Images)|Forêt d’herbes|![](/fr-FR/2022/09/202209172200ArashiyamaBamboo.jpg)|
