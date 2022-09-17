@@ -17,3 +17,4 @@
 202209141500|SanMartinoVillage|カステルメッツァーノ, イタリア バシリカータ州 (© Roberto Moiola/Getty Images)|カステルメッツァーノ|![](/ja-JP/2022/09/202209141500SanMartinoVillage.jpg)|
 202209151500|PyreneesPark|ローランの裂け目と天の川, フランス オート＝ピレネー県 (© SPANI Arnaud/Alamy)|ローランの裂け目|![](/ja-JP/2022/09/202209151500PyreneesPark.jpg)|
 202209161500|Wellenflug|オクトーバーフェスト, ドイツ ミュンヘン (© Karl-Josef Hildenbrand/Getty Images)|ドイツのオクトーバーフェスト|![](/ja-JP/2022/09/202209161500Wellenflug.jpg)|
+202209171500|ArashiyamaBamboo|竹林の小径, 京都 嵐山 (© Razvan Ciuca/Getty Images)|今日は世界竹の日|![](/ja-JP/2022/09/202209171500ArashiyamaBamboo.jpg)|
