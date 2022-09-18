@@ -18,3 +18,4 @@
 202209150700|PyreneesPark|Milky Way behind Roland's Breach in the Pyrenees, Hautes-Pyrénées, France (© SPANI Arnaud/Alamy)|Info|![](/en-AU/2022/09/202209150700PyreneesPark.jpg)|
 202209160700|PianePuma|Puma, Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Info|![](/en-AU/2022/09/202209160700PianePuma.jpg)|
 202209170700|BlackpoolBeach|Blackpool Tower and Central Pier, Lancashire, England (© Bailey-Cooper Photography/Alamy)|Info|![](/en-AU/2022/09/202209170700BlackpoolBeach.jpg)|
+202209180700|ArashiyamaBamboo|Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|Info|![](/en-AU/2022/09/202209180700ArashiyamaBamboo.jpg)|

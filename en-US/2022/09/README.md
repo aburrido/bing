@@ -18,3 +18,4 @@
 202209150700|BuffaloMural|Mural by Betsy Casañas in Buffalo, New York (© Tom Loonan)|Celebrating Hispanic Heritage Month|![](/en-US/2022/09/202209150700BuffaloMural.jpg)|
 202209160700|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-US/2022/09/202209160700PianePuma.jpg)|
 202209170700|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-US/2022/09/202209170700Wellenflug.jpg)|
+202209180700|ArashiyamaBamboo|Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|A grove glows green|![](/en-US/2022/09/202209180700ArashiyamaBamboo.jpg)|
