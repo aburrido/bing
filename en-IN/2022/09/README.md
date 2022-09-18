@@ -18,3 +18,4 @@
 202209151830|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-IN/2022/09/202209151830PianePuma.jpg)|
 202209161830|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-IN/2022/09/202209161830Wellenflug.jpg)|
 202209171830|ArashiyamaBamboo|Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|A grove glows green|![](/en-IN/2022/09/202209171830ArashiyamaBamboo.jpg)|
+202209181830|QueenFuneral|Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)|Farewell, Ma’am|![](/en-IN/2022/09/202209181830QueenFuneral.jpg)|
