@@ -17,3 +17,4 @@
 202209150400|JohnstonWater|Water flows through Johnston Canyon in Banff National Park (© Jason Hatfield/TANDEM Stills + Motion)|A gem in the Rockies|![](/en-CA/2022/09/202209150400JohnstonWater.jpg)|
 202209160400|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-CA/2022/09/202209160400PianePuma.jpg)|
 202209170400|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-CA/2022/09/202209170400Wellenflug.jpg)|
+202209180400|ArashiyamaBamboo|Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|A grove glows green|![](/en-CA/2022/09/202209180400ArashiyamaBamboo.jpg)|
