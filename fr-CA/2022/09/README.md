@@ -18,3 +18,4 @@
 202209160400|PianePuma|Puma dans le Parc national Torres del Paine, Patagonie, Chili (© Ingo Arndt/Minden Pictures)|Information|![](/fr-CA/2022/09/202209160400PianePuma.jpg)|
 202209170400|Wellenflug|Visiteurs à l’Oktoberfest, Munich, Allemagne (© Karl-Josef Hildenbrand/Getty Images)|Information|![](/fr-CA/2022/09/202209170400Wellenflug.jpg)|
 202209180400|ArashiyamaBamboo|Forêt de bambou d’Arashiyama, Kyoto, Japon (© Razvan Ciuca/Getty Images)|Information|![](/fr-CA/2022/09/202209180400ArashiyamaBamboo.jpg)|
+202209190400|QueenFuneral|Fleurs déposées à Londres après la mort de la reine Élisabeth II (© Maja Smiejkowska/Reuters)|Information|![](/fr-CA/2022/09/202209190400QueenFuneral.jpg)|
