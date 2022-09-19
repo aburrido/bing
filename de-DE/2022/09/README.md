@@ -19,3 +19,4 @@
 202209162200|LebkuchenOktoberfest|Lebkuchenherzen, Oktoberfest München, Bayern (© filmfoto-03edit/Alamy)|Süße Versuchung|![](/de-DE/2022/09/202209162200LebkuchenOktoberfest.jpg)|
 202209172200|ArashiyamaBamboo|Fußweg im Bambuswald von Arashiyama, Kyoto, Japan (© Razvan Ciuca/Getty Images)|Japans „singender“ Wald|![](/de-DE/2022/09/202209172200ArashiyamaBamboo.jpg)|
 202209182200|QueenFuneral|Blumengaben als Zeichen der Anteilnahme zum Tod von Königin Elisabeth II., London, England, Vereinigtes Königreich (© Maja Smiejkowska/Reuters)|Abschied von einer großen Monarchin|![](/de-DE/2022/09/202209182200QueenFuneral.jpg)|
+202209192200|SitkaOtters|Seeotter im Sitka Sound nahe Sitka, Alaska, USA (© Robert Harding/Offset/Shutterstock)|Die Teddybären des Meeres|![](/de-DE/2022/09/202209192200SitkaOtters.jpg)|

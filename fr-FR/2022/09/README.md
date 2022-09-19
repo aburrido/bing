@@ -19,3 +19,4 @@
 202209162200|Wellenflug|Festivaliers de l’Oktoberfest à Munich, Allemagne (© Karl-Josef Hildenbrand/Getty Images)|Bien arrosé !|![](/fr-FR/2022/09/202209162200Wellenflug.jpg)|
 202209172200|ArashiyamaBamboo|Sentier dans la bambouseraie d'Arashiyama, Kyoto, Japan (© Razvan Ciuca/Getty Images)|Forêt d’herbes|![](/fr-FR/2022/09/202209172200ArashiyamaBamboo.jpg)|
 202209182200|QueenFuneral|Fleurs déposées à Londres après la mort de la reine Élisabeth II (© Maja Smiejkowska/Reuters)|Les adieux à la reine|![](/fr-FR/2022/09/202209182200QueenFuneral.jpg)|
+202209192200|SitkaOtters|Radeau de loutres de mer en Alaska, USA (© Robert Harding/Offset/Shutterstock)|La meilleure sieste|![](/fr-FR/2022/09/202209192200SitkaOtters.jpg)|
