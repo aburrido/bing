@@ -19,3 +19,4 @@
 202209161830|Wellenflug|Oktoberfest visitors in Munich, Germany (© Karl-Josef Hildenbrand/Getty Images)|Swinging over Munich|![](/en-IN/2022/09/202209161830Wellenflug.jpg)|
 202209171830|ArashiyamaBamboo|Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|A grove glows green|![](/en-IN/2022/09/202209171830ArashiyamaBamboo.jpg)|
 202209181830|QueenFuneral|Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)|Farewell, Ma’am|![](/en-IN/2022/09/202209181830QueenFuneral.jpg)|
+202209191830|SitkaOtters|Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)|Teddy bears of the sea|![](/en-IN/2022/09/202209191830SitkaOtters.jpg)|
