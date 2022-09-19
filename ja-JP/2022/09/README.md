@@ -19,3 +19,4 @@
 202209161500|Wellenflug|オクトーバーフェスト, ドイツ ミュンヘン (© Karl-Josef Hildenbrand/Getty Images)|ドイツのオクトーバーフェスト|![](/ja-JP/2022/09/202209161500Wellenflug.jpg)|
 202209171500|ArashiyamaBamboo|竹林の小径, 京都 嵐山 (© Razvan Ciuca/Getty Images)|今日は世界竹の日|![](/ja-JP/2022/09/202209171500ArashiyamaBamboo.jpg)|
 202209181500|OldOwl2022|樹木に溶け込むフクロウ (© Shin Yoshino/Minden)|今日は敬老の日|![](/ja-JP/2022/09/202209181500OldOwl2022.jpg)|
+202209191500|SitkaOtters|ラッコの群れ, 米国 アラスカ州 (© Robert Harding/Offset/Shutterstock)|今週はラッコ啓蒙週間|![](/ja-JP/2022/09/202209191500SitkaOtters.jpg)|
