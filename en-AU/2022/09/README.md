@@ -20,3 +20,4 @@
 202209170700|BlackpoolBeach|Blackpool Tower and Central Pier, Lancashire, England (© Bailey-Cooper Photography/Alamy)|Info|![](/en-AU/2022/09/202209170700BlackpoolBeach.jpg)|
 202209180700|ArashiyamaBamboo|Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|Info|![](/en-AU/2022/09/202209180700ArashiyamaBamboo.jpg)|
 202209190700|SanMartinoVillage|Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)|Info|![](/en-AU/2022/09/202209190700SanMartinoVillage.jpg)|
+202209200700|SitkaOtters|Sea otters, Sitka Sound, Sitka, Alaska, USA (© Robert Harding/Offset/Shutterstock)|Info|![](/en-AU/2022/09/202209200700SitkaOtters.jpg)|
