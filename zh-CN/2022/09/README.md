@@ -21,3 +21,4 @@
 202209181600|SanMartinoVillage|巴斯利卡塔的卡斯泰尔梅扎诺村，意大利 (© Roberto Moiola/Getty Images)|山峦间的光辉之城|![](/zh-CN/2022/09/202209181600SanMartinoVillage.jpg)|
 202209191600|SitkaOtters|阿拉斯加州锡特卡海峡的海獭，美国 (© Robert Harding/Offset/Shutterstock)|海上泰迪熊|![](/zh-CN/2022/09/202209191600SitkaOtters.jpg)|
 202209201600|SyltNordseeHoernum|赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)|在西尔特的最南端|![](/zh-CN/2022/09/202209201600SyltNordseeHoernum.jpg)|
+202209211600|SpringPoint|春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)|一个小而强大的守护者|![](/zh-CN/2022/09/202209211600SpringPoint.jpg)|
