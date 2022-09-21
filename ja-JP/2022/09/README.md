@@ -21,3 +21,4 @@
 202209181500|OldOwl2022|樹木に溶け込むフクロウ (© Shin Yoshino/Minden)|今日は敬老の日|![](/ja-JP/2022/09/202209181500OldOwl2022.jpg)|
 202209191500|SitkaOtters|ラッコの群れ, 米国 アラスカ州 (© Robert Harding/Offset/Shutterstock)|今週はラッコ啓蒙週間|![](/ja-JP/2022/09/202209191500SitkaOtters.jpg)|
 202209201500|PWPeaceDoves|”Peace Doves” ピーター・ウォーカー,  イギリス リヴァプール (© PAUL ELLIS/AFP via Getty Images)|今日は国際平和デー|![](/ja-JP/2022/09/202209201500PWPeaceDoves.jpg)|
+202209211500|RhinocerosUnicornis|インドサイ, インド アッサム州 (© Robert Harding World Imagery/Shutterstock)|今日は世界サイの日|![](/ja-JP/2022/09/202209211500RhinocerosUnicornis.jpg)|
