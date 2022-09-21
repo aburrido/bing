@@ -21,3 +21,4 @@
 202209181830|QueenFuneral|Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)|Farewell, Ma’am|![](/en-IN/2022/09/202209181830QueenFuneral.jpg)|
 202209191830|SitkaOtters|Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)|Teddy bears of the sea|![](/en-IN/2022/09/202209191830SitkaOtters.jpg)|
 202209201830|PWPeaceDoves|'Peace Doves' by artist Peter Walker, in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)|A dramatic celebration of peace|![](/en-IN/2022/09/202209201830PWPeaceDoves.jpg)|
+202209211830|LastDollarRoad|The aspen canopy along Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)|Colours of Colorado|![](/en-IN/2022/09/202209211830LastDollarRoad.jpg)|
