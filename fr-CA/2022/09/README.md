@@ -20,3 +20,4 @@
 202209180400|ArashiyamaBamboo|Forêt de bambou d’Arashiyama, Kyoto, Japon (© Razvan Ciuca/Getty Images)|Information|![](/fr-CA/2022/09/202209180400ArashiyamaBamboo.jpg)|
 202209190400|QueenFuneral|Fleurs déposées à Londres après la mort de la reine Élisabeth II (© Maja Smiejkowska/Reuters)|Information|![](/fr-CA/2022/09/202209190400QueenFuneral.jpg)|
 202209200400|SitkaOtters|Loutres de mer près de Sitka, Alaska (© Robert Harding/Offset/Shutterstock)|Information|![](/fr-CA/2022/09/202209200400SitkaOtters.jpg)|
+202209210400|PWPeaceDoves|“Colombes de la paix”, installation de l’artiste Peter Walker, cathédrale de Liverpool, Royaume-Uni (© PAUL ELLIS/AFP via Getty Images)|Information|![](/fr-CA/2022/09/202209210400PWPeaceDoves.jpg)|
