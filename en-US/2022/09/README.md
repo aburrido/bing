@@ -21,3 +21,4 @@
 202209180700|ArashiyamaBamboo|Footpath in the Arashiyama Bamboo Grove, Kyoto, Japan (© Razvan Ciuca/Getty Images)|A grove glows green|![](/en-US/2022/09/202209180700ArashiyamaBamboo.jpg)|
 202209190700|QueenFuneral|Floral tributes left in London, England, following the death of Queen Elizabeth II (© Maja Smiejkowska/Reuters)|Farewell, Ma'am|![](/en-US/2022/09/202209190700QueenFuneral.jpg)|
 202209200700|SitkaOtters|Raft of sea otters in Sitka Sound, near Sitka, Alaska (© Robert Harding/Offset/Shutterstock)|Teddy bears of the sea|![](/en-US/2022/09/202209200700SitkaOtters.jpg)|
+202209210700|PWPeaceDoves|'Peace Doves' by artist Peter Walker in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)|A dramatic celebration of peace|![](/en-US/2022/09/202209210700PWPeaceDoves.jpg)|
