@@ -21,3 +21,4 @@
 202209182200|QueenFuneral|Blumengaben als Zeichen der Anteilnahme zum Tod von Königin Elisabeth II., London, England, Vereinigtes Königreich (© Maja Smiejkowska/Reuters)|Abschied von einer großen Monarchin|![](/de-DE/2022/09/202209182200QueenFuneral.jpg)|
 202209192200|SitkaOtters|Seeotter im Sitka Sound nahe Sitka, Alaska, USA (© Robert Harding/Offset/Shutterstock)|Die Teddybären des Meeres|![](/de-DE/2022/09/202209192200SitkaOtters.jpg)|
 202209202200|PWPeaceDoves|Installation „Peace Doves“ („Friedenstauben“) des Künstlers Peter Walker in der Liverpool Cathedral, Liverpool, England, Vereinigtes Königreich (© PAUL ELLIS/AFP via Getty Images)|Gedenken an den Weltfrieden|![](/de-DE/2022/09/202209202200PWPeaceDoves.jpg)|
+202209212200|LastDollarRoad|Kronendach der Espen entlang der Last Dollar Road nahe Telluride, Colorado, USA (© Grant Ordelheide/Tandem Stills + Motion)|Herbstfarben in Colorado|![](/de-DE/2022/09/202209212200LastDollarRoad.jpg)|
