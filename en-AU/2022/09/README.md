@@ -23,3 +23,4 @@
 202209200700|SitkaOtters|Sea otters, Sitka Sound, Sitka, Alaska, USA (© Robert Harding/Offset/Shutterstock)|Info|![](/en-AU/2022/09/202209200700SitkaOtters.jpg)|
 202209210700|SyltNordseeHoernum|Hörnum, Sylt island, Germany (© Francesco Carovillano/eStock Photo)|Info|![](/en-AU/2022/09/202209210700SyltNordseeHoernum.jpg)|
 202209220700|LastDollarRoad|Last Dollar Road, Telluride, Colorado, USA  (© Grant Ordelheide/Tandem Stills + Motion)|Info|![](/en-AU/2022/09/202209220700LastDollarRoad.jpg)|
+202209230700|GoldenJellyfish|Golden jellyfish, Jellyfish Lake, Eil Malk, Palau (© Nature Picture Library/Alamy)|Info|![](/en-AU/2022/09/202209230700GoldenJellyfish.jpg)|
