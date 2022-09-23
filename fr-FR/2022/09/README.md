@@ -23,3 +23,4 @@
 202209202200|PWPeaceDoves|L’installation 'Peace Doves’ par l’artiste Peter Walker, Cathédrale de Liverpool, Angleterre (© PAUL ELLIS/AFP via Getty Images)|Des colombes pour la paix|![](/fr-FR/2022/09/202209202200PWPeaceDoves.jpg)|
 202209212200|LastDollarRoad|Canopée de trembles le long de la Last Dollar Road, près de Telluride, Colorado, USA (© Grant Ordelheide/Tandem Stills + Motion)|Soleil automnal|![](/fr-FR/2022/09/202209212200LastDollarRoad.jpg)|
 202209222200|FirstDayFall|Soleil traversant les arbres d’une forêt tapissée de cyclamens roses et blancs en Bretagne (© Rosemary Calvert/Getty Images)|Bye-bye l’été|![](/fr-FR/2022/09/202209222200FirstDayFall.jpg)|
+202209232200|DarkSkyAcadia|Voie lactée au-dessus du parc national d’Acadia, Maine, USA (© Harry Collins/Getty Images)|Sans filtre|![](/fr-FR/2022/09/202209232200DarkSkyAcadia.jpg)|
