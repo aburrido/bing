@@ -23,3 +23,4 @@
 202209201600|SyltNordseeHoernum|赫努姆的茅草屋顶, 德国叙尔特岛 (© Francesco Carovillano/eStock Photo)|在西尔特的最南端|![](/zh-CN/2022/09/202209201600SyltNordseeHoernum.jpg)|
 202209211600|SpringPoint|春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)|一个小而强大的守护者|![](/zh-CN/2022/09/202209211600SpringPoint.jpg)|
 202209221600|LastDollarRoad|最后一美元公路旁的白杨树，科罗拉多州特鲁莱德市附近 (© Grant Ordelheide/Tandem Stills + Motion)|属于秋天的色彩|![](/zh-CN/2022/09/202209221600LastDollarRoad.jpg)|
+202209231600|DarkSkyAcadia|阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)|繁星闪烁的夜晚|![](/zh-CN/2022/09/202209231600DarkSkyAcadia.jpg)|
