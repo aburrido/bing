@@ -23,3 +23,4 @@
 202209210400|PWPeaceDoves|'Peace Doves' by artist Peter Walker, in Liverpool Cathedral, Liverpool, England (© PAUL ELLIS/AFP via Getty Images)|A dramatic celebration of peace|![](/en-CA/2022/09/202209210400PWPeaceDoves.jpg)|
 202209220400|LastDollarRoad|The aspen canopy along Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)|Colours of Colorado|![](/en-CA/2022/09/202209220400LastDollarRoad.jpg)|
 202209230400|GoldenJellyfish|Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)|Jellies in a world of their own|![](/en-CA/2022/09/202209230400GoldenJellyfish.jpg)|
+202209240400|DarkSkyAcadia|Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)|Starry, starry night|![](/en-CA/2022/09/202209240400DarkSkyAcadia.jpg)|
