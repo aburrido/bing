@@ -24,3 +24,4 @@
 202209212200|LastDollarRoad|Kronendach der Espen entlang der Last Dollar Road nahe Telluride, Colorado, USA (© Grant Ordelheide/Tandem Stills + Motion)|Herbstfarben in Colorado|![](/de-DE/2022/09/202209212200LastDollarRoad.jpg)|
 202209222200|WintersteinHerbst|Winterstein, Nationalpark Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)|Herbstmorgen am Winterstein|![](/de-DE/2022/09/202209222200WintersteinHerbst.jpg)|
 202209232200|DarkSkyAcadia|Die Milchstraße über dem Acadia-Nationalpark, Maine, USA (© Harry Collins/Getty Images)|Sternenklare Nacht|![](/de-DE/2022/09/202209232200DarkSkyAcadia.jpg)|
+202209242200|AmazonMangroves|Luftaufnahme des Amazonas, Brasilien (© Curioso.Photography/Shutterstock)|Lebensadern der Natur|![](/de-DE/2022/09/202209242200AmazonMangroves.jpg)|
