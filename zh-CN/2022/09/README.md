@@ -24,3 +24,4 @@
 202209211600|SpringPoint|春角礁灯塔，缅因州南波特兰 (© Haizhan Zheng/Getty Images)|一个小而强大的守护者|![](/zh-CN/2022/09/202209211600SpringPoint.jpg)|
 202209221600|LastDollarRoad|最后一美元公路旁的白杨树，科罗拉多州特鲁莱德市附近 (© Grant Ordelheide/Tandem Stills + Motion)|属于秋天的色彩|![](/zh-CN/2022/09/202209221600LastDollarRoad.jpg)|
 202209231600|DarkSkyAcadia|阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)|繁星闪烁的夜晚|![](/zh-CN/2022/09/202209231600DarkSkyAcadia.jpg)|
+202209241600|AmazonMangroves|亚马逊河鸟瞰图，巴西 (© Curioso.Photography/Shutterstock)|匆匆而逝的河流|![](/zh-CN/2022/09/202209241600AmazonMangroves.jpg)|
