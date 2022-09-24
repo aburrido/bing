@@ -24,3 +24,4 @@
 202209212300|FraueninselChiemsee|Aerial view of Fraueninsel island in Chiemsee, Bavaria, Germany (© Malorny/Getty Images)|Life on the lake|![](/en-GB/2022/09/202209212300FraueninselChiemsee.jpg)|
 202209222300|GoldenJellyfish|Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)|In a world of their own|![](/en-GB/2022/09/202209222300GoldenJellyfish.jpg)|
 202209232300|DarkSkyAcadia|Milky Way over Acadia National Park, Maine, USA (© Harry Collins/Getty Images)|Starry, starry night|![](/en-GB/2022/09/202209232300DarkSkyAcadia.jpg)|
+202209242300|AmazonMangroves|Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)|World Rivers Day|![](/en-GB/2022/09/202209242300AmazonMangroves.jpg)|
