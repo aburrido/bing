@@ -24,3 +24,4 @@
 202209211830|LastDollarRoad|The aspen canopy along Last Dollar Road near Telluride, Colorado (© Grant Ordelheide/Tandem Stills + Motion)|Colours of Colorado|![](/en-IN/2022/09/202209211830LastDollarRoad.jpg)|
 202209221830|GoldenJellyfish|Golden jellyfish in Jellyfish Lake on the island of Eil Malk, Palau (© Nature Picture Library/Alamy)|Jellies in a world all their own|![](/en-IN/2022/09/202209221830GoldenJellyfish.jpg)|
 202209231830|DarkSkyAcadia|Milky Way over Acadia National Park, Maine (© Harry Collins/Getty Images)|Starry, starry night|![](/en-IN/2022/09/202209231830DarkSkyAcadia.jpg)|
+202209241830|AmazonMangroves|Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)|The rivers run through us|![](/en-IN/2022/09/202209241830AmazonMangroves.jpg)|
