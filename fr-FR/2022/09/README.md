@@ -25,3 +25,4 @@
 202209222200|FirstDayFall|Soleil traversant les arbres d’une forêt tapissée de cyclamens roses et blancs en Bretagne (© Rosemary Calvert/Getty Images)|Bye-bye l’été|![](/fr-FR/2022/09/202209222200FirstDayFall.jpg)|
 202209232200|DarkSkyAcadia|Voie lactée au-dessus du parc national d’Acadia, Maine, USA (© Harry Collins/Getty Images)|Sans filtre|![](/fr-FR/2022/09/202209232200DarkSkyAcadia.jpg)|
 202209242200|AmazonMangroves|Vue aérienne de la forêt amazonienne au Brésil (© Curioso.Photography/Shutterstock)|Ressource pour l’humanité|![](/fr-FR/2022/09/202209242200AmazonMangroves.jpg)|
+202209252200|SusitnaRiver|Caribous traversant la rivière Susitna à l’automne, Alaska, USA (© Tim Plowden/Alamy)|Le temps des amours|![](/fr-FR/2022/09/202209252200SusitnaRiver.jpg)|
