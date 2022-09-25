@@ -25,3 +25,4 @@
 202209221600|LastDollarRoad|最后一美元公路旁的白杨树，科罗拉多州特鲁莱德市附近 (© Grant Ordelheide/Tandem Stills + Motion)|属于秋天的色彩|![](/zh-CN/2022/09/202209221600LastDollarRoad.jpg)|
 202209231600|DarkSkyAcadia|阿卡迪亚国家公园上空的银河系，美国缅因州 (© Harry Collins/Getty Images)|繁星闪烁的夜晚|![](/zh-CN/2022/09/202209231600DarkSkyAcadia.jpg)|
 202209241600|AmazonMangroves|亚马逊河鸟瞰图，巴西 (© Curioso.Photography/Shutterstock)|匆匆而逝的河流|![](/zh-CN/2022/09/202209241600AmazonMangroves.jpg)|
+202209251600|SusitnaRiver|两头穿越苏西特纳河的驯鹿，美国阿拉斯加 (© Tim Plowden/Alamy)|令人印象深刻的时刻|![](/zh-CN/2022/09/202209251600SusitnaRiver.jpg)|
