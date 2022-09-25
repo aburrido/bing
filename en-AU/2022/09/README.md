@@ -25,3 +25,4 @@
 202209220700|LastDollarRoad|Last Dollar Road, Telluride, Colorado, USA  (© Grant Ordelheide/Tandem Stills + Motion)|Info|![](/en-AU/2022/09/202209220700LastDollarRoad.jpg)|
 202209230700|GoldenJellyfish|Golden jellyfish, Jellyfish Lake, Eil Malk, Palau (© Nature Picture Library/Alamy)|Info|![](/en-AU/2022/09/202209230700GoldenJellyfish.jpg)|
 202209240700|DarkSkyAcadia|Acadia National Park, Maine, USA (© Harry Collins/Getty Images)|Info|![](/en-AU/2022/09/202209240700DarkSkyAcadia.jpg)|
+202209250700|AmazonMangroves|Amazon River, Brazil (© Curioso.Photography/Shutterstock)|Info|![](/en-AU/2022/09/202209250700AmazonMangroves.jpg)|
