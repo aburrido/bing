@@ -26,3 +26,4 @@
 202209230700|GoldenJellyfish|Golden jellyfish, Jellyfish Lake, Eil Malk, Palau (© Nature Picture Library/Alamy)|Info|![](/en-AU/2022/09/202209230700GoldenJellyfish.jpg)|
 202209240700|DarkSkyAcadia|Acadia National Park, Maine, USA (© Harry Collins/Getty Images)|Info|![](/en-AU/2022/09/202209240700DarkSkyAcadia.jpg)|
 202209250700|AmazonMangroves|Amazon River, Brazil (© Curioso.Photography/Shutterstock)|Info|![](/en-AU/2022/09/202209250700AmazonMangroves.jpg)|
+202209260700|SusitnaRiver|Caribou, Susitna River, Alaska, USA (© Tim Plowden/Alamy)|Info|![](/en-AU/2022/09/202209260700SusitnaRiver.jpg)|
