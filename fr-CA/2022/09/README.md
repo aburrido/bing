@@ -25,3 +25,4 @@
 202209230400|GoldenJellyfish|Méduses dorées dans le lac aux Méduses sur l’île de Eil Malk, Palaos (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/09/202209230400GoldenJellyfish.jpg)|
 202209240400|DarkSkyAcadia|Voie lactée au-dessus du parc national d’Acadia, Maine (© Harry Collins/Getty Images)|Information|![](/fr-CA/2022/09/202209240400DarkSkyAcadia.jpg)|
 202209250400|AmazonMangroves|Vue aérienne de la forêt amazonienne au Brésil (© Curioso.Photography/Shutterstock)|Information|![](/fr-CA/2022/09/202209250400AmazonMangroves.jpg)|
+202209260400|SusitnaRiver|Caribous traversant la rivière Susitna à l’automne, Alaska (© Tim Plowden/Alamy)|Information|![](/fr-CA/2022/09/202209260400SusitnaRiver.jpg)|
