@@ -26,3 +26,4 @@
 202209232300|DarkSkyAcadia|Milky Way over Acadia National Park, Maine, USA (© Harry Collins/Getty Images)|Starry, starry night|![](/en-GB/2022/09/202209232300DarkSkyAcadia.jpg)|
 202209242300|AmazonMangroves|Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)|World Rivers Day|![](/en-GB/2022/09/202209242300AmazonMangroves.jpg)|
 202209252300|SusitnaRiver|Reindeer crossing the Susitna River during the autumn rut, Alaska, USA (© Tim Plowden/Alamy)|Time to make an impression|![](/en-GB/2022/09/202209252300SusitnaRiver.jpg)|
+202209262300|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming, USA (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-GB/2022/09/202209262300YellowstoneUGB.jpg)|
