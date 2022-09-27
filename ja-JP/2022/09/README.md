@@ -27,3 +27,4 @@
 202209241500|AmazonMangroves|空から見たベレン, ブラジル (© Curioso.Photography/Shutterstock)|今日は世界川の日|![](/ja-JP/2022/09/202209241500AmazonMangroves.jpg)|
 202209251500|SusitnaRiver|スシトナ川、カリブーのカップル, 米国 アラスカ州 (© Tim Plowden/Alamy)|スシトナ川|![](/ja-JP/2022/09/202209251500SusitnaRiver.jpg)|
 202209261500|YellowstoneUGB|イエローストーン国立公園, 米国 (© Ray Urner/Tandem Stills + Motion)|イエローストーン国立公園|![](/ja-JP/2022/09/202209261500YellowstoneUGB.jpg)|
+202209271500|FosterCoveredBridge|フォスターの屋根付き橋, 米国 バーモント州 (© Alan Majchrowicz/Getty Images)|フォスターの屋根付き橋|![](/ja-JP/2022/09/202209271500FosterCoveredBridge.jpg)|
