@@ -27,3 +27,4 @@
 202209242200|AmazonMangroves|Vue aérienne de la forêt amazonienne au Brésil (© Curioso.Photography/Shutterstock)|Ressource pour l’humanité|![](/fr-FR/2022/09/202209242200AmazonMangroves.jpg)|
 202209252200|SusitnaRiver|Caribous traversant la rivière Susitna à l’automne, Alaska, USA (© Tim Plowden/Alamy)|Le temps des amours|![](/fr-FR/2022/09/202209252200SusitnaRiver.jpg)|
 202209262200|YellowstoneUGB|Upper Geyser Basin dans le parc national de Yellowstone, Wyoming, USA (© Ray Urner/Tandem Stills + Motion)|La terre des sources chaudes|![](/fr-FR/2022/09/202209262200YellowstoneUGB.jpg)|
+202209272200|GoldenJellyfish|Méduses dorées dans le lac aux Méduses sur l’île de Eil Malk, Palaos (© Nature Picture Library/Alamy)|Inoffensives par nature|![](/fr-FR/2022/09/202209272200GoldenJellyfish.jpg)|
