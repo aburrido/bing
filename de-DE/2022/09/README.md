@@ -28,3 +28,4 @@
 202209252200|SusitnaRiver|Karibus beim Durchqueren des Susitna River während der Herbstbrunft, Alaska, USA (© Tim Plowden/Alamy)|Zeit, um Eindruck zu schinden|![](/de-DE/2022/09/202209252200SusitnaRiver.jpg)|
 202209262200|GoldenJellyfish|Goldene Quallen im Quallensee auf der Insel Eil Malk, Palau (© Nature Picture Library/Alamy)|Quallen in ihrer eigenen Welt|![](/de-DE/2022/09/202209262200GoldenJellyfish.jpg)|
 202209272200|BridalVeilFalls|Bridalveil Fall, Yosemite-Nationalpark, Kalifornien, USA (© Jeff Foott/Minden Pictures)|„Geist des aufbrausenden Windes“|![](/de-DE/2022/09/202209272200BridalVeilFalls.jpg)|
+202209282200|InfiniD|Infini-D, präsentiert auf der World-of-WearableArt-Show 2019 in Wellington, Neuseeland (© Hagen Hopkins/Getty Images for World of WearableArt)|Tragbare Kunst lässt die Grenzen verwischen|![](/de-DE/2022/09/202209282200InfiniD.jpg)|

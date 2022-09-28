@@ -28,3 +28,4 @@
 202209252200|SusitnaRiver|Caribous traversant la rivière Susitna à l’automne, Alaska, USA (© Tim Plowden/Alamy)|Le temps des amours|![](/fr-FR/2022/09/202209252200SusitnaRiver.jpg)|
 202209262200|YellowstoneUGB|Upper Geyser Basin dans le parc national de Yellowstone, Wyoming, USA (© Ray Urner/Tandem Stills + Motion)|La terre des sources chaudes|![](/fr-FR/2022/09/202209262200YellowstoneUGB.jpg)|
 202209272200|GoldenJellyfish|Méduses dorées dans le lac aux Méduses sur l’île de Eil Malk, Palaos (© Nature Picture Library/Alamy)|Inoffensives par nature|![](/fr-FR/2022/09/202209272200GoldenJellyfish.jpg)|
+202209282200|InfiniD|Infini-D défilant pendant les World of WearableArt Awards en 2019 à Wellington, Nouvelle-Zélande (© Hagen Hopkins/Getty Images for World of WearableArt)|De l’art portable|![](/fr-FR/2022/09/202209282200InfiniD.jpg)|
