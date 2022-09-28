@@ -28,3 +28,4 @@
 202209251830|SusitnaRiver|Caribou crossing the Susitna River during the autumn rut, Alaska (© Tim Plowden/Alamy)|Time to make an impression|![](/en-IN/2022/09/202209251830SusitnaRiver.jpg)|
 202209261830|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-IN/2022/09/202209261830YellowstoneUGB.jpg)|
 202209271830|ToyTrainShimla|Toy train ride on the Kalka-Shimla route in India (© Amit kg/Shutterstock)|A train journey to remember|![](/en-IN/2022/09/202209271830ToyTrainShimla.jpg)|
+202209281830|InfiniD|Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Blurring the lines with wearable art|![](/en-IN/2022/09/202209281830InfiniD.jpg)|
