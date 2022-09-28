@@ -28,3 +28,4 @@
 202209250700|AmazonMangroves|Amazon River, Brazil (© Curioso.Photography/Shutterstock)|Info|![](/en-AU/2022/09/202209250700AmazonMangroves.jpg)|
 202209260700|SusitnaRiver|Caribou, Susitna River, Alaska, USA (© Tim Plowden/Alamy)|Info|![](/en-AU/2022/09/202209260700SusitnaRiver.jpg)|
 202209270700|YellowstoneUGB|Upper Geyser Basin, Yellowstone National Park, Wyoming, USA (© Ray Urner/Tandem Stills + Motion)|Info|![](/en-AU/2022/09/202209270700YellowstoneUGB.jpg)|
+202209280700|FosterCoveredBridge|A.M. Foster bridge, Cabot, Vermont, USA (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2022/09/202209280700FosterCoveredBridge.jpg)|
