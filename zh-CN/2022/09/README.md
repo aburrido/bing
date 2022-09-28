@@ -28,3 +28,4 @@
 202209251600|SusitnaRiver|两头穿越苏西特纳河的驯鹿，美国阿拉斯加 (© Tim Plowden/Alamy)|令人印象深刻的时刻|![](/zh-CN/2022/09/202209251600SusitnaRiver.jpg)|
 202209261600|YellowstoneUGB|黄石国家公园里的上间歇泉盆地，美国怀俄明州 (© Ray Urner/Tandem Stills + Motion)|水与火相遇的地方|![](/zh-CN/2022/09/202209261600YellowstoneUGB.jpg)|
 202209271600|FosterCoveredBridge|卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)|一场现代化的重建|![](/zh-CN/2022/09/202209271600FosterCoveredBridge.jpg)|
+202209281600|JohnstonWater|约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)|落基山脉的宝石|![](/zh-CN/2022/09/202209281600JohnstonWater.jpg)|
