@@ -28,3 +28,4 @@
 202209252300|SusitnaRiver|Reindeer crossing the Susitna River during the autumn rut, Alaska, USA (© Tim Plowden/Alamy)|Time to make an impression|![](/en-GB/2022/09/202209252300SusitnaRiver.jpg)|
 202209262300|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming, USA (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-GB/2022/09/202209262300YellowstoneUGB.jpg)|
 202209272300|FairyGlen|The Fairy Glen, in the hills above the village of Uig on the Isle of Skye (© e55evu/Getty Images)|A touch of magic|![](/en-GB/2022/09/202209272300FairyGlen.jpg)|
+202209282300|InfiniD|Infini-D, modelled during the 2019 World of WearableArt Awards in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Is it art?|![](/en-GB/2022/09/202209282300InfiniD.jpg)|
