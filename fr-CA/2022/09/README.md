@@ -27,3 +27,4 @@
 202209250400|AmazonMangroves|Vue aérienne de la forêt amazonienne au Brésil (© Curioso.Photography/Shutterstock)|Information|![](/fr-CA/2022/09/202209250400AmazonMangroves.jpg)|
 202209260400|SusitnaRiver|Caribous traversant la rivière Susitna à l’automne, Alaska (© Tim Plowden/Alamy)|Information|![](/fr-CA/2022/09/202209260400SusitnaRiver.jpg)|
 202209270400|YellowstoneUGB|Upper Geyser Basin dans le parc national de Yellowstone, Wyoming (© Ray Urner/Tandem Stills + Motion)|Information|![](/fr-CA/2022/09/202209270400YellowstoneUGB.jpg)|
+202209280400|MapleDrops|Gouttes d’eau sur une feuille d’érable rose dans le parc national du Mont-Saint-Bruno, Québec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)|Information|![](/fr-CA/2022/09/202209280400MapleDrops.jpg)|

@@ -27,3 +27,4 @@
 202209250400|AmazonMangroves|Aerial view of the Amazon River in Brazil (© Curioso.Photography/Shutterstock)|The rivers run through us|![](/en-CA/2022/09/202209250400AmazonMangroves.jpg)|
 202209260400|SusitnaRiver|Caribou crossing the Susitna River during the autumn rut, Alaska (© Tim Plowden/Alamy)|Time to make an impression|![](/en-CA/2022/09/202209260400SusitnaRiver.jpg)|
 202209270400|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-CA/2022/09/202209270400YellowstoneUGB.jpg)|
+202209280400|MapleDrops|Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)|Shades of Fall|![](/en-CA/2022/09/202209280400MapleDrops.jpg)|
