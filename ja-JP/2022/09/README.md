@@ -29,3 +29,4 @@
 202209261500|YellowstoneUGB|イエローストーン国立公園, 米国 (© Ray Urner/Tandem Stills + Motion)|イエローストーン国立公園|![](/ja-JP/2022/09/202209261500YellowstoneUGB.jpg)|
 202209271500|FosterCoveredBridge|フォスターの屋根付き橋, 米国 バーモント州 (© Alan Majchrowicz/Getty Images)|フォスターの屋根付き橋|![](/ja-JP/2022/09/202209271500FosterCoveredBridge.jpg)|
 202209281500|InfiniD|世界ウェアラブルアートショー, ニュージーランド ウェリントン (© Hagen Hopkins/Getty Images for World of WearableArt)|世界ウェアラブルアートショー|![](/ja-JP/2022/09/202209281500InfiniD.jpg)|
+202209291500|EubalaenaAustralis|バルデス半島沖のミナミセミクジラ, アルゼンチン (© Gabriel Rojo/Minden Pictures)|ミナミセミクジラの移動|![](/ja-JP/2022/09/202209291500EubalaenaAustralis.jpg)|
