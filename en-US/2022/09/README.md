@@ -29,3 +29,4 @@
 202209260700|SusitnaRiver|Caribou crossing the Susitna River during autumn, Alaska (© Tim Plowden/Alamy)|Time to make an impression|![](/en-US/2022/09/202209260700SusitnaRiver.jpg)|
 202209270700|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-US/2022/09/202209270700YellowstoneUGB.jpg)|
 202209280700|FosterCoveredBridge|A. M. Foster Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)|A modern recreation|![](/en-US/2022/09/202209280700FosterCoveredBridge.jpg)|
+202209290700|InfiniD|Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Blurring the lines with wearable art|![](/en-US/2022/09/202209290700InfiniD.jpg)|
