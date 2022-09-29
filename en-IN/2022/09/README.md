@@ -29,3 +29,4 @@
 202209261830|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-IN/2022/09/202209261830YellowstoneUGB.jpg)|
 202209271830|ToyTrainShimla|Toy train ride on the Kalka-Shimla route in India (© Amit kg/Shutterstock)|A train journey to remember|![](/en-IN/2022/09/202209271830ToyTrainShimla.jpg)|
 202209281830|InfiniD|Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Blurring the lines with wearable art|![](/en-IN/2022/09/202209281830InfiniD.jpg)|
+202209291830|EubalaenaAustralis|Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)|Giants of the Southern Ocean|![](/en-IN/2022/09/202209291830EubalaenaAustralis.jpg)|
