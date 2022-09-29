@@ -28,3 +28,4 @@
 202209260400|SusitnaRiver|Caribou crossing the Susitna River during the autumn rut, Alaska (© Tim Plowden/Alamy)|Time to make an impression|![](/en-CA/2022/09/202209260400SusitnaRiver.jpg)|
 202209270400|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-CA/2022/09/202209270400YellowstoneUGB.jpg)|
 202209280400|MapleDrops|Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)|Shades of Fall|![](/en-CA/2022/09/202209280400MapleDrops.jpg)|
+202209290400|InfiniD|Infini-D, modelled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Blurring the lines with wearable art|![](/en-CA/2022/09/202209290400InfiniD.jpg)|
