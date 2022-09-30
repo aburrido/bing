@@ -30,3 +30,4 @@
 202209271830|ToyTrainShimla|Toy train ride on the Kalka-Shimla route in India (© Amit kg/Shutterstock)|A train journey to remember|![](/en-IN/2022/09/202209271830ToyTrainShimla.jpg)|
 202209281830|InfiniD|Infini-D, modeled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Blurring the lines with wearable art|![](/en-IN/2022/09/202209281830InfiniD.jpg)|
 202209291830|EubalaenaAustralis|Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)|Giants of the Southern Ocean|![](/en-IN/2022/09/202209291830EubalaenaAustralis.jpg)|
+202209301830|BridalVeilFalls|Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)|Spirit of the Puffing Wind|![](/en-IN/2022/09/202209301830BridalVeilFalls.jpg)|
