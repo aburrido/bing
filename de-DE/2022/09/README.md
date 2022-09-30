@@ -30,3 +30,4 @@
 202209272200|BridalVeilFalls|Bridalveil Fall, Yosemite-Nationalpark, Kalifornien, USA (© Jeff Foott/Minden Pictures)|„Geist des aufbrausenden Windes“|![](/de-DE/2022/09/202209272200BridalVeilFalls.jpg)|
 202209282200|InfiniD|Infini-D, präsentiert auf der World-of-WearableArt-Show 2019 in Wellington, Neuseeland (© Hagen Hopkins/Getty Images for World of WearableArt)|Tragbare Kunst lässt die Grenzen verwischen|![](/de-DE/2022/09/202209282200InfiniD.jpg)|
 202209292200|EubalaenaAustralis|Tauchender Südkaper im Golfo Nuevo nahe der Halbinsel Valdés, Argentinien (© Gabriel Rojo/Minden Pictures)|Giganten des Ozeans|![](/de-DE/2022/09/202209292200EubalaenaAustralis.jpg)|
+202209302200|SwedishAntenna|Swedish ESO Submillimeter Telescope (SEST) am La-Silla-Observatorium, Chile (© Alberto Ghizzi Panizza/Getty Images)|Sternenbeobachtungen|![](/de-DE/2022/09/202209302200SwedishAntenna.jpg)|

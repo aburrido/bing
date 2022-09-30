@@ -30,3 +30,4 @@
 202209272200|GoldenJellyfish|Méduses dorées dans le lac aux Méduses sur l’île de Eil Malk, Palaos (© Nature Picture Library/Alamy)|Inoffensives par nature|![](/fr-FR/2022/09/202209272200GoldenJellyfish.jpg)|
 202209282200|InfiniD|Infini-D défilant pendant les World of WearableArt Awards en 2019 à Wellington, Nouvelle-Zélande (© Hagen Hopkins/Getty Images for World of WearableArt)|De l’art portable|![](/fr-FR/2022/09/202209282200InfiniD.jpg)|
 202209292200|EubalaenaAustralis|Baleine franche australe plongeant dans le golfe Nuevo près de la péninsule Valdés, Argentine (© Gabriel Rojo/Minden Pictures)|Plouf !|![](/fr-FR/2022/09/202209292200EubalaenaAustralis.jpg)|
+202209302200|NBP|"Bouquet of tulips" de Jeff Koons, Paris (© Kiran Ridley/Stringer/getty images)|Jusqu’au bout de la nuit|![](/fr-FR/2022/09/202209302200NBP.jpg)|
