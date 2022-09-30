@@ -30,3 +30,4 @@
 202209272300|FairyGlen|The Fairy Glen, in the hills above the village of Uig on the Isle of Skye (© e55evu/Getty Images)|A touch of magic|![](/en-GB/2022/09/202209272300FairyGlen.jpg)|
 202209282300|InfiniD|Infini-D, modelled during the 2019 World of WearableArt Awards in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Is it art?|![](/en-GB/2022/09/202209282300InfiniD.jpg)|
 202209292300|EubalaenaAustralis|Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)|Giants of the Southern Ocean|![](/en-GB/2022/09/202209292300EubalaenaAustralis.jpg)|
+202209302300|MandelaCamden|A giant portrait of Nelson Mandela on a wall in Camden, London. (© NurPhoto/Contributor/Getty Images)|Black History Month begins|![](/en-GB/2022/09/202209302300MandelaCamden.jpg)|
