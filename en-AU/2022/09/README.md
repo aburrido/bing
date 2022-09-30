@@ -30,3 +30,4 @@
 202209270700|YellowstoneUGB|Upper Geyser Basin, Yellowstone National Park, Wyoming, USA (© Ray Urner/Tandem Stills + Motion)|Info|![](/en-AU/2022/09/202209270700YellowstoneUGB.jpg)|
 202209280700|FosterCoveredBridge|A.M. Foster bridge, Cabot, Vermont, USA (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2022/09/202209280700FosterCoveredBridge.jpg)|
 202209290700|JohnstonWater|Johnston Canyon, Banff National Park, Canada (© Jason Hatfield/TANDEM Stills + Motion)|Info|![](/en-AU/2022/09/202209290700JohnstonWater.jpg)|
+202209300700|EubalaenaAustralis|Southern right whale, Golfo Nuevo, Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)|Info|![](/en-AU/2022/09/202209300700EubalaenaAustralis.jpg)|
