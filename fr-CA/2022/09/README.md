@@ -29,3 +29,4 @@
 202209270400|YellowstoneUGB|Upper Geyser Basin dans le parc national de Yellowstone, Wyoming (© Ray Urner/Tandem Stills + Motion)|Information|![](/fr-CA/2022/09/202209270400YellowstoneUGB.jpg)|
 202209280400|MapleDrops|Gouttes d’eau sur une feuille d’érable rose dans le parc national du Mont-Saint-Bruno, Québec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)|Information|![](/fr-CA/2022/09/202209280400MapleDrops.jpg)|
 202209290400|InfiniD|Infini-D, défilant pendant les World of WearableArt Awards en 2019 à Wellington, Nouvelle-Zélande (© Hagen Hopkins/Getty Images for World of WearableArt)|Information|![](/fr-CA/2022/09/202209290400InfiniD.jpg)|
+202209300400|EubalaenaAustralis|Baleine franche australe plongeant dans le golfe Nuevo près de la péninsule Valdés, Argentine (© Gabriel Rojo/Minden Pictures)|Information|![](/fr-CA/2022/09/202209300400EubalaenaAustralis.jpg)|

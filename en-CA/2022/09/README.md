@@ -29,3 +29,4 @@
 202209270400|YellowstoneUGB|Upper Geyser Basin in Yellowstone National Park, Wyoming (© Ray Urner/Tandem Stills + Motion)|Where fire and water meet|![](/en-CA/2022/09/202209270400YellowstoneUGB.jpg)|
 202209280400|MapleDrops|Water drops on a red maple leaf in Mont St-Bruno National Park, Quebec (© Gilles Delisle/Jaynes Gallery/DanitaDelimont.com)|Shades of Fall|![](/en-CA/2022/09/202209280400MapleDrops.jpg)|
 202209290400|InfiniD|Infini-D, modelled during the World of WearableArt Awards in 2019 in Wellington, New Zealand (© Hagen Hopkins/Getty Images for World of WearableArt)|Blurring the lines with wearable art|![](/en-CA/2022/09/202209290400InfiniD.jpg)|
+202209300400|EubalaenaAustralis|Southern right whale diving in the Golfo Nuevo near the Valdes Peninsula, Argentina (© Gabriel Rojo/Minden Pictures)|Giants of the Southern Ocean|![](/en-CA/2022/09/202209300400EubalaenaAustralis.jpg)|
