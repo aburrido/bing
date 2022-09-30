@@ -30,3 +30,4 @@
 202209271600|FosterCoveredBridge|卡伯特镇的福斯特廊桥，美国佛蒙特州 (© Alan Majchrowicz/Getty Images)|一场现代化的重建|![](/zh-CN/2022/09/202209271600FosterCoveredBridge.jpg)|
 202209281600|JohnstonWater|约翰斯顿峡谷，加拿大班夫国家公园 (© Jason Hatfield/TANDEM Stills + Motion)|落基山脉的宝石|![](/zh-CN/2022/09/202209281600JohnstonWater.jpg)|
 202209291600|EubalaenaAustralis|在新湾潜水的南露脊鲸，阿根廷瓦尔德斯半岛 (© Gabriel Rojo/Minden Pictures)|南冰洋里的巨鲸|![](/zh-CN/2022/09/202209291600EubalaenaAustralis.jpg)|
+202209301600|NationalDay2022|山上的日出，河北蔚县 (© zhao zhenhao/Getty Images)|祖国生日快乐！|![](/zh-CN/2022/09/202209301600NationalDay2022.jpg)|
