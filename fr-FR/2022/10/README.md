@@ -4,3 +4,4 @@
 202210012200|LotsOBalloons|Montgolfières pour le festival international de montgolfières d’Albuquerque, Nouveau-Mexique, États-Unis (© gmeland/Shutterstock)|Des ballons dans l’air|![](/fr-FR/2022/10/202210012200LotsOBalloons.jpg)|
 202210022200|Porthuis|La capitainerie du port d’Anvers par Zaha Hadid Architects, Anvers, Belgique (© Dmitry Rukhlenko/Alamy)|Rencontre des époques|![](/fr-FR/2022/10/202210022200Porthuis.jpg)|
 202210032200|CosmicCliffs|Falaises cosmiques dans la nébuleuse de la Carène (© NASA, ESA, CSA, and STScI)|L’infiniment grand|![](/fr-FR/2022/10/202210032200CosmicCliffs.jpg)|
+202210042200|FlamingoTeacher|Flamants des Caraïbes dans la réserve de biosphère de Ría Lagartos, péninsule du Yucatán, Mexique (© Claudio Contreras/Minden Pictures)|Merci les profs !|![](/fr-FR/2022/10/202210042200FlamingoTeacher.jpg)|
