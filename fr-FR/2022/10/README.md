@@ -5,3 +5,4 @@
 202210022200|Porthuis|La capitainerie du port d’Anvers par Zaha Hadid Architects, Anvers, Belgique (© Dmitry Rukhlenko/Alamy)|Rencontre des époques|![](/fr-FR/2022/10/202210022200Porthuis.jpg)|
 202210032200|CosmicCliffs|Falaises cosmiques dans la nébuleuse de la Carène (© NASA, ESA, CSA, and STScI)|L’infiniment grand|![](/fr-FR/2022/10/202210032200CosmicCliffs.jpg)|
 202210042200|FlamingoTeacher|Flamants des Caraïbes dans la réserve de biosphère de Ría Lagartos, péninsule du Yucatán, Mexique (© Claudio Contreras/Minden Pictures)|Merci les profs !|![](/fr-FR/2022/10/202210042200FlamingoTeacher.jpg)|
+202210052200|BayofBiscay|Baie de Gascogne dans le géoparc de la côte basque près de Bilbao, Espagne (© Olimpio Fantuz/eStock Photo)|Queues de dragons ?|![](/fr-FR/2022/10/202210052200BayofBiscay.jpg)|
