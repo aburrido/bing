@@ -5,3 +5,4 @@
 202210020700|LotsOBalloons|Hot air balloons at the Albuquerque International Balloon Fiesta in Albuquerque, New Mexico (© gmeland/Shutterstock)|The oldest way to fly|![](/en-US/2022/10/202210020700LotsOBalloons.jpg)|
 202210030700|Porthuis|The Port House, designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)|A future built on the past|![](/en-US/2022/10/202210030700Porthuis.jpg)|
 202210040700|CosmicCliffs|Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)|Golden cliffs of deep space|![](/en-US/2022/10/202210040700CosmicCliffs.jpg)|
+202210050700|FlamingoTeacher|Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)|Single file, now!|![](/en-US/2022/10/202210050700FlamingoTeacher.jpg)|
