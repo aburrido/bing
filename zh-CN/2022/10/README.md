@@ -6,3 +6,4 @@
 202210031600|ChongyangFestival|黄山的日出，中国 (© zhouyousifang/Getty Images)|今天我们去爬山吧|![](/zh-CN/2022/10/202210031600ChongyangFestival.jpg)|
 202210041600|FlamingoTeacher|加勒比海红鹳，里奥拉加托斯自然保护区，墨西哥 (© Claudio Contreras/Minden Pictures)|列队！|![](/zh-CN/2022/10/202210041600FlamingoTeacher.jpg)|
 202210051600|BayofBiscay|巴斯克海岸世界地质公园的比斯开湾，西班牙 (© Olimpio Fantuz/eStock Photo)|隐入大海的龙尾|![](/zh-CN/2022/10/202210051600BayofBiscay.jpg)|
+202210061600|WindermereHills|温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)|英国中部最美丽的风景|![](/zh-CN/2022/10/202210061600WindermereHills.jpg)|
