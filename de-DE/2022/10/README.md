@@ -6,3 +6,4 @@
 202210032200|CosmicCliffs|Kosmische Klippen am Rand des Carinanebels (© NASA, ESA, CSA, and STScI)|Goldene Klippen in der Tiefe des Weltraums|![](/de-DE/2022/10/202210032200CosmicCliffs.jpg)|
 202210042200|FlamingoTeacher|Kubaflamingos, Biosphärenreservat Ría Lagartos, Yucatán Halbinsel, Mexiko (© Claudio Contreras/Minden Pictures)|Klassenausflug|![](/de-DE/2022/10/202210042200FlamingoTeacher.jpg)|
 202210052200|BayofBiscay|Golf von Biskaya, Geopark Baskische Küste in der Nähe von Bilbao, Spanien (© Olimpio Fantuz/eStock Photo)|Drachenschwänze weisen zum Meer|![](/de-DE/2022/10/202210052200BayofBiscay.jpg)|
+202210062200|OberbaumBridge|Illuminierte Oberbaumbrücke während des Festival of Lights, Berlin (© John MacDougall/AFP via Getty Images)|Eine alte Brücke in neuem Licht|![](/de-DE/2022/10/202210062200OberbaumBridge.jpg)|
