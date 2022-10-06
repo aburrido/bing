@@ -5,3 +5,4 @@
 202210030400|Porthuis|Port House designed by Zaha Hadid Architects, Antwerp, Belgium (© Dmitry Rukhlenko/Alamy)|A future built on the past|![](/en-CA/2022/10/202210030400Porthuis.jpg)|
 202210040400|CosmicCliffs|Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)|Golden cliffs of deep space|![](/en-CA/2022/10/202210040400CosmicCliffs.jpg)|
 202210050400|FlamingoTeacher|Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)|Single file, now!|![](/en-CA/2022/10/202210050400FlamingoTeacher.jpg)|
+202210060400|BayofBiscay|Bay of Biscay in the Basque Coast Geopark near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)|Dragon tails trail to the sea|![](/en-CA/2022/10/202210060400BayofBiscay.jpg)|
