@@ -7,3 +7,4 @@
 202210041500|FlamingoTeacher|ユカタン半島のベニイロフラミンゴの親子, メキシコ (© Claudio Contreras/Minden Pictures)|今日は世界教師デー|![](/ja-JP/2022/10/202210041500FlamingoTeacher.jpg)|
 202210051500|BayofBiscay|ビスケー湾, スペイン ビルバオ (© Olimpio Fantuz/eStock Photo)|今日は国際ジオダイバーシティデー|![](/ja-JP/2022/10/202210051500BayofBiscay.jpg)|
 202210061500|OberbaumBridge|ベルリン光の祭典, ドイツ (© John MacDougall/AFP via Getty Images)|今日からベルリン光の祭典|![](/ja-JP/2022/10/202210061500OberbaumBridge.jpg)|
+202210071500|Kokia2022|赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)|今日は寒露|![](/ja-JP/2022/10/202210071500Kokia2022.jpg)|
