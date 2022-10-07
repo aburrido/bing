@@ -7,3 +7,4 @@
 202210040700|CosmicCliffs|Cosmic Cliffs in the Carina Nebula (© NASA, ESA, CSA, and STScI)|Golden cliffs of deep space|![](/en-US/2022/10/202210040700CosmicCliffs.jpg)|
 202210050700|FlamingoTeacher|Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)|Single file, now!|![](/en-US/2022/10/202210050700FlamingoTeacher.jpg)|
 202210060700|BayofBiscay|Basque Coast Geopark in the Bay of Biscay near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)|Dragon tails trail to the sea|![](/en-US/2022/10/202210060700BayofBiscay.jpg)|
+202210070700|OberbaumBridge|Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)|An old bridge in a new light|![](/en-US/2022/10/202210070700OberbaumBridge.jpg)|
