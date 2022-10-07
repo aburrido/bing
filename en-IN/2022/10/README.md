@@ -7,3 +7,4 @@
 202210041830|RavanaDussehra|Effigies of Ravana, Meghanada, and Kumbhakarna in New Delhi, India (© Prakash Singh/Staff/AFP/Getty Images)|The victory of good over evil|![](/en-IN/2022/10/202210041830RavanaDussehra.jpg)|
 202210051830|BayofBiscay|Bay of Biscay in the Basque Coast Geopark near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)|Dragon tails trail to the sea|![](/en-IN/2022/10/202210051830BayofBiscay.jpg)|
 202210061830|OberbaumBridge|Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)|An old bridge in a new light|![](/en-IN/2022/10/202210061830OberbaumBridge.jpg)|
+202210071830|JamaMasjidDelhi1|The interior of Jama Masjid in Delhi, India (© Hadynyah/E+/Getty Images)|A magnificent place of worship|![](/en-IN/2022/10/202210071830JamaMasjidDelhi1.jpg)|
