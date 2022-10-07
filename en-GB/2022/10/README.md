@@ -7,3 +7,4 @@
 202210042300|FlamingoTeacher|Caribbean flamingos, Ría Lagartos Biosphere Reserve, Yucatán Peninsula, Mexico (© Claudio Contreras/Minden Pictures)|Single file, please!|![](/en-GB/2022/10/202210042300FlamingoTeacher.jpg)|
 202210052300|BayofBiscay|Bay of Biscay in the Basque Coast Geopark near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)|Prehistoric trails|![](/en-GB/2022/10/202210052300BayofBiscay.jpg)|
 202210062300|OberbaumBridge|Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)|An old bridge in a new light|![](/en-GB/2022/10/202210062300OberbaumBridge.jpg)|
+202210072300|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-GB/2022/10/202210072300GlassOctopus.jpg)|
