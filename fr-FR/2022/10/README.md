@@ -8,3 +8,4 @@
 202210052200|BayofBiscay|Baie de Gascogne dans le géoparc de la côte basque près de Bilbao, Espagne (© Olimpio Fantuz/eStock Photo)|Queues de dragons ?|![](/fr-FR/2022/10/202210052200BayofBiscay.jpg)|
 202210062200|OberbaumBridge|Le pont de l’Oberbaum illuminé pendant le festival des lumières de Berlin (Festival of Lights), (© John MacDougall/AFP via Getty Images)|Le pont de l’hiver du monde|![](/fr-FR/2022/10/202210062200OberbaumBridge.jpg)|
 202210072200|GlassOctopus|Pieuvre transparente dans l’océan Atlantique au large du Cap Vert (© Solvin Zankl/Minden Pictures)|L’habit ne fait pas le moine|![](/fr-FR/2022/10/202210072200GlassOctopus.jpg)|
+202210082200|ChukchiSea|Phytoplancton dans la mer des Tchoutches au large de la côte de l’Alaska, États-Unis (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Des étoiles dans la mer|![](/fr-FR/2022/10/202210082200ChukchiSea.jpg)|

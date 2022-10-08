@@ -8,3 +8,4 @@
 202210052200|BayofBiscay|Golf von Biskaya, Geopark Baskische Küste in der Nähe von Bilbao, Spanien (© Olimpio Fantuz/eStock Photo)|Drachenschwänze weisen zum Meer|![](/de-DE/2022/10/202210052200BayofBiscay.jpg)|
 202210062200|OberbaumBridge|Illuminierte Oberbaumbrücke während des Festival of Lights, Berlin (© John MacDougall/AFP via Getty Images)|Eine alte Brücke in neuem Licht|![](/de-DE/2022/10/202210062200OberbaumBridge.jpg)|
 202210072200|GlassOctopus|Glaskrake im Atlantischen Ozean vor Kap Verde (© Solvin Zankl/Minden Pictures)|Durchsichtiger Kopffüßer|![](/de-DE/2022/10/202210072200GlassOctopus.jpg)|
+202210082200|ChukchiSea|Phytoplankton-Blüte in der Tschuktschensee vor der Küste von Alaska, USA (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Was blüht hier so üppig?|![](/de-DE/2022/10/202210082200ChukchiSea.jpg)|
