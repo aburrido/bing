@@ -7,3 +7,4 @@
 202210050400|FlamingoTeacher|Flamant des Caraïbes dans la réserve de biosphère de Ría Lagartos, péninsule du Yucatán, Mexique (© Claudio Contreras/Minden Pictures)|Information|![](/fr-CA/2022/10/202210050400FlamingoTeacher.jpg)|
 202210060400|BayofBiscay|Baie de Gascogne dans le géoparc de la côte basque près de Bilbao, Espagne (© Olimpio Fantuz/eStock Photo)|Information|![](/fr-CA/2022/10/202210060400BayofBiscay.jpg)|
 202210070400|OberbaumBridge|Le pont de l’Oberbaum illuminé pendant le festival des lumières de Berlin (Festival of Lights), (© John MacDougall/AFP via Getty Images)|Information|![](/fr-CA/2022/10/202210070400OberbaumBridge.jpg)|
+202210080400|GlassOctopus|Pieuvre transparente dans l’océan Atlantique au large du Cap Vert (© Solvin Zankl/Minden Pictures)|Information|![](/fr-CA/2022/10/202210080400GlassOctopus.jpg)|
