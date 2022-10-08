@@ -8,3 +8,4 @@
 202210052300|BayofBiscay|Bay of Biscay in the Basque Coast Geopark near Bilbao, Spain (© Olimpio Fantuz/eStock Photo)|Prehistoric trails|![](/en-GB/2022/10/202210052300BayofBiscay.jpg)|
 202210062300|OberbaumBridge|Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)|An old bridge in a new light|![](/en-GB/2022/10/202210062300OberbaumBridge.jpg)|
 202210072300|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-GB/2022/10/202210072300GlassOctopus.jpg)|
+202210082300|ChukchiSea|Blooms of phytoplankton in the Chukchi Sea off the coast of Alaska, USA (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/Nasa)|What's blooming so brightly?|![](/en-GB/2022/10/202210082300ChukchiSea.jpg)|
