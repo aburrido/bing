@@ -9,3 +9,4 @@
 202210062300|OberbaumBridge|Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)|An old bridge in a new light|![](/en-GB/2022/10/202210062300OberbaumBridge.jpg)|
 202210072300|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-GB/2022/10/202210072300GlassOctopus.jpg)|
 202210082300|ChukchiSea|Blooms of phytoplankton in the Chukchi Sea off the coast of Alaska, USA (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/Nasa)|What's blooming so brightly?|![](/en-GB/2022/10/202210082300ChukchiSea.jpg)|
+202210092300|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|Drifting through Kerala|![](/en-GB/2022/10/202210092300KeralaIndia.jpg)|
