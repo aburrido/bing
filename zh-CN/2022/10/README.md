@@ -9,3 +9,4 @@
 202210061600|WindermereHills|温德米尔湖的风景，坎布里亚湖区，英格兰 (© Chris Warren/eStock Photo)|英国中部最美丽的风景|![](/zh-CN/2022/10/202210061600WindermereHills.jpg)|
 202210071600|GlassOctopus|佛得角附近大西洋中的玻璃章鱼 (© Solvin Zankl/Minden Pictures)|透明的头足类动物|![](/zh-CN/2022/10/202210071600GlassOctopus.jpg)|
 202210081600|ChukchiSea|楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|什么生长得这样茂盛？|![](/zh-CN/2022/10/202210081600ChukchiSea.jpg)|
+202210091600|ValvestinoDam|瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)|穿越意大利峡湾之旅|![](/zh-CN/2022/10/202210091600ValvestinoDam.jpg)|
