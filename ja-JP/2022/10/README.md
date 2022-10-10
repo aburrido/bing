@@ -10,3 +10,4 @@
 202210071500|Kokia2022|赤く染まるコキア, 茨城 (© Taro_since2017/shutterstock)|今日は寒露|![](/ja-JP/2022/10/202210071500Kokia2022.jpg)|
 202210081500|ChukchiSea|上空から撮影したチュクチ海, 米国 アラスカ (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|今日から地球科学週間|![](/ja-JP/2022/10/202210081500ChukchiSea.jpg)|
 202210091500|ValvestinoDam|ヴァルヴェスティーノ湖のダム, イタリア ロンバルディア州 (© wmaster890/Getty Images)|ヴァルヴェスティーノ湖のダム|![](/ja-JP/2022/10/202210091500ValvestinoDam.jpg)|
+202210101500|TortulaMoss|ヘラハネジレゴケ, オランダ (© Arjan Troost/Minden Pictures)|ヘラハネジレゴケのマクロ写真|![](/ja-JP/2022/10/202210101500TortulaMoss.jpg)|
