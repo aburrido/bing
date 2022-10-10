@@ -10,3 +10,4 @@
 202210072200|GlassOctopus|Glaskrake im Atlantischen Ozean vor Kap Verde (© Solvin Zankl/Minden Pictures)|Durchsichtiger Kopffüßer|![](/de-DE/2022/10/202210072200GlassOctopus.jpg)|
 202210082200|ChukchiSea|Phytoplankton-Blüte in der Tschuktschensee vor der Küste von Alaska, USA (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Was blüht hier so üppig?|![](/de-DE/2022/10/202210082200ChukchiSea.jpg)|
 202210092200|StareLembruch|Herzförmiger Starenschwarm bei Lembruch, Naturpark Dümmer, Niedersachsen (© Christian Kosanetzky/Getty Images)|Faszinierender Formationsflug|![](/de-DE/2022/10/202210092200StareLembruch.jpg)|
+202210102200|TortulaMoss|Mauer-Drehzahnmoos, Niederlande (© Arjan Troost/Minden Pictures)|Glitzerndes Moos|![](/de-DE/2022/10/202210102200TortulaMoss.jpg)|
