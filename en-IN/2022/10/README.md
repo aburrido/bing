@@ -10,3 +10,4 @@
 202210071830|JamaMasjidDelhi1|The interior of Jama Masjid in Delhi, India (© Hadynyah/E+/Getty Images)|A magnificent place of worship|![](/en-IN/2022/10/202210071830JamaMasjidDelhi1.jpg)|
 202210081830|ChukchiSea|Blooms of phytoplankton in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|What’s blooming so brightly?|![](/en-IN/2022/10/202210081830ChukchiSea.jpg)|
 202210091830|RioArazas|Waterfall on the Rio Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Gateway to Iberia|![](/en-IN/2022/10/202210091830RioArazas.jpg)|
+202210101830|TortulaMoss|Wall-screw moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnified moss|![](/en-IN/2022/10/202210101830TortulaMoss.jpg)|
