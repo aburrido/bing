@@ -9,3 +9,4 @@
 202210070400|OberbaumBridge|Le pont de l’Oberbaum illuminé pendant le festival des lumières de Berlin (Festival of Lights), (© John MacDougall/AFP via Getty Images)|Information|![](/fr-CA/2022/10/202210070400OberbaumBridge.jpg)|
 202210080400|GlassOctopus|Pieuvre transparente dans l’océan Atlantique au large du Cap Vert (© Solvin Zankl/Minden Pictures)|Information|![](/fr-CA/2022/10/202210080400GlassOctopus.jpg)|
 202210090400|ChukchiSea|Phytoplancton dans la mer des Tchoutches au large de la côte de l’Alaska, États-Unis (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Information|![](/fr-CA/2022/10/202210090400ChukchiSea.jpg)|
+202210100400|CornKernels|Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)|Information|![](/fr-CA/2022/10/202210100400CornKernels.jpg)|
