@@ -10,3 +10,4 @@
 202210072300|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-GB/2022/10/202210072300GlassOctopus.jpg)|
 202210082300|ChukchiSea|Blooms of phytoplankton in the Chukchi Sea off the coast of Alaska, USA (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/Nasa)|What's blooming so brightly?|![](/en-GB/2022/10/202210082300ChukchiSea.jpg)|
 202210092300|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|Drifting through Kerala|![](/en-GB/2022/10/202210092300KeralaIndia.jpg)|
+202210102300|TortulaMoss|Wall-screw moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnificent moss, magnified|![](/en-GB/2022/10/202210102300TortulaMoss.jpg)|
