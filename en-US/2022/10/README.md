@@ -10,3 +10,4 @@
 202210070700|OberbaumBridge|Designs projected on the Oberbaum Bridge during the yearly Festival of Lights in Berlin, Germany (© John MacDougall/AFP via Getty Images)|An old bridge in a new light|![](/en-US/2022/10/202210070700OberbaumBridge.jpg)|
 202210080700|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-US/2022/10/202210080700GlassOctopus.jpg)|
 202210090700|ChukchiSea|Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|What's blooming so brightly?|![](/en-US/2022/10/202210090700ChukchiSea.jpg)|
+202210100700|SacredSmoke|The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)|'Circle of Sacred Smoke'|![](/en-US/2022/10/202210100700SacredSmoke.jpg)|

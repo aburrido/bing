@@ -10,3 +10,4 @@
 202210070700|WindermereHills|Windermere, Lake District, Cumbria, England (© Chris Warren/eStock Photo)|Info|![](/en-AU/2022/10/202210070700WindermereHills.jpg)|
 202210080700|GlassOctopus|Glass octopus, Atlantic Ocean, Cabo Verde (© Solvin Zankl/Minden Pictures)|Info|![](/en-AU/2022/10/202210080700GlassOctopus.jpg)|
 202210090700|ChukchiSea|Phytoplankton, Chukchi Sea, Alaska, USA (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Info|![](/en-AU/2022/10/202210090700ChukchiSea.jpg)|
+202210100700|ValvestinoDam|Lake Valvestino, Brescia, Lombardy, Italy (© wmaster890/Getty Images)|Info|![](/en-AU/2022/10/202210100700ValvestinoDam.jpg)|
