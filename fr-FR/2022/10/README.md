@@ -11,3 +11,4 @@
 202210082200|ChukchiSea|Phytoplancton dans la mer des Tchoutches au large de la côte de l’Alaska, États-Unis (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Des étoiles dans la mer|![](/fr-FR/2022/10/202210082200ChukchiSea.jpg)|
 202210092200|ParisFall|Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)|Paris à la lueur de l’automne|![](/fr-FR/2022/10/202210092200ParisFall.jpg)|
 202210102200|ArbresOcres|Cyprès chauves aux couleurs d’automne en Isère (© Jean-Philippe Delobelle/Minden Images)|Reflets d'automne|![](/fr-FR/2022/10/202210102200ArbresOcres.jpg)|
+202210112200|AmmoniteGraveyard|Sol d'ammonite près de Monmouth Beach, côte jurassique, patrimoine mondial de l’UNESCO, Dorset, Angleterre (© AWL Images/Danita Delimont)|Gravés dans la roche|![](/fr-FR/2022/10/202210112200AmmoniteGraveyard.jpg)|
