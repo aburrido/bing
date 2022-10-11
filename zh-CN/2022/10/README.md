@@ -11,3 +11,4 @@
 202210081600|ChukchiSea|楚科奇海的浮游植物水华，美国阿拉斯加州海岸附近 (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|什么生长得这样茂盛？|![](/zh-CN/2022/10/202210081600ChukchiSea.jpg)|
 202210091600|ValvestinoDam|瓦伦蒂诺大坝，意大利伦巴第大区布雷西亚省 (© wmaster890/Getty Images)|穿越意大利峡湾之旅|![](/zh-CN/2022/10/202210091600ValvestinoDam.jpg)|
 202210101600|TortulaMoss|带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)|放大镜下的墙藓|![](/zh-CN/2022/10/202210101600TortulaMoss.jpg)|
+202210111600|AmmoniteGraveyard|蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)|回到过去|![](/zh-CN/2022/10/202210111600AmmoniteGraveyard.jpg)|
