@@ -10,3 +10,4 @@
 202210080400|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-CA/2022/10/202210080400GlassOctopus.jpg)|
 202210090400|ChukchiSea|Blooms of phytoplankton in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|What's blooming so brightly?|![](/en-CA/2022/10/202210090400ChukchiSea.jpg)|
 202210100400|CornKernels|Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)|Happy Thanksgiving!|![](/en-CA/2022/10/202210100400CornKernels.jpg)|
+202210110400|TortulaMoss|Wall-screw moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnified moss|![](/en-CA/2022/10/202210110400TortulaMoss.jpg)|
