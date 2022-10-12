@@ -12,3 +12,4 @@
 202210092200|ParisFall|Vue aérienne de Paris en automne (© encrier/iStock/Getty Images Plus)|Paris à la lueur de l’automne|![](/fr-FR/2022/10/202210092200ParisFall.jpg)|
 202210102200|ArbresOcres|Cyprès chauves aux couleurs d’automne en Isère (© Jean-Philippe Delobelle/Minden Images)|Reflets d'automne|![](/fr-FR/2022/10/202210102200ArbresOcres.jpg)|
 202210112200|AmmoniteGraveyard|Sol d'ammonite près de Monmouth Beach, côte jurassique, patrimoine mondial de l’UNESCO, Dorset, Angleterre (© AWL Images/Danita Delimont)|Gravés dans la roche|![](/fr-FR/2022/10/202210112200AmmoniteGraveyard.jpg)|
+202210122200|AlaskaMoose|Élans mâle et femelle dans le parc national du Denali, Alaska, États-Unis (© Yva Momatiuk and John Eastcott/Minden Pictures)|« T’as d’beaux yeux tu sais »|![](/fr-FR/2022/10/202210122200AlaskaMoose.jpg)|
