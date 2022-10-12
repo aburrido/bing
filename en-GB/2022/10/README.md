@@ -12,3 +12,4 @@
 202210092300|KeralaIndia|Aerial view of a boat in Kerala, India (© Ebin Francis/Shutterstock)|Drifting through Kerala|![](/en-GB/2022/10/202210092300KeralaIndia.jpg)|
 202210102300|TortulaMoss|Wall-screw moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnificent moss, magnified|![](/en-GB/2022/10/202210102300TortulaMoss.jpg)|
 202210112300|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Dorset (© AWL Images/Danita Delimont)|A prehistoric pavement|![](/en-GB/2022/10/202210112300AmmoniteGraveyard.jpg)|
+202210122300|WindermereHills|View over Windermere, Lake District, Cumbria (© Chris Warren/eStock Photo)|Autumn on Windermere|![](/en-GB/2022/10/202210122300WindermereHills.jpg)|
