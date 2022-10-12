@@ -12,3 +12,4 @@
 202210091500|ValvestinoDam|ヴァルヴェスティーノ湖のダム, イタリア ロンバルディア州 (© wmaster890/Getty Images)|ヴァルヴェスティーノ湖のダム|![](/ja-JP/2022/10/202210091500ValvestinoDam.jpg)|
 202210101500|TortulaMoss|ヘラハネジレゴケ, オランダ (© Arjan Troost/Minden Pictures)|ヘラハネジレゴケのマクロ写真|![](/ja-JP/2022/10/202210101500TortulaMoss.jpg)|
 202210111500|AmmoniteGraveyard|ジュラシック・コーストのアンモナイトペイブメント, イギリス ドーセット (© AWL Images/Danita Delimont)|今日は国際化石の日|![](/ja-JP/2022/10/202210111500AmmoniteGraveyard.jpg)|
+202210121500|AlaskaMoose|デナリ国立公園のヘラジカ, 米国 アラスカ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|ヘラジカのカップル|![](/ja-JP/2022/10/202210121500AlaskaMoose.jpg)|
