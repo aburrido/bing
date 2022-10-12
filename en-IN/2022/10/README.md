@@ -12,3 +12,4 @@
 202210091830|RioArazas|Waterfall on the Rio Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Gateway to Iberia|![](/en-IN/2022/10/202210091830RioArazas.jpg)|
 202210101830|TortulaMoss|Wall-screw moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnified moss|![](/en-IN/2022/10/202210101830TortulaMoss.jpg)|
 202210111830|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)|Stepping back in time|![](/en-IN/2022/10/202210111830AmmoniteGraveyard.jpg)|
+202210121830|AlaskaMoose|Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)|When being in a rut is OK|![](/en-IN/2022/10/202210121830AlaskaMoose.jpg)|
