@@ -11,3 +11,4 @@
 202210090400|ChukchiSea|Phytoplancton dans la mer des Tchoutches au large de la côte de l’Alaska, États-Unis (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|Information|![](/fr-CA/2022/10/202210090400ChukchiSea.jpg)|
 202210100400|CornKernels|Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)|Information|![](/fr-CA/2022/10/202210100400CornKernels.jpg)|
 202210110400|TortulaMoss|Espèce de mousse illuminée de gouttes d’eau, Pays-Bas (© Arjan Troost/Minden Pictures)|Information|![](/fr-CA/2022/10/202210110400TortulaMoss.jpg)|
+202210120400|AmmoniteGraveyard|Ammonite Pavement près de Monmouth Beach, côte jurassique, patrimoine mondial de l’UNESCO, Dorset, Angleterre (© AWL Images/Danita Delimont)|Information|![](/fr-CA/2022/10/202210120400AmmoniteGraveyard.jpg)|
