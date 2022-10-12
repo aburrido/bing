@@ -12,3 +12,4 @@
 202210090700|ChukchiSea|Phytoplankton blooming in the Chukchi Sea off the coast of Alaska (© Norman Kuring/Kathryn Hansen/U.S. Geological Survey/NASA)|What's blooming so brightly?|![](/en-US/2022/10/202210090700ChukchiSea.jpg)|
 202210100700|SacredSmoke|The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)|'Circle of Sacred Smoke'|![](/en-US/2022/10/202210100700SacredSmoke.jpg)|
 202210110700|TortulaMoss|Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnified moss|![](/en-US/2022/10/202210110700TortulaMoss.jpg)|
+202210120700|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)|Stepping back in time|![](/en-US/2022/10/202210120700AmmoniteGraveyard.jpg)|
