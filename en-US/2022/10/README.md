@@ -13,3 +13,4 @@
 202210100700|SacredSmoke|The 'Circle of Sacred Smoke' sculpture by Junkyu Muto frames Devils Tower in Wyoming (© Nagel Photography/Shutterstock)|'Circle of Sacred Smoke'|![](/en-US/2022/10/202210100700SacredSmoke.jpg)|
 202210110700|TortulaMoss|Wall screw-moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnified moss|![](/en-US/2022/10/202210110700TortulaMoss.jpg)|
 202210120700|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)|Stepping back in time|![](/en-US/2022/10/202210120700AmmoniteGraveyard.jpg)|
+202210130700|AlaskaMoose|Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)|When being in a rut is OK|![](/en-US/2022/10/202210130700AlaskaMoose.jpg)|
