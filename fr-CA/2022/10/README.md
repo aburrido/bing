@@ -12,3 +12,4 @@
 202210100400|CornKernels|Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)|Information|![](/fr-CA/2022/10/202210100400CornKernels.jpg)|
 202210110400|TortulaMoss|Espèce de mousse illuminée de gouttes d’eau, Pays-Bas (© Arjan Troost/Minden Pictures)|Information|![](/fr-CA/2022/10/202210110400TortulaMoss.jpg)|
 202210120400|AmmoniteGraveyard|Ammonite Pavement près de Monmouth Beach, côte jurassique, patrimoine mondial de l’UNESCO, Dorset, Angleterre (© AWL Images/Danita Delimont)|Information|![](/fr-CA/2022/10/202210120400AmmoniteGraveyard.jpg)|
+202210130400|AlaskaMoose|Élan mâle et femelle dans le parc national du Denali, Alaska, États-Unis (© Yva Momatiuk and John Eastcott/Minden Pictures)|Information|![](/fr-CA/2022/10/202210130400AlaskaMoose.jpg)|

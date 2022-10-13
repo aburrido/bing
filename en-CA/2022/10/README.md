@@ -12,3 +12,4 @@
 202210100400|CornKernels|Close up image of colourful Indian corn kernels in Mississauga, ON (© Nancybelle Gonzaga Villarroya/Getty Images)|Happy Thanksgiving!|![](/en-CA/2022/10/202210100400CornKernels.jpg)|
 202210110400|TortulaMoss|Wall-screw moss glistening with water droplets, Netherlands (© Arjan Troost/Minden Pictures)|Magnified moss|![](/en-CA/2022/10/202210110400TortulaMoss.jpg)|
 202210120400|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)|Stepping back in time|![](/en-CA/2022/10/202210120400AmmoniteGraveyard.jpg)|
+202210130400|AlaskaMoose|Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)|When being in a rut is OK|![](/en-CA/2022/10/202210130400AlaskaMoose.jpg)|
