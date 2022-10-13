@@ -13,3 +13,4 @@
 202210101600|TortulaMoss|带着闪闪发光水滴的泛生墙藓, 荷兰 (© Arjan Troost/Minden Pictures)|放大镜下的墙藓|![](/zh-CN/2022/10/202210101600TortulaMoss.jpg)|
 202210111600|AmmoniteGraveyard|蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)|回到过去|![](/zh-CN/2022/10/202210111600AmmoniteGraveyard.jpg)|
 202210121600|AlaskaMoose|迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|驼鹿发情的季节|![](/zh-CN/2022/10/202210121600AlaskaMoose.jpg)|
+202210131600|RioArazas|奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)|通往伊比利亚的门户|![](/zh-CN/2022/10/202210131600RioArazas.jpg)|
