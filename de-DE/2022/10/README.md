@@ -13,3 +13,4 @@
 202210102200|TortulaMoss|Mauer-Drehzahnmoos, Niederlande (© Arjan Troost/Minden Pictures)|Glitzerndes Moos|![](/de-DE/2022/10/202210102200TortulaMoss.jpg)|
 202210112200|AmmoniteGraveyard|Ammoniten-Pflaster am Monmouth Beach, Jurassic Coast, Grafschaft Dorset, England, Vereinigtes Königreich (© AWL Images/Danita Delimont)|Reise in die Vergangenheit|![](/de-DE/2022/10/202210112200AmmoniteGraveyard.jpg)|
 202210122200|AlaskaMoose|Elchbulle und Elchweibchen im Denali-Nationalpark, Alaska, USA (© Yva Momatiuk and John Eastcott/Minden Pictures)|Rendezvous im Nationalpark|![](/de-DE/2022/10/202210122200AlaskaMoose.jpg)|
+202210132200|HohenzollernHechingen|Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)|Herbst auf der Schwäbischen Alb|![](/de-DE/2022/10/202210132200HohenzollernHechingen.jpg)|
