@@ -14,3 +14,4 @@
 202210112200|AmmoniteGraveyard|Sol d'ammonite près de Monmouth Beach, côte jurassique, patrimoine mondial de l’UNESCO, Dorset, Angleterre (© AWL Images/Danita Delimont)|Gravés dans la roche|![](/fr-FR/2022/10/202210112200AmmoniteGraveyard.jpg)|
 202210122200|AlaskaMoose|Élans mâle et femelle dans le parc national du Denali, Alaska, États-Unis (© Yva Momatiuk and John Eastcott/Minden Pictures)|« T’as d’beaux yeux tu sais »|![](/fr-FR/2022/10/202210122200AlaskaMoose.jpg)|
 202210132200|RioArazas|Cascade dans le parc national d'Ordesa et du Mont-Perdu, Pyrénées, Espagne (© David Santiago Garcia/Cavan Images)|Nature pyrénéenne|![](/fr-FR/2022/10/202210132200RioArazas.jpg)|
+202210142200|NaqsheRustam|Le site archéologique de Naqsh-e Rustam près de Persépolis, Iran (© mshirani/Shutterstock)|L’histoire contée par la pierre|![](/fr-FR/2022/10/202210142200NaqsheRustam.jpg)|
