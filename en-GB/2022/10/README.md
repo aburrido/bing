@@ -14,3 +14,4 @@
 202210112300|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Dorset (© AWL Images/Danita Delimont)|A prehistoric pavement|![](/en-GB/2022/10/202210112300AmmoniteGraveyard.jpg)|
 202210122300|WindermereHills|View over Windermere, Lake District, Cumbria (© Chris Warren/eStock Photo)|Autumn on Windermere|![](/en-GB/2022/10/202210122300WindermereHills.jpg)|
 202210132300|RioArazas|Waterfall on the Rio Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Gateway to Iberia|![](/en-GB/2022/10/202210132300RioArazas.jpg)|
+202210142300|NaqsheRustam|Naqsh-e Rustam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|International Archaeology Day|![](/en-GB/2022/10/202210142300NaqsheRustam.jpg)|
