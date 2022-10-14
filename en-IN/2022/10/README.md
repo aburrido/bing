@@ -14,3 +14,4 @@
 202210111830|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)|Stepping back in time|![](/en-IN/2022/10/202210111830AmmoniteGraveyard.jpg)|
 202210121830|AlaskaMoose|Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)|When being in a rut is OK|![](/en-IN/2022/10/202210121830AlaskaMoose.jpg)|
 202210131830|BlueTigerButterflies|Blue tiger butterflies on a tree in Bengaluru, India (© Amith Nag Photography/Getty Images)|Don't just fly, darling. Soar!|![](/en-IN/2022/10/202210131830BlueTigerButterflies.jpg)|
+202210141830|NaqsheRustam|Naqsh-e Rustam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|International Archaeology Day|![](/en-IN/2022/10/202210141830NaqsheRustam.jpg)|
