@@ -14,3 +14,4 @@
 202210111600|AmmoniteGraveyard|蒙茅斯海滩的菊石路面，英国多塞特侏罗纪海岸世界遗产地 (© AWL Images/Danita Delimont)|回到过去|![](/zh-CN/2022/10/202210111600AmmoniteGraveyard.jpg)|
 202210121600|AlaskaMoose|迪纳利国家公园里的两只驼鹿，美国阿拉斯加州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|驼鹿发情的季节|![](/zh-CN/2022/10/202210121600AlaskaMoose.jpg)|
 202210131600|RioArazas|奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)|通往伊比利亚的门户|![](/zh-CN/2022/10/202210131600RioArazas.jpg)|
+202210141600|NaqsheRustam|纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)|国际考古日|![](/zh-CN/2022/10/202210141600NaqsheRustam.jpg)|
