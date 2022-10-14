@@ -14,3 +14,4 @@
 202210111500|AmmoniteGraveyard|ジュラシック・コーストのアンモナイトペイブメント, イギリス ドーセット (© AWL Images/Danita Delimont)|今日は国際化石の日|![](/ja-JP/2022/10/202210111500AmmoniteGraveyard.jpg)|
 202210121500|AlaskaMoose|デナリ国立公園のヘラジカ, 米国 アラスカ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|ヘラジカのカップル|![](/ja-JP/2022/10/202210121500AlaskaMoose.jpg)|
 202210131500|RioArazas|オルデサ渓谷のアラサス川, スペイン (© David Santiago Garcia/Cavan Images)|オルデサ渓谷|![](/ja-JP/2022/10/202210131500RioArazas.jpg)|
+202210141500|NaqsheRustam|ナクシェ・ロスタム, イラン (© mshirani/Shutterstock)|国際考古学の日|![](/ja-JP/2022/10/202210141500NaqsheRustam.jpg)|
