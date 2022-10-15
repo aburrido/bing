@@ -14,3 +14,4 @@
 202210120400|AmmoniteGraveyard|Ammonite Pavement at Monmouth Beach, Jurassic Coast World Heritage Site, Dorset, England (© AWL Images/Danita Delimont)|Stepping back in time|![](/en-CA/2022/10/202210120400AmmoniteGraveyard.jpg)|
 202210130400|AlaskaMoose|Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)|When being in a rut is OK|![](/en-CA/2022/10/202210130400AlaskaMoose.jpg)|
 202210140400|JasperMilkyWay|The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)|A galaxy full of stars|![](/en-CA/2022/10/202210140400JasperMilkyWay.jpg)|
+202210150400|NaqsheRustam|Naqsh-e Rustam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|International Archaeology Day|![](/en-CA/2022/10/202210150400NaqsheRustam.jpg)|
