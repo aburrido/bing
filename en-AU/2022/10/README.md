@@ -15,3 +15,4 @@
 202210120700|AmmoniteGraveyard|Ammonite Pavement, Monmouth Beach, Jurassic Coast, Dorset, England (© AWL Images/Danita Delimont)|Info|![](/en-AU/2022/10/202210120700AmmoniteGraveyard.jpg)|
 202210130700|AlaskaMoose|Alaska moose, Denali National Park, Alaska, USA (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2022/10/202210130700AlaskaMoose.jpg)|
 202210140700|RioArazas|Arazas river, Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Info|![](/en-AU/2022/10/202210140700RioArazas.jpg)|
+202210150700|NaqsheRustam|Naqsh-e Rustam archaeological site, Persepolis, Iran (© mshirani/Shutterstock)|Info|![](/en-AU/2022/10/202210150700NaqsheRustam.jpg)|
