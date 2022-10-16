@@ -16,3 +16,4 @@
 202210130700|AlaskaMoose|Bull and female moose in Denali National Park, Alaska (© Yva Momatiuk and John Eastcott/Minden Pictures)|When being in a rut is OK|![](/en-US/2022/10/202210130700AlaskaMoose.jpg)|
 202210140700|RioArazas|Waterfall on the Río Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Gateway to Iberia|![](/en-US/2022/10/202210140700RioArazas.jpg)|
 202210150700|NaqsheRustam|Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|Final resting place of kings|![](/en-US/2022/10/202210150700NaqsheRustam.jpg)|
+202210160700|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-US/2022/10/202210160700PrinceChristianSound.jpg)|
