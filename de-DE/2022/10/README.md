@@ -16,3 +16,4 @@
 202210132200|HohenzollernHechingen|Blick auf die Burg Hohenzollern in der Nähe von Hechingen, Schwäbische Alb, Baden-Württemberg (© Cornelia Dorr/eStock Photo)|Herbst auf der Schwäbischen Alb|![](/de-DE/2022/10/202210132200HohenzollernHechingen.jpg)|
 202210142200|NaqsheRustam|Archäologische Stätte Naqsch-e Rostam nahe Persepolis, Iran (© mshirani/Shutterstock)|Internationaler Tag der Archäologie|![](/de-DE/2022/10/202210142200NaqsheRustam.jpg)|
 202210152200|RioArazas|Wasserfall am Rio Arazas im Nationalpark Ordesa y Monte Perdido, Pyrenäen, Spanien (© David Santiago Garcia/Cavan Images)|Tor zur Iberischen Halbinsel|![](/de-DE/2022/10/202210152200RioArazas.jpg)|
+202210162200|PrinceChristianSound|Prins Christian Sund an der Südspitze Grönlands (© Posnov/Getty Images)|Südspitze einer nördlichen Insel|![](/de-DE/2022/10/202210162200PrinceChristianSound.jpg)|

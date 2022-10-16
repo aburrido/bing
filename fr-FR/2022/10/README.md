@@ -16,3 +16,4 @@
 202210132200|RioArazas|Cascade dans le parc national d'Ordesa et du Mont-Perdu, Pyrénées, Espagne (© David Santiago Garcia/Cavan Images)|Nature pyrénéenne|![](/fr-FR/2022/10/202210132200RioArazas.jpg)|
 202210142200|NaqsheRustam|Le site archéologique de Naqsh-e Rustam près de Persépolis, Iran (© mshirani/Shutterstock)|L’histoire contée par la pierre|![](/fr-FR/2022/10/202210142200NaqsheRustam.jpg)|
 202210152200|PrinceChristianSound|Passage du prince Christian dans le sud du Groenland (© Posnov/Getty Images)|Pays du froid éternel|![](/fr-FR/2022/10/202210152200PrinceChristianSound.jpg)|
+202210162200|SwedenOwl|Hibou moyen-duc dans les monts de Bohême-Moravie en République Tchèque (© Ondrej Prosicky/Alamy)|Pas chouette|![](/fr-FR/2022/10/202210162200SwedenOwl.jpg)|
