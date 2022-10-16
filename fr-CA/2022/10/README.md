@@ -15,3 +15,4 @@
 202210130400|AlaskaMoose|Élan mâle et femelle dans le parc national du Denali, Alaska, États-Unis (© Yva Momatiuk and John Eastcott/Minden Pictures)|Information|![](/fr-CA/2022/10/202210130400AlaskaMoose.jpg)|
 202210140400|JasperMilkyWay|The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)|Information|![](/fr-CA/2022/10/202210140400JasperMilkyWay.jpg)|
 202210150400|NaqsheRustam|Le site archéologique de Naqsh-e Rustam près de Persépolis, Iran (© mshirani/Shutterstock)|Information|![](/fr-CA/2022/10/202210150400NaqsheRustam.jpg)|
+202210160400|PrinceChristianSound|Passage du prince Christian dans le sud du Groenland (© Posnov/Getty Images)|Information|![](/fr-CA/2022/10/202210160400PrinceChristianSound.jpg)|
