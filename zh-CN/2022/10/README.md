@@ -16,3 +16,4 @@
 202210131600|RioArazas|奥尔德萨和佩尔迪多山国家公园里的瀑布，西班牙比利牛斯山脉 (© David Santiago Garcia/Cavan Images)|通往伊比利亚的门户|![](/zh-CN/2022/10/202210131600RioArazas.jpg)|
 202210141600|NaqsheRustam|纳克什鲁斯塔姆遗址，伊朗波斯波利斯 (© mshirani/Shutterstock)|国际考古日|![](/zh-CN/2022/10/202210141600NaqsheRustam.jpg)|
 202210151600|PrinceChristianSound|克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)|一座北部岛屿的南端|![](/zh-CN/2022/10/202210151600PrinceChristianSound.jpg)|
+202210161600|SwedenOwl|捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)|“长耳”猫头鹰|![](/zh-CN/2022/10/202210161600SwedenOwl.jpg)|
