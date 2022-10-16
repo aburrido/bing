@@ -16,3 +16,4 @@
 202210131830|BlueTigerButterflies|Blue tiger butterflies on a tree in Bengaluru, India (© Amith Nag Photography/Getty Images)|Don't just fly, darling. Soar!|![](/en-IN/2022/10/202210131830BlueTigerButterflies.jpg)|
 202210141830|NaqsheRustam|Naqsh-e Rustam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|International Archaeology Day|![](/en-IN/2022/10/202210141830NaqsheRustam.jpg)|
 202210151830|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-IN/2022/10/202210151830PrinceChristianSound.jpg)|
+202210161830|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-IN/2022/10/202210161830SwedenOwl.jpg)|
