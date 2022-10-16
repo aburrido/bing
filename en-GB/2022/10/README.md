@@ -16,3 +16,4 @@
 202210132300|RioArazas|Waterfall on the Rio Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Gateway to Iberia|![](/en-GB/2022/10/202210132300RioArazas.jpg)|
 202210142300|NaqsheRustam|Naqsh-e Rustam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|International Archaeology Day|![](/en-GB/2022/10/202210142300NaqsheRustam.jpg)|
 202210152300|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-GB/2022/10/202210152300PrinceChristianSound.jpg)|
+202210162300|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-GB/2022/10/202210162300SwedenOwl.jpg)|
