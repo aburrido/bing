@@ -17,3 +17,4 @@
 202210142200|NaqsheRustam|Archäologische Stätte Naqsch-e Rostam nahe Persepolis, Iran (© mshirani/Shutterstock)|Internationaler Tag der Archäologie|![](/de-DE/2022/10/202210142200NaqsheRustam.jpg)|
 202210152200|RioArazas|Wasserfall am Rio Arazas im Nationalpark Ordesa y Monte Perdido, Pyrenäen, Spanien (© David Santiago Garcia/Cavan Images)|Tor zur Iberischen Halbinsel|![](/de-DE/2022/10/202210152200RioArazas.jpg)|
 202210162200|PrinceChristianSound|Prins Christian Sund an der Südspitze Grönlands (© Posnov/Getty Images)|Südspitze einer nördlichen Insel|![](/de-DE/2022/10/202210162200PrinceChristianSound.jpg)|
+202210172200|GB25Anni|Guggenheim-Museum Bilbao, Spanien (© Jeremy Horner/Getty Images)|Nachts außerhalb des Museums|![](/de-DE/2022/10/202210172200GB25Anni.jpg)|
