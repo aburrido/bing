@@ -16,3 +16,4 @@
 202210140400|JasperMilkyWay|The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)|Information|![](/fr-CA/2022/10/202210140400JasperMilkyWay.jpg)|
 202210150400|NaqsheRustam|Le site archéologique de Naqsh-e Rustam près de Persépolis, Iran (© mshirani/Shutterstock)|Information|![](/fr-CA/2022/10/202210150400NaqsheRustam.jpg)|
 202210160400|PrinceChristianSound|Passage du prince Christian dans le sud du Groenland (© Posnov/Getty Images)|Information|![](/fr-CA/2022/10/202210160400PrinceChristianSound.jpg)|
+202210170400|SwedenOwl|Hibou moyen-duc dans les monts de Bohême-Moravie en République Tchèque (© Ondrej Prosicky/Alamy)|Information|![](/fr-CA/2022/10/202210170400SwedenOwl.jpg)|

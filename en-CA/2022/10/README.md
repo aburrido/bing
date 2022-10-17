@@ -16,3 +16,4 @@
 202210140400|JasperMilkyWay|The Milky Way and galactic core area over Mount Andromeda (centre), Mount Athabasca (left) and the Athabasca Glacier (right) at the Columbia Icefields (© Alan Dyer/VW PICS/Universal Images Group via Getty Images)|A galaxy full of stars|![](/en-CA/2022/10/202210140400JasperMilkyWay.jpg)|
 202210150400|NaqsheRustam|Naqsh-e Rustam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|International Archaeology Day|![](/en-CA/2022/10/202210150400NaqsheRustam.jpg)|
 202210160400|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-CA/2022/10/202210160400PrinceChristianSound.jpg)|
+202210170400|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-CA/2022/10/202210170400SwedenOwl.jpg)|
