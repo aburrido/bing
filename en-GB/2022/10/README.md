@@ -18,3 +18,4 @@
 202210152300|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-GB/2022/10/202210152300PrinceChristianSound.jpg)|
 202210162300|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-GB/2022/10/202210162300SwedenOwl.jpg)|
 202210172300|BushHouse|Ceiling above gate of Bush House, former HQ of BBC World Service (© LillaSam/Shutterstock)|London calling|![](/en-GB/2022/10/202210172300BushHouse.jpg)|
+202210182300|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|Germany's 'green heart'|![](/en-GB/2022/10/202210182300WartburgCastle.jpg)|
