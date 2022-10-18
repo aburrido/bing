@@ -18,3 +18,4 @@
 202210151500|PrinceChristianSound|プリンスクリスチャン海峡, グリーンランド (© Posnov/Getty Images)|プリンスクリスチャン海峡|![](/ja-JP/2022/10/202210151500PrinceChristianSound.jpg)|
 202210161500|SwedenOwl|トラフズク, チェコ共和国 (© Ondrej Prosicky/Alamy)|トラフズク|![](/ja-JP/2022/10/202210161500SwedenOwl.jpg)|
 202210171500|GB25Anni|ビルバオ・グッゲンハイム美術館, スペイン ビルバオ (© Jeremy Horner/Getty Images)|ビルバオ・グッゲンハイム美術館 25周年|![](/ja-JP/2022/10/202210171500GB25Anni.jpg)|
+202210181500|WartburgCastle|紅葉するテューリンゲンの森, ドイツ (© ezypix/Getty Images)|テューリンゲンの森|![](/ja-JP/2022/10/202210181500WartburgCastle.jpg)|
