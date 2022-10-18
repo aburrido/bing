@@ -18,3 +18,4 @@
 202210151830|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-IN/2022/10/202210151830PrinceChristianSound.jpg)|
 202210161830|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-IN/2022/10/202210161830SwedenOwl.jpg)|
 202210171830|GB25Anni|Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)|Night outside the museum|![](/en-IN/2022/10/202210171830GB25Anni.jpg)|
+202210181830|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|'Wait, mountain – you shall bear my castle!'|![](/en-IN/2022/10/202210181830WartburgCastle.jpg)|
