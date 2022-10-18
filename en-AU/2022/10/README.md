@@ -18,3 +18,4 @@
 202210150700|NaqsheRustam|Naqsh-e Rustam archaeological site, Persepolis, Iran (© mshirani/Shutterstock)|Info|![](/en-AU/2022/10/202210150700NaqsheRustam.jpg)|
 202210160700|PrinceChristianSound|Prince Christian Sound, Greenland (© Posnov/Getty Images)|Info|![](/en-AU/2022/10/202210160700PrinceChristianSound.jpg)|
 202210170700|SwedenOwl|Long-eared owl, Bohemian-Moravian Highlands, Czech Republic (© Ondrej Prosicky/Alamy)|Info|![](/en-AU/2022/10/202210170700SwedenOwl.jpg)|
+202210180700|BlueTigerButterflies|Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2022/10/202210180700BlueTigerButterflies.jpg)|

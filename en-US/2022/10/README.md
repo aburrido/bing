@@ -18,3 +18,4 @@
 202210150700|NaqsheRustam|Naqsh-e Rostam archaeological site near Persepolis, Iran (© mshirani/Shutterstock)|Final resting place of kings|![](/en-US/2022/10/202210150700NaqsheRustam.jpg)|
 202210160700|PrinceChristianSound|Prince Christian Sound in southern Greenland (© Posnov/Getty Images)|Southern tip of a northern isle|![](/en-US/2022/10/202210160700PrinceChristianSound.jpg)|
 202210170700|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-US/2022/10/202210170700SwedenOwl.jpg)|
+202210180700|GB25Anni|Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)|Night outside the museum|![](/en-US/2022/10/202210180700GB25Anni.jpg)|
