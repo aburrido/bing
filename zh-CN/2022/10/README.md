@@ -18,3 +18,4 @@
 202210151600|PrinceChristianSound|克里斯蒂安王子之声，格陵兰岛 (© Posnov/Getty Images)|一座北部岛屿的南端|![](/zh-CN/2022/10/202210151600PrinceChristianSound.jpg)|
 202210161600|SwedenOwl|捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)|“长耳”猫头鹰|![](/zh-CN/2022/10/202210161600SwedenOwl.jpg)|
 202210171600|BridalVeilFalls|Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)|风之精灵|![](/zh-CN/2022/10/202210171600BridalVeilFalls.jpg)|
+202210181600|WartburgCastle|秋天的图林根森林与瓦特堡城堡，德国 (© ezypix/Getty Images)|等等，这山上得有座城堡！|![](/zh-CN/2022/10/202210181600WartburgCastle.jpg)|
