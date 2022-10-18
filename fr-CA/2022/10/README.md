@@ -17,3 +17,4 @@
 202210150400|NaqsheRustam|Le site archéologique de Naqsh-e Rustam près de Persépolis, Iran (© mshirani/Shutterstock)|Information|![](/fr-CA/2022/10/202210150400NaqsheRustam.jpg)|
 202210160400|PrinceChristianSound|Passage du prince Christian dans le sud du Groenland (© Posnov/Getty Images)|Information|![](/fr-CA/2022/10/202210160400PrinceChristianSound.jpg)|
 202210170400|SwedenOwl|Hibou moyen-duc dans les monts de Bohême-Moravie en République Tchèque (© Ondrej Prosicky/Alamy)|Information|![](/fr-CA/2022/10/202210170400SwedenOwl.jpg)|
+202210180400|RioArazas|Cascade dans le parc national d'Ordesa et du Mont-Perdu, Pyrénées, Espagne (© David Santiago Garcia/Cavan Images)|Information|![](/fr-CA/2022/10/202210180400RioArazas.jpg)|
