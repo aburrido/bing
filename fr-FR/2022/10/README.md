@@ -18,3 +18,4 @@
 202210152200|PrinceChristianSound|Passage du prince Christian dans le sud du Groenland (© Posnov/Getty Images)|Pays du froid éternel|![](/fr-FR/2022/10/202210152200PrinceChristianSound.jpg)|
 202210162200|SwedenOwl|Hibou moyen-duc dans les monts de Bohême-Moravie en République Tchèque (© Ondrej Prosicky/Alamy)|Pas chouette|![](/fr-FR/2022/10/202210162200SwedenOwl.jpg)|
 202210172200|GB25Anni|Musée Guggenheim de Bilbao, Espagne (© Jeremy Horner/Getty Images)|The place to be|![](/fr-FR/2022/10/202210172200GB25Anni.jpg)|
+202210182200|WartburgCastle|Forêt de Thuringe en automne et le château de la Wartbourg, Allemagne (© ezypix/Getty Images)|Le cœur vert de l’Allemagne|![](/fr-FR/2022/10/202210182200WartburgCastle.jpg)|

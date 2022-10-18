@@ -18,3 +18,4 @@
 202210152200|RioArazas|Wasserfall am Rio Arazas im Nationalpark Ordesa y Monte Perdido, Pyrenäen, Spanien (© David Santiago Garcia/Cavan Images)|Tor zur Iberischen Halbinsel|![](/de-DE/2022/10/202210152200RioArazas.jpg)|
 202210162200|PrinceChristianSound|Prins Christian Sund an der Südspitze Grönlands (© Posnov/Getty Images)|Südspitze einer nördlichen Insel|![](/de-DE/2022/10/202210162200PrinceChristianSound.jpg)|
 202210172200|GB25Anni|Guggenheim-Museum Bilbao, Spanien (© Jeremy Horner/Getty Images)|Nachts außerhalb des Museums|![](/de-DE/2022/10/202210172200GB25Anni.jpg)|
+202210182200|WartburgCastle|Wartburg im Herbst, Thüringer Wald, Thüringen (© ezypix/Getty Images)|„Wart! Berg, du sollst mir eine Burg werden!“|![](/de-DE/2022/10/202210182200WartburgCastle.jpg)|
