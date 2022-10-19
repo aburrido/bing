@@ -19,3 +19,4 @@
 202210162200|PrinceChristianSound|Prins Christian Sund an der Südspitze Grönlands (© Posnov/Getty Images)|Südspitze einer nördlichen Insel|![](/de-DE/2022/10/202210162200PrinceChristianSound.jpg)|
 202210172200|GB25Anni|Guggenheim-Museum Bilbao, Spanien (© Jeremy Horner/Getty Images)|Nachts außerhalb des Museums|![](/de-DE/2022/10/202210172200GB25Anni.jpg)|
 202210182200|WartburgCastle|Wartburg im Herbst, Thüringer Wald, Thüringen (© ezypix/Getty Images)|„Wart! Berg, du sollst mir eine Burg werden!“|![](/de-DE/2022/10/202210182200WartburgCastle.jpg)|
+202210192200|SlothDay|Hoffmann-Zweifingerfaultier-Weibchen mit seinem Jungen, Puerto Viejo de Talamanca, Provinz Limon, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Gemeinsam abhängen|![](/de-DE/2022/10/202210192200SlothDay.jpg)|
