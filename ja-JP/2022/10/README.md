@@ -19,3 +19,4 @@
 202210161500|SwedenOwl|トラフズク, チェコ共和国 (© Ondrej Prosicky/Alamy)|トラフズク|![](/ja-JP/2022/10/202210161500SwedenOwl.jpg)|
 202210171500|GB25Anni|ビルバオ・グッゲンハイム美術館, スペイン ビルバオ (© Jeremy Horner/Getty Images)|ビルバオ・グッゲンハイム美術館 25周年|![](/ja-JP/2022/10/202210171500GB25Anni.jpg)|
 202210181500|WartburgCastle|紅葉するテューリンゲンの森, ドイツ (© ezypix/Getty Images)|テューリンゲンの森|![](/ja-JP/2022/10/202210181500WartburgCastle.jpg)|
+202210191500|SlothDay|ナマケモノの親子, コスタリカ (© Suzi Eszterhas/Minden Pictures)|今日は国際ナマケモノの日|![](/ja-JP/2022/10/202210191500SlothDay.jpg)|
