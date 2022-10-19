@@ -19,3 +19,4 @@
 202210161600|SwedenOwl|捷克共和国波希米亚-摩拉维亚高地的长耳鸮 (© Ondrej Prosicky/Alamy)|“长耳”猫头鹰|![](/zh-CN/2022/10/202210161600SwedenOwl.jpg)|
 202210171600|BridalVeilFalls|Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)|风之精灵|![](/zh-CN/2022/10/202210171600BridalVeilFalls.jpg)|
 202210181600|WartburgCastle|秋天的图林根森林与瓦特堡城堡，德国 (© ezypix/Getty Images)|等等，这山上得有座城堡！|![](/zh-CN/2022/10/202210181600WartburgCastle.jpg)|
+202210191600|SlothDay|塔拉曼卡旧港的霍氏树懒母子，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)|到哪都挂着|![](/zh-CN/2022/10/202210191600SlothDay.jpg)|
