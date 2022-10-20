@@ -20,3 +20,4 @@
 202210172300|BushHouse|Ceiling above gate of Bush House, former HQ of BBC World Service (© LillaSam/Shutterstock)|London calling|![](/en-GB/2022/10/202210172300BushHouse.jpg)|
 202210182300|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|Germany's 'green heart'|![](/en-GB/2022/10/202210182300WartburgCastle.jpg)|
 202210192300|SlothDay|Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Hangin' around|![](/en-GB/2022/10/202210192300SlothDay.jpg)|
+202210202300|GeorgiaCypress|Cypress trees in autumn, Georgia, USA (© Chris Moore/Tandem Stills + Motion)|Autumn in Georgia|![](/en-GB/2022/10/202210202300GeorgiaCypress.jpg)|
