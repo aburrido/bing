@@ -20,3 +20,4 @@
 202210171830|GB25Anni|Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)|Night outside the museum|![](/en-IN/2022/10/202210171830GB25Anni.jpg)|
 202210181830|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|'Wait, mountain – you shall bear my castle!'|![](/en-IN/2022/10/202210181830WartburgCastle.jpg)|
 202210191830|SlothDay|Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Hangin' around|![](/en-IN/2022/10/202210191830SlothDay.jpg)|
+202210201830|GeorgiaCypress|Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)|Leaf-peeping Southern style|![](/en-IN/2022/10/202210201830GeorgiaCypress.jpg)|
