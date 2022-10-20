@@ -19,3 +19,4 @@
 202210170400|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-CA/2022/10/202210170400SwedenOwl.jpg)|
 202210180400|RioArazas|Waterfall on the Rio Arazas in Ordesa y Monte Perdido National Park, Pyrenees, Spain (© David Santiago Garcia/Cavan Images)|Gateway to Iberia|![](/en-CA/2022/10/202210180400RioArazas.jpg)|
 202210190400|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|'Wait, mountain—you shall bear my castle!'|![](/en-CA/2022/10/202210190400WartburgCastle.jpg)|
+202210200400|SlothDay|Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Hangin' around|![](/en-CA/2022/10/202210200400SlothDay.jpg)|
