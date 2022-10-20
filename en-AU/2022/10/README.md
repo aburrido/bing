@@ -20,3 +20,4 @@
 202210170700|SwedenOwl|Long-eared owl, Bohemian-Moravian Highlands, Czech Republic (© Ondrej Prosicky/Alamy)|Info|![](/en-AU/2022/10/202210170700SwedenOwl.jpg)|
 202210180700|BlueTigerButterflies|Blue tiger butterflies, Bangalore, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2022/10/202210180700BlueTigerButterflies.jpg)|
 202210190700|WartburgCastle|Wartburg Castle, Thuringian Forest, Germany (© ezypix/Getty Images)|Info|![](/en-AU/2022/10/202210190700WartburgCastle.jpg)|
+202210200700|SlothDay|Hoffmann's two-toed sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2022/10/202210200700SlothDay.jpg)|

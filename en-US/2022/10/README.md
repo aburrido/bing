@@ -20,3 +20,4 @@
 202210170700|SwedenOwl|Long-eared owl in the Bohemian-Moravian Highlands of the Czech Republic (© Ondrej Prosicky/Alamy)|Widespread and long-eared|![](/en-US/2022/10/202210170700SwedenOwl.jpg)|
 202210180700|GB25Anni|Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)|Night outside the museum|![](/en-US/2022/10/202210180700GB25Anni.jpg)|
 202210190700|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|'Wait, mountain—you shall bear my castle!'|![](/en-US/2022/10/202210190700WartburgCastle.jpg)|
+202210200700|SlothDay|Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Hangin' around|![](/en-US/2022/10/202210200700SlothDay.jpg)|
