@@ -20,3 +20,4 @@
 202210172200|GB25Anni|Musée Guggenheim de Bilbao, Espagne (© Jeremy Horner/Getty Images)|The place to be|![](/fr-FR/2022/10/202210172200GB25Anni.jpg)|
 202210182200|WartburgCastle|Forêt de Thuringe en automne et le château de la Wartbourg, Allemagne (© ezypix/Getty Images)|Le cœur vert de l’Allemagne|![](/fr-FR/2022/10/202210182200WartburgCastle.jpg)|
 202210192200|SlothDay|Maman paresseux d’Hoffmann et son petit, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Qu’il est bon de ne rien faire|![](/fr-FR/2022/10/202210192200SlothDay.jpg)|
+202210202200|LacSinclair|Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)|Une idée anglaise|![](/fr-FR/2022/10/202210202200LacSinclair.jpg)|
