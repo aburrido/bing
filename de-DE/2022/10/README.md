@@ -21,3 +21,4 @@
 202210182200|WartburgCastle|Wartburg im Herbst, Thüringer Wald, Thüringen (© ezypix/Getty Images)|„Wart! Berg, du sollst mir eine Burg werden!“|![](/de-DE/2022/10/202210182200WartburgCastle.jpg)|
 202210192200|SlothDay|Hoffmann-Zweifingerfaultier-Weibchen mit seinem Jungen, Puerto Viejo de Talamanca, Provinz Limon, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Gemeinsam abhängen|![](/de-DE/2022/10/202210192200SlothDay.jpg)|
 202210202200|GeorgiaCypress|Sumpfzypressen im Herbst, Georgia, USA (© Chris Moore/Tandem Stills + Motion)|Was sind das für Sumpfbewohner?|![](/de-DE/2022/10/202210202200GeorgiaCypress.jpg)|
+202210212200|KarstMountains|Karstberge im Nationalpark Guilin und Lijiang, Volksrepublik China (© Sean Pavone/Alamy)|Im Land der Karstberge|![](/de-DE/2022/10/202210212200KarstMountains.jpg)|
