@@ -21,3 +21,4 @@
 202210190400|WartburgCastle|Forêt de Thuringe en automne et le château de la Wartbourg, Allemagne (© ezypix/Getty Images)|Information|![](/fr-CA/2022/10/202210190400WartburgCastle.jpg)|
 202210200400|SlothDay|Maman paresseux d’Hoffmann et son petit, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Information|![](/fr-CA/2022/10/202210200400SlothDay.jpg)|
 202210210400|SeaAngel|Ange de mer (© Alexander Semenov Images/Shutterstock)|Information|![](/fr-CA/2022/10/202210210400SeaAngel.jpg)|
+202210220400|KarstMountains|Montagnes de karst près de Guilin and et le parc national du fleuve Lijiang, Chine (© Sean Pavone/Alamy)|Information|![](/fr-CA/2022/10/202210220400KarstMountains.jpg)|

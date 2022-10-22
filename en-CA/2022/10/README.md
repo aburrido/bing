@@ -21,3 +21,4 @@
 202210190400|WartburgCastle|Thuringian Forest in autumn with Wartburg Castle, Germany (© ezypix/Getty Images)|'Wait, mountain—you shall bear my castle!'|![](/en-CA/2022/10/202210190400WartburgCastle.jpg)|
 202210200400|SlothDay|Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Hangin' around|![](/en-CA/2022/10/202210200400SlothDay.jpg)|
 202210210400|GeorgiaCypress|Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)|Leaf-peeping Southern style|![](/en-CA/2022/10/202210210400GeorgiaCypress.jpg)|
+202210220400|KarstMountains|Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)|Misty mountain hop|![](/en-CA/2022/10/202210220400KarstMountains.jpg)|
