@@ -22,3 +22,4 @@
 202210192200|SlothDay|Maman paresseux d’Hoffmann et son petit, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Qu’il est bon de ne rien faire|![](/fr-FR/2022/10/202210192200SlothDay.jpg)|
 202210202200|LacSinclair|Le lac à l’Anglais et les fausses ruines d’une chapelle à Chamonix (© Aishe/Shutterstock)|Une idée anglaise|![](/fr-FR/2022/10/202210202200LacSinclair.jpg)|
 202210212200|KarstMountains|Montagnes de karst près de Guilin and et le parc national du fleuve Lijiang, Chine (© Sean Pavone/Alamy)|Dents de dragon|![](/fr-FR/2022/10/202210212200KarstMountains.jpg)|
+202210222200|Knobbelzwaan|Cygne muet dans la réserve naturelle Valkenhorst, près de Valkenswaard, Pays-Bas (© David Pattyn/Minden Pictures)|Le chant du cygne|![](/fr-FR/2022/10/202210222200Knobbelzwaan.jpg)|
