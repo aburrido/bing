@@ -22,3 +22,4 @@
 202210191600|SlothDay|塔拉曼卡旧港的霍氏树懒母子，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)|到哪都挂着|![](/zh-CN/2022/10/202210191600SlothDay.jpg)|
 202210201600|GeorgiaCypress|秋季的落羽杉，美国佐治亚州 (© Chris Moore/Tandem Stills + Motion)|美国南部的别样秋景|![](/zh-CN/2022/10/202210201600GeorgiaCypress.jpg)|
 202210211600|KarstMountains|中国桂林漓江国家公园的喀斯特山脉 (© Sean Pavone/Alamy)|云山雾绕|![](/zh-CN/2022/10/202210211600KarstMountains.jpg)|
+202210221600|Knobbelzwaan|疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)|疣鼻天鹅|![](/zh-CN/2022/10/202210221600Knobbelzwaan.jpg)|
