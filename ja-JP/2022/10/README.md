@@ -22,3 +22,4 @@
 202210191500|SlothDay|ナマケモノの親子, コスタリカ (© Suzi Eszterhas/Minden Pictures)|今日は国際ナマケモノの日|![](/ja-JP/2022/10/202210191500SlothDay.jpg)|
 202210201500|GeorgiaCypress|紅葉するラクウショウ, 米国 ジョージア州 (© Chris Moore/Tandem Stills + Motion)|紅葉するラクウショウ|![](/ja-JP/2022/10/202210201500GeorgiaCypress.jpg)|
 202210211500|KarstMountains|雲海に浮かぶ桂林のタワーカルスト, 中国 (© Sean Pavone/Alamy)|雲海に浮かぶタワーカルスト|![](/ja-JP/2022/10/202210211500KarstMountains.jpg)|
+202210221500|Soko2022|平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)|今日は「霜降」|![](/ja-JP/2022/10/202210221500Soko2022.jpg)|
