@@ -22,3 +22,4 @@
 202210191830|SlothDay|Hoffmann's two-toed sloth mother and young, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Hangin' around|![](/en-IN/2022/10/202210191830SlothDay.jpg)|
 202210201830|GeorgiaCypress|Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)|Leaf-peeping Southern style|![](/en-IN/2022/10/202210201830GeorgiaCypress.jpg)|
 202210211830|KarstMountains|Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)|Misty mountain hop|![](/en-IN/2022/10/202210211830KarstMountains.jpg)|
+202210221830|Knobbelzwaan|Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)|An ugly duckling no more|![](/en-IN/2022/10/202210221830Knobbelzwaan.jpg)|
