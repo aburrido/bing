@@ -22,3 +22,4 @@
 202210190700|WartburgCastle|Wartburg Castle, Thuringian Forest, Germany (© ezypix/Getty Images)|Info|![](/en-AU/2022/10/202210190700WartburgCastle.jpg)|
 202210200700|SlothDay|Hoffmann's two-toed sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2022/10/202210200700SlothDay.jpg)|
 202210210700|GeorgiaCypress|Cypress trees, Georgia, USA (© Chris Moore/Tandem Stills + Motion)|Info|![](/en-AU/2022/10/202210210700GeorgiaCypress.jpg)|
+202210220700|KarstMountains|Karst mountains, Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)|Info|![](/en-AU/2022/10/202210220700KarstMountains.jpg)|
