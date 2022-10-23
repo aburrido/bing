@@ -22,3 +22,4 @@
 202210200400|SlothDay|Maman paresseux d’Hoffmann et son petit, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Information|![](/fr-CA/2022/10/202210200400SlothDay.jpg)|
 202210210400|SeaAngel|Ange de mer (© Alexander Semenov Images/Shutterstock)|Information|![](/fr-CA/2022/10/202210210400SeaAngel.jpg)|
 202210220400|KarstMountains|Montagnes de karst près de Guilin and et le parc national du fleuve Lijiang, Chine (© Sean Pavone/Alamy)|Information|![](/fr-CA/2022/10/202210220400KarstMountains.jpg)|
+202210230400|Knobbelzwaan|Cygne muet dans la réserve naturelle Valkenhorst, près de Valkenswaard, Pays-Bas © David Pattyn/Minden Pictures)|Information|![](/fr-CA/2022/10/202210230400Knobbelzwaan.jpg)|
