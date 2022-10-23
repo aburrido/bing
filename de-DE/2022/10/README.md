@@ -24,3 +24,4 @@
 202210212200|KarstMountains|Karstberge im Nationalpark Guilin und Lijiang, Volksrepublik China (© Sean Pavone/Alamy)|Im Land der Karstberge|![](/de-DE/2022/10/202210212200KarstMountains.jpg)|
 202210222200|Knobbelzwaan|Höckerschwan im Naturschutzgebiet Valkenhorst nahe Valkenswaard, Niederlande (© David Pattyn/Minden Pictures)|Kein hässliches Entlein mehr|![](/de-DE/2022/10/202210222200Knobbelzwaan.jpg)|
 ||||![](/de-DE/2022/10/.jpg)|
+202210232200|OttobeurenBibliothek|Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)|Pssst! Ruhe bitte!|![](/de-DE/2022/10/202210232200OttobeurenBibliothek.jpg)|
