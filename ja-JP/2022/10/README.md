@@ -24,3 +24,4 @@
 202210211500|KarstMountains|雲海に浮かぶ桂林のタワーカルスト, 中国 (© Sean Pavone/Alamy)|雲海に浮かぶタワーカルスト|![](/ja-JP/2022/10/202210211500KarstMountains.jpg)|
 202210221500|Soko2022|平安神宮の灯篭, 京都 (© Peter Elvin/Alamy Stock Photo)|今日は「霜降」|![](/ja-JP/2022/10/202210221500Soko2022.jpg)|
 ||||![](/ja-JP/2022/10/.jpg)|
+202210231500|GuwahatiDiwali|ディワリを祝うランゴリ, インド グワーハーティー (© Biju Boro/Getty Images)|今日は「ディワリ」|![](/ja-JP/2022/10/202210231500GuwahatiDiwali.jpg)|
