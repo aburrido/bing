@@ -24,3 +24,4 @@
 202210211830|KarstMountains|Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)|Misty mountain hop|![](/en-IN/2022/10/202210211830KarstMountains.jpg)|
 202210221830|Knobbelzwaan|Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)|An ugly duckling no more|![](/en-IN/2022/10/202210221830Knobbelzwaan.jpg)|
 ||||![](/en-IN/2022/10/.jpg)|
+202210231830|DiwaliOilLamps|Oil lamps on the occasion of Diwali (© Subodh Sathe/Alamy Stock Photo)|Lighting the world|![](/en-IN/2022/10/202210231830DiwaliOilLamps.jpg)|
