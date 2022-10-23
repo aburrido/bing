@@ -23,3 +23,4 @@
 202210210400|GeorgiaCypress|Cypress trees in autumn, Georgia (© Chris Moore/Tandem Stills + Motion)|Leaf-peeping Southern style|![](/en-CA/2022/10/202210210400GeorgiaCypress.jpg)|
 202210220400|KarstMountains|Karst mountains in Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)|Misty mountain hop|![](/en-CA/2022/10/202210220400KarstMountains.jpg)|
 202210230400|Knobbelzwaan|Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)|An ugly duckling no more|![](/en-CA/2022/10/202210230400Knobbelzwaan.jpg)|
+||||![](/en-CA/2022/10/.jpg)|

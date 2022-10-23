@@ -23,3 +23,4 @@
 202210202200|GeorgiaCypress|Sumpfzypressen im Herbst, Georgia, USA (© Chris Moore/Tandem Stills + Motion)|Was sind das für Sumpfbewohner?|![](/de-DE/2022/10/202210202200GeorgiaCypress.jpg)|
 202210212200|KarstMountains|Karstberge im Nationalpark Guilin und Lijiang, Volksrepublik China (© Sean Pavone/Alamy)|Im Land der Karstberge|![](/de-DE/2022/10/202210212200KarstMountains.jpg)|
 202210222200|Knobbelzwaan|Höckerschwan im Naturschutzgebiet Valkenhorst nahe Valkenswaard, Niederlande (© David Pattyn/Minden Pictures)|Kein hässliches Entlein mehr|![](/de-DE/2022/10/202210222200Knobbelzwaan.jpg)|
+||||![](/de-DE/2022/10/.jpg)|
