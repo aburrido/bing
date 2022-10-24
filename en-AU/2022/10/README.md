@@ -25,3 +25,4 @@
 202210220700|KarstMountains|Karst mountains, Guilin and Lijiang River National Park, China (© Sean Pavone/Alamy)|Info|![](/en-AU/2022/10/202210220700KarstMountains.jpg)|
 202210230700|Knobbelzwaan|Mute swan, Valkenhorst Nature Reserve, Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)|Info|![](/en-AU/2022/10/202210230700Knobbelzwaan.jpg)|
 ||||![](/en-AU/2022/10/.jpg)|
+202210240700|MarienburgZell|Marienburg, Zell, Rhineland-Palatinate, Germany (© Eiben, Hans Georg/Alamy)|Info|![](/en-AU/2022/10/202210240700MarienburgZell.jpg)|
