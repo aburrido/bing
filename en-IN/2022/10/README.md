@@ -25,3 +25,4 @@
 202210221830|Knobbelzwaan|Mute swan in Valkenhorst Nature Reserve, near Valkenswaard, the Netherlands (© David Pattyn/Minden Pictures)|An ugly duckling no more|![](/en-IN/2022/10/202210221830Knobbelzwaan.jpg)|
 ||||![](/en-IN/2022/10/.jpg)|
 202210231830|DiwaliOilLamps|Oil lamps on the occasion of Diwali (© Subodh Sathe/Alamy Stock Photo)|Lighting the world|![](/en-IN/2022/10/202210231830DiwaliOilLamps.jpg)|
+202210241830|OrcusMouth|Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)|Park of the Monsters|![](/en-IN/2022/10/202210241830OrcusMouth.jpg)|
