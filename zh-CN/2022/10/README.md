@@ -25,3 +25,4 @@
 202210221600|Knobbelzwaan|疣鼻天鹅，荷兰瓦尔肯霍斯特自然保护区 (© David Pattyn/Minden Pictures)|疣鼻天鹅|![](/zh-CN/2022/10/202210221600Knobbelzwaan.jpg)|
 ||||![](/zh-CN/2022/10/.jpg)|
 202210231600|MarienburgZell|玛利恩堡，德国莱茵兰-普法尔茨州采尔县附近 (© Eiben, Hans Georg/Alamy)|维尔茨堡美因河畔的一座城堡|![](/zh-CN/2022/10/202210231600MarienburgZell.jpg)|
+202210241600|OrcusMouth|怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)|怪物公园|![](/zh-CN/2022/10/202210241600OrcusMouth.jpg)|
