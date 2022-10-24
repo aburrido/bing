@@ -24,3 +24,4 @@
 202210220400|KarstMountains|Montagnes de karst près de Guilin and et le parc national du fleuve Lijiang, Chine (© Sean Pavone/Alamy)|Information|![](/fr-CA/2022/10/202210220400KarstMountains.jpg)|
 202210230400|Knobbelzwaan|Cygne muet dans la réserve naturelle Valkenhorst, près de Valkenswaard, Pays-Bas © David Pattyn/Minden Pictures)|Information|![](/fr-CA/2022/10/202210230400Knobbelzwaan.jpg)|
 ||||![](/fr-CA/2022/10/.jpg)|
+202210240400|GuwahatiDiwali|Lampes à huile sur un rangoli pour célébrer Diwali à Guwahati (© Biju Boro/Getty Images)|Information|![](/fr-CA/2022/10/202210240400GuwahatiDiwali.jpg)|
