@@ -25,3 +25,4 @@
 202210222200|Knobbelzwaan|Cygne muet dans la réserve naturelle Valkenhorst, près de Valkenswaard, Pays-Bas (© David Pattyn/Minden Pictures)|Le chant du cygne|![](/fr-FR/2022/10/202210222200Knobbelzwaan.jpg)|
 ||||![](/fr-FR/2022/10/.jpg)|
 202210232200|GuwahatiDiwali|Lampes à huile sur un rangoli pour célébrer Diwali à Guwahati (© Biju Boro/Getty Images)|La fête des lumières|![](/fr-FR/2022/10/202210232200GuwahatiDiwali.jpg)|
+202210242200|OrcusMouth|La bouche d’Orcus dans les Jardins de Bomarzo à Bomarzo, Italie (© Scott Wilson/Alamy)|Le parc des monstres|![](/fr-FR/2022/10/202210242200OrcusMouth.jpg)|

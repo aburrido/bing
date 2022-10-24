@@ -25,3 +25,4 @@
 202210222200|Knobbelzwaan|Höckerschwan im Naturschutzgebiet Valkenhorst nahe Valkenswaard, Niederlande (© David Pattyn/Minden Pictures)|Kein hässliches Entlein mehr|![](/de-DE/2022/10/202210222200Knobbelzwaan.jpg)|
 ||||![](/de-DE/2022/10/.jpg)|
 202210232200|OttobeurenBibliothek|Alte Bibliothek der Abtei Ottobeuren, Bayern (© H & D ZIELSKE/Gallery Stock)|Pssst! Ruhe bitte!|![](/de-DE/2022/10/202210232200OttobeurenBibliothek.jpg)|
+202210242200|OrcusMouth|Orcus-Skulptur im Sacro-Bosco-Park, Bomarzo, Italien (© Scott Wilson/Alamy)|Im Park der Ungeheuer|![](/de-DE/2022/10/202210242200OrcusMouth.jpg)|
