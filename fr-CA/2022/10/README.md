@@ -25,3 +25,4 @@
 202210230400|Knobbelzwaan|Cygne muet dans la réserve naturelle Valkenhorst, près de Valkenswaard, Pays-Bas © David Pattyn/Minden Pictures)|Information|![](/fr-CA/2022/10/202210230400Knobbelzwaan.jpg)|
 ||||![](/fr-CA/2022/10/.jpg)|
 202210240400|GuwahatiDiwali|Lampes à huile sur un rangoli pour célébrer Diwali à Guwahati (© Biju Boro/Getty Images)|Information|![](/fr-CA/2022/10/202210240400GuwahatiDiwali.jpg)|
+202210250400|OrcusMouth|La bouche d’Orcus dans les Jardins de Bomarzo à Bomarzo, Italie (© Scott Wilson/Alamy)|Information|![](/fr-CA/2022/10/202210250400OrcusMouth.jpg)|
