@@ -26,3 +26,4 @@
 ||||![](/fr-FR/2022/10/.jpg)|
 202210232200|GuwahatiDiwali|Lampes à huile sur un rangoli pour célébrer Diwali à Guwahati (© Biju Boro/Getty Images)|La fête des lumières|![](/fr-FR/2022/10/202210232200GuwahatiDiwali.jpg)|
 202210242200|OrcusMouth|La bouche d’Orcus dans les Jardins de Bomarzo à Bomarzo, Italie (© Scott Wilson/Alamy)|Le parc des monstres|![](/fr-FR/2022/10/202210242200OrcusMouth.jpg)|
+202210252200|BrockenSpecter|Spectre de Brocken dans le Parc national du Balkan central, Bulgarie (© Maya Karkalicheva/Getty Images)|Spectre de nous-même|![](/fr-FR/2022/10/202210252200BrockenSpecter.jpg)|
