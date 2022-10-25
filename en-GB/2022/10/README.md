@@ -26,3 +26,4 @@
 ||||![](/en-GB/2022/10/.jpg)|
 202210232300|GuwahatiDiwali|Oil lamps arranged on a rangoli to celebrate Diwali in Guwahati, India (© Biju Boro/Getty Images)|Lighting the world|![](/en-GB/2022/10/202210232300GuwahatiDiwali.jpg)|
 202210242300|OrcusMouth|Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)|Park of the Monsters|![](/en-GB/2022/10/202210242300OrcusMouth.jpg)|
+202210252300|BrockenSpecter|Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|Paranormal activity?|![](/en-GB/2022/10/202210252300BrockenSpecter.jpg)|
