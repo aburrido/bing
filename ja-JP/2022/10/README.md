@@ -26,3 +26,4 @@
 ||||![](/ja-JP/2022/10/.jpg)|
 202210231500|GuwahatiDiwali|ディワリを祝うランゴリ, インド グワーハーティー (© Biju Boro/Getty Images)|今日は「ディワリ」|![](/ja-JP/2022/10/202210231500GuwahatiDiwali.jpg)|
 202210241500|OrcusMouth|ボマルツォの怪物公園, イタリア (© Scott Wilson/Alamy)|ボマルツォの怪物公園|![](/ja-JP/2022/10/202210241500OrcusMouth.jpg)|
+202210251500|BrockenSpecter|ブロッケン現象の虹の輪, ブルガリア (© Maya Karkalicheva/Getty Images)|ブロッケン現象の虹の輪|![](/ja-JP/2022/10/202210251500BrockenSpecter.jpg)|
