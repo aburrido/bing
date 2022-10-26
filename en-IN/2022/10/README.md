@@ -27,3 +27,4 @@
 202210231830|DiwaliOilLamps|Oil lamps on the occasion of Diwali (© Subodh Sathe/Alamy Stock Photo)|Lighting the world|![](/en-IN/2022/10/202210231830DiwaliOilLamps.jpg)|
 202210241830|OrcusMouth|Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)|Park of the Monsters|![](/en-IN/2022/10/202210241830OrcusMouth.jpg)|
 202210251830|BrockenSpecter|Brocken specter in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|A ghost on the mountain|![](/en-IN/2022/10/202210251830BrockenSpecter.jpg)|
+202210261830|BridgeofSighs|Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)|A kiss and a sigh|![](/en-IN/2022/10/202210261830BridgeofSighs.jpg)|
