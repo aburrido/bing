@@ -27,3 +27,4 @@
 ||||![](/en-AU/2022/10/.jpg)|
 202210240700|MarienburgZell|Marienburg, Zell, Rhineland-Palatinate, Germany (© Eiben, Hans Georg/Alamy)|Info|![](/en-AU/2022/10/202210240700MarienburgZell.jpg)|
 202210250700|OrcusMouth|Gardens of Bomarzo, Bomarzo, Italy (© Scott Wilson/Alamy)|Info|![](/en-AU/2022/10/202210250700OrcusMouth.jpg)|
+202210260700|BrockenSpecter|Brocken spectre, Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|Info|![](/en-AU/2022/10/202210260700BrockenSpecter.jpg)|
