@@ -28,3 +28,4 @@
 202210241600|OrcusMouth|怪物公园里的奥库斯雕像, 意大利博马尔佐花园 (© Scott Wilson/Alamy)|怪物公园|![](/zh-CN/2022/10/202210241600OrcusMouth.jpg)|
 202210251600|BrockenSpecter|巴尔干中央国家公园的布罗肯现象，保加利亚 (© Maya Karkalicheva/Getty Images)|山上的幽灵|![](/zh-CN/2022/10/202210251600BrockenSpecter.jpg)|
 202210261600|BridgeofSighs|意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)|一个吻和一声叹息|![](/zh-CN/2022/10/202210261600BridgeofSighs.jpg)|
+202210271600|FrankensteinFriday|洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)|一个黑暗的暴风雨之夜|![](/zh-CN/2022/10/202210271600FrankensteinFriday.jpg)|
