@@ -28,3 +28,4 @@
 202210242200|OrcusMouth|La bouche d’Orcus dans les Jardins de Bomarzo à Bomarzo, Italie (© Scott Wilson/Alamy)|Le parc des monstres|![](/fr-FR/2022/10/202210242200OrcusMouth.jpg)|
 202210252200|BrockenSpecter|Spectre de Brocken dans le Parc national du Balkan central, Bulgarie (© Maya Karkalicheva/Getty Images)|Spectre de nous-même|![](/fr-FR/2022/10/202210252200BrockenSpecter.jpg)|
 202210262200|BridgeofSighs|Le pont des Soupirs à Venise, Italie (© Doug Pearson/Alamy)|La belle Venise|![](/fr-FR/2022/10/202210262200BridgeofSighs.jpg)|
+202210272200|ChocolateFair|Différents types de chocolats dans une vitrine (© Ivan/Getty Images)|Bon pour le cœur|![](/fr-FR/2022/10/202210272200ChocolateFair.jpg)|
