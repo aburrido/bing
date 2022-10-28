@@ -29,3 +29,4 @@
 202210251830|BrockenSpecter|Brocken specter in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|A ghost on the mountain|![](/en-IN/2022/10/202210251830BrockenSpecter.jpg)|
 202210261830|BridgeofSighs|Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)|A kiss and a sigh|![](/en-IN/2022/10/202210261830BridgeofSighs.jpg)|
 202210271830|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-IN/2022/10/202210271830FrankensteinFriday.jpg)|
+202210281830|SeaAngel|Sea angel (© Alexander Semenov Images/Shutterstock)|Angel of the sea|![](/en-IN/2022/10/202210281830SeaAngel.jpg)|
