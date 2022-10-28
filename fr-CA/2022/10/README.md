@@ -28,3 +28,4 @@
 202210250400|OrcusMouth|La bouche d’Orcus dans les Jardins de Bomarzo à Bomarzo, Italie (© Scott Wilson/Alamy)|Information|![](/fr-CA/2022/10/202210250400OrcusMouth.jpg)|
 202210260400|BrockenSpecter|Spectre de Brocken dans le Parc national du Balkan central, Bulgarie (© Maya Karkalicheva/Getty Images)|Information|![](/fr-CA/2022/10/202210260400BrockenSpecter.jpg)|
 202210270400|BridgeofSighs|Le pont des Soupirs à Venise, Italie (© Doug Pearson/Alamy)|Information|![](/fr-CA/2022/10/202210270400BridgeofSighs.jpg)|
+202210280400|FrankensteinFriday|Ciel orageux au-dessus du lac Léman à Lausanne, Suisse (© Suradech Singhanat/Shutterstock)|Information|![](/fr-CA/2022/10/202210280400FrankensteinFriday.jpg)|
