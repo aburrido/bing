@@ -29,3 +29,4 @@
 202210250700|OrcusMouth|Orcus sculpture in the Gardens of Bomarzo in Bomarzo, Italy (© Scott Wilson/Alamy)|Park of the Monsters|![](/en-US/2022/10/202210250700OrcusMouth.jpg)|
 202210260700|BrockenSpecter|Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|A ghost on the mountain|![](/en-US/2022/10/202210260700BrockenSpecter.jpg)|
 202210270700|BridgeofSighs|Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)|A kiss and a sigh|![](/en-US/2022/10/202210270700BridgeofSighs.jpg)|
+202210280700|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-US/2022/10/202210280700FrankensteinFriday.jpg)|

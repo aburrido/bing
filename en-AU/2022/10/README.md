@@ -29,3 +29,4 @@
 202210250700|OrcusMouth|Gardens of Bomarzo, Bomarzo, Italy (© Scott Wilson/Alamy)|Info|![](/en-AU/2022/10/202210250700OrcusMouth.jpg)|
 202210260700|BrockenSpecter|Brocken spectre, Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|Info|![](/en-AU/2022/10/202210260700BrockenSpecter.jpg)|
 202210270700|BridgeofSighs|Bridge of Sighs, Venice, Italy (© Doug Pearson/Alamy)|Info|![](/en-AU/2022/10/202210270700BridgeofSighs.jpg)|
+202210280700|FrankensteinFriday|Lake Geneva, Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|Info|![](/en-AU/2022/10/202210280700FrankensteinFriday.jpg)|
