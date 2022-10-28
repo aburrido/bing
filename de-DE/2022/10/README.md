@@ -29,3 +29,4 @@
 202210252200|BrockenSpecter|Brockengespenst im Nationalpark Zentralbalkan, Bulgarien (© Maya Karkalicheva/Getty Images)|Ein Geist in den Bergen|![](/de-DE/2022/10/202210252200BrockenSpecter.jpg)|
 202210262200|MarienburgZell|Marienburg in der Nähe von Zell an der Mosel, Rheinland-Pfalz (© Hans Georg Eiben/Alamy)|Herbst im Zeller Hamm|![](/de-DE/2022/10/202210262200MarienburgZell.jpg)|
 202210272200|FrankensteinFriday|Aufziehendes Gewitter über dem Genfersee bei Lausanne, Schweiz (© Suradech Singhanat)|In einer dunklen und stürmischen Nacht …|![](/de-DE/2022/10/202210272200FrankensteinFriday.jpg)|
+202210282200|SeaAngel|Ruderschnecke (© Alexander Semenov Images/Shutterstock)|Engel des Meeres|![](/de-DE/2022/10/202210282200SeaAngel.jpg)|

@@ -29,3 +29,4 @@
 202210252200|BrockenSpecter|Spectre de Brocken dans le Parc national du Balkan central, Bulgarie (© Maya Karkalicheva/Getty Images)|Spectre de nous-même|![](/fr-FR/2022/10/202210252200BrockenSpecter.jpg)|
 202210262200|BridgeofSighs|Le pont des Soupirs à Venise, Italie (© Doug Pearson/Alamy)|La belle Venise|![](/fr-FR/2022/10/202210262200BridgeofSighs.jpg)|
 202210272200|ChocolateFair|Différents types de chocolats dans une vitrine (© Ivan/Getty Images)|Bon pour le cœur|![](/fr-FR/2022/10/202210272200ChocolateFair.jpg)|
+202210282200|SeaAngel|Ange de mer (© Alexander Semenov Images/Shutterstock)|Ange-gardien de mer|![](/fr-FR/2022/10/202210282200SeaAngel.jpg)|
