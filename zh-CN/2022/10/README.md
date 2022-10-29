@@ -30,3 +30,4 @@
 202210261600|BridgeofSighs|意大利威尼斯的叹息桥 (© Doug Pearson/Alamy)|一个吻和一声叹息|![](/zh-CN/2022/10/202210261600BridgeofSighs.jpg)|
 202210271600|FrankensteinFriday|洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)|一个黑暗的暴风雨之夜|![](/zh-CN/2022/10/202210271600FrankensteinFriday.jpg)|
 202210281600|SeaAngel|海洋天使 (© Alexander Semenov Images/Shutterstock)|海洋天使|![](/zh-CN/2022/10/202210281600SeaAngel.jpg)|
+202210291600|SealRiver|哈德逊湾边缘的北极熊，加拿大 (© Sean Crane/Minden Pictures)|北极之王|![](/zh-CN/2022/10/202210291600SealRiver.jpg)|
