@@ -30,3 +30,4 @@
 202210262300|BridgeofSighs|Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)|A kiss and a sigh|![](/en-GB/2022/10/202210262300BridgeofSighs.jpg)|
 202210272300|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-GB/2022/10/202210272300FrankensteinFriday.jpg)|
 202210282300|SeaAngel|Sea angel (© Alexander Semenov Images/Shutterstock)|Angel of the sea|![](/en-GB/2022/10/202210282300SeaAngel.jpg)|
+202210292300|EastgateClock|The sun sets over the Eastgate Clock in Chester. (© ZinCat/Getty Images)|The sun sets on British Summer Time|![](/en-GB/2022/10/202210292300EastgateClock.jpg)|
