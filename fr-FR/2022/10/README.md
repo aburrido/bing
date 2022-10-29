@@ -30,3 +30,4 @@
 202210262200|BridgeofSighs|Le pont des Soupirs à Venise, Italie (© Doug Pearson/Alamy)|La belle Venise|![](/fr-FR/2022/10/202210262200BridgeofSighs.jpg)|
 202210272200|ChocolateFair|Différents types de chocolats dans une vitrine (© Ivan/Getty Images)|Bon pour le cœur|![](/fr-FR/2022/10/202210272200ChocolateFair.jpg)|
 202210282200|SeaAngel|Ange de mer (© Alexander Semenov Images/Shutterstock)|Ange-gardien de mer|![](/fr-FR/2022/10/202210282200SeaAngel.jpg)|
+202210292200|SealRiver|Ours polaire dans la baie d’Hudson, Manitoba, Canada (© Sean Crane/Minden Pictures)|C’est l’heure de la chasse|![](/fr-FR/2022/10/202210292200SealRiver.jpg)|
