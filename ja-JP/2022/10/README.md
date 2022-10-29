@@ -30,3 +30,4 @@
 202210261500|BridgeofSighs|ため息橋, イタリア ヴェネツィア (© Doug Pearson/Alamy)|ヴェネツィアのため息橋|![](/ja-JP/2022/10/202210261500BridgeofSighs.jpg)|
 202210271500|FrankensteinFriday|レマン湖上空の嵐, スイス ジュネーブ (© Suradech Singhanat/Shutterstock)|フランケンシュタイン・フライデー|![](/ja-JP/2022/10/202210271500FrankensteinFriday.jpg)|
 202210281500|Knobbelzwaan|羽繕いをする白鳥, オランダ (© David Pattyn/Minden Pictures)|羽繕いをする白鳥|![](/ja-JP/2022/10/202210281500Knobbelzwaan.jpg)|
+202210291500|SealRiver|ハドソン湾のホッキョクグマ, カナダ マニトバ州 (© Sean Crane/Minden Pictures)|今日から国際ホッキョクグマ週間|![](/ja-JP/2022/10/202210291500SealRiver.jpg)|
