@@ -29,3 +29,4 @@
 202210260400|BrockenSpecter|Spectre de Brocken dans le Parc national du Balkan central, Bulgarie (© Maya Karkalicheva/Getty Images)|Information|![](/fr-CA/2022/10/202210260400BrockenSpecter.jpg)|
 202210270400|BridgeofSighs|Le pont des Soupirs à Venise, Italie (© Doug Pearson/Alamy)|Information|![](/fr-CA/2022/10/202210270400BridgeofSighs.jpg)|
 202210280400|FrankensteinFriday|Ciel orageux au-dessus du lac Léman à Lausanne, Suisse (© Suradech Singhanat/Shutterstock)|Information|![](/fr-CA/2022/10/202210280400FrankensteinFriday.jpg)|
+202210290400|TremblantFoliage|L’automne dans le parc national de Mont-Tremblant, Québec (© Mircea Costina/Alamy Stock Photo)|Information|![](/fr-CA/2022/10/202210290400TremblantFoliage.jpg)|

@@ -29,3 +29,4 @@
 202210260400|BrockenSpecter|Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)|A ghost on the mountain|![](/en-CA/2022/10/202210260400BrockenSpecter.jpg)|
 202210270400|BridgeofSighs|Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)|A kiss and a sigh|![](/en-CA/2022/10/202210270400BridgeofSighs.jpg)|
 202210280400|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-CA/2022/10/202210280400FrankensteinFriday.jpg)|
+202210290400|TremblantFoliage|Fall foliage in Mont-Tremblant National Park, Quebec (© Mircea Costina/Alamy Stock Photo)|One of the oldest parks in Quebec|![](/en-CA/2022/10/202210290400TremblantFoliage.jpg)|
