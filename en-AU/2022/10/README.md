@@ -31,3 +31,4 @@
 202210270700|BridgeofSighs|Bridge of Sighs, Venice, Italy (© Doug Pearson/Alamy)|Info|![](/en-AU/2022/10/202210270700BridgeofSighs.jpg)|
 202210280700|FrankensteinFriday|Lake Geneva, Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|Info|![](/en-AU/2022/10/202210280700FrankensteinFriday.jpg)|
 202210290700|SeaAngel|Sea angel (© Alexander Semenov Images/Shutterstock)|Info|![](/en-AU/2022/10/202210290700SeaAngel.jpg)|
+202210300700|SealRiver|Polar bear, Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)|Info|![](/en-AU/2022/10/202210300700SealRiver.jpg)|
