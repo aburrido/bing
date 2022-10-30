@@ -31,3 +31,4 @@
 202210272200|ChocolateFair|Différents types de chocolats dans une vitrine (© Ivan/Getty Images)|Bon pour le cœur|![](/fr-FR/2022/10/202210272200ChocolateFair.jpg)|
 202210282200|SeaAngel|Ange de mer (© Alexander Semenov Images/Shutterstock)|Ange-gardien de mer|![](/fr-FR/2022/10/202210282200SeaAngel.jpg)|
 202210292200|SealRiver|Ours polaire dans la baie d’Hudson, Manitoba, Canada (© Sean Crane/Minden Pictures)|C’est l’heure de la chasse|![](/fr-FR/2022/10/202210292200SealRiver.jpg)|
+202210302300|WychwoodForest|La forêt de Wychwood près de Chipping Norton, Oxfordshire, Angleterre (© Frederick Ardley/Getty Images)|Même pas cap|![](/fr-FR/2022/10/202210302300WychwoodForest.jpg)|

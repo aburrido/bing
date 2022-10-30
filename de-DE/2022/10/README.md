@@ -31,3 +31,4 @@
 202210272200|FrankensteinFriday|Aufziehendes Gewitter über dem Genfersee bei Lausanne, Schweiz (© Suradech Singhanat)|In einer dunklen und stürmischen Nacht …|![](/de-DE/2022/10/202210272200FrankensteinFriday.jpg)|
 202210282200|SeaAngel|Ruderschnecke (© Alexander Semenov Images/Shutterstock)|Engel des Meeres|![](/de-DE/2022/10/202210282200SeaAngel.jpg)|
 202210292200|SealRiver|Eisbär am Rand der Hudson Bay, Manitoba, Kanada (© Sean Crane/Minden Pictures)|Könige des Nordens|![](/de-DE/2022/10/202210292200SealRiver.jpg)|
+202210302300|WychwoodForest|Wychwood Forest nahe Chipping Norton, Oxfordshire, England, Vereinigtes Königreich (© Frederick Ardley/Getty Images)|Wer streift durch das unheimliche Waldstück?|![](/de-DE/2022/10/202210302300WychwoodForest.jpg)|
