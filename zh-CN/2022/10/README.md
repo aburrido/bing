@@ -31,3 +31,4 @@
 202210271600|FrankensteinFriday|洛桑日内瓦湖上空的暴风雨，瑞典 (© Suradech Singhanat/Shutterstock)|一个黑暗的暴风雨之夜|![](/zh-CN/2022/10/202210271600FrankensteinFriday.jpg)|
 202210281600|SeaAngel|海洋天使 (© Alexander Semenov Images/Shutterstock)|海洋天使|![](/zh-CN/2022/10/202210281600SeaAngel.jpg)|
 202210291600|SealRiver|哈德逊湾边缘的北极熊，加拿大 (© Sean Crane/Minden Pictures)|北极之王|![](/zh-CN/2022/10/202210291600SealRiver.jpg)|
+202210301600|WychwoodForest|牛津郡韦奇伍德森林的树，英国 (© Frederick Ardley/Getty Images)|是谁躲在这令人毛骨悚然的树林里？|![](/zh-CN/2022/10/202210301600WychwoodForest.jpg)|
