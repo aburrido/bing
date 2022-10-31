@@ -32,3 +32,4 @@
 202210281600|SeaAngel|海洋天使 (© Alexander Semenov Images/Shutterstock)|海洋天使|![](/zh-CN/2022/10/202210281600SeaAngel.jpg)|
 202210291600|SealRiver|哈德逊湾边缘的北极熊，加拿大 (© Sean Crane/Minden Pictures)|北极之王|![](/zh-CN/2022/10/202210291600SealRiver.jpg)|
 202210301600|WychwoodForest|牛津郡韦奇伍德森林的树，英国 (© Frederick Ardley/Getty Images)|是谁躲在这令人毛骨悚然的树林里？|![](/zh-CN/2022/10/202210301600WychwoodForest.jpg)|
+202210311600|SmilingPunpkins2022|神秘森林里木桌上的两个微笑的万圣节南瓜 (© sandsun/Getty Images)|来一盏微笑的南瓜灯吗？|![](/zh-CN/2022/10/202210311600SmilingPunpkins2022.jpg)|
