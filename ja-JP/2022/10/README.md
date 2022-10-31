@@ -32,3 +32,4 @@
 202210281500|Knobbelzwaan|羽繕いをする白鳥, オランダ (© David Pattyn/Minden Pictures)|羽繕いをする白鳥|![](/ja-JP/2022/10/202210281500Knobbelzwaan.jpg)|
 202210291500|SealRiver|ハドソン湾のホッキョクグマ, カナダ マニトバ州 (© Sean Crane/Minden Pictures)|今日から国際ホッキョクグマ週間|![](/ja-JP/2022/10/202210291500SealRiver.jpg)|
 202210301500|SmilingPunpkins2022|笑う 2 つのカボチャ (© sandsun/Getty Images)|今日は「ハロウィン」|![](/ja-JP/2022/10/202210301500SmilingPunpkins2022.jpg)|
+202210311500|AmboseliBioshere|ケープバッファロー, ケニア (© RealityImages/Shutterstock)|ケープバッファローの群れ|![](/ja-JP/2022/10/202210311500AmboseliBioshere.jpg)|
