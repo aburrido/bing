@@ -32,3 +32,4 @@
 202210281830|SeaAngel|Sea angel (© Alexander Semenov Images/Shutterstock)|Angel of the sea|![](/en-IN/2022/10/202210281830SeaAngel.jpg)|
 202210291830|SealRiver|Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)|Kings of the north|![](/en-IN/2022/10/202210291830SealRiver.jpg)|
 202210301830|WychwoodForest|Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)|Who's in this creepy copse?|![](/en-IN/2022/10/202210301830WychwoodForest.jpg)|
+202210311830|Calacas|Skeletons (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)|What are they celebrating?|![](/en-IN/2022/10/202210311830Calacas.jpg)|
