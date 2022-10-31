@@ -31,3 +31,4 @@
 202210272300|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-GB/2022/10/202210272300FrankensteinFriday.jpg)|
 202210282300|SeaAngel|Sea angel (© Alexander Semenov Images/Shutterstock)|Angel of the sea|![](/en-GB/2022/10/202210282300SeaAngel.jpg)|
 202210292300|EastgateClock|The sun sets over the Eastgate Clock in Chester. (© ZinCat/Getty Images)|The sun sets on British Summer Time|![](/en-GB/2022/10/202210292300EastgateClock.jpg)|
+202210310000|WychwoodForest|Trees in Wychwood Forest near Chipping Norton, Oxfordshire (© Frederick Ardley/Getty Images)|Who's in this creepy copse?|![](/en-GB/2022/10/202210310000WychwoodForest.jpg)|
