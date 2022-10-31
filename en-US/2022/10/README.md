@@ -32,3 +32,4 @@
 202210280700|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-US/2022/10/202210280700FrankensteinFriday.jpg)|
 202210290700|SeaAngel|Sea angel (© Alexander Semenov Images/Shutterstock)|Angel of the sea|![](/en-US/2022/10/202210290700SeaAngel.jpg)|
 202210300700|SealRiver|Polar bear at the edge of Hudson Bay, Manitoba, Canada (© Sean Crane/Minden Pictures)|Hunters of the North|![](/en-US/2022/10/202210300700SealRiver.jpg)|
+202210310700|WychwoodForest|Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)|Who's in this creepy copse?|![](/en-US/2022/10/202210310700WychwoodForest.jpg)|
