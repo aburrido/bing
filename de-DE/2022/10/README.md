@@ -32,3 +32,4 @@
 202210282200|SeaAngel|Ruderschnecke (© Alexander Semenov Images/Shutterstock)|Engel des Meeres|![](/de-DE/2022/10/202210282200SeaAngel.jpg)|
 202210292200|SealRiver|Eisbär am Rand der Hudson Bay, Manitoba, Kanada (© Sean Crane/Minden Pictures)|Könige des Nordens|![](/de-DE/2022/10/202210292200SealRiver.jpg)|
 202210302300|WychwoodForest|Wychwood Forest nahe Chipping Norton, Oxfordshire, England, Vereinigtes Königreich (© Frederick Ardley/Getty Images)|Wer streift durch das unheimliche Waldstück?|![](/de-DE/2022/10/202210302300WychwoodForest.jpg)|
+202210312300|Calacas|Pappmaché-Skelette (Calacas) am Tag der Toten (Día de los Muertos) in Mexiko (© Amelia Fuentes Marin/Getty Images)|Was wird hier gefeiert?|![](/de-DE/2022/10/202210312300Calacas.jpg)|
