@@ -31,3 +31,4 @@
 202210280400|FrankensteinFriday|Ciel orageux au-dessus du lac Léman à Lausanne, Suisse (© Suradech Singhanat/Shutterstock)|Information|![](/fr-CA/2022/10/202210280400FrankensteinFriday.jpg)|
 202210290400|TremblantFoliage|L’automne dans le parc national de Mont-Tremblant, Québec (© Mircea Costina/Alamy Stock Photo)|Information|![](/fr-CA/2022/10/202210290400TremblantFoliage.jpg)|
 202210300400|SealRiver|Ours polaire dans la baie d’Hudson, Manitoba (© Sean Crane/Minden Pictures)|Information|![](/fr-CA/2022/10/202210300400SealRiver.jpg)|
+202210310400|WychwoodForest|Arbres dans la forêt de Wychwood près de Chipping Norton, Oxfordshire, Angleterre (© Frederick Ardley/Getty Images)|Information|![](/fr-CA/2022/10/202210310400WychwoodForest.jpg)|

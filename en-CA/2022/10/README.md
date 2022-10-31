@@ -31,3 +31,4 @@
 202210280400|FrankensteinFriday|Stormy sky over Lake Geneva in Lausanne, Switzerland (© Suradech Singhanat/Shutterstock)|On a dark and stormy night...|![](/en-CA/2022/10/202210280400FrankensteinFriday.jpg)|
 202210290400|TremblantFoliage|Fall foliage in Mont-Tremblant National Park, Quebec (© Mircea Costina/Alamy Stock Photo)|One of the oldest parks in Quebec|![](/en-CA/2022/10/202210290400TremblantFoliage.jpg)|
 202210300400|SealRiver|Polar bear at the edge of Hudson Bay, Manitoba (© Sean Crane/Minden Pictures)|Kings of the north|![](/en-CA/2022/10/202210300400SealRiver.jpg)|
+202210310400|WychwoodForest|Trees in Wychwood Forest near Chipping Norton, Oxfordshire, England (© Frederick Ardley/Getty Images)|Who's in this creepy copse?|![](/en-CA/2022/10/202210310400WychwoodForest.jpg)|
