@@ -4,3 +4,4 @@
 202211012300|BridgeofSighs|Seufzerbrücke, Venedig, Italien (© Doug Pearson/Alamy)|Ein Kuss und ein Seufzer|![](/de-DE/2022/11/202211012300BridgeofSighs.jpg)|
 202211022300|AmboseliBioshere|Kilimandscharo mit Kaffernbüffeln im Vordergrund, Amboseli-Biosphärenreservat, Kenia (© RealityImages/Shutterstock)|Ein Experiment in Sachen Nachhaltigkeit|![](/de-DE/2022/11/202211022300AmboseliBioshere.jpg)|
 202211032300|Deities|Darstellung von Gottheiten aus dem Grab des Tutanchamun im Ägyptischen Museum, Kairo, Ägypten (© Stefan Lippmann/Universal Images Group via Getty Images)|Grab des goldenen Pharaos|![](/de-DE/2022/11/202211032300Deities.jpg)|
+202211042300|Trossachs|Tigh Mor Trossachs am Loch Achray, Schottland, Vereinigtes Königreich (© Fortunato Gatto/eStock Photo)|Spiegelbild einer stilvollen Vergangenheit|![](/de-DE/2022/11/202211042300Trossachs.jpg)|
