@@ -5,3 +5,4 @@
 202211021600|AmboseliBioshere|乞力马扎罗山和非洲水牛，肯尼亚 (© RealityImages/Shutterstock)|一个关于可持续发展的实验|![](/zh-CN/2022/11/202211021600AmboseliBioshere.jpg)|
 202211031600|PeytoIce|班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)|落基山上碧玉腰带|![](/zh-CN/2022/11/202211031600PeytoIce.jpg)|
 202211041600|Trossachs|阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)|重温往日辉煌|![](/zh-CN/2022/11/202211041600Trossachs.jpg)|
+202211051600|MarathonSunday|1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)|跑过纽约五个行政区|![](/zh-CN/2022/11/202211051600MarathonSunday.jpg)|
