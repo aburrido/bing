@@ -4,3 +4,4 @@
 202211020000|NantGwynant|Nant Gwynant valley, Snowdonia National Park, Gwynedd. (© Sebastian Wasek/Alamy)|In the foothills of Snowdon|![](/en-GB/2022/11/202211020000NantGwynant.jpg)|
 202211030000|AmboseliBioshere|Mount Kilimanjaro with Cape buffalo in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)|Living in harmony|![](/en-GB/2022/11/202211030000AmboseliBioshere.jpg)|
 202211040000|Deities|Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)|Tomb of the Golden Pharaoh|![](/en-GB/2022/11/202211040000Deities.jpg)|
+202211050000|GreenwichFireworks|Bonfire Night at the Old Royal Naval College, London (© marcin_libera/Getty Images Plus)|Remember, remember…|![](/en-GB/2022/11/202211050000GreenwichFireworks.jpg)|
