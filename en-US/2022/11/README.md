@@ -5,3 +5,4 @@
 202211020700|SpruceGoose|The Hughes H-4 Hercules, aka the Spruce Goose, November 1947, Long Beach Harbor, California (© J R Eyerman/Shutterstock)|'If it's a failure, I'll probably leave this country'|![](/en-US/2022/11/202211020700SpruceGoose.jpg)|
 202211030700|AmboseliBioshere|Mount Kilimanjaro with Cape buffaloes in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)|An experiment in sustainability|![](/en-US/2022/11/202211030700AmboseliBioshere.jpg)|
 202211040700|Deities|Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)|Tomb of the Golden Pharaoh|![](/en-US/2022/11/202211040700Deities.jpg)|
+202211050700|Trossachs|Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)|Reflecting its stylish past today|![](/en-US/2022/11/202211050700Trossachs.jpg)|

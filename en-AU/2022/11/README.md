@@ -5,3 +5,4 @@
 202211020700|TeaPlantationsMunnar|Tea plantations, Munnar, Kerala, India (© Mazur Travel/Shutterstock)|Info|![](/en-AU/2022/11/202211020700TeaPlantationsMunnar.jpg)|
 202211030700|AmboseliBioshere|Mount Kilimanjaro, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)|Info|![](/en-AU/2022/11/202211030700AmboseliBioshere.jpg)|
 202211040700|PeytoIce|Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)|Info|![](/en-AU/2022/11/202211040700PeytoIce.jpg)|
+202211050700|Trossachs|Tigh Mor Trossachs, Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)|Info|![](/en-AU/2022/11/202211050700Trossachs.jpg)|
