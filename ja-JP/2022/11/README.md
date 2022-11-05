@@ -5,3 +5,4 @@
 202211021500|CultureDay2022|矢を放つ流鏑馬の射手, 東京 (© CHARLY TRIBALLEAU/Getty images)|今日は「文化の日」|![](/ja-JP/2022/11/202211021500CultureDay2022.jpg)|
 202211031500|Deities|ツタンカーメン王の墓, エジプト (© Stefan Lippmann/Universal Images Group via Getty Images)|ツタンカーメン王の墓|![](/ja-JP/2022/11/202211031500Deities.jpg)|
 202211041500|Trossachs|アクレイ湖畔のタイ・モール・トロサックス, スコットランド (© Fortunato Gatto/eStock Photo)|タイ・モール・トロサックス|![](/ja-JP/2022/11/202211041500Trossachs.jpg)|
+202211051500|MarathonSunday|ヴェラザノ＝ナローズ橋, 米国 ニューヨーク (© David Madison/Getty Images)|ニューヨークシティマラソン開催|![](/ja-JP/2022/11/202211051500MarathonSunday.jpg)|
