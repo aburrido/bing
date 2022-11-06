@@ -6,3 +6,4 @@
 202211030400|AmboseliBioshere|Mount Kilimanjaro with Cape buffalo in foreground, Amboseli Biosphere Reserve, Kenya (© RealityImages/Shutterstock)|An experiment in sustainability|![](/en-CA/2022/11/202211030400AmboseliBioshere.jpg)|
 202211040400|Deities|Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)|Tomb of the Golden Pharaoh|![](/en-CA/2022/11/202211040400Deities.jpg)|
 202211050400|Trossachs|Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)|Reflecting its stylish past today|![](/en-CA/2022/11/202211050400Trossachs.jpg)|
+202211060400|MarathonSunday|Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)|Racing through the five boroughs|![](/en-CA/2022/11/202211060400MarathonSunday.jpg)|
