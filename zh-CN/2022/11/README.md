@@ -6,3 +6,4 @@
 202211031600|PeytoIce|班夫国家公园的沛托湖，加拿大艾伯塔省 (© Ben Girardi/Cavan Images)|落基山上碧玉腰带|![](/zh-CN/2022/11/202211031600PeytoIce.jpg)|
 202211041600|Trossachs|阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰 (© Fortunato Gatto/eStock Photo)|重温往日辉煌|![](/zh-CN/2022/11/202211041600Trossachs.jpg)|
 202211051600|MarathonSunday|1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)|跑过纽约五个行政区|![](/zh-CN/2022/11/202211051600MarathonSunday.jpg)|
+202211061600|LiDong2022|庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)|冬天来了|![](/zh-CN/2022/11/202211061600LiDong2022.jpg)|
