@@ -6,3 +6,4 @@
 202211031830|Deities|Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)|Tomb of the Golden Pharaoh|![](/en-IN/2022/11/202211031830Deities.jpg)|
 202211041830|Trossachs|Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)|Reflecting its stylish past today|![](/en-IN/2022/11/202211041830Trossachs.jpg)|
 202211051830|MarathonSunday|Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)|Racing through the five boroughs|![](/en-IN/2022/11/202211051830MarathonSunday.jpg)|
+202211061830|CrestedButteEclispe|Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)|Blood moon|![](/en-IN/2022/11/202211061830CrestedButteEclispe.jpg)|
