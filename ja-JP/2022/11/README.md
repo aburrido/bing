@@ -6,3 +6,4 @@
 202211031500|Deities|ツタンカーメン王の墓, エジプト (© Stefan Lippmann/Universal Images Group via Getty Images)|ツタンカーメン王の墓|![](/ja-JP/2022/11/202211031500Deities.jpg)|
 202211041500|Trossachs|アクレイ湖畔のタイ・モール・トロサックス, スコットランド (© Fortunato Gatto/eStock Photo)|タイ・モール・トロサックス|![](/ja-JP/2022/11/202211041500Trossachs.jpg)|
 202211051500|MarathonSunday|ヴェラザノ＝ナローズ橋, 米国 ニューヨーク (© David Madison/Getty Images)|ニューヨークシティマラソン開催|![](/ja-JP/2022/11/202211051500MarathonSunday.jpg)|
+202211061500|Ritto2022|赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)|今日は「立冬」|![](/ja-JP/2022/11/202211061500Ritto2022.jpg)|
