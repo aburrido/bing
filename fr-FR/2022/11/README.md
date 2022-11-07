@@ -7,3 +7,4 @@
 202211042300|Trossachs|Château de Tigh Mor sur le loch Achray, Écosse (© Fortunato Gatto/eStock Photo)|Un château écossais|![](/fr-FR/2022/11/202211042300Trossachs.jpg)|
 202211052300|MarathonSunday|Marathoniens traversant le pont Verrazano-Narrows à  New York, États-Unis (© David Madison/Getty Images)|42,195 kilomètres à pied, ça use les souliers|![](/fr-FR/2022/11/202211052300MarathonSunday.jpg)|
 202211062300|CrestedButteEclispe|Éclipse lunaire au-dessus de Mount Crested Butte, Colorado, États-Unis (© Mengzhonghua Photography/Getty Images)|Cache-cache avec la lune|![](/fr-FR/2022/11/202211062300CrestedButteEclispe.jpg)|
+202211072300|YiPeng|Lanternes s’envolant lors du festival Yi Peng à Chiang Mai, Thaïlande (© Suttipong Sutiratanachai/Getty Images)|Les mille et une lanternes|![](/fr-FR/2022/11/202211072300YiPeng.jpg)|
