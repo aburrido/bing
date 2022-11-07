@@ -7,3 +7,4 @@
 202211040400|Deities|Représentation de déités de la tombe de Toutankhamon, musée égyptien du Caire, Egypte (© Stefan Lippmann/Universal Images Group via Getty Images)|Information|![](/fr-CA/2022/11/202211040400Deities.jpg)|
 202211050400|Trossachs|Château de Tigh Mor sur le loch Achray, Écosse (© Fortunato Gatto/eStock Photo)|Information|![](/fr-CA/2022/11/202211050400Trossachs.jpg)|
 202211060400|MarathonSunday|Marathoniens traversant le pont Verrazano-Narrows à  New York, États-Unis (© David Madison/Getty Images)|Information|![](/fr-CA/2022/11/202211060400MarathonSunday.jpg)|
+202211070500|CrestedButteEclispe|Éclipse lunaire au-dessus de Mount Crested Butte, Colorado, États-Unis (© Mengzhonghua Photography/Getty Images)|Information|![](/fr-CA/2022/11/202211070500CrestedButteEclispe.jpg)|
