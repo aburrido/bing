@@ -8,3 +8,4 @@
 202211051830|MarathonSunday|Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)|Racing through the five boroughs|![](/en-IN/2022/11/202211051830MarathonSunday.jpg)|
 202211061830|CrestedButteEclispe|Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)|Blood moon|![](/en-IN/2022/11/202211061830CrestedButteEclispe.jpg)|
 202211071830|GoldenTemplePunjab|Golden Temple in Amritsar, Punjab, India (© epics.ca/Getty Images)|Celebrating Guru Nanak Gurpurab|![](/en-IN/2022/11/202211071830GoldenTemplePunjab.jpg)|
+202211081830|HedgehogNest|European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)|Look, but don’t touch|![](/en-IN/2022/11/202211081830HedgehogNest.jpg)|
