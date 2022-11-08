@@ -8,3 +8,4 @@
 202211051600|MarathonSunday|1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥 (© David Madison/Getty Images)|跑过纽约五个行政区|![](/zh-CN/2022/11/202211051600MarathonSunday.jpg)|
 202211061600|LiDong2022|庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)|冬天来了|![](/zh-CN/2022/11/202211061600LiDong2022.jpg)|
 202211071600|YiPeng|清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)|祝福和祈愿的日子|![](/zh-CN/2022/11/202211071600YiPeng.jpg)|
+202211081600|HedgehogNest|萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)|可以观赏，请勿触碰|![](/zh-CN/2022/11/202211081600HedgehogNest.jpg)|
