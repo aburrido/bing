@@ -7,3 +7,4 @@
 202211050000|GreenwichFireworks|Bonfire Night at the Old Royal Naval College, London (© marcin_libera/Getty Images Plus)|Remember, remember…|![](/en-GB/2022/11/202211050000GreenwichFireworks.jpg)|
 202211060000|ValvestinoDam|Valvestino dam in the province of Brescia, Lombardy, Italy (© wmaster890/Getty Images)|The fjords of Italy|![](/en-GB/2022/11/202211060000ValvestinoDam.jpg)|
 202211070000|CrestedButteEclispe|Lunar eclipse above Mount Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)|Blood moon|![](/en-GB/2022/11/202211070000CrestedButteEclispe.jpg)|
+202211080000|YiPeng|Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Launching hopes and prayers|![](/en-GB/2022/11/202211080000YiPeng.jpg)|
