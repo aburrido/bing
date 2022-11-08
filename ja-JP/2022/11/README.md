@@ -8,3 +8,4 @@
 202211051500|MarathonSunday|ヴェラザノ＝ナローズ橋, 米国 ニューヨーク (© David Madison/Getty Images)|ニューヨークシティマラソン開催|![](/ja-JP/2022/11/202211051500MarathonSunday.jpg)|
 202211061500|Ritto2022|赤い実をついばむシジュウカラ (© Aflo Co., Ltd./Alamy Stock Photo)|今日は「立冬」|![](/ja-JP/2022/11/202211061500Ritto2022.jpg)|
 202211071500|YiPeng|イーペン祭り, タイ チェンマイ (© Suttipong Sutiratanachai/Getty Images)|イーペン祭り|![](/ja-JP/2022/11/202211071500YiPeng.jpg)|
+202211081500|HedgehogNest|ナミハリネズミ, イギリス (© Jules Cox/Minden Pictures)|ナミハリネズミの冬支度|![](/ja-JP/2022/11/202211081500HedgehogNest.jpg)|
