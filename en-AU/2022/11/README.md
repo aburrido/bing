@@ -8,3 +8,4 @@
 202211050700|Trossachs|Tigh Mor Trossachs, Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)|Info|![](/en-AU/2022/11/202211050700Trossachs.jpg)|
 202211060800|MarathonSunday|Verrazzano-Narrows Bridge, New York City, USA (© David Madison/Getty Images)|Info|![](/en-AU/2022/11/202211060800MarathonSunday.jpg)|
 202211070800|CrestedButteEclispe|Mount Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)|Info|![](/en-AU/2022/11/202211070800CrestedButteEclispe.jpg)|
+202211080800|YiPeng|Yi Peng festival, Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Info|![](/en-AU/2022/11/202211080800YiPeng.jpg)|
