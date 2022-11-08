@@ -8,3 +8,4 @@
 202211052300|MarathonSunday|Marathonläufer auf der Verrazano-Narrows Bridge, New York City, USA (© David Madison/Getty Images)|Rennen im „Big Apple“|![](/de-DE/2022/11/202211052300MarathonSunday.jpg)|
 202211062300|CrestedButteEclispe|Mondfinsternis über dem Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)|Blutmond|![](/de-DE/2022/11/202211062300CrestedButteEclispe.jpg)|
 202211072300|YiPeng|Abhebende Himmelslaternen während des Yi-Peng-Festivals in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Hoffnungen und Gebete steigen in den Himmel|![](/de-DE/2022/11/202211072300YiPeng.jpg)|
+202211082300|RosenMauer|Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)|Gedenken an den Berliner Mauerfall|![](/de-DE/2022/11/202211082300RosenMauer.jpg)|
