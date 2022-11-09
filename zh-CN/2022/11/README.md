@@ -9,3 +9,4 @@
 202211061600|LiDong2022|庐山冬季美景，中国江西省 (© silkwayrain/Getty Images)|冬天来了|![](/zh-CN/2022/11/202211061600LiDong2022.jpg)|
 202211071600|YiPeng|清迈易鹏节升起的天灯，泰国 (© Suttipong Sutiratanachai/Getty Images)|祝福和祈愿的日子|![](/zh-CN/2022/11/202211071600YiPeng.jpg)|
 202211081600|HedgehogNest|萨塞克斯郡的西欧刺猬，英国 (© Jules Cox/Minden Pictures)|可以观赏，请勿触碰|![](/zh-CN/2022/11/202211081600HedgehogNest.jpg)|
+202211091600|BadLightning|雷暴中恶地国家公园的岩层，美国南达科他州 (© DEEPOL by plainpicture)|恶地国家公园的一场闪电？|![](/zh-CN/2022/11/202211091600BadLightning.jpg)|
