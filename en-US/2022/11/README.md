@@ -9,3 +9,4 @@
 202211060800|MarathonSunday|Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)|Racing through the five boroughs|![](/en-US/2022/11/202211060800MarathonSunday.jpg)|
 202211070800|CrestedButteEclispe|Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)|Blood moon|![](/en-US/2022/11/202211070800CrestedButteEclispe.jpg)|
 202211080800|YiPeng|Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Launching hopes and prayers|![](/en-US/2022/11/202211080800YiPeng.jpg)|
+202211090800|HedgehogNest|European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)|Look, but don't touch|![](/en-US/2022/11/202211090800HedgehogNest.jpg)|
