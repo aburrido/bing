@@ -10,3 +10,4 @@
 202211070500|CrestedButteEclispe|Éclipse lunaire au-dessus de Mount Crested Butte, Colorado, États-Unis (© Mengzhonghua Photography/Getty Images)|Information|![](/fr-CA/2022/11/202211070500CrestedButteEclispe.jpg)|
 202211080500|YiPeng|Lanternes s’envolant lors du festival Yi Peng à Chiang Mai, Thaïlande (© Suttipong Sutiratanachai/Getty Images)|Information|![](/fr-CA/2022/11/202211080500YiPeng.jpg)|
 202211090500|HedgehogNest|Hérisson dans le Sussex, Angleterre (© Jules Cox/Minden Pictures)|Information|![](/fr-CA/2022/11/202211090500HedgehogNest.jpg)|
+202211100500|PeytoIce|Formations de glace sur le lac Peyto dans le parc national de Banff, Alberta (© Ben Girardi/Cavan Images)|Information|![](/fr-CA/2022/11/202211100500PeytoIce.jpg)|
