@@ -11,3 +11,4 @@
 202211082300|RosenMauer|Rosen in einem Mauerspalt zum Gedenken an den Jahrestag des Falls der Berliner Mauer, Berlin (© Artur Widak/Shutterstock)|Gedenken an den Berliner Mauerfall|![](/de-DE/2022/11/202211082300RosenMauer.jpg)|
 202211092300|BadLightning|Felsformationen im Badlands-Nationalpark während eines Gewitters, South Dakota, USA (© DEEPOL by plainpicture)|Alles Gute, Badlands-Nationalpark!|![](/de-DE/2022/11/202211092300BadLightning.jpg)|
 ||||![](/de-DE/2022/11/.jpg)|
+202211102300|MountAbu|Mount Abu und die Aravalli-Bergkette in Rajasthan, Indien (© saiko3p/Shutterstock)|Eine Oase in der Wüste|![](/de-DE/2022/11/202211102300MountAbu.jpg)|
