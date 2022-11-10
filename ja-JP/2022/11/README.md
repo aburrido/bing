@@ -10,3 +10,4 @@
 202211071500|YiPeng|イーペン祭り, タイ チェンマイ (© Suttipong Sutiratanachai/Getty Images)|イーペン祭り|![](/ja-JP/2022/11/202211071500YiPeng.jpg)|
 202211081500|HedgehogNest|ナミハリネズミ, イギリス (© Jules Cox/Minden Pictures)|ナミハリネズミの冬支度|![](/ja-JP/2022/11/202211081500HedgehogNest.jpg)|
 202211091500|BadLightning|岩石層と落雷, 米国 サウスダコタ州 (© DEEPOL by plainpicture)|バッドランズ国立公園|![](/ja-JP/2022/11/202211091500BadLightning.jpg)|
+202211101500|MountAbu|アーブー山, インド ラージャスターン州 (© saiko3p/Shutterstock)|インド アーブー山|![](/ja-JP/2022/11/202211101500MountAbu.jpg)|
