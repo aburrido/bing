@@ -11,3 +11,4 @@
 202211080500|YiPeng|Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Launching hopes and prayers|![](/en-CA/2022/11/202211080500YiPeng.jpg)|
 202211090500|HedgehogNest|European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)|Look, but don’t touch|![](/en-CA/2022/11/202211090500HedgehogNest.jpg)|
 202211100500|PeytoIce|Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)|Postcard from the Canadian Rockies|![](/en-CA/2022/11/202211100500PeytoIce.jpg)|
+||||![](/en-CA/2022/11/.jpg)|

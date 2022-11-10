@@ -10,3 +10,4 @@
 202211071830|GoldenTemplePunjab|Golden Temple in Amritsar, Punjab, India (© epics.ca/Getty Images)|Celebrating Guru Nanak Gurpurab|![](/en-IN/2022/11/202211071830GoldenTemplePunjab.jpg)|
 202211081830|HedgehogNest|European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)|Look, but don’t touch|![](/en-IN/2022/11/202211081830HedgehogNest.jpg)|
 202211091830|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)|Happy birthday Badlands National Park|![](/en-IN/2022/11/202211091830BadLightning.jpg)|
+||||![](/en-IN/2022/11/.jpg)|

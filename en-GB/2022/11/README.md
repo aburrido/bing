@@ -10,3 +10,4 @@
 202211080000|YiPeng|Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Launching hopes and prayers|![](/en-GB/2022/11/202211080000YiPeng.jpg)|
 202211090000|HedgehogNest|Hedgehog (Erinaceus europaeus) sheltering in a pile of fallen leaves, Sussex (© Jules Cox/Minden Pictures)|A prickly customer|![](/en-GB/2022/11/202211090000HedgehogNest.jpg)|
 202211100000|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota, USA (© DEEPOL by plainpicture)|Lighting up the Badlands|![](/en-GB/2022/11/202211100000BadLightning.jpg)|
+||||![](/en-GB/2022/11/.jpg)|

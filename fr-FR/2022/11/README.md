@@ -10,3 +10,4 @@
 202211072300|YiPeng|Lanternes s’envolant lors du festival Yi Peng à Chiang Mai, Thaïlande (© Suttipong Sutiratanachai/Getty Images)|Les mille et une lanternes|![](/fr-FR/2022/11/202211072300YiPeng.jpg)|
 202211082300|HedgehogNest|Hérisson dans le Sussex, Angleterre (© Jules Cox/Minden Pictures)|Boule de pics|![](/fr-FR/2022/11/202211082300HedgehogNest.jpg)|
 202211092300|BadLightning|Formations rocheuses sous un orage dans le parc national des Badlands, Dakota du Sud, États-Unis (© DEEPOL by plainpicture)|Les mauvaises terres des États-Unis|![](/fr-FR/2022/11/202211092300BadLightning.jpg)|
+||||![](/fr-FR/2022/11/.jpg)|
