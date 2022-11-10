@@ -10,3 +10,4 @@
 202211070800|CrestedButteEclispe|Lunar eclipse above Mount Crested Butte, Colorado (© Mengzhonghua Photography/Getty Images)|Blood moon|![](/en-US/2022/11/202211070800CrestedButteEclispe.jpg)|
 202211080800|YiPeng|Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Launching hopes and prayers|![](/en-US/2022/11/202211080800YiPeng.jpg)|
 202211090800|HedgehogNest|European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)|Look, but don't touch|![](/en-US/2022/11/202211090800HedgehogNest.jpg)|
+202211100800|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)|Happy birthday, Badlands National Park|![](/en-US/2022/11/202211100800BadLightning.jpg)|

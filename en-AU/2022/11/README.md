@@ -10,3 +10,4 @@
 202211070800|CrestedButteEclispe|Mount Crested Butte, Colorado, USA (© Mengzhonghua Photography/Getty Images)|Info|![](/en-AU/2022/11/202211070800CrestedButteEclispe.jpg)|
 202211080800|YiPeng|Yi Peng festival, Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)|Info|![](/en-AU/2022/11/202211080800YiPeng.jpg)|
 202211090800|HedgehogNest|European hedgehog, Sussex, England (© Jules Cox/Minden Pictures)|Info|![](/en-AU/2022/11/202211090800HedgehogNest.jpg)|
+202211100800|BadLightning|Rock formations, Badlands National Park, South Dakota, USA (© DEEPOL by plainpicture)|Info|![](/en-AU/2022/11/202211100800BadLightning.jpg)|
