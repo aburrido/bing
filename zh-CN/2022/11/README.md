@@ -12,3 +12,4 @@
 202211091600|BadLightning|雷暴中恶地国家公园的岩层，美国南达科他州 (© DEEPOL by plainpicture)|恶地国家公园的一场闪电？|![](/zh-CN/2022/11/202211091600BadLightning.jpg)|
 202211101600|MountAbu|阿拉瓦利山脉的阿布山，印度拉贾斯坦邦 (© saiko3p/Shutterstock)|沙漠中的绿洲|![](/zh-CN/2022/11/202211101600MountAbu.jpg)|
 ||||![](/zh-CN/2022/11/.jpg)|
+202211111600|HainesEagle|阿拉斯加州海恩斯附近的秃鹰群，美国 (© Marion Vollborn/Minden Pictures)|秃鹰的集会|![](/zh-CN/2022/11/202211111600HainesEagle.jpg)|
