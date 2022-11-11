@@ -12,3 +12,4 @@
 202211091500|BadLightning|岩石層と落雷, 米国 サウスダコタ州 (© DEEPOL by plainpicture)|バッドランズ国立公園|![](/ja-JP/2022/11/202211091500BadLightning.jpg)|
 202211101500|MountAbu|アーブー山, インド ラージャスターン州 (© saiko3p/Shutterstock)|インド アーブー山|![](/ja-JP/2022/11/202211101500MountAbu.jpg)|
 ||||![](/ja-JP/2022/11/.jpg)|
+202211111500|HainesEagle|ハクトウワシの休息, 米国 アラスカ州 (© Marion Vollborn/Minden Pictures)|アラスカ ハクトウワシフェスティバル|![](/ja-JP/2022/11/202211111500HainesEagle.jpg)|
