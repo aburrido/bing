@@ -12,3 +12,4 @@
 202211092300|BadLightning|Formations rocheuses sous un orage dans le parc national des Badlands, Dakota du Sud, États-Unis (© DEEPOL by plainpicture)|Les mauvaises terres des États-Unis|![](/fr-FR/2022/11/202211092300BadLightning.jpg)|
 ||||![](/fr-FR/2022/11/.jpg)|
 202211102300|PeaceTreaty|Wagon dans lequel fut signé l’armistice de 1918, exposé à l’hôtel des Invalides à Paris, de 1921 à 1927 (© Hulton-Deutsch Collection/CORBIS/Corbis via Getty Images)|Le wagon de la paix|![](/fr-FR/2022/11/202211102300PeaceTreaty.jpg)|
+202211112300|HainesEagle|Groupe de pygargues à tête blanche près de Haines, Alaska, États-Unis (© Marion Vollborn/Minden Pictures)|Un aigle qui n’en est pas un|![](/fr-FR/2022/11/202211112300HainesEagle.jpg)|

@@ -12,3 +12,4 @@
 202211092300|BadLightning|Felsformationen im Badlands-Nationalpark während eines Gewitters, South Dakota, USA (© DEEPOL by plainpicture)|Alles Gute, Badlands-Nationalpark!|![](/de-DE/2022/11/202211092300BadLightning.jpg)|
 ||||![](/de-DE/2022/11/.jpg)|
 202211102300|MountAbu|Mount Abu und die Aravalli-Bergkette in Rajasthan, Indien (© saiko3p/Shutterstock)|Eine Oase in der Wüste|![](/de-DE/2022/11/202211102300MountAbu.jpg)|
+202211112300|HainesEagle|Gruppe von Weißkopfseeadlern in der Nähe von Haines, Alaska, USA (© Marion Vollborn/Minden Pictures)|Adler-Versammlung|![](/de-DE/2022/11/202211112300HainesEagle.jpg)|
