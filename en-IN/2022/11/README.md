@@ -12,3 +12,4 @@
 202211091830|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)|Happy birthday Badlands National Park|![](/en-IN/2022/11/202211091830BadLightning.jpg)|
 ||||![](/en-IN/2022/11/.jpg)|
 202211101830|MountAbu|Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)|An oasis in the desert|![](/en-IN/2022/11/202211101830MountAbu.jpg)|
+202211111830|HainesEagle|Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)|A convocation of eagles assembles|![](/en-IN/2022/11/202211111830HainesEagle.jpg)|
