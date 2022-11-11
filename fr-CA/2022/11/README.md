@@ -12,3 +12,4 @@
 202211090500|HedgehogNest|Hérisson dans le Sussex, Angleterre (© Jules Cox/Minden Pictures)|Information|![](/fr-CA/2022/11/202211090500HedgehogNest.jpg)|
 202211100500|PeytoIce|Formations de glace sur le lac Peyto dans le parc national de Banff, Alberta (© Ben Girardi/Cavan Images)|Information|![](/fr-CA/2022/11/202211100500PeytoIce.jpg)|
 ||||![](/fr-CA/2022/11/.jpg)|
+202211110500|VimyRidge|An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)|Information|![](/fr-CA/2022/11/202211110500VimyRidge.jpg)|
