@@ -11,3 +11,4 @@
 202211090000|HedgehogNest|Hedgehog (Erinaceus europaeus) sheltering in a pile of fallen leaves, Sussex (© Jules Cox/Minden Pictures)|A prickly customer|![](/en-GB/2022/11/202211090000HedgehogNest.jpg)|
 202211100000|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota, USA (© DEEPOL by plainpicture)|Lighting up the Badlands|![](/en-GB/2022/11/202211100000BadLightning.jpg)|
 ||||![](/en-GB/2022/11/.jpg)|
+202211110000|PoppyWave|Poppies:Wave on Barge Pier, Shoeburyness, Southend-on-Sea, Essex (© Ben Rector/Alamy)|A wave of remembrance|![](/en-GB/2022/11/202211110000PoppyWave.jpg)|
