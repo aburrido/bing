@@ -12,3 +12,4 @@
 202211090800|HedgehogNest|European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)|Look, but don't touch|![](/en-US/2022/11/202211090800HedgehogNest.jpg)|
 202211100800|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)|Happy birthday, Badlands National Park|![](/en-US/2022/11/202211100800BadLightning.jpg)|
 ||||![](/en-US/2022/11/.jpg)|
+202211110800|WomensMemorialMall|The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)|Honoring those who served|![](/en-US/2022/11/202211110800WomensMemorialMall.jpg)|
