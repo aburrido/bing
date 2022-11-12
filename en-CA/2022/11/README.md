@@ -13,3 +13,4 @@
 202211100500|PeytoIce|Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)|Postcard from the Canadian Rockies|![](/en-CA/2022/11/202211100500PeytoIce.jpg)|
 ||||![](/en-CA/2022/11/.jpg)|
 202211110500|VimyRidge|An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)|Lest we forget|![](/en-CA/2022/11/202211110500VimyRidge.jpg)|
+202211120500|HainesEagle|Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)|A convocation of eagles assembles|![](/en-CA/2022/11/202211120500HainesEagle.jpg)|
