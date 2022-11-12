@@ -13,3 +13,4 @@
 202211101600|MountAbu|阿拉瓦利山脉的阿布山，印度拉贾斯坦邦 (© saiko3p/Shutterstock)|沙漠中的绿洲|![](/zh-CN/2022/11/202211101600MountAbu.jpg)|
 ||||![](/zh-CN/2022/11/.jpg)|
 202211111600|HainesEagle|阿拉斯加州海恩斯附近的秃鹰群，美国 (© Marion Vollborn/Minden Pictures)|秃鹰的集会|![](/zh-CN/2022/11/202211111600HainesEagle.jpg)|
+202211121600|IsarwinkelSylvenstein|伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)|美丽清澈的河流|![](/zh-CN/2022/11/202211121600IsarwinkelSylvenstein.jpg)|
