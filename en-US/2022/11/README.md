@@ -13,3 +13,4 @@
 202211100800|BadLightning|Rock formations in Badlands National Park during a lightning storm, South Dakota (© DEEPOL by plainpicture)|Happy birthday, Badlands National Park|![](/en-US/2022/11/202211100800BadLightning.jpg)|
 ||||![](/en-US/2022/11/.jpg)|
 202211110800|WomensMemorialMall|The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)|Honoring those who served|![](/en-US/2022/11/202211110800WomensMemorialMall.jpg)|
+202211120800|HainesEagle|Bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)|A convocation of eagles assembles|![](/en-US/2022/11/202211120800HainesEagle.jpg)|
