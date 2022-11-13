@@ -14,3 +14,4 @@
 ||||![](/zh-CN/2022/11/.jpg)|
 202211111600|HainesEagle|阿拉斯加州海恩斯附近的秃鹰群，美国 (© Marion Vollborn/Minden Pictures)|秃鹰的集会|![](/zh-CN/2022/11/202211111600HainesEagle.jpg)|
 202211121600|IsarwinkelSylvenstein|伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)|美丽清澈的河流|![](/zh-CN/2022/11/202211121600IsarwinkelSylvenstein.jpg)|
+202211131600|SanGiovanni|哈尔基岛的圣约翰骑士中世纪城堡遗址，希腊 (© Massimo Ripani/eStock Photo)|爱琴海之巅|![](/zh-CN/2022/11/202211131600SanGiovanni.jpg)|
