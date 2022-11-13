@@ -14,3 +14,4 @@
 ||||![](/en-US/2022/11/.jpg)|
 202211110800|WomensMemorialMall|The Vietnam Women's Memorial in Washington, DC (© Cvandyke/Shutterstock)|Honoring those who served|![](/en-US/2022/11/202211110800WomensMemorialMall.jpg)|
 202211120800|HainesEagle|Bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)|A convocation of eagles assembles|![](/en-US/2022/11/202211120800HainesEagle.jpg)|
+202211130800|PunchBowl|The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)|Take a sip from the Punch Bowl|![](/en-US/2022/11/202211130800PunchBowl.jpg)|

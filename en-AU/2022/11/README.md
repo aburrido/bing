@@ -14,3 +14,4 @@
 ||||![](/en-AU/2022/11/.jpg)|
 202211110800|MountAbu|Mount Abu, the Aravalli Range, Rajasthan, India (© saiko3p/Shutterstock)|Info|![](/en-AU/2022/11/202211110800MountAbu.jpg)|
 202211120800|HainesEagle|Chilkat Bald Eagle Preserve, Haines, Alaska, USA (© Marion Vollborn/Minden Pictures)|Info|![](/en-AU/2022/11/202211120800HainesEagle.jpg)|
+202211130800|IsarwinkelSylvenstein|The Isar river, Isarwinkel, Lenggries, Germany (© Martin Siepmann/Offset/Shutterstock)|Info|![](/en-AU/2022/11/202211130800IsarwinkelSylvenstein.jpg)|
