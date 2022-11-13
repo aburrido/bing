@@ -14,3 +14,4 @@
 202211102300|MountAbu|Mount Abu und die Aravalli-Bergkette in Rajasthan, Indien (© saiko3p/Shutterstock)|Eine Oase in der Wüste|![](/de-DE/2022/11/202211102300MountAbu.jpg)|
 202211112300|HainesEagle|Gruppe von Weißkopfseeadlern in der Nähe von Haines, Alaska, USA (© Marion Vollborn/Minden Pictures)|Adler-Versammlung|![](/de-DE/2022/11/202211112300HainesEagle.jpg)|
 202211122300|SanGiovanni|Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)|Hoch über dem Ägäischen Meer|![](/de-DE/2022/11/202211122300SanGiovanni.jpg)|
+202211132300|IsarwinkelSylvenstein|Luftaufnahme der Isar an der Einmündung in den Sylvensteinspeicher, Isarwinkel, Lenggries, Bayern (© Martin Siepmann/Shutterstock)|Glasklares Wasser mündet in einen Stausee|![](/de-DE/2022/11/202211132300IsarwinkelSylvenstein.jpg)|
