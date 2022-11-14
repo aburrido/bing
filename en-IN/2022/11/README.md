@@ -15,3 +15,4 @@
 202211111830|HainesEagle|Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)|A convocation of eagles assembles|![](/en-IN/2022/11/202211111830HainesEagle.jpg)|
 202211121830|FosterCoveredBridge|Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)|A modern recreation|![](/en-IN/2022/11/202211121830FosterCoveredBridge.jpg)|
 202211131830|SanGiovanni|Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-IN/2022/11/202211131830SanGiovanni.jpg)|
+202211141830|LontraCanadensis|North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)|You 'otter' check this out|![](/en-IN/2022/11/202211141830LontraCanadensis.jpg)|
