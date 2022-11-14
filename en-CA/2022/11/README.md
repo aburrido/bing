@@ -15,3 +15,4 @@
 202211110500|VimyRidge|An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)|Lest we forget|![](/en-CA/2022/11/202211110500VimyRidge.jpg)|
 202211120500|HainesEagle|Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)|A convocation of eagles assembles|![](/en-CA/2022/11/202211120500HainesEagle.jpg)|
 202211130500|MountAbu|Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)|An oasis in the desert|![](/en-CA/2022/11/202211130500MountAbu.jpg)|
+202211140500|SanGiovanni|Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-CA/2022/11/202211140500SanGiovanni.jpg)|
