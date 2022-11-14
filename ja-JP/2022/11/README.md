@@ -15,3 +15,4 @@
 202211111500|HainesEagle|ハクトウワシの休息, 米国 アラスカ州 (© Marion Vollborn/Minden Pictures)|アラスカ ハクトウワシフェスティバル|![](/ja-JP/2022/11/202211111500HainesEagle.jpg)|
 202211121500|IsarwinkelSylvenstein|シルヴェンシュタインダムに注ぐイーザル川, ドイツ (© Martin Siepmann/Offset/Shutterstock)|空から見たイーザル川|![](/ja-JP/2022/11/202211121500IsarwinkelSylvenstein.jpg)|
 202211131500|SanGiovanni|中世の要塞, ギリシャ ハルキ島 (© Massimo Ripani/eStock Photo)|聖ヨハネ騎士団の要塞|![](/ja-JP/2022/11/202211131500SanGiovanni.jpg)|
+202211141500|LontraCanadensis|泳ぐカナダカワウソ, 米国 メイン州 (© George Sanker/Minden Pictures)|泳ぐカナダカワウソのカップル|![](/ja-JP/2022/11/202211141500LontraCanadensis.jpg)|
