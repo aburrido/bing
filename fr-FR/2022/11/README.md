@@ -15,3 +15,4 @@
 202211112300|HainesEagle|Groupe de pygargues à tête blanche près de Haines, Alaska, États-Unis (© Marion Vollborn/Minden Pictures)|Un aigle qui n’en est pas un|![](/fr-FR/2022/11/202211112300HainesEagle.jpg)|
 202211122300|IsarwinkelSylvenstein|Vue aérienne de l’Isar se déversant dans le réservoir de Sylvenstein, Isarwinkel, Lenggries, Allemagne (© Martin Siepmann/Offset/Shutterstock)|De l’eau d’Allemagne|![](/fr-FR/2022/11/202211122300IsarwinkelSylvenstein.jpg)|
 202211132300|SanGiovanni|Ruines du château médiéval construit par l’ordre de Saint-Jean de Jérusalem au-dessus du village de Chorio, Hálki, Grèce (© Massimo Ripani/eStock Photo)|Les vacances des vacances|![](/fr-FR/2022/11/202211132300SanGiovanni.jpg)|
+202211142300|LontraCanadensis|Loutres de rivière nageant dans le parc national d’Acadia, Maine, États-Unis (© George Sanker/Minden Pictures)|Loutre y es-tu ?|![](/fr-FR/2022/11/202211142300LontraCanadensis.jpg)|

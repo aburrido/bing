@@ -15,3 +15,4 @@
 202211112300|HainesEagle|Gruppe von Weißkopfseeadlern in der Nähe von Haines, Alaska, USA (© Marion Vollborn/Minden Pictures)|Adler-Versammlung|![](/de-DE/2022/11/202211112300HainesEagle.jpg)|
 202211122300|SanGiovanni|Ruinen der mittelalterlichen Burg des Johanniterordens oberhalb des Dorfes Chorio, Insel Chalki, Griechenland (© Massimo Ripani/eStock Photo)|Hoch über dem Ägäischen Meer|![](/de-DE/2022/11/202211122300SanGiovanni.jpg)|
 202211132300|IsarwinkelSylvenstein|Luftaufnahme der Isar an der Einmündung in den Sylvensteinspeicher, Isarwinkel, Lenggries, Bayern (© Martin Siepmann/Shutterstock)|Glasklares Wasser mündet in einen Stausee|![](/de-DE/2022/11/202211132300IsarwinkelSylvenstein.jpg)|
+202211142300|HedgehogNest|Braunbrustigel in Sussex, England, Vereinigtes Königreich (© Jules Cox/Minden Pictures)|Nur schauen, nicht anfassen!|![](/de-DE/2022/11/202211142300HedgehogNest.jpg)|
