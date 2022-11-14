@@ -14,3 +14,4 @@
 202211110000|PoppyWave|Poppies:Wave on Barge Pier, Shoeburyness, Southend-on-Sea, Essex (© Ben Rector/Alamy)|A wave of remembrance|![](/en-GB/2022/11/202211110000PoppyWave.jpg)|
 202211120000|HainesEagle|Group of bald eagles in Alaska, USA (© Marion Vollborn/Minden Pictures)|Eagles assemble!|![](/en-GB/2022/11/202211120000HainesEagle.jpg)|
 202211130000|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-GB/2022/11/202211130000PianePuma.jpg)|
+202211140000|SanGiovanni|Ruins of the medieval castle of the Knights of St John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-GB/2022/11/202211140000SanGiovanni.jpg)|
