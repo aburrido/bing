@@ -16,3 +16,4 @@
 202211121600|IsarwinkelSylvenstein|伊萨尔河鸟瞰图，德国伦格里斯 (© Martin Siepmann/Offset/Shutterstock)|美丽清澈的河流|![](/zh-CN/2022/11/202211121600IsarwinkelSylvenstein.jpg)|
 202211131600|SanGiovanni|哈尔基岛的圣约翰骑士中世纪城堡遗址，希腊 (© Massimo Ripani/eStock Photo)|爱琴海之巅|![](/zh-CN/2022/11/202211131600SanGiovanni.jpg)|
 202211141600|LontraCanadensis|北美水獭在阿卡迪亚国家公园游泳，美国 (© George Sanker/Minden Pictures)|北美水獭|![](/zh-CN/2022/11/202211141600LontraCanadensis.jpg)|
+202211151600|Unesco50|梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)|《保护世界文化和自然遗产公约》|![](/zh-CN/2022/11/202211151600Unesco50.jpg)|
