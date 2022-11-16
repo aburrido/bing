@@ -17,3 +17,4 @@
 202211130500|MountAbu|Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)|An oasis in the desert|![](/en-CA/2022/11/202211130500MountAbu.jpg)|
 202211140500|SanGiovanni|Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-CA/2022/11/202211140500SanGiovanni.jpg)|
 202211150500|LontraCanadensis|North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)|You 'otter' check this out|![](/en-CA/2022/11/202211150500LontraCanadensis.jpg)|
+202211160500|Unesco50|Cliff dwellings in Mesa Verde National Park in Colorado (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-CA/2022/11/202211160500Unesco50.jpg)|
