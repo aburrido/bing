@@ -17,3 +17,4 @@
 202211130800|PunchBowl|The Punch Bowl on the River Quoich in the Cairngorms, Aberdeenshire, Scotland (© AWL Images/Danita Delimont)|Take a sip from the Punch Bowl|![](/en-US/2022/11/202211130800PunchBowl.jpg)|
 202211140800|SanGiovanni|Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-US/2022/11/202211140800SanGiovanni.jpg)|
 202211150800|LontraCanadensis|North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)|You 'otter' check this out|![](/en-US/2022/11/202211150800LontraCanadensis.jpg)|
+202211160800|Unesco50|Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-US/2022/11/202211160800Unesco50.jpg)|
