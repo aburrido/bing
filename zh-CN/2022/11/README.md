@@ -17,3 +17,4 @@
 202211131600|SanGiovanni|哈尔基岛的圣约翰骑士中世纪城堡遗址，希腊 (© Massimo Ripani/eStock Photo)|爱琴海之巅|![](/zh-CN/2022/11/202211131600SanGiovanni.jpg)|
 202211141600|LontraCanadensis|北美水獭在阿卡迪亚国家公园游泳，美国 (© George Sanker/Minden Pictures)|北美水獭|![](/zh-CN/2022/11/202211141600LontraCanadensis.jpg)|
 202211151600|Unesco50|梅萨维德国家公园的悬崖宫，美国 (© Brad McGinley Photography/Getty Images)|《保护世界文化和自然遗产公约》|![](/zh-CN/2022/11/202211151600Unesco50.jpg)|
+202211161600|McKenzieRiverTrail|威拉米特国家森林麦肯齐河步道上的桥，美国 (© Don Paulson/Danita Delimont)|徒步旅行|![](/zh-CN/2022/11/202211161600McKenzieRiverTrail.jpg)|
