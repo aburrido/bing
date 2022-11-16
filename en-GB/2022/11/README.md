@@ -16,3 +16,4 @@
 202211130000|PianePuma|Puma in Torres del Paine National Park, Patagonia, Chile (© Ingo Arndt/Minden Pictures)|Nimble and stealthy|![](/en-GB/2022/11/202211130000PianePuma.jpg)|
 202211140000|SanGiovanni|Ruins of the medieval castle of the Knights of St John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-GB/2022/11/202211140000SanGiovanni.jpg)|
 202211150000|LontraCanadensis|North American river otters in Acadia National Park, Maine, USA (© George Sanker/Minden Pictures)|All going swimmingly|![](/en-GB/2022/11/202211150000LontraCanadensis.jpg)|
+202211160000|Unesco50|Cliff dwellings in Mesa Verde National Park in Colorado, USA (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-GB/2022/11/202211160000Unesco50.jpg)|
