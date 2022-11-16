@@ -17,3 +17,4 @@
 202211132300|SanGiovanni|Ruines du château médiéval construit par l’ordre de Saint-Jean de Jérusalem au-dessus du village de Chorio, Hálki, Grèce (© Massimo Ripani/eStock Photo)|Les vacances des vacances|![](/fr-FR/2022/11/202211132300SanGiovanni.jpg)|
 202211142300|LontraCanadensis|Loutres de rivière nageant dans le parc national d’Acadia, Maine, États-Unis (© George Sanker/Minden Pictures)|Loutre y es-tu ?|![](/fr-FR/2022/11/202211142300LontraCanadensis.jpg)|
 202211152300|Unesco50|Habitations troglodytes dans le parc national de Mesa Verde, Colorado, États-Unis (© Brad McGinley Photography/Getty Images)|Héritage pour l’éternité|![](/fr-FR/2022/11/202211152300Unesco50.jpg)|
+202211162300|Beaune|Vignes en automne, Bourgogne (© javarman3/Getty Images)|Il est de retour !|![](/fr-FR/2022/11/202211162300Beaune.jpg)|
