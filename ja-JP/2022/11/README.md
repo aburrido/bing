@@ -18,3 +18,4 @@
 202211141500|LontraCanadensis|泳ぐカナダカワウソ, 米国 メイン州 (© George Sanker/Minden Pictures)|泳ぐカナダカワウソのカップル|![](/ja-JP/2022/11/202211141500LontraCanadensis.jpg)|
 202211151500|Unesco50|メサ・ヴェルデの岩窟住居群, 米国 コロラド州 (© Brad McGinley Photography/Getty Images)|ユネスコ世界遺産条約 50 周年|![](/ja-JP/2022/11/202211151500Unesco50.jpg)|
 202211161500|McKenzieRiverTrail|マッケンジー・リバー・トレイル, 米国 オレゴン州 (© Don Paulson/Danita Delimont)|今日は米国ハイキングデー|![](/ja-JP/2022/11/202211161500McKenzieRiverTrail.jpg)|
+202211171500|IslamicArt|王宮の門, モロッコ フェズ (© Adam Smigielski/Getty Images)|国際イスラム美術の日|![](/ja-JP/2022/11/202211171500IslamicArt.jpg)|
