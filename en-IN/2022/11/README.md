@@ -18,3 +18,4 @@
 202211141830|LontraCanadensis|North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)|You 'otter' check this out|![](/en-IN/2022/11/202211141830LontraCanadensis.jpg)|
 202211151830|Unesco50|Cliff dwellings in Mesa Verde National Park in Colorado, USA (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-IN/2022/11/202211151830Unesco50.jpg)|
 202211161830|McKenzieRiverTrail|Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)|Take a hike!|![](/en-IN/2022/11/202211161830McKenzieRiverTrail.jpg)|
+202211171830|IslamicArt|The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)|Keyholes to the kingdom|![](/en-IN/2022/11/202211171830IslamicArt.jpg)|
