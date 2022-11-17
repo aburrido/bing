@@ -18,3 +18,4 @@
 202211140500|SanGiovanni|Ruines du château médiéval construit par l’ordre de Saint-Jean de Jérusalem au-dessus du village de Chorio, Hálki, Grèce (© Massimo Ripani/eStock Photo)|Information|![](/fr-CA/2022/11/202211140500SanGiovanni.jpg)|
 202211150500|LontraCanadensis|Loutres de rivière nageant dans le parc national d’Acadia, Maine, États-Unis (© George Sanker/Minden Pictures)|Information|![](/fr-CA/2022/11/202211150500LontraCanadensis.jpg)|
 202211160500|Unesco50|Habitations troglodytes dans le parc national de Mesa Verde, Colorado, États-Unis (© Brad McGinley Photography/Getty Images)|Informaiton|![](/fr-CA/2022/11/202211160500Unesco50.jpg)|
+202211170500|McKenzieRiverTrail|Pont sur le sentier Mckenzie River, forêt nationale de Willamette, Oregon, États-Unis (© Don Paulson/Danita Delimont)|Information|![](/fr-CA/2022/11/202211170500McKenzieRiverTrail.jpg)|
