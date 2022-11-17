@@ -18,3 +18,4 @@
 202211140800|SanGiovanni|Castle of the Knights of St. John, Chorio, Halki, Greece (© Massimo Ripani/eStock Photo)|Info|![](/en-AU/2022/11/202211140800SanGiovanni.jpg)|
 202211150800|LontraCanadensis|North American river otters, Acadia National Park, Maine, USA (© George Sanker/Minden Pictures)|Info|![](/en-AU/2022/11/202211150800LontraCanadensis.jpg)|
 202211160800|Unesco50|Mesa Verde National Park, Colorado, USA  (© Brad McGinley Photography/Getty Images)|Info|![](/en-AU/2022/11/202211160800Unesco50.jpg)|
+202211170800|McKenzieRiverTrail|McKenzie River Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)|Info|![](/en-AU/2022/11/202211170800McKenzieRiverTrail.jpg)|

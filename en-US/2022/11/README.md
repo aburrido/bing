@@ -18,3 +18,4 @@
 202211140800|SanGiovanni|Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)|High above the Aegean Sea|![](/en-US/2022/11/202211140800SanGiovanni.jpg)|
 202211150800|LontraCanadensis|North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)|You 'otter' check this out|![](/en-US/2022/11/202211150800LontraCanadensis.jpg)|
 202211160800|Unesco50|Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-US/2022/11/202211160800Unesco50.jpg)|
+202211170800|McKenzieRiverTrail|Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)|Take a hike!|![](/en-US/2022/11/202211170800McKenzieRiverTrail.jpg)|
