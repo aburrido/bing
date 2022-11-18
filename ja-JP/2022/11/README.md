@@ -19,3 +19,4 @@
 202211151500|Unesco50|メサ・ヴェルデの岩窟住居群, 米国 コロラド州 (© Brad McGinley Photography/Getty Images)|ユネスコ世界遺産条約 50 周年|![](/ja-JP/2022/11/202211151500Unesco50.jpg)|
 202211161500|McKenzieRiverTrail|マッケンジー・リバー・トレイル, 米国 オレゴン州 (© Don Paulson/Danita Delimont)|今日は米国ハイキングデー|![](/ja-JP/2022/11/202211161500McKenzieRiverTrail.jpg)|
 202211171500|IslamicArt|王宮の門, モロッコ フェズ (© Adam Smigielski/Getty Images)|国際イスラム美術の日|![](/ja-JP/2022/11/202211171500IslamicArt.jpg)|
+202211181500|ZNPVR|ザイオン国立公園のバージン川, 米国 ユタ州 (© Jonathan Ross/Getty Images)|米国 ザイオン国立公園|![](/ja-JP/2022/11/202211181500ZNPVR.jpg)|
