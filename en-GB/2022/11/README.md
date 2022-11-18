@@ -18,3 +18,4 @@
 202211150000|LontraCanadensis|North American river otters in Acadia National Park, Maine, USA (© George Sanker/Minden Pictures)|All going swimmingly|![](/en-GB/2022/11/202211150000LontraCanadensis.jpg)|
 202211160000|Unesco50|Cliff dwellings in Mesa Verde National Park in Colorado, USA (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-GB/2022/11/202211160000Unesco50.jpg)|
 202211170000|GB25Anni|Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)|Night outside the museum|![](/en-GB/2022/11/202211170000GB25Anni.jpg)|
+202211180000|IslamicArt|The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)|Keyholes to the kingdom|![](/en-GB/2022/11/202211180000IslamicArt.jpg)|
