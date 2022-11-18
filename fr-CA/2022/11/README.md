@@ -19,3 +19,4 @@
 202211150500|LontraCanadensis|Loutres de rivière nageant dans le parc national d’Acadia, Maine, États-Unis (© George Sanker/Minden Pictures)|Information|![](/fr-CA/2022/11/202211150500LontraCanadensis.jpg)|
 202211160500|Unesco50|Habitations troglodytes dans le parc national de Mesa Verde, Colorado, États-Unis (© Brad McGinley Photography/Getty Images)|Informaiton|![](/fr-CA/2022/11/202211160500Unesco50.jpg)|
 202211170500|McKenzieRiverTrail|Pont sur le sentier Mckenzie River, forêt nationale de Willamette, Oregon, États-Unis (© Don Paulson/Danita Delimont)|Information|![](/fr-CA/2022/11/202211170500McKenzieRiverTrail.jpg)|
+202211180500|IslamicArt|Les portes du palais royal de Fès (Dar El Makhzen), Maroc (© Adam Smigielski/Getty Images)|Information|![](/fr-CA/2022/11/202211180500IslamicArt.jpg)|
