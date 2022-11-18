@@ -19,3 +19,4 @@
 202211152300|Unesco50|Felsenwohnungen im Mesa-Verde-Nationalpark in Colorado, USA (© Brad McGinley Photography/Getty Images)|Ein 50 Jahre währender Balanceakt|![](/de-DE/2022/11/202211152300Unesco50.jpg)|
 202211162300|McKenzieRiverTrail|Brücke auf dem McKenzie River Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)|Unternehmen Sie eine Wanderung!|![](/de-DE/2022/11/202211162300McKenzieRiverTrail.jpg)|
 202211172300|IslamicArt|Tore des Königspalasts „Dar El Makhzen“ in Fès, Marokko (© Adam Smigielski/Getty Images)|Schlüssellöcher zum Königreich|![](/de-DE/2022/11/202211172300IslamicArt.jpg)|
+202211182300|ZNPVR|Virgin River im Zion-Nationalpark, Utah, USA (© Jonathan Ross/Getty)|Der Zion-Nationalpark wird 103!|![](/de-DE/2022/11/202211182300ZNPVR.jpg)|
