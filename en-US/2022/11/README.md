@@ -20,3 +20,4 @@
 202211160800|Unesco50|Cliff dwellings in Mesa Verde National Park, Colorado (© Brad McGinley Photography/Getty Images)|A 50-year balancing act|![](/en-US/2022/11/202211160800Unesco50.jpg)|
 202211170800|McKenzieRiverTrail|Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)|Take a hike!|![](/en-US/2022/11/202211170800McKenzieRiverTrail.jpg)|
 202211180800|IslamicArt|The gates of the Royal Palace (Dar al-Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)|Keyholes to the kingdom|![](/en-US/2022/11/202211180800IslamicArt.jpg)|
+202211190800|ZNPVR|Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)|103 years of Zion|![](/en-US/2022/11/202211190800ZNPVR.jpg)|

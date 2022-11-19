@@ -20,3 +20,4 @@
 202211160800|Unesco50|Mesa Verde National Park, Colorado, USA  (© Brad McGinley Photography/Getty Images)|Info|![](/en-AU/2022/11/202211160800Unesco50.jpg)|
 202211170800|McKenzieRiverTrail|McKenzie River Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)|Info|![](/en-AU/2022/11/202211170800McKenzieRiverTrail.jpg)|
 202211180800|IslamicArt|The Royal Palace (Dar El Makhzen), Fez, Morocco (© Adam Smigielski/Getty Images)|Info|![](/en-AU/2022/11/202211180800IslamicArt.jpg)|
+202211190800|ZNPVR|Virgin River, Zion National Park, Utah, USA (© Jonathan Ross/Getty Images)|Info|![](/en-AU/2022/11/202211190800ZNPVR.jpg)|
