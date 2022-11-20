@@ -21,3 +21,4 @@
 202211170500|McKenzieRiverTrail|Bridge on the McKenzie River Trail, Willamette National Forest, Oregon (© Don Paulson/Danita Delimont)|Willamette National Forest, Oregon|![](/en-CA/2022/11/202211170500McKenzieRiverTrail.jpg)|
 202211180500|IslamicArt|The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)|Keyholes to the kingdom|![](/en-CA/2022/11/202211180500IslamicArt.jpg)|
 202211190500|ZNPVR|Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)|Zion National Park turns 103|![](/en-CA/2022/11/202211190500ZNPVR.jpg)|
+202211200500|LandartPainting|Land art painting entitled 'World in Progress II' by artist Saype at the Headquarters of the United Nations in New York City (© Valentin Flauraud/Shutterstock)|Creating a better world|![](/en-CA/2022/11/202211200500LandartPainting.jpg)|
