@@ -21,3 +21,4 @@
 202211171500|IslamicArt|王宮の門, モロッコ フェズ (© Adam Smigielski/Getty Images)|国際イスラム美術の日|![](/ja-JP/2022/11/202211171500IslamicArt.jpg)|
 202211181500|ZNPVR|ザイオン国立公園のバージン川, 米国 ユタ州 (© Jonathan Ross/Getty Images)|米国 ザイオン国立公園|![](/ja-JP/2022/11/202211181500ZNPVR.jpg)|
 202211191500|LandartPainting|"ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)|今日は「世界こどもの日」|![](/ja-JP/2022/11/202211191500LandartPainting.jpg)|
+202211201500|FIFA2022|アフメド・ビン＝アリー・スタジアム, カタール ドーハ (© Qatar 2022/Supreme Committee via Getty Images)|2022 年ワールドカップ開幕|![](/ja-JP/2022/11/202211201500FIFA2022.jpg)|
