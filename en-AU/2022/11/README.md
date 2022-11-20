@@ -21,3 +21,4 @@
 202211170800|McKenzieRiverTrail|McKenzie River Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)|Info|![](/en-AU/2022/11/202211170800McKenzieRiverTrail.jpg)|
 202211180800|IslamicArt|The Royal Palace (Dar El Makhzen), Fez, Morocco (© Adam Smigielski/Getty Images)|Info|![](/en-AU/2022/11/202211180800IslamicArt.jpg)|
 202211190800|ZNPVR|Virgin River, Zion National Park, Utah, USA (© Jonathan Ross/Getty Images)|Info|![](/en-AU/2022/11/202211190800ZNPVR.jpg)|
+202211200800|StorrRocks|The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Info|![](/en-AU/2022/11/202211200800StorrRocks.jpg)|
