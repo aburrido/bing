@@ -20,3 +20,4 @@
 202211170000|GB25Anni|Guggenheim Museum Bilbao, Spain (© Jeremy Horner/Getty Images)|Night outside the museum|![](/en-GB/2022/11/202211170000GB25Anni.jpg)|
 202211180000|IslamicArt|The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)|Keyholes to the kingdom|![](/en-GB/2022/11/202211180000IslamicArt.jpg)|
 202211190000|ZNPVR|Virgin River in Zion National Park, Utah, USA (© Jonathan Ross/Getty Images)|The cliffs and canyons of Zion National Park|![](/en-GB/2022/11/202211190000ZNPVR.jpg)|
+202211200000|LandartPainting|Land art painting entitled World in Progress II by artist Saype at the Headquarters of the United Nations in New York City, USA (© Valentin Flauraud/Shutterstock)|Creating a better world|![](/en-GB/2022/11/202211200000LandartPainting.jpg)|
