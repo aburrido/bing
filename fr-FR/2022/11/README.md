@@ -21,3 +21,4 @@
 202211172300|IslamicArt|Les portes du palais royal de Fès (Dar El Makhzen), Maroc (© Adam Smigielski/Getty Images)|Palais royal|![](/fr-FR/2022/11/202211172300IslamicArt.jpg)|
 202211182300|ZNPVR|La rivière Virgin dans le parc national de Zion, Utah, USA (© Jonathan Ross/Getty)|Au fond du Zion|![](/fr-FR/2022/11/202211182300ZNPVR.jpg)|
 202211192300|LandartPainting|Œuvre baptisée “Le monde en construction II”, réalisée par l’artiste franco-suisse Saype et située au siège des Nations Unies à New York (© Valentin Flauraud/Shutterstock)|Tout un monde|![](/fr-FR/2022/11/202211192300LandartPainting.jpg)|
+202211202300|FIFA2022|Stade Ahmad Ben Ali à Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Allez les Bleus !|![](/fr-FR/2022/11/202211202300FIFA2022.jpg)|

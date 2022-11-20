@@ -21,3 +21,4 @@
 202211172300|IslamicArt|Tore des Königspalasts „Dar El Makhzen“ in Fès, Marokko (© Adam Smigielski/Getty Images)|Schlüssellöcher zum Königreich|![](/de-DE/2022/11/202211172300IslamicArt.jpg)|
 202211182300|ZNPVR|Virgin River im Zion-Nationalpark, Utah, USA (© Jonathan Ross/Getty)|Der Zion-Nationalpark wird 103!|![](/de-DE/2022/11/202211182300ZNPVR.jpg)|
 202211192300|LandartPainting|Land-Art-Gemälde „World in Progress II“ des Künstlers Saype am Hauptquartier der Vereinten Nationen in New York City, USA (© Valentin Flauraud/Shutterstock)|Eine bessere Welt schaffen|![](/de-DE/2022/11/202211192300LandartPainting.jpg)|
+202211202300|FIFA2022|Ahmad Bin Ali Stadium in Doha, Katar (© Qatar 2022/Supreme Committee via Getty Images)|Anstoß in Katar|![](/de-DE/2022/11/202211202300FIFA2022.jpg)|
