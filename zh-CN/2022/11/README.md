@@ -22,3 +22,4 @@
 202211181600|ZNPVR|犹他州锡安国家公园的维尔京河，美国 (© Jonathan Ross/Getty)|历经百年的锡安国家公园|![](/zh-CN/2022/11/202211181600ZNPVR.jpg)|
 202211191600|CosmicCliffs|船底星云中的宇宙悬崖 (© NASA, ESA, CSA, and STScI)|深空中的金色悬崖|![](/zh-CN/2022/11/202211191600CosmicCliffs.jpg)|
 202211201600|BorromeanIslands|伊索拉贝拉岛，意大利马焦雷湖 (© Massimo Ripani/eStock)|令人陶醉的海岛花园|![](/zh-CN/2022/11/202211201600BorromeanIslands.jpg)|
+202211211600|Waterleidingduinen|阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)|赤狐|![](/zh-CN/2022/11/202211211600Waterleidingduinen.jpg)|
