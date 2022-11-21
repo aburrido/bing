@@ -21,3 +21,4 @@
 202211180000|IslamicArt|The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)|Keyholes to the kingdom|![](/en-GB/2022/11/202211180000IslamicArt.jpg)|
 202211190000|ZNPVR|Virgin River in Zion National Park, Utah, USA (© Jonathan Ross/Getty Images)|The cliffs and canyons of Zion National Park|![](/en-GB/2022/11/202211190000ZNPVR.jpg)|
 202211200000|LandartPainting|Land art painting entitled World in Progress II by artist Saype at the Headquarters of the United Nations in New York City, USA (© Valentin Flauraud/Shutterstock)|Creating a better world|![](/en-GB/2022/11/202211200000LandartPainting.jpg)|
+202211210000|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kick-off in Qatar|![](/en-GB/2022/11/202211210000FIFA2022.jpg)|
