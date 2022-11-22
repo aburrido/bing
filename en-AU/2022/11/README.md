@@ -23,3 +23,4 @@
 202211190800|ZNPVR|Virgin River, Zion National Park, Utah, USA (© Jonathan Ross/Getty Images)|Info|![](/en-AU/2022/11/202211190800ZNPVR.jpg)|
 202211200800|StorrRocks|The Storr, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Info|![](/en-AU/2022/11/202211200800StorrRocks.jpg)|
 202211210800|BorromeanIslands|Isola Bella, Lake Maggiore, Italy (© Massimo Ripani/eStock)|Info|![](/en-AU/2022/11/202211210800BorromeanIslands.jpg)|
+202211220800|Waterleidingduinen|Red fox, Amsterdamse Waterleidingduinen Nature Reserve, the Netherlands (© Edwin Giesbers/Minden Pictures)|Info|![](/en-AU/2022/11/202211220800Waterleidingduinen.jpg)|
