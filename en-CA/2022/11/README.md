@@ -23,3 +23,4 @@
 202211190500|ZNPVR|Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)|Zion National Park turns 103|![](/en-CA/2022/11/202211190500ZNPVR.jpg)|
 202211200500|LandartPainting|Land art painting entitled 'World in Progress II' by artist Saype at the Headquarters of the United Nations in New York City (© Valentin Flauraud/Shutterstock)|Creating a better world|![](/en-CA/2022/11/202211200500LandartPainting.jpg)|
 202211210500|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kickoff in Qatar|![](/en-CA/2022/11/202211210500FIFA2022.jpg)|
+202211220500|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-CA/2022/11/202211220500Waterleidingduinen.jpg)|
