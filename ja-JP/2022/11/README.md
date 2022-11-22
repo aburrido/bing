@@ -23,3 +23,4 @@
 202211191500|LandartPainting|"ワールド・イン・プログレス II" サイープ, 米国 ニューヨーク市 (© Valentin Flauraud/Shutterstock)|今日は「世界こどもの日」|![](/ja-JP/2022/11/202211191500LandartPainting.jpg)|
 202211201500|FIFA2022|アフメド・ビン＝アリー・スタジアム, カタール ドーハ (© Qatar 2022/Supreme Committee via Getty Images)|2022 年ワールドカップ開幕|![](/ja-JP/2022/11/202211201500FIFA2022.jpg)|
 202211211500|Shousetsu|兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)|今日は「小雪」|![](/ja-JP/2022/11/202211211500Shousetsu.jpg)|
+202211221500|HelianthusAnnuus|ひまわりとフィボナッチ数列 (© Dileep Chandran/Alamy)|今日は「フィボナッチの日」|![](/ja-JP/2022/11/202211221500HelianthusAnnuus.jpg)|
