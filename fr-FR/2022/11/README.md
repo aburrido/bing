@@ -24,3 +24,4 @@
 202211202300|FIFA2022|Stade Ahmad Ben Ali à Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Allez les Bleus !|![](/fr-FR/2022/11/202211202300FIFA2022.jpg)|
 202211212300|Waterleidingduinen|Renard roux dans la réserve naturelle Amsterdamse Waterleidingduinen aux Pays-Bas (© Edwin Giesbers/Minden Pictures)|Se fondre dans le décor|![](/fr-FR/2022/11/202211212300Waterleidingduinen.jpg)|
 202211222300|HelianthusAnnuus|Tournesol (© Dileep Chandran/Alamy)|1, 1, 2, 3, 5….|![](/fr-FR/2022/11/202211222300HelianthusAnnuus.jpg)|
+202211232300|TignesLake|Vue sur un lac en automne, Tignes, Savoie  (© Yuterick Bell/500px/Getty Images)|Tignes !|![](/fr-FR/2022/11/202211232300TignesLake.jpg)|
