@@ -24,3 +24,4 @@
 202211201600|BorromeanIslands|伊索拉贝拉岛，意大利马焦雷湖 (© Massimo Ripani/eStock)|令人陶醉的海岛花园|![](/zh-CN/2022/11/202211201600BorromeanIslands.jpg)|
 202211211600|Waterleidingduinen|阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)|赤狐|![](/zh-CN/2022/11/202211211600Waterleidingduinen.jpg)|
 202211221600|HelianthusAnnuus|向日葵 (© Dileep Chandran/Alamy)|自然、艺术和数学|![](/zh-CN/2022/11/202211221600HelianthusAnnuus.jpg)|
+202211231600|AschauChiemgau|坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)|令人惊叹的山顶美景|![](/zh-CN/2022/11/202211231600AschauChiemgau.jpg)|
