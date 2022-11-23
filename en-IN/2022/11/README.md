@@ -24,3 +24,4 @@
 202211201830|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kickoff in Qatar|![](/en-IN/2022/11/202211201830FIFA2022.jpg)|
 202211211830|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-IN/2022/11/202211211830Waterleidingduinen.jpg)|
 202211221830|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Nature, art, and...math?|![](/en-IN/2022/11/202211221830HelianthusAnnuus.jpg)|
+202211231830|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-IN/2022/11/202211231830RovinjCroatia.jpg)|
