@@ -23,3 +23,4 @@
 202211200000|LandartPainting|Land art painting entitled World in Progress II by artist Saype at the Headquarters of the United Nations in New York City, USA (© Valentin Flauraud/Shutterstock)|Creating a better world|![](/en-GB/2022/11/202211200000LandartPainting.jpg)|
 202211210000|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kick-off in Qatar|![](/en-GB/2022/11/202211210000FIFA2022.jpg)|
 202211220000|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-GB/2022/11/202211220000Waterleidingduinen.jpg)|
+202211230000|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Finding maths in nature|![](/en-GB/2022/11/202211230000HelianthusAnnuus.jpg)|
