@@ -25,3 +25,4 @@
 202211211830|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-IN/2022/11/202211211830Waterleidingduinen.jpg)|
 202211221830|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Nature, art, and...math?|![](/en-IN/2022/11/202211221830HelianthusAnnuus.jpg)|
 202211231830|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-IN/2022/11/202211231830RovinjCroatia.jpg)|
+202211241830|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-IN/2022/11/202211241830OliveTreeDay.jpg)|
