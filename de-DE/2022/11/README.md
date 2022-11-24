@@ -25,3 +25,4 @@
 202211212300|Waterleidingduinen|Rotfuchs im Naturschutzgebiet Amsterdamse Waterleidingduinen, Niederlande (© Edwin Giesbers/Minden Pictures)|Ein Fuchs in den Dünen|![](/de-DE/2022/11/202211212300Waterleidingduinen.jpg)|
 202211222300|HelianthusAnnuus|Sonnenblume (© Dileep Chandran/Alamy)|Natur, Kunst und … Mathematik!|![](/de-DE/2022/11/202211222300HelianthusAnnuus.jpg)|
 202211232300|WeihnachtsmarktFrauenkirche|Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)|Weihnachtsmarkt-Bummel|![](/de-DE/2022/11/202211232300WeihnachtsmarktFrauenkirche.jpg)|
+202211242300|TurenneSunrise|Das Bergdorf Turenne bei Sonnenaufgang, Département Corrèze, Region Nouvelle-Aquitaine, Frankreich (© Tim Mannakee/plainpicture)|Juwel der Corrèze|![](/de-DE/2022/11/202211242300TurenneSunrise.jpg)|
