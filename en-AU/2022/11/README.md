@@ -25,3 +25,4 @@
 202211210800|BorromeanIslands|Isola Bella, Lake Maggiore, Italy (© Massimo Ripani/eStock)|Info|![](/en-AU/2022/11/202211210800BorromeanIslands.jpg)|
 202211220800|Waterleidingduinen|Red fox, Amsterdamse Waterleidingduinen Nature Reserve, the Netherlands (© Edwin Giesbers/Minden Pictures)|Info|![](/en-AU/2022/11/202211220800Waterleidingduinen.jpg)|
 202211230800|HelianthusAnnuus|Common sunflower (Helianthus annuus) (© Dileep Chandran/Alamy)|Info|![](/en-AU/2022/11/202211230800HelianthusAnnuus.jpg)|
+202211240800|AschauChiemgau|Kampenwand mountain, Chiemgau Alps, Bavaria, Germany (© Toni Anzenberger/plainpicture)|Info|![](/en-AU/2022/11/202211240800AschauChiemgau.jpg)|

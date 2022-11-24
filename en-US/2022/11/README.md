@@ -25,3 +25,4 @@
 202211210800|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kickoff in Qatar|![](/en-US/2022/11/202211210800FIFA2022.jpg)|
 202211220800|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-US/2022/11/202211220800Waterleidingduinen.jpg)|
 202211230800|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Nature, art, and...math?|![](/en-US/2022/11/202211230800HelianthusAnnuus.jpg)|
+202211240800|CranberryBog|Cranberry bog (© SHSPhotography/Getty Images)|A crimson quagmire|![](/en-US/2022/11/202211240800CranberryBog.jpg)|
