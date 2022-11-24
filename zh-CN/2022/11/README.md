@@ -25,3 +25,4 @@
 202211211600|Waterleidingduinen|阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰 (© Edwin Giesbers/Minden Pictures)|赤狐|![](/zh-CN/2022/11/202211211600Waterleidingduinen.jpg)|
 202211221600|HelianthusAnnuus|向日葵 (© Dileep Chandran/Alamy)|自然、艺术和数学|![](/zh-CN/2022/11/202211221600HelianthusAnnuus.jpg)|
 202211231600|AschauChiemgau|坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)|令人惊叹的山顶美景|![](/zh-CN/2022/11/202211231600AschauChiemgau.jpg)|
+202211241600|TurenneSunrise|日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)|科雷兹的宝石|![](/zh-CN/2022/11/202211241600TurenneSunrise.jpg)|
