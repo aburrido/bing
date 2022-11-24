@@ -24,3 +24,4 @@
 202211210000|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kick-off in Qatar|![](/en-GB/2022/11/202211210000FIFA2022.jpg)|
 202211220000|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-GB/2022/11/202211220000Waterleidingduinen.jpg)|
 202211230000|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Finding maths in nature|![](/en-GB/2022/11/202211230000HelianthusAnnuus.jpg)|
+202211240000|AschauChiemgau|View from Kampenwand mountain, Aschau im Chiemgau, Bavaria, Germany (© Toni Anzenberger/plainpicture)|Alpine grandeur|![](/en-GB/2022/11/202211240000AschauChiemgau.jpg)|
