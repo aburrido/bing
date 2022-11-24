@@ -25,3 +25,4 @@
 202211211500|Shousetsu|兼六園, 金沢 (© Darby Sawchuk/Alamy Stock Photo)|今日は「小雪」|![](/ja-JP/2022/11/202211211500Shousetsu.jpg)|
 202211221500|HelianthusAnnuus|ひまわりとフィボナッチ数列 (© Dileep Chandran/Alamy)|今日は「フィボナッチの日」|![](/ja-JP/2022/11/202211221500HelianthusAnnuus.jpg)|
 202211231500|AschauChiemgau|カンペンヴァント山, ドイツ バイエルン州 (© Toni Anzenberger/plainpicture)|ドイツ カンペンヴァント山|![](/ja-JP/2022/11/202211231500AschauChiemgau.jpg)|
+202211241500|TurenneSunrise|朝日を浴びるテュレンヌ村, フランス ヌーヴェル＝アキテーヌ (© Tim Mannakee/plainpicture)|フランス テュレンヌ村の朝|![](/ja-JP/2022/11/202211241500TurenneSunrise.jpg)|
