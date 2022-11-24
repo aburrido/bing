@@ -25,3 +25,4 @@
 202211210500|FIFA2022|Stade Ahmad Ben Ali à Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Information|![](/fr-CA/2022/11/202211210500FIFA2022.jpg)|
 202211220500|Waterleidingduinen|Renard roux dans la réserve naturelle Amsterdamse Waterleidingduinen aux Pays-Bas (© Edwin Giesbers/Minden Pictures)|Information|![](/fr-CA/2022/11/202211220500Waterleidingduinen.jpg)|
 202211230500|HelianthusAnnuus|Tournesol (© Dileep Chandran/Alamy)|Information|![](/fr-CA/2022/11/202211230500HelianthusAnnuus.jpg)|
+202211240500|PreveliGorge|Gorge de Preveli avec rivière et forêt de palmiers, La Canée du Sud, Crète, Grèce (© borchee/Getty Images)|Information|![](/fr-CA/2022/11/202211240500PreveliGorge.jpg)|

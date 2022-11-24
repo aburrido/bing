@@ -25,3 +25,4 @@
 202211210500|FIFA2022|Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)|Kickoff in Qatar|![](/en-CA/2022/11/202211210500FIFA2022.jpg)|
 202211220500|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-CA/2022/11/202211220500Waterleidingduinen.jpg)|
 202211230500|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Nature, art, and...math?|![](/en-CA/2022/11/202211230500HelianthusAnnuus.jpg)|
+202211240500|PreveliGorge|Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-CA/2022/11/202211240500PreveliGorge.jpg)|
