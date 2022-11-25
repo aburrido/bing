@@ -26,3 +26,4 @@
 202211222300|HelianthusAnnuus|Tournesol (© Dileep Chandran/Alamy)|1, 1, 2, 3, 5….|![](/fr-FR/2022/11/202211222300HelianthusAnnuus.jpg)|
 202211232300|TignesLake|Vue sur un lac en automne, Tignes, Savoie  (© Yuterick Bell/500px/Getty Images)|Tignes !|![](/fr-FR/2022/11/202211232300TignesLake.jpg)|
 202211242300|TurenneSunrise|Vue aérienne du village de Turenne au lever du soleil, Corrèze, Nouvelle-Aquitaine (© plainpicture/AWL/Tim Mannakee)|Joyau de Corrèze|![](/fr-FR/2022/11/202211242300TurenneSunrise.jpg)|
+202211252300|OliveTreeDay|Un olivier devant le temple de la Concorde en Sicile, Italie (© Alfio Finocchiaro/Shutterstock)|Une branche d’olivier|![](/fr-FR/2022/11/202211252300OliveTreeDay.jpg)|

@@ -26,3 +26,4 @@
 202211222300|HelianthusAnnuus|Sonnenblume (© Dileep Chandran/Alamy)|Natur, Kunst und … Mathematik!|![](/de-DE/2022/11/202211222300HelianthusAnnuus.jpg)|
 202211232300|WeihnachtsmarktFrauenkirche|Weihnachtsmarkt an der Frauenkirche, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)|Weihnachtsmarkt-Bummel|![](/de-DE/2022/11/202211232300WeihnachtsmarktFrauenkirche.jpg)|
 202211242300|TurenneSunrise|Das Bergdorf Turenne bei Sonnenaufgang, Département Corrèze, Region Nouvelle-Aquitaine, Frankreich (© Tim Mannakee/plainpicture)|Juwel der Corrèze|![](/de-DE/2022/11/202211242300TurenneSunrise.jpg)|
+202211252300|OliveTreeDay|Ein Olivenbaum vor dem Concordia-Tempel in Agrigent, Sizilien, Italien (© Alfio Finocchiaro/Shutterstock)|Ein Symbol für den Frieden|![](/de-DE/2022/11/202211252300OliveTreeDay.jpg)|
