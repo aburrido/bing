@@ -26,3 +26,4 @@
 202211220500|Waterleidingduinen|Renard roux dans la réserve naturelle Amsterdamse Waterleidingduinen aux Pays-Bas (© Edwin Giesbers/Minden Pictures)|Information|![](/fr-CA/2022/11/202211220500Waterleidingduinen.jpg)|
 202211230500|HelianthusAnnuus|Tournesol (© Dileep Chandran/Alamy)|Information|![](/fr-CA/2022/11/202211230500HelianthusAnnuus.jpg)|
 202211240500|PreveliGorge|Gorge de Preveli avec rivière et forêt de palmiers, La Canée du Sud, Crète, Grèce (© borchee/Getty Images)|Information|![](/fr-CA/2022/11/202211240500PreveliGorge.jpg)|
+202211250500|OcalaNF|Juniper Springs dans la forêt nationale d’Ocala, Floride, États-Unis (© Michael Warren/Getty Images)|Information|![](/fr-CA/2022/11/202211250500OcalaNF.jpg)|

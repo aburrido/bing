@@ -26,3 +26,4 @@
 202211220500|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-CA/2022/11/202211220500Waterleidingduinen.jpg)|
 202211230500|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Nature, art, and...math?|![](/en-CA/2022/11/202211230500HelianthusAnnuus.jpg)|
 202211240500|PreveliGorge|Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-CA/2022/11/202211240500PreveliGorge.jpg)|
+202211250500|OcalaNF|Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)|You can take a refreshing dip here any day of the year|![](/en-CA/2022/11/202211250500OcalaNF.jpg)|
