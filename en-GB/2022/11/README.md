@@ -25,3 +25,4 @@
 202211220000|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-GB/2022/11/202211220000Waterleidingduinen.jpg)|
 202211230000|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Finding maths in nature|![](/en-GB/2022/11/202211230000HelianthusAnnuus.jpg)|
 202211240000|AschauChiemgau|View from Kampenwand mountain, Aschau im Chiemgau, Bavaria, Germany (© Toni Anzenberger/plainpicture)|Alpine grandeur|![](/en-GB/2022/11/202211240000AschauChiemgau.jpg)|
+202211250000|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-GB/2022/11/202211250000RovinjCroatia.jpg)|
