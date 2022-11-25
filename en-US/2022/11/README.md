@@ -26,3 +26,4 @@
 202211220800|Waterleidingduinen|Red fox in Amsterdamse Waterleidingduinen Nature Reserve, Netherlands (© Edwin Giesbers/Minden Pictures)|A fox in the dunes|![](/en-US/2022/11/202211220800Waterleidingduinen.jpg)|
 202211230800|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Nature, art, and...math?|![](/en-US/2022/11/202211230800HelianthusAnnuus.jpg)|
 202211240800|CranberryBog|Cranberry bog (© SHSPhotography/Getty Images)|A crimson quagmire|![](/en-US/2022/11/202211240800CranberryBog.jpg)|
+202211250800|MonksMound|Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)|Pyramid built by Native Americans|![](/en-US/2022/11/202211250800MonksMound.jpg)|

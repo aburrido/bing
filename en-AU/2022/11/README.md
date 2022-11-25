@@ -26,3 +26,4 @@
 202211220800|Waterleidingduinen|Red fox, Amsterdamse Waterleidingduinen Nature Reserve, the Netherlands (© Edwin Giesbers/Minden Pictures)|Info|![](/en-AU/2022/11/202211220800Waterleidingduinen.jpg)|
 202211230800|HelianthusAnnuus|Common sunflower (Helianthus annuus) (© Dileep Chandran/Alamy)|Info|![](/en-AU/2022/11/202211230800HelianthusAnnuus.jpg)|
 202211240800|AschauChiemgau|Kampenwand mountain, Chiemgau Alps, Bavaria, Germany (© Toni Anzenberger/plainpicture)|Info|![](/en-AU/2022/11/202211240800AschauChiemgau.jpg)|
+202211250800|TurenneSunrise|Turenne, Corrèze, Nouvelle-Aquitaine, France (© Tim Mannakee/plainpicture)|Info|![](/en-AU/2022/11/202211250800TurenneSunrise.jpg)|
