@@ -26,3 +26,4 @@
 202211221500|HelianthusAnnuus|ひまわりとフィボナッチ数列 (© Dileep Chandran/Alamy)|今日は「フィボナッチの日」|![](/ja-JP/2022/11/202211221500HelianthusAnnuus.jpg)|
 202211231500|AschauChiemgau|カンペンヴァント山, ドイツ バイエルン州 (© Toni Anzenberger/plainpicture)|ドイツ カンペンヴァント山|![](/ja-JP/2022/11/202211231500AschauChiemgau.jpg)|
 202211241500|TurenneSunrise|朝日を浴びるテュレンヌ村, フランス ヌーヴェル＝アキテーヌ (© Tim Mannakee/plainpicture)|フランス テュレンヌ村の朝|![](/ja-JP/2022/11/202211241500TurenneSunrise.jpg)|
+202211251500|OliveTreeDay|オリーブの大木とコンコルディア神殿, イタリア シチリア (© Alfio Finocchiaro/Shutterstock)|今日は「世界オリーブの木の日」|![](/ja-JP/2022/11/202211251500OliveTreeDay.jpg)|
