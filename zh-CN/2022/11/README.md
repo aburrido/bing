@@ -26,3 +26,4 @@
 202211221600|HelianthusAnnuus|向日葵 (© Dileep Chandran/Alamy)|自然、艺术和数学|![](/zh-CN/2022/11/202211221600HelianthusAnnuus.jpg)|
 202211231600|AschauChiemgau|坎彭万德山，基姆高地区阿绍，德国巴伐利亚州 (© Toni Anzenberger/plainpicture)|令人惊叹的山顶美景|![](/zh-CN/2022/11/202211231600AschauChiemgau.jpg)|
 202211241600|TurenneSunrise|日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)|科雷兹的宝石|![](/zh-CN/2022/11/202211241600TurenneSunrise.jpg)|
+202211251600|OliveTreeDay|意大利西西里岛康科迪亚神庙前的一棵橄榄树 (© Alfio Finocchiaro/Shutterstock)|和平的象征|![](/zh-CN/2022/11/202211251600OliveTreeDay.jpg)|
