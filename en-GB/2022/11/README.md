@@ -26,3 +26,4 @@
 202211230000|HelianthusAnnuus|Sunflower (© Dileep Chandran/Alamy)|Finding maths in nature|![](/en-GB/2022/11/202211230000HelianthusAnnuus.jpg)|
 202211240000|AschauChiemgau|View from Kampenwand mountain, Aschau im Chiemgau, Bavaria, Germany (© Toni Anzenberger/plainpicture)|Alpine grandeur|![](/en-GB/2022/11/202211240000AschauChiemgau.jpg)|
 202211250000|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-GB/2022/11/202211250000RovinjCroatia.jpg)|
+202211260000|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-GB/2022/11/202211260000OliveTreeDay.jpg)|
