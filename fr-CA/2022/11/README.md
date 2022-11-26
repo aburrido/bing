@@ -27,3 +27,4 @@
 202211230500|HelianthusAnnuus|Tournesol (© Dileep Chandran/Alamy)|Information|![](/fr-CA/2022/11/202211230500HelianthusAnnuus.jpg)|
 202211240500|PreveliGorge|Gorge de Preveli avec rivière et forêt de palmiers, La Canée du Sud, Crète, Grèce (© borchee/Getty Images)|Information|![](/fr-CA/2022/11/202211240500PreveliGorge.jpg)|
 202211250500|OcalaNF|Juniper Springs dans la forêt nationale d’Ocala, Floride, États-Unis (© Michael Warren/Getty Images)|Information|![](/fr-CA/2022/11/202211250500OcalaNF.jpg)|
+202211260500|CavalcadeNathans|People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto, Canada on November 30, 2013 (© Canadapanda/Shutterstock)|Information|![](/fr-CA/2022/11/202211260500CavalcadeNathans.jpg)|
