@@ -27,3 +27,4 @@
 202211240000|AschauChiemgau|View from Kampenwand mountain, Aschau im Chiemgau, Bavaria, Germany (© Toni Anzenberger/plainpicture)|Alpine grandeur|![](/en-GB/2022/11/202211240000AschauChiemgau.jpg)|
 202211250000|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-GB/2022/11/202211250000RovinjCroatia.jpg)|
 202211260000|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-GB/2022/11/202211260000OliveTreeDay.jpg)|
+202211270000|Cecropia|Cecropia leaf on top of lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-GB/2022/11/202211270000Cecropia.jpg)|
