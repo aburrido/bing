@@ -28,3 +28,4 @@
 202211242300|TurenneSunrise|Das Bergdorf Turenne bei Sonnenaufgang, Département Corrèze, Region Nouvelle-Aquitaine, Frankreich (© Tim Mannakee/plainpicture)|Juwel der Corrèze|![](/de-DE/2022/11/202211242300TurenneSunrise.jpg)|
 202211252300|OliveTreeDay|Ein Olivenbaum vor dem Concordia-Tempel in Agrigent, Sizilien, Italien (© Alfio Finocchiaro/Shutterstock)|Ein Symbol für den Frieden|![](/de-DE/2022/11/202211252300OliveTreeDay.jpg)|
 202211262300|Cecropia|Blatt eines Ameisenbaums mit Blüten der Hängenden Hummerschere, Mexiko (© Gerry Ellis/Minden Pictures)|Ung-laub-lich!|![](/de-DE/2022/11/202211262300Cecropia.jpg)|
+202211272300|RedPlanetDay|Mars (© NASA/Alamy)|Vierter Planet von der Sonne aus|![](/de-DE/2022/11/202211272300RedPlanetDay.jpg)|
