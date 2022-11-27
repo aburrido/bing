@@ -28,3 +28,4 @@
 202211240500|PreveliGorge|Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)|A gorge-ous place to drop in|![](/en-CA/2022/11/202211240500PreveliGorge.jpg)|
 202211250500|OcalaNF|Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)|You can take a refreshing dip here any day of the year|![](/en-CA/2022/11/202211250500OcalaNF.jpg)|
 202211260500|CavalcadeNathans|People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto on November 30, 2013 (© Canadapanda/Shutterstock)|And so it begins!|![](/en-CA/2022/11/202211260500CavalcadeNathans.jpg)|
+202211270500|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-CA/2022/11/202211270500Cecropia.jpg)|
