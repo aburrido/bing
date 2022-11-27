@@ -28,3 +28,4 @@
 202211241830|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-IN/2022/11/202211241830OliveTreeDay.jpg)|
 202211251830|VidhanaSoudha|Sunset at Vidhana Soudha (State Legislature Building) in Bangalore, India (© Artie Photography/Getty Images)|The pillar of democracy|![](/en-IN/2022/11/202211251830VidhanaSoudha.jpg)|
 202211261830|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-IN/2022/11/202211261830Cecropia.jpg)|
+202211271830|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-IN/2022/11/202211271830RedPlanetDay.jpg)|
