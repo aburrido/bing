@@ -28,3 +28,4 @@
 202211241600|TurenneSunrise|日出时分的蒂雷纳村庄，法国新阿基坦大区科雷兹省 (© Tim Mannakee/plainpicture)|科雷兹的宝石|![](/zh-CN/2022/11/202211241600TurenneSunrise.jpg)|
 202211251600|OliveTreeDay|意大利西西里岛康科迪亚神庙前的一棵橄榄树 (© Alfio Finocchiaro/Shutterstock)|和平的象征|![](/zh-CN/2022/11/202211251600OliveTreeDay.jpg)|
 202211261600|Cecropia|一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)|不可思议的树叶|![](/zh-CN/2022/11/202211261600Cecropia.jpg)|
+202211271600|RedPlanetDay|火星（© NASA/Alamy）|太阳系的第四颗行星|![](/zh-CN/2022/11/202211271600RedPlanetDay.jpg)|
