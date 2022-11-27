@@ -28,3 +28,4 @@
 202211241500|TurenneSunrise|朝日を浴びるテュレンヌ村, フランス ヌーヴェル＝アキテーヌ (© Tim Mannakee/plainpicture)|フランス テュレンヌ村の朝|![](/ja-JP/2022/11/202211241500TurenneSunrise.jpg)|
 202211251500|OliveTreeDay|オリーブの大木とコンコルディア神殿, イタリア シチリア (© Alfio Finocchiaro/Shutterstock)|今日は「世界オリーブの木の日」|![](/ja-JP/2022/11/202211251500OliveTreeDay.jpg)|
 202211261500|Cecropia|セクロピアの葉, メキシコ (© Gerry Ellis/Minden Pictures)|セクロピアの葉|![](/ja-JP/2022/11/202211261500Cecropia.jpg)|
+202211271500|RedPlanetDay|火星の夜明け (© NASA/Alamy)|火星の夜明け|![](/ja-JP/2022/11/202211271500RedPlanetDay.jpg)|
