@@ -29,3 +29,4 @@
 202211252300|OliveTreeDay|Un olivier devant le temple de la Concorde en Sicile, Italie (© Alfio Finocchiaro/Shutterstock)|Une branche d’olivier|![](/fr-FR/2022/11/202211252300OliveTreeDay.jpg)|
 202211262300|Cecropia|Feuille de cécropie et pétales en forme de pinces de homard, Mexique (© Gerry Ellis/Minden Pictures)|Bleu naturel|![](/fr-FR/2022/11/202211262300Cecropia.jpg)|
 202211272300|RedPlanetDay|Mars (© NASA/Alamy)|Notre préférée|![](/fr-FR/2022/11/202211272300RedPlanetDay.jpg)|
+202211282300|HeronGiving|Grand héron apportant des brindilles à sa compagne pour construire un nid dans les marais de Wakodahatchee, Delray Beach, Floride, États-Unis (© Imagebroker/Alamy)|Esprit d’équipe|![](/fr-FR/2022/11/202211282300HeronGiving.jpg)|
