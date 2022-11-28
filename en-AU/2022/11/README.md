@@ -29,3 +29,4 @@
 202211250800|TurenneSunrise|Turenne, Corrèze, Nouvelle-Aquitaine, France (© Tim Mannakee/plainpicture)|Info|![](/en-AU/2022/11/202211250800TurenneSunrise.jpg)|
 202211260800|OliveTreeDay|Temple of Concordia, Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|Info|![](/en-AU/2022/11/202211260800OliveTreeDay.jpg)|
 202211270800|Cecropia|Cecropia leaf, Mexico (© Gerry Ellis/Minden Pictures)|Info|![](/en-AU/2022/11/202211270800Cecropia.jpg)|
+202211280800|RedPlanetDay|Mars (© NASA/Alamy)|Info|![](/en-AU/2022/11/202211280800RedPlanetDay.jpg)|

@@ -29,3 +29,4 @@
 202211250800|MonksMound|Monks Mound at the Cahokia Mounds UNESCO World Heritage Site near Collinsville, Illinois (© Matthew Gush/Alamy)|Pyramid built by Native Americans|![](/en-US/2022/11/202211250800MonksMound.jpg)|
 202211260800|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-US/2022/11/202211260800OliveTreeDay.jpg)|
 202211270800|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-US/2022/11/202211270800Cecropia.jpg)|
+202211280800|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-US/2022/11/202211280800RedPlanetDay.jpg)|
