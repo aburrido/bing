@@ -29,3 +29,4 @@
 202211250500|OcalaNF|Juniper Springs dans la forêt nationale d’Ocala, Floride, États-Unis (© Michael Warren/Getty Images)|Information|![](/fr-CA/2022/11/202211250500OcalaNF.jpg)|
 202211260500|CavalcadeNathans|People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto, Canada on November 30, 2013 (© Canadapanda/Shutterstock)|Information|![](/fr-CA/2022/11/202211260500CavalcadeNathans.jpg)|
 202211270500|Cecropia|Feuille de cécropie et pétales en forme de pinces de homard, Mexique (© Gerry Ellis/Minden Pictures)|Information|![](/fr-CA/2022/11/202211270500Cecropia.jpg)|
+202211280500|RedPlanetDay|Mars (© NASA/Alamy)|Information|![](/fr-CA/2022/11/202211280500RedPlanetDay.jpg)|
