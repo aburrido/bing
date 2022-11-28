@@ -29,3 +29,4 @@
 202211251830|VidhanaSoudha|Sunset at Vidhana Soudha (State Legislature Building) in Bangalore, India (© Artie Photography/Getty Images)|The pillar of democracy|![](/en-IN/2022/11/202211251830VidhanaSoudha.jpg)|
 202211261830|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-IN/2022/11/202211261830Cecropia.jpg)|
 202211271830|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-IN/2022/11/202211271830RedPlanetDay.jpg)|
+202211281830|HeronGiving|Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)|A day for giving|![](/en-IN/2022/11/202211281830HeronGiving.jpg)|
