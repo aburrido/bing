@@ -28,3 +28,4 @@
 202211250000|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-GB/2022/11/202211250000RovinjCroatia.jpg)|
 202211260000|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-GB/2022/11/202211260000OliveTreeDay.jpg)|
 202211270000|Cecropia|Cecropia leaf on top of lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-GB/2022/11/202211270000Cecropia.jpg)|
+202211280000|SkeltonTower|The Milky Way over Skelton Tower on the North York Moors (© Martin Williams/Alamy)|Happy 70th to the North York Moors|![](/en-GB/2022/11/202211280000SkeltonTower.jpg)|
