@@ -29,3 +29,4 @@
 202211251500|OliveTreeDay|オリーブの大木とコンコルディア神殿, イタリア シチリア (© Alfio Finocchiaro/Shutterstock)|今日は「世界オリーブの木の日」|![](/ja-JP/2022/11/202211251500OliveTreeDay.jpg)|
 202211261500|Cecropia|セクロピアの葉, メキシコ (© Gerry Ellis/Minden Pictures)|セクロピアの葉|![](/ja-JP/2022/11/202211261500Cecropia.jpg)|
 202211271500|RedPlanetDay|火星の夜明け (© NASA/Alamy)|火星の夜明け|![](/ja-JP/2022/11/202211271500RedPlanetDay.jpg)|
+202211281500|HeronGiving|オオアオサギの巣作り, 米国 フロリダ州 (© Imagebroker/Alamy)|今日は「ギビングチューズデー」|![](/ja-JP/2022/11/202211281500HeronGiving.jpg)|
