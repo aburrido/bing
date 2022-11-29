@@ -30,3 +30,4 @@
 202211261600|Cecropia|一片飘落在龙虾爪瓣上的号角树树叶，墨西哥 (© Gerry Ellis/Minden Pictures)|不可思议的树叶|![](/zh-CN/2022/11/202211261600Cecropia.jpg)|
 202211271600|RedPlanetDay|火星（© NASA/Alamy）|太阳系的第四颗行星|![](/zh-CN/2022/11/202211271600RedPlanetDay.jpg)|
 202211281600|HeronGiving|正在筑巢的大蓝鹭，佛罗里达州瓦可达哈齐湿地，美国 (© Imagebroker/Alamy)|付出和给予的一天|![](/zh-CN/2022/11/202211281600HeronGiving.jpg)|
+202211291600|RovinjCroatia|罗维尼老城，克罗地亚 (© trabantos/Shutterstock)|亚得里亚海边的明珠|![](/zh-CN/2022/11/202211291600RovinjCroatia.jpg)|
