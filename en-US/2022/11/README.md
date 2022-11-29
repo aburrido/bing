@@ -30,3 +30,4 @@
 202211260800|OliveTreeDay|An olive tree in front of the Temple of Concordia on the island of Sicily, Italy (© Alfio Finocchiaro/Shutterstock)|A symbol of peace|![](/en-US/2022/11/202211260800OliveTreeDay.jpg)|
 202211270800|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-US/2022/11/202211270800Cecropia.jpg)|
 202211280800|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-US/2022/11/202211280800RedPlanetDay.jpg)|
+202211290800|HeronGiving|Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)|A day for giving|![](/en-US/2022/11/202211290800HeronGiving.jpg)|
