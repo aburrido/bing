@@ -30,3 +30,4 @@
 202211262300|Cecropia|Blatt eines Ameisenbaums mit Blüten der Hängenden Hummerschere, Mexiko (© Gerry Ellis/Minden Pictures)|Ung-laub-lich!|![](/de-DE/2022/11/202211262300Cecropia.jpg)|
 202211272300|RedPlanetDay|Mars (© NASA/Alamy)|Vierter Planet von der Sonne aus|![](/de-DE/2022/11/202211272300RedPlanetDay.jpg)|
 202211282300|AschauChiemgau|Blick von der Kampenwand auf die Chiemgauer Alpen, Aschau im Chiemgau, Bayern (© Toni Anzenberger/plainpicture)|Traumhafte Gipfelaussicht|![](/de-DE/2022/11/202211282300AschauChiemgau.jpg)|
+202211292300|RovinjCroatia|Altstadt von Rovinj, Kroatien (© trabantos/Shutterstock)|Juwel der Adria|![](/de-DE/2022/11/202211292300RovinjCroatia.jpg)|

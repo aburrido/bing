@@ -30,3 +30,4 @@
 202211262300|Cecropia|Feuille de cécropie et pétales en forme de pinces de homard, Mexique (© Gerry Ellis/Minden Pictures)|Bleu naturel|![](/fr-FR/2022/11/202211262300Cecropia.jpg)|
 202211272300|RedPlanetDay|Mars (© NASA/Alamy)|Notre préférée|![](/fr-FR/2022/11/202211272300RedPlanetDay.jpg)|
 202211282300|HeronGiving|Grand héron apportant des brindilles à sa compagne pour construire un nid dans les marais de Wakodahatchee, Delray Beach, Floride, États-Unis (© Imagebroker/Alamy)|Esprit d’équipe|![](/fr-FR/2022/11/202211282300HeronGiving.jpg)|
+202211292300|RovinjCroatia|Le centre historique de Rovinj, Croatie (© trabantos/Shutterstock)|Croatie antique|![](/fr-FR/2022/11/202211292300RovinjCroatia.jpg)|
