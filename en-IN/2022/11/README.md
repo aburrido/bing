@@ -30,3 +30,4 @@
 202211261830|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-IN/2022/11/202211261830Cecropia.jpg)|
 202211271830|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-IN/2022/11/202211271830RedPlanetDay.jpg)|
 202211281830|HeronGiving|Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)|A day for giving|![](/en-IN/2022/11/202211281830HeronGiving.jpg)|
+202211291830|KhaliyaTopTrek|View of the Himalayas from Khalia top trek trail in Kumaon, India (© Amit kg/Shutterstock)|Himalaya mountain range|![](/en-IN/2022/11/202211291830KhaliyaTopTrek.jpg)|
