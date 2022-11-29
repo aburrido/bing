@@ -30,3 +30,4 @@
 202211260500|CavalcadeNathans|People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto on November 30, 2013 (© Canadapanda/Shutterstock)|And so it begins!|![](/en-CA/2022/11/202211260500CavalcadeNathans.jpg)|
 202211270500|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-CA/2022/11/202211270500Cecropia.jpg)|
 202211280500|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-CA/2022/11/202211280500RedPlanetDay.jpg)|
+202211290500|HeronGiving|Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)|A day for giving|![](/en-CA/2022/11/202211290500HeronGiving.jpg)|
