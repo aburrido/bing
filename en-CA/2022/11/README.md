@@ -31,3 +31,4 @@
 202211270500|Cecropia|Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-CA/2022/11/202211270500Cecropia.jpg)|
 202211280500|RedPlanetDay|Mars (© NASA/Alamy)|Fourth rock from the sun|![](/en-CA/2022/11/202211280500RedPlanetDay.jpg)|
 202211290500|HeronGiving|Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida (© Imagebroker/Alamy)|A day for giving|![](/en-CA/2022/11/202211290500HeronGiving.jpg)|
+202211300500|RovinjCroatia|The Old Town of Rovinj, Croatia (© trabantos/Shutterstock)|Jewel of the Adriatic|![](/en-CA/2022/11/202211300500RovinjCroatia.jpg)|
