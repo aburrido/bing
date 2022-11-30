@@ -30,3 +30,4 @@
 202211270000|Cecropia|Cecropia leaf on top of lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)|Unbe-leaf-able|![](/en-GB/2022/11/202211270000Cecropia.jpg)|
 202211280000|SkeltonTower|The Milky Way over Skelton Tower on the North York Moors (© Martin Williams/Alamy)|Happy 70th to the North York Moors|![](/en-GB/2022/11/202211280000SkeltonTower.jpg)|
 202211290000|HeronGiving|Great blue herons building a nest in Wakodahatchee Wetlands, Delray Beach, Florida, USA (© Imagebroker/Alamy)|A day for giving|![](/en-GB/2022/11/202211290000HeronGiving.jpg)|
+202211300000|StorrRocks|The Storr, Isle of Skye (© Aliaume Chapelle/Tandem Stills + Motion)|Happy St Andrew's Day!|![](/en-GB/2022/11/202211300000StorrRocks.jpg)|
