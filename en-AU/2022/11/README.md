@@ -31,3 +31,4 @@
 202211270800|Cecropia|Cecropia leaf, Mexico (© Gerry Ellis/Minden Pictures)|Info|![](/en-AU/2022/11/202211270800Cecropia.jpg)|
 202211280800|RedPlanetDay|Mars (© NASA/Alamy)|Info|![](/en-AU/2022/11/202211280800RedPlanetDay.jpg)|
 202211290800|HeronGiving|Great blue herons, Wakodahatchee Wetlands, Delray Beach, Florida, USA (© Imagebroker/Alamy)|Info|![](/en-AU/2022/11/202211290800HeronGiving.jpg)|
+202211300800|RovinjCroatia|Rovinj, Istrian peninsula, Croatia (© trabantos/Shutterstock)|Info|![](/en-AU/2022/11/202211300800RovinjCroatia.jpg)|
