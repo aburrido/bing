@@ -31,3 +31,4 @@
 202211272300|RedPlanetDay|Mars (© NASA/Alamy)|Vierter Planet von der Sonne aus|![](/de-DE/2022/11/202211272300RedPlanetDay.jpg)|
 202211282300|AschauChiemgau|Blick von der Kampenwand auf die Chiemgauer Alpen, Aschau im Chiemgau, Bayern (© Toni Anzenberger/plainpicture)|Traumhafte Gipfelaussicht|![](/de-DE/2022/11/202211282300AschauChiemgau.jpg)|
 202211292300|RovinjCroatia|Altstadt von Rovinj, Kroatien (© trabantos/Shutterstock)|Juwel der Adria|![](/de-DE/2022/11/202211292300RovinjCroatia.jpg)|
+202211302300|AntarcticaDay|Paradise Harbour, Antarktika (© SinghaphanAllB/Getty Images)|Der Kontinent gegenüber der Arktis|![](/de-DE/2022/11/202211302300AntarcticaDay.jpg)|
