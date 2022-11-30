@@ -31,3 +31,4 @@
 202211271600|RedPlanetDay|火星（© NASA/Alamy）|太阳系的第四颗行星|![](/zh-CN/2022/11/202211271600RedPlanetDay.jpg)|
 202211281600|HeronGiving|正在筑巢的大蓝鹭，佛罗里达州瓦可达哈齐湿地，美国 (© Imagebroker/Alamy)|付出和给予的一天|![](/zh-CN/2022/11/202211281600HeronGiving.jpg)|
 202211291600|RovinjCroatia|罗维尼老城，克罗地亚 (© trabantos/Shutterstock)|亚得里亚海边的明珠|![](/zh-CN/2022/11/202211291600RovinjCroatia.jpg)|
+202211301600|AntarcticaDay|天堂湾，南极洲 (© SinghaphanAllB/Getty Images)|南极洲|![](/zh-CN/2022/11/202211301600AntarcticaDay.jpg)|
