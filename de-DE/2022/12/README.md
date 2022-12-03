@@ -3,3 +3,4 @@
 202211302300|AntarcticaDay|Paradise Harbour, Antarktika (© SinghaphanAllB/Getty Images)|Der Kontinent gegenüber der Arktis|![](/de-DE/2022/12/202211302300AntarcticaDay.jpg)|
 202212012300|BraidedRiverDelta|Delta des Tlikakila River im Lake-Clark-Nationalpark, Alaska, USA (© Dawn Wilson Photography/Getty Images)|Alaskas Schönheit bewahren|![](/de-DE/2022/12/202212012300BraidedRiverDelta.jpg)|
 202212022300|MiamiDT|Ocean Drive, Miami Beach, Florida, USA (© Matteo Colombo/Getty Images)|Die Kunstwelt zu Gast in Miami Beach|![](/de-DE/2022/12/202212022300MiamiDT.jpg)|
+202212032300|KilimanjaroElephants|Elefanten in der Nähe des Kilimandscharo, Amboseli-Nationalpark, Kenia (© Diana Robinson Photography/Getty Images)|Koffer gepackt für die Reise|![](/de-DE/2022/12/202212032300KilimanjaroElephants.jpg)|
