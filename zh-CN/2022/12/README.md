@@ -5,3 +5,4 @@
 202212011600|BraidedRiverDelta|特里卡基拉河三角洲，阿拉斯加州克拉克湖国家公园，美国 (© Dawn Wilson Photography/Getty Images)|保护阿拉斯加的自然之美|![](/zh-CN/2022/12/202212011600BraidedRiverDelta.jpg)|
 202212021600|MiamiDT|迈阿密海滩海洋大道，美国佛罗里达州 (© Matteo Colombo/Getty Images)|在艺术天堂追逐夏天|![](/zh-CN/2022/12/202212021600MiamiDT.jpg)|
 202212031600|KilimanjaroElephants|乞力马扎罗山附近的大象，安波塞利国家公园，肯尼亚 (© Diana Robinson Photography/Getty Images)|象群在路上|![](/zh-CN/2022/12/202212031600KilimanjaroElephants.jpg)|
+202212041600|BambooTreesIndia|古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)|绿意盎然|![](/zh-CN/2022/12/202212041600BambooTreesIndia.jpg)|
