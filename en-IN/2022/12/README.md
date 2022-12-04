@@ -4,3 +4,4 @@
 202212011830|BraidedRiverDelta|Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)|Preserving Alaska's natural beauty|![](/en-IN/2022/12/202212011830BraidedRiverDelta.jpg)|
 202212021830|MiamiDT|Miami, Florida (© Matteo Colombo/Getty Images)|Chasing summer in the art world|![](/en-IN/2022/12/202212021830MiamiDT.jpg)|
 202212031830|IndianNavyDay|Indian Navy sailors doing rehearsal for Navy Day celebrations in Mumbai, India (© Punit Paranjpe/AFP via Getty Images)|Honouring the valiant heroes|![](/en-IN/2022/12/202212031830IndianNavyDay.jpg)|
+202212041830|StNick|Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-IN/2022/12/202212041830StNick.jpg)|
