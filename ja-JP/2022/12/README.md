@@ -5,3 +5,4 @@
 202212021500|MiamiDT|マイアミビーチ, 米国 フロリダ州 (© Matteo Colombo/Getty Images)|アート・バーゼル・マイアミビーチ|![](/ja-JP/2022/12/202212021500MiamiDT.jpg)|
 202212031500|KilimanjaroElephants|アフリカゾウの群れ, ケニア (© Diana Robinson Photography/Getty Images)|今日は「世界野生生物保護の日」|![](/ja-JP/2022/12/202212031500KilimanjaroElephants.jpg)|
 202212041500|StNick|聖ニコラウス, スイス ヴェルビエ (© Denis Balibouse/Reuters)|聖ニコラウス|![](/ja-JP/2022/12/202212041500StNick.jpg)|
+202212051500|GreatEgret|ダイサギ, 米国 フロリダ州 (© Troy Harrison/Getty Images)|ダイサギ|![](/ja-JP/2022/12/202212051500GreatEgret.jpg)|
