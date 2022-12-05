@@ -5,3 +5,4 @@
 202212021830|MiamiDT|Miami, Florida (© Matteo Colombo/Getty Images)|Chasing summer in the art world|![](/en-IN/2022/12/202212021830MiamiDT.jpg)|
 202212031830|IndianNavyDay|Indian Navy sailors doing rehearsal for Navy Day celebrations in Mumbai, India (© Punit Paranjpe/AFP via Getty Images)|Honouring the valiant heroes|![](/en-IN/2022/12/202212031830IndianNavyDay.jpg)|
 202212041830|StNick|Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-IN/2022/12/202212041830StNick.jpg)|
+202212051830|GreatEgret|A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)|Stretching out in the Everglades|![](/en-IN/2022/12/202212051830GreatEgret.jpg)|
