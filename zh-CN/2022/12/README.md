@@ -6,3 +6,4 @@
 202212021600|MiamiDT|迈阿密海滩海洋大道，美国佛罗里达州 (© Matteo Colombo/Getty Images)|在艺术天堂追逐夏天|![](/zh-CN/2022/12/202212021600MiamiDT.jpg)|
 202212031600|KilimanjaroElephants|乞力马扎罗山附近的大象，安波塞利国家公园，肯尼亚 (© Diana Robinson Photography/Getty Images)|象群在路上|![](/zh-CN/2022/12/202212031600KilimanjaroElephants.jpg)|
 202212041600|BambooTreesIndia|古瓦哈提的竹子，印度阿萨姆邦 (© Page Bazar/500px/Getty Images)|绿意盎然|![](/zh-CN/2022/12/202212041600BambooTreesIndia.jpg)|
+202212051600|GreatEgret|大沼泽国家公园里的一只大白鹭，美国佛罗里达州 (© Troy Harrison/Getty Images)|白鹭亮羽|![](/zh-CN/2022/12/202212051600GreatEgret.jpg)|
