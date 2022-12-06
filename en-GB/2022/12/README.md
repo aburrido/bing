@@ -5,3 +5,4 @@
 202212030000|TurenneSunrise|The hilltop village of Turenne at sunrise in the Corrèze department, Nouvelle-Aquitaine, France (© Tim Mannakee/plainpicture)|Charming Turenne|![](/en-GB/2022/12/202212030000TurenneSunrise.jpg)|
 202212040000|KilimanjaroElephants|Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)|Trunks packed for the road|![](/en-GB/2022/12/202212040000KilimanjaroElephants.jpg)|
 202212050000|StNick|Skier dressed as Santa in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-GB/2022/12/202212050000StNick.jpg)|
+202212060000|BraidedRiverDelta|Tlikakila River delta in Lake Clark National Park, Alaska, USA (© Dawn Wilson Photography/Getty Images)|A braided river|![](/en-GB/2022/12/202212060000BraidedRiverDelta.jpg)|
