@@ -6,3 +6,4 @@
 202212032300|KilimanjaroElephants|Elefanten in der Nähe des Kilimandscharo, Amboseli-Nationalpark, Kenia (© Diana Robinson Photography/Getty Images)|Koffer gepackt für die Reise|![](/de-DE/2022/12/202212032300KilimanjaroElephants.jpg)|
 202212042300|BohlenwegWenningstedt|Holzbohlenweg in den Dünen bei Wenningstedt, Sylt, Schleswig-Holstein (© Achim Thomae/Getty Images)|Nordfrieslands größte Insel|![](/de-DE/2022/12/202212042300BohlenwegWenningstedt.jpg)|
 202212052300|StNick|Nikolaustag in Verbier, Schweiz (© Denis Balibouse/Reuters)|Nikolaus-Slalom|![](/de-DE/2022/12/202212052300StNick.jpg)|
+202212062300|GranParadiso100th|Lago Agnel und Lago Serrù im Nationalpark Gran Paradiso, Piemont, Italien (© agustavop/Getty Images)|Italiens ältester Nationalpark|![](/de-DE/2022/12/202212062300GranParadiso100th.jpg)|
