@@ -6,3 +6,4 @@
 202212030800|MiamiDT|Miami Beach, Florida (© Matteo Colombo/Getty Images)|Chasing summer in the art world|![](/en-US/2022/12/202212030800MiamiDT.jpg)|
 202212040800|KilimanjaroElephants|Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)|Trunks packed for the road|![](/en-US/2022/12/202212040800KilimanjaroElephants.jpg)|
 202212050800|StNick|Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-US/2022/12/202212050800StNick.jpg)|
+202212060800|GreatEgret|A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)|Stretching out in the Everglades|![](/en-US/2022/12/202212060800GreatEgret.jpg)|
