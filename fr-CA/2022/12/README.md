@@ -6,3 +6,4 @@
 202212030500|MiamiDT|Ocean Drive, Miami Beach, Floride (© Matteo Colombo/Getty Images)|Information|![](/fr-CA/2022/12/202212030500MiamiDT.jpg)|
 202212040500|KilimanjaroElephants|Éléphants près du Kilimandjaro, parc national d’Amboseli, Kenya (© Diana Robinson Photography/Getty Images)|Information|![](/fr-CA/2022/12/202212040500KilimanjaroElephants.jpg)|
 202212050500|StNick|La Saint-Nicolas à Verbier, Suisse (© Denis Balibouse/Reuters)|Information|![](/fr-CA/2022/12/202212050500StNick.jpg)|
+202212060500|GreatEgret|Une grande aigrette dans le parc national des Everglades, Floride (© Troy Harrison/Getty Images)|Information|![](/fr-CA/2022/12/202212060500GreatEgret.jpg)|
