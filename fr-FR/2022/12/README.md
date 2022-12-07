@@ -7,3 +7,4 @@
 202212042300|GreatEgret|Une grande aigrette dans le parc national des Everglades, Floride, États-Unis (© Troy Harrison/Getty Images)|Faire le paon|![](/fr-FR/2022/12/202212042300GreatEgret.jpg)|
 202212052300|StNick|La Saint-Nicolas à Verbier, Suisse (© Denis Balibouse/Reuters)|Livraison spéciale !|![](/fr-FR/2022/12/202212052300StNick.jpg)|
 202212062300|TangleCreekFalls|Chutes de Tangle Creek dans le parc national de Jasper, Alberta, Canada (© Jeff Foott/Minden Pictures)|Cascade canadienne|![](/fr-FR/2022/12/202212062300TangleCreekFalls.jpg)|
+202212072300|LyonLights|Le vieux Lyon et la cathédrale Saint-Jean illuminés pour la fête des lumières (© Jacques Pierre/Hemis/Alamy Stock Photo)|Lumière sur Lyon|![](/fr-FR/2022/12/202212072300LyonLights.jpg)|
