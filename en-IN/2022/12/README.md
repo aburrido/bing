@@ -7,3 +7,4 @@
 202212041830|StNick|Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-IN/2022/12/202212041830StNick.jpg)|
 202212051830|GreatEgret|A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)|Stretching out in the Everglades|![](/en-IN/2022/12/202212051830GreatEgret.jpg)|
 202212061830|TangleCreekFalls|Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Rocky Mountain runoff|![](/en-IN/2022/12/202212061830TangleCreekFalls.jpg)|
+202212071830|FlorenceAerial|The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)|Birthplace of the Renaissance|![](/en-IN/2022/12/202212071830FlorenceAerial.jpg)|
