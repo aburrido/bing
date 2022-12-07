@@ -7,3 +7,4 @@
 202212040800|KilimanjaroElephants|Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)|Trunks packed for the road|![](/en-US/2022/12/202212040800KilimanjaroElephants.jpg)|
 202212050800|StNick|Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-US/2022/12/202212050800StNick.jpg)|
 202212060800|GreatEgret|A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)|Stretching out in the Everglades|![](/en-US/2022/12/202212060800GreatEgret.jpg)|
+202212070800|KaneoheHI|Mokoli'I Island in Kaneohe Bay, seen from Kualoa Regional Park, Oahu, Hawaii (© Riddhish Chakraborty/Getty Images)|Where the battle began|![](/en-US/2022/12/202212070800KaneoheHI.jpg)|
