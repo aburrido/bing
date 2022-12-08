@@ -9,3 +9,4 @@
 202212062300|TangleCreekFalls|Chutes de Tangle Creek dans le parc national de Jasper, Alberta, Canada (© Jeff Foott/Minden Pictures)|Cascade canadienne|![](/fr-FR/2022/12/202212062300TangleCreekFalls.jpg)|
 202212072300|LyonLights|Le vieux Lyon et la cathédrale Saint-Jean illuminés pour la fête des lumières (© Jacques Pierre/Hemis/Alamy Stock Photo)|Lumière sur Lyon|![](/fr-FR/2022/12/202212072300LyonLights.jpg)|
 ||||![](/fr-FR/2022/12/.jpg)|
+202212082300|NorwayMuskox|Maman bœuf musqué et son petit dans le parc national de Dovre-Sunndalsfjella, Norvège (© Robert Haasmann/Minden Pictures)|Le meilleur ami du mammouth|![](/fr-FR/2022/12/202212082300NorwayMuskox.jpg)|
