@@ -8,3 +8,4 @@
 202212051500|GreatEgret|ダイサギ, 米国 フロリダ州 (© Troy Harrison/Getty Images)|ダイサギ|![](/ja-JP/2022/12/202212051500GreatEgret.jpg)|
 202212061500|Taisetsu2022|青い池, 北海道 (© Haruna/Getty Images)|今日は「大雪」|![](/ja-JP/2022/12/202212061500Taisetsu2022.jpg)|
 202212071500|FlorenceAerial|サンタ・マリア・デル・フィオーレ大聖堂, イタリア フィレンツェ (© Alexander Baert/Amazing Aerial Agency)|サンタ・マリア・デル・フィオーレ大聖堂|![](/ja-JP/2022/12/202212071500FlorenceAerial.jpg)|
+202212081500|NorwayMuskox|ジャコウウシの母と子, ノルウェー (© Robert Haasmann/Minden Pictures)|ジャコウウシの母と子|![](/ja-JP/2022/12/202212081500NorwayMuskox.jpg)|
