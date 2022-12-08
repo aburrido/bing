@@ -8,3 +8,4 @@
 202212052300|StNick|La Saint-Nicolas à Verbier, Suisse (© Denis Balibouse/Reuters)|Livraison spéciale !|![](/fr-FR/2022/12/202212052300StNick.jpg)|
 202212062300|TangleCreekFalls|Chutes de Tangle Creek dans le parc national de Jasper, Alberta, Canada (© Jeff Foott/Minden Pictures)|Cascade canadienne|![](/fr-FR/2022/12/202212062300TangleCreekFalls.jpg)|
 202212072300|LyonLights|Le vieux Lyon et la cathédrale Saint-Jean illuminés pour la fête des lumières (© Jacques Pierre/Hemis/Alamy Stock Photo)|Lumière sur Lyon|![](/fr-FR/2022/12/202212072300LyonLights.jpg)|
+||||![](/fr-FR/2022/12/.jpg)|
