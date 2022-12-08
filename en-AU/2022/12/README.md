@@ -8,3 +8,4 @@
 202212050800|BambooTreesIndia|Bamboo, Guwahati, Assam, India (© Page bazar/500px/Getty Images)|Info|![](/en-AU/2022/12/202212050800BambooTreesIndia.jpg)|
 202212060800|GreatEgret|Great egret, Everglades National Park, Florida, USA (© Troy Harrison/Getty Images)|Info|![](/en-AU/2022/12/202212060800GreatEgret.jpg)|
 202212070800|TangleCreekFalls|Tangle Creek Falls, Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Info|![](/en-AU/2022/12/202212070800TangleCreekFalls.jpg)|
+202212080800|WistmansWood|Wistman's Wood, Dartmoor National Park, Devon, England (© Richard Garvey-Williams/Alamy)|Info|![](/en-AU/2022/12/202212080800WistmansWood.jpg)|
