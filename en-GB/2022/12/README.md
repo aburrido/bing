@@ -7,3 +7,4 @@
 202212050000|StNick|Skier dressed as Santa in Verbier, Switzerland (© Denis Balibouse/Reuters)|Santa slalom|![](/en-GB/2022/12/202212050000StNick.jpg)|
 202212060000|BraidedRiverDelta|Tlikakila River delta in Lake Clark National Park, Alaska, USA (© Dawn Wilson Photography/Getty Images)|A braided river|![](/en-GB/2022/12/202212060000BraidedRiverDelta.jpg)|
 202212070000|TangleCreekFalls|Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Rocky Mountain run-off|![](/en-GB/2022/12/202212070000TangleCreekFalls.jpg)|
+202212080000|FlorenceAerial|Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)|Birthplace of the Renaissance|![](/en-GB/2022/12/202212080000FlorenceAerial.jpg)|
