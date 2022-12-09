@@ -9,3 +9,4 @@
 202212061830|TangleCreekFalls|Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Rocky Mountain runoff|![](/en-IN/2022/12/202212061830TangleCreekFalls.jpg)|
 202212071830|FlorenceAerial|The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)|Birthplace of the Renaissance|![](/en-IN/2022/12/202212071830FlorenceAerial.jpg)|
 202212081830|NorwayMuskox|Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|What are these ancient animals?|![](/en-IN/2022/12/202212081830NorwayMuskox.jpg)|
+202212091830|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|When just a pinch of salt won’t do|![](/en-IN/2022/12/202212091830SaltDesert.jpg)|
