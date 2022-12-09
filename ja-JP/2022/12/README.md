@@ -9,3 +9,4 @@
 202212061500|Taisetsu2022|青い池, 北海道 (© Haruna/Getty Images)|今日は「大雪」|![](/ja-JP/2022/12/202212061500Taisetsu2022.jpg)|
 202212071500|FlorenceAerial|サンタ・マリア・デル・フィオーレ大聖堂, イタリア フィレンツェ (© Alexander Baert/Amazing Aerial Agency)|サンタ・マリア・デル・フィオーレ大聖堂|![](/ja-JP/2022/12/202212071500FlorenceAerial.jpg)|
 202212081500|NorwayMuskox|ジャコウウシの母と子, ノルウェー (© Robert Haasmann/Minden Pictures)|ジャコウウシの母と子|![](/ja-JP/2022/12/202212081500NorwayMuskox.jpg)|
+202212091500|SaltDesert|ウユニ塩湖, ボリビア (© Theo Allofs/Minden Pictures)|ウユニ塩湖|![](/ja-JP/2022/12/202212091500SaltDesert.jpg)|
