@@ -9,3 +9,4 @@
 202212060500|GreatEgret|Une grande aigrette dans le parc national des Everglades, Floride (© Troy Harrison/Getty Images)|Information|![](/fr-CA/2022/12/202212060500GreatEgret.jpg)|
 202212070500|TangleCreekFalls|La cascade de Tangle Creek dans le parc national de Jasper, Alberta (© Jeff Foott/Minden Pictures)|Information|![](/fr-CA/2022/12/202212070500TangleCreekFalls.jpg)|
 202212080500|FlorenceAerial|La cathédrale de Florence, Italie (© Alexander Baert/Amazing Aerial Agency)|Information|![](/fr-CA/2022/12/202212080500FlorenceAerial.jpg)|
+202212090500|NorwayMuskox|Maman bœuf musqué et son petit dans le parc national de Dovre-Sunndalsfjella, Norvège (© Robert Haasmann/Minden Pictures)|Information|![](/fr-CA/2022/12/202212090500NorwayMuskox.jpg)|
