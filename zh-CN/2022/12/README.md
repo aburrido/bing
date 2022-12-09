@@ -10,3 +10,4 @@
 202212061600|TangleCreekFalls|贾斯珀国家公园纠结溪瀑布，阿尔伯塔省，加拿大 (© Jeff Foott/Minden Pictures)|落基山脉的径流|![](/zh-CN/2022/12/202212061600TangleCreekFalls.jpg)|
 202212071600|WistmansWood|多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)|这些古老的动物是什么？|![](/zh-CN/2022/12/202212071600WistmansWood.jpg)|
 202212081600|NorwayMuskox|多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)|这些古老的动物是什么？|![](/zh-CN/2022/12/202212081600NorwayMuskox.jpg)|
+202212091600|SaltDesert|玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)|一小撮盐可不够|![](/zh-CN/2022/12/202212091600SaltDesert.jpg)|
