@@ -9,3 +9,4 @@
 202212062300|GranParadiso100th|Lago Agnel und Lago Serrù im Nationalpark Gran Paradiso, Piemont, Italien (© agustavop/Getty Images)|Italiens ältester Nationalpark|![](/de-DE/2022/12/202212062300GranParadiso100th.jpg)|
 202212072300|NorwayMuskox|Moschusochsenmutter und Kalb im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Robert Haasmann/Minden Pictures)|Was sind das für urzeitliche Tiere?|![](/de-DE/2022/12/202212072300NorwayMuskox.jpg)|
 202212082300|FlorenceAerial|Kathedrale von Florenz, Italien (© Alexander Baert/Amazing Aerial Agency)|Geburtsstätte der Renaissance|![](/de-DE/2022/12/202212082300FlorenceAerial.jpg)|
+202212092300|SaltDesert|Salar de Uyuni, Bolivien (© Theo Allofs/Minden Pictures)|Mehr als eine Prise Salz|![](/de-DE/2022/12/202212092300SaltDesert.jpg)|

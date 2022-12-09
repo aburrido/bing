@@ -10,3 +10,4 @@
 202212072300|LyonLights|Le vieux Lyon et la cathédrale Saint-Jean illuminés pour la fête des lumières (© Jacques Pierre/Hemis/Alamy Stock Photo)|Lumière sur Lyon|![](/fr-FR/2022/12/202212072300LyonLights.jpg)|
 ||||![](/fr-FR/2022/12/.jpg)|
 202212082300|NorwayMuskox|Maman bœuf musqué et son petit dans le parc national de Dovre-Sunndalsfjella, Norvège (© Robert Haasmann/Minden Pictures)|Le meilleur ami du mammouth|![](/fr-FR/2022/12/202212082300NorwayMuskox.jpg)|
+202212092300|SaltDesert|Salar d’Uyuni en Bolivie (© Theo Allofs/Minden Pictures)|Les ressources du monde|![](/fr-FR/2022/12/202212092300SaltDesert.jpg)|
