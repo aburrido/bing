@@ -11,3 +11,4 @@
 202212071600|WistmansWood|多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)|这些古老的动物是什么？|![](/zh-CN/2022/12/202212071600WistmansWood.jpg)|
 202212081600|NorwayMuskox|多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威 (© Robert Haasmann/Minden Pictures)|这些古老的动物是什么？|![](/zh-CN/2022/12/202212081600NorwayMuskox.jpg)|
 202212091600|SaltDesert|玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)|一小撮盐可不够|![](/zh-CN/2022/12/202212091600SaltDesert.jpg)|
+202212101600|BuchsteinRossstein|泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州 (© Christian Bäck/eStock Photo)|国际山岳日|![](/zh-CN/2022/12/202212101600BuchsteinRossstein.jpg)|
