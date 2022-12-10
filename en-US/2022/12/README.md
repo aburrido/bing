@@ -10,3 +10,4 @@
 202212070800|KaneoheHI|Mokoli'I Island in Kaneohe Bay, seen from Kualoa Regional Park, Oahu, Hawaii (© Riddhish Chakraborty/Getty Images)|Where the battle began|![](/en-US/2022/12/202212070800KaneoheHI.jpg)|
 202212080800|FlorenceAerial|The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)|Birthplace of the Renaissance|![](/en-US/2022/12/202212080800FlorenceAerial.jpg)|
 202212090800|NorwayMuskox|Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|What are these ancient animals?|![](/en-US/2022/12/202212090800NorwayMuskox.jpg)|
+202212100800|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|When just a pinch of salt won't do|![](/en-US/2022/12/202212100800SaltDesert.jpg)|
