@@ -10,3 +10,4 @@
 202212072300|NorwayMuskox|Moschusochsenmutter und Kalb im Dovrefjell-Sunndalsfjella-Nationalpark, Norwegen (© Robert Haasmann/Minden Pictures)|Was sind das für urzeitliche Tiere?|![](/de-DE/2022/12/202212072300NorwayMuskox.jpg)|
 202212082300|FlorenceAerial|Kathedrale von Florenz, Italien (© Alexander Baert/Amazing Aerial Agency)|Geburtsstätte der Renaissance|![](/de-DE/2022/12/202212082300FlorenceAerial.jpg)|
 202212092300|SaltDesert|Salar de Uyuni, Bolivien (© Theo Allofs/Minden Pictures)|Mehr als eine Prise Salz|![](/de-DE/2022/12/202212092300SaltDesert.jpg)|
+202212102300|BuchsteinRossstein|Blick vom Roßstein auf den Buchstein und die Tegernseer Hütte, Bayern (© Christian Bäck/eStock Photo)|Internationaler Tag der Berge|![](/de-DE/2022/12/202212102300BuchsteinRossstein.jpg)|
