@@ -11,3 +11,4 @@
 202212081500|NorwayMuskox|ジャコウウシの母と子, ノルウェー (© Robert Haasmann/Minden Pictures)|ジャコウウシの母と子|![](/ja-JP/2022/12/202212081500NorwayMuskox.jpg)|
 202212091500|SaltDesert|ウユニ塩湖, ボリビア (© Theo Allofs/Minden Pictures)|ウユニ塩湖|![](/ja-JP/2022/12/202212091500SaltDesert.jpg)|
 202212101500|BuchsteinRossstein|ロスシュタインとブッフシュタイン, ドイツ バイエルン州 (© Christian Bäck/eStock Photo)|今日は「国際山岳デー」|![](/ja-JP/2022/12/202212101500BuchsteinRossstein.jpg)|
+202212111500|PoinsettiaDay|ポインセチア (© Elizabeth Fernandez/Getty Images)|ポインセチア|![](/ja-JP/2022/12/202212111500PoinsettiaDay.jpg)|
