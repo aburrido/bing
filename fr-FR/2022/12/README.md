@@ -12,3 +12,4 @@
 202212082300|NorwayMuskox|Maman bœuf musqué et son petit dans le parc national de Dovre-Sunndalsfjella, Norvège (© Robert Haasmann/Minden Pictures)|Le meilleur ami du mammouth|![](/fr-FR/2022/12/202212082300NorwayMuskox.jpg)|
 202212092300|SaltDesert|Salar d’Uyuni en Bolivie (© Theo Allofs/Minden Pictures)|Les ressources du monde|![](/fr-FR/2022/12/202212092300SaltDesert.jpg)|
 202212102300|FlorenceAerial|La cathédrale de Florence, Italie (© Alexander Baert/Amazing Aerial Agency)|Merveilles de la Renaissance|![](/fr-FR/2022/12/202212102300FlorenceAerial.jpg)|
+202212112300|PoinsettiaDay|Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)|Feuilles de Noël|![](/fr-FR/2022/12/202212112300PoinsettiaDay.jpg)|
