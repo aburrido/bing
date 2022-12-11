@@ -11,3 +11,4 @@
 202212080800|FlorenceAerial|The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)|Birthplace of the Renaissance|![](/en-US/2022/12/202212080800FlorenceAerial.jpg)|
 202212090800|NorwayMuskox|Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|What are these ancient animals?|![](/en-US/2022/12/202212090800NorwayMuskox.jpg)|
 202212100800|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|When just a pinch of salt won't do|![](/en-US/2022/12/202212100800SaltDesert.jpg)|
+202212110800|TangleCreekFalls|Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Rocky Mountain runoff|![](/en-US/2022/12/202212110800TangleCreekFalls.jpg)|

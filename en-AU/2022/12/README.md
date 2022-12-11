@@ -11,3 +11,4 @@
 202212080800|WistmansWood|Wistman's Wood, Dartmoor National Park, Devon, England (© Richard Garvey-Williams/Alamy)|Info|![](/en-AU/2022/12/202212080800WistmansWood.jpg)|
 202212090800|NorwayMuskox|Muskoxen, Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|Info|![](/en-AU/2022/12/202212090800NorwayMuskox.jpg)|
 202212100800|SaltDesert|Salar de Uyuni, Bolivia (© Theo Allofs/Minden Pictures)|Info|![](/en-AU/2022/12/202212100800SaltDesert.jpg)|
+202212110800|BuchsteinRossstein|Roßstein and Buchstein, Bavaria, Germany (© Christian Bäck/eStock Photo)|Info|![](/en-AU/2022/12/202212110800BuchsteinRossstein.jpg)|
