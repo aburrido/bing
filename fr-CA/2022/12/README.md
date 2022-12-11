@@ -11,3 +11,4 @@
 202212080500|FlorenceAerial|La cathédrale de Florence, Italie (© Alexander Baert/Amazing Aerial Agency)|Information|![](/fr-CA/2022/12/202212080500FlorenceAerial.jpg)|
 202212090500|NorwayMuskox|Maman bœuf musqué et son petit dans le parc national de Dovre-Sunndalsfjella, Norvège (© Robert Haasmann/Minden Pictures)|Information|![](/fr-CA/2022/12/202212090500NorwayMuskox.jpg)|
 202212100500|SaltDesert|Salar d’Uyuni en Bolivie (© Theo Allofs/Minden Pictures)|Information|![](/fr-CA/2022/12/202212100500SaltDesert.jpg)|
+202212110500|WinterMail|Winter themed hand painted mail boxes for 'Sea Village' floating home residents, Granville Island, Vancouver (© Michael Wheatley/Alamy Stock Photo)|Floating mailboxes|![](/fr-CA/2022/12/202212110500WinterMail.jpg)|

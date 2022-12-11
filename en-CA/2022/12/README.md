@@ -11,3 +11,4 @@
 202212080500|FlorenceAerial|The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)|Birthplace of the Renaissance|![](/en-CA/2022/12/202212080500FlorenceAerial.jpg)|
 202212090500|NorwayMuskox|Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|What are these ancient animals?|![](/en-CA/2022/12/202212090500NorwayMuskox.jpg)|
 202212100500|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|When just a pinch of salt won’t do|![](/en-CA/2022/12/202212100500SaltDesert.jpg)|
+202212110500|WinterMail|Winter themed hand painted mail boxes for 'Sea Village' floating home residents, Granville Island, Vancouver (© Michael Wheatley/Alamy Stock Photo)|Floating mailboxes|![](/en-CA/2022/12/202212110500WinterMail.jpg)|
