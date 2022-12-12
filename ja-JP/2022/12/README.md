@@ -13,3 +13,4 @@
 202212101500|BuchsteinRossstein|ロスシュタインとブッフシュタイン, ドイツ バイエルン州 (© Christian Bäck/eStock Photo)|今日は「国際山岳デー」|![](/ja-JP/2022/12/202212101500BuchsteinRossstein.jpg)|
 202212111500|PoinsettiaDay|ポインセチア (© Elizabeth Fernandez/Getty Images)|ポインセチア|![](/ja-JP/2022/12/202212111500PoinsettiaDay.jpg)|
 ||||![](/ja-JP/2022/12/.jpg)|
+202212121500|InstagramHallstatt|ハルシュタット, オーストリア (© Jon Arnold Images Ltd/Alamy)|ハルシュタットの冬|![](/ja-JP/2022/12/202212121500InstagramHallstatt.jpg)|
