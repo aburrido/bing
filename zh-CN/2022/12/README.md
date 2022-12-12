@@ -14,3 +14,4 @@
 202212101600|BuchsteinRossstein|泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州 (© Christian Bäck/eStock Photo)|国际山岳日|![](/zh-CN/2022/12/202212101600BuchsteinRossstein.jpg)|
 202212111600|PoinsettiaDay|一品红 (© Elizabeth Fernandez/Getty Images)|假日色调|![](/zh-CN/2022/12/202212111600PoinsettiaDay.jpg)|
 ||||![](/zh-CN/2022/12/.jpg)|
+202212121600|InstagramHallstatt|哈尔施塔特，奥地利 (© Jon Arnold Images Ltd/Alamy)|哈尔施塔特，奥地利|![](/zh-CN/2022/12/202212121600InstagramHallstatt.jpg)|
