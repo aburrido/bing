@@ -13,3 +13,4 @@
 202212102300|BuchsteinRossstein|Blick vom Roßstein auf den Buchstein und die Tegernseer Hütte, Bayern (© Christian Bäck/eStock Photo)|Internationaler Tag der Berge|![](/de-DE/2022/12/202212102300BuchsteinRossstein.jpg)|
 202212112300|PoinsettiaDay|Weihnachtssterne (© Elizabeth Fernandez/Getty Images)|Was sind das für farbenfrohe Festtagsblumen?|![](/de-DE/2022/12/202212112300PoinsettiaDay.jpg)|
 ||||![](/de-DE/2022/12/.jpg)|
+202212122300|InstagramHallstatt|Hallstatt, Österreich (© Jon Arnold Images Ltd/Alamy)|Wo liegt dieses atemberaubende Dorf?|![](/de-DE/2022/12/202212122300InstagramHallstatt.jpg)|

@@ -13,3 +13,4 @@
 202212092300|SaltDesert|Salar d’Uyuni en Bolivie (© Theo Allofs/Minden Pictures)|Les ressources du monde|![](/fr-FR/2022/12/202212092300SaltDesert.jpg)|
 202212102300|FlorenceAerial|La cathédrale de Florence, Italie (© Alexander Baert/Amazing Aerial Agency)|Merveilles de la Renaissance|![](/fr-FR/2022/12/202212102300FlorenceAerial.jpg)|
 202212112300|PoinsettiaDay|Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)|Feuilles de Noël|![](/fr-FR/2022/12/202212112300PoinsettiaDay.jpg)|
+202212122300|MorzineAvoriaz|Avoriaz et le Roc d’Enfer en arrière-plan (© Jacques Pierre/Hemis/Almy Stock Photo)|Les joies de l'hiver|![](/fr-FR/2022/12/202212122300MorzineAvoriaz.jpg)|
