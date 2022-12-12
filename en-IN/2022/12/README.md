@@ -13,3 +13,4 @@
 202212101830|KilimanjaroElephants|Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)|Trunks packed for road|![](/en-IN/2022/12/202212101830KilimanjaroElephants.jpg)|
 202212111830|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-IN/2022/12/202212111830PoinsettiaDay.jpg)|
 ||||![](/en-IN/2022/12/.jpg)|
+202212121830|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice they made it twice|![](/en-IN/2022/12/202212121830InstagramHallstatt.jpg)|
