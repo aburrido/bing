@@ -12,3 +12,4 @@
 202212090800|NorwayMuskox|Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|What are these ancient animals?|![](/en-US/2022/12/202212090800NorwayMuskox.jpg)|
 202212100800|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|When just a pinch of salt won't do|![](/en-US/2022/12/202212100800SaltDesert.jpg)|
 202212110800|TangleCreekFalls|Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Rocky Mountain runoff|![](/en-US/2022/12/202212110800TangleCreekFalls.jpg)|
+202212120800|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-US/2022/12/202212120800PoinsettiaDay.jpg)|

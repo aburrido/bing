@@ -12,3 +12,4 @@
 202212090800|NorwayMuskox|Muskoxen, Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|Info|![](/en-AU/2022/12/202212090800NorwayMuskox.jpg)|
 202212100800|SaltDesert|Salar de Uyuni, Bolivia (© Theo Allofs/Minden Pictures)|Info|![](/en-AU/2022/12/202212100800SaltDesert.jpg)|
 202212110800|BuchsteinRossstein|Roßstein and Buchstein, Bavaria, Germany (© Christian Bäck/eStock Photo)|Info|![](/en-AU/2022/12/202212110800BuchsteinRossstein.jpg)|
+202212120800|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Info|![](/en-AU/2022/12/202212120800PoinsettiaDay.jpg)|
