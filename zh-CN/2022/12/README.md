@@ -13,3 +13,4 @@
 202212091600|SaltDesert|玻利维亚的乌尤尼盐沼 (© Theo Allofs/Minden Pictures)|一小撮盐可不够|![](/zh-CN/2022/12/202212091600SaltDesert.jpg)|
 202212101600|BuchsteinRossstein|泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州 (© Christian Bäck/eStock Photo)|国际山岳日|![](/zh-CN/2022/12/202212101600BuchsteinRossstein.jpg)|
 202212111600|PoinsettiaDay|一品红 (© Elizabeth Fernandez/Getty Images)|假日色调|![](/zh-CN/2022/12/202212111600PoinsettiaDay.jpg)|
+||||![](/zh-CN/2022/12/.jpg)|

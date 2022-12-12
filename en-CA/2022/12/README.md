@@ -13,3 +13,4 @@
 202212100500|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|When just a pinch of salt won’t do|![](/en-CA/2022/12/202212100500SaltDesert.jpg)|
 202212110500|WinterMail|Winter themed hand painted mail boxes for 'Sea Village' floating home residents, Granville Island, Vancouver (© Michael Wheatley/Alamy Stock Photo)|Floating mailboxes|![](/en-CA/2022/12/202212110500WinterMail.jpg)|
 202212120500|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-CA/2022/12/202212120500PoinsettiaDay.jpg)|
+||||![](/en-CA/2022/12/.jpg)|
