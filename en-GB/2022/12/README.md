@@ -11,3 +11,4 @@
 202212090000|NorwayMuskox|Muskox mother and calf in Dovre-Sunndalsfjella National Park, Norway (© Robert Haasmann/Minden Pictures)|Heads together|![](/en-GB/2022/12/202212090000NorwayMuskox.jpg)|
 202212100000|SaltDesert|Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)|Just a pinch|![](/en-GB/2022/12/202212100000SaltDesert.jpg)|
 202212110000|BuchsteinRossstein|View from the summit of Roßstein mountain, Bavaria, Germany (© Christian Bäck/eStock Photo)|International Mountain Day|![](/en-GB/2022/12/202212110000BuchsteinRossstein.jpg)|
+202212120000|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Christmas flowers|![](/en-GB/2022/12/202212120000PoinsettiaDay.jpg)|
