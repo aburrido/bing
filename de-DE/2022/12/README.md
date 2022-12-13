@@ -14,3 +14,4 @@
 202212112300|PoinsettiaDay|Weihnachtssterne (© Elizabeth Fernandez/Getty Images)|Was sind das für farbenfrohe Festtagsblumen?|![](/de-DE/2022/12/202212112300PoinsettiaDay.jpg)|
 ||||![](/de-DE/2022/12/.jpg)|
 202212122300|InstagramHallstatt|Hallstatt, Österreich (© Jon Arnold Images Ltd/Alamy)|Wo liegt dieses atemberaubende Dorf?|![](/de-DE/2022/12/202212122300InstagramHallstatt.jpg)|
+202212132300|TangleCreekFalls|Tangle Creek Falls im Jasper-Nationalpark, Alberta, Kanada (© Jeff Foott/Minden Pictures)|Abfluss der Rocky Mountains|![](/de-DE/2022/12/202212132300TangleCreekFalls.jpg)|

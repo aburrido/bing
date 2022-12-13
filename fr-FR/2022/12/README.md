@@ -14,3 +14,4 @@
 202212102300|FlorenceAerial|La cathédrale de Florence, Italie (© Alexander Baert/Amazing Aerial Agency)|Merveilles de la Renaissance|![](/fr-FR/2022/12/202212102300FlorenceAerial.jpg)|
 202212112300|PoinsettiaDay|Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)|Feuilles de Noël|![](/fr-FR/2022/12/202212112300PoinsettiaDay.jpg)|
 202212122300|MorzineAvoriaz|Avoriaz et le Roc d’Enfer en arrière-plan (© Jacques Pierre/Hemis/Almy Stock Photo)|Les joies de l'hiver|![](/fr-FR/2022/12/202212122300MorzineAvoriaz.jpg)|
+202212132300|GranParadiso100th|Le lac Agnel et le lac Serrù, parc national du Grand-Paradis, Italie (© agustavop/Getty Images)|Grand espace italien|![](/fr-FR/2022/12/202212132300GranParadiso100th.jpg)|
