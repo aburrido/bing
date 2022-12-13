@@ -14,3 +14,4 @@
 202212111500|PoinsettiaDay|ポインセチア (© Elizabeth Fernandez/Getty Images)|ポインセチア|![](/ja-JP/2022/12/202212111500PoinsettiaDay.jpg)|
 ||||![](/ja-JP/2022/12/.jpg)|
 202212121500|InstagramHallstatt|ハルシュタット, オーストリア (© Jon Arnold Images Ltd/Alamy)|ハルシュタットの冬|![](/ja-JP/2022/12/202212121500InstagramHallstatt.jpg)|
+202212131500|GranParadiso100th|アグネル湖とセル湖, イタリア (© agustavop/Getty Images)|イタリア アグネル湖とセル湖|![](/ja-JP/2022/12/202212131500GranParadiso100th.jpg)|
