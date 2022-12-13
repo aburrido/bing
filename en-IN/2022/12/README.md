@@ -14,3 +14,4 @@
 202212111830|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-IN/2022/12/202212111830PoinsettiaDay.jpg)|
 ||||![](/en-IN/2022/12/.jpg)|
 202212121830|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice they made it twice|![](/en-IN/2022/12/202212121830InstagramHallstatt.jpg)|
+202212131830|BambooTreesIndiaa|Bamboo trees in Guwahati, Assam, India (© Page bazar/500px/Getty Images)|A plant for all occasions|![](/en-IN/2022/12/202212131830BambooTreesIndiaa.jpg)|
