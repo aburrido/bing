@@ -14,3 +14,4 @@
 202212110800|TangleCreekFalls|Tangle Creek Falls in Jasper National Park, Alberta, Canada (© Jeff Foott/Minden Pictures)|Rocky Mountain runoff|![](/en-US/2022/12/202212110800TangleCreekFalls.jpg)|
 202212120800|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-US/2022/12/202212120800PoinsettiaDay.jpg)|
 ||||![](/en-US/2022/12/.jpg)|
+202212130800|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice they made it twice|![](/en-US/2022/12/202212130800InstagramHallstatt.jpg)|

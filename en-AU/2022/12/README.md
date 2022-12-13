@@ -14,3 +14,4 @@
 202212110800|BuchsteinRossstein|Roßstein and Buchstein, Bavaria, Germany (© Christian Bäck/eStock Photo)|Info|![](/en-AU/2022/12/202212110800BuchsteinRossstein.jpg)|
 202212120800|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Info|![](/en-AU/2022/12/202212120800PoinsettiaDay.jpg)|
 ||||![](/en-AU/2022/12/.jpg)|
+202212130800|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|Info|![](/en-AU/2022/12/202212130800InstagramHallstatt.jpg)|
