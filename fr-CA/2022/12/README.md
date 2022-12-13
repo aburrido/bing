@@ -14,3 +14,4 @@
 202212110500|WinterMail|Winter themed hand painted mail boxes for 'Sea Village' floating home residents, Granville Island, Vancouver (© Michael Wheatley/Alamy Stock Photo)|Floating mailboxes|![](/fr-CA/2022/12/202212110500WinterMail.jpg)|
 202212120500|PoinsettiaDay|Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)|Information|![](/fr-CA/2022/12/202212120500PoinsettiaDay.jpg)|
 ||||![](/fr-CA/2022/12/.jpg)|
+202212130500|InstagramHallstatt|Hallstatt, Autriche (© Jon Arnold Images Ltd/Alamy)|Information|![](/fr-CA/2022/12/202212130500InstagramHallstatt.jpg)|
