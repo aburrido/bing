@@ -16,3 +16,4 @@
 ||||![](/zh-CN/2022/12/.jpg)|
 202212121600|InstagramHallstatt|哈尔施塔特，奥地利 (© Jon Arnold Images Ltd/Alamy)|哈尔施塔特，奥地利|![](/zh-CN/2022/12/202212121600InstagramHallstatt.jpg)|
 202212131600|GranParadiso100th|大帕拉迪索国家公园，意大利 (© agustavop/Getty Images)|意大利最古老的国家公园|![](/zh-CN/2022/12/202212131600GranParadiso100th.jpg)|
+202212141600|Borovets|博罗韦茨，保加利亚 (© Grigor Ivanov/Cavan Images)|冬季仙境|![](/zh-CN/2022/12/202212141600Borovets.jpg)|
