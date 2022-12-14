@@ -15,3 +15,4 @@
 202212120500|PoinsettiaDay|Feuilles de poinsettia (© Elizabeth Fernandez/Getty Images)|Information|![](/fr-CA/2022/12/202212120500PoinsettiaDay.jpg)|
 ||||![](/fr-CA/2022/12/.jpg)|
 202212130500|InstagramHallstatt|Hallstatt, Autriche (© Jon Arnold Images Ltd/Alamy)|Information|![](/fr-CA/2022/12/202212130500InstagramHallstatt.jpg)|
+202212140500|ButchartDisplay|Les 12 Jours de Noël dans les Butchart Gardens, Vancouver, B.C (© Michael Wheatley/Alamy Stock Photo)|Festive foliage in the garden|![](/fr-CA/2022/12/202212140500ButchartDisplay.jpg)|

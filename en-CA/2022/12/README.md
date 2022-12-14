@@ -15,3 +15,4 @@
 202212120500|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-CA/2022/12/202212120500PoinsettiaDay.jpg)|
 ||||![](/en-CA/2022/12/.jpg)|
 202212130500|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice, they made it twice|![](/en-CA/2022/12/202212130500InstagramHallstatt.jpg)|
+202212140500|ButchartDisplay|The 12 Days of Christmas display at Butchart Gardens, Vancouver, B.C. (© Michael Wheatley/Alamy Stock Photo)|Festive foliage in the garden|![](/en-CA/2022/12/202212140500ButchartDisplay.jpg)|
