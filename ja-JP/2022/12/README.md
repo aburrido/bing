@@ -15,3 +15,4 @@
 ||||![](/ja-JP/2022/12/.jpg)|
 202212121500|InstagramHallstatt|ハルシュタット, オーストリア (© Jon Arnold Images Ltd/Alamy)|ハルシュタットの冬|![](/ja-JP/2022/12/202212121500InstagramHallstatt.jpg)|
 202212131500|GranParadiso100th|アグネル湖とセル湖, イタリア (© agustavop/Getty Images)|イタリア アグネル湖とセル湖|![](/ja-JP/2022/12/202212131500GranParadiso100th.jpg)|
+202212141500|Borovets|ボロヴェッツ スキーリゾート, ブルガリア (© Grigor Ivanov/Cavan Images)|ボロヴェッツの森|![](/ja-JP/2022/12/202212141500Borovets.jpg)|
