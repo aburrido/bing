@@ -15,3 +15,4 @@
 202212120800|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Info|![](/en-AU/2022/12/202212120800PoinsettiaDay.jpg)|
 ||||![](/en-AU/2022/12/.jpg)|
 202212130800|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|Info|![](/en-AU/2022/12/202212130800InstagramHallstatt.jpg)|
+202212140800|GranParadiso100th|Gran Paradiso National Park, Italy (© agustavop/Getty Images)|Info|![](/en-AU/2022/12/202212140800GranParadiso100th.jpg)|

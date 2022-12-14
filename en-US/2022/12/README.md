@@ -15,3 +15,4 @@
 202212120800|PoinsettiaDay|Poinsettia plants (© Elizabeth Fernandez/Getty Images)|Holiday hues|![](/en-US/2022/12/202212120800PoinsettiaDay.jpg)|
 ||||![](/en-US/2022/12/.jpg)|
 202212130800|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice they made it twice|![](/en-US/2022/12/202212130800InstagramHallstatt.jpg)|
+202212140800|GildedFlicker|Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)|Counting crows...and every other bird|![](/en-US/2022/12/202212140800GildedFlicker.jpg)|
