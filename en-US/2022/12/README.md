@@ -16,3 +16,4 @@
 ||||![](/en-US/2022/12/.jpg)|
 202212130800|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice they made it twice|![](/en-US/2022/12/202212130800InstagramHallstatt.jpg)|
 202212140800|GildedFlicker|Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)|Counting crows...and every other bird|![](/en-US/2022/12/202212140800GildedFlicker.jpg)|
+202212150800|Borovets|Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)|Winter wonderland for your wallet|![](/en-US/2022/12/202212150800Borovets.jpg)|
