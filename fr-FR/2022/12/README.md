@@ -16,3 +16,4 @@
 202212122300|MorzineAvoriaz|Avoriaz et le Roc d’Enfer en arrière-plan (© Jacques Pierre/Hemis/Almy Stock Photo)|Les joies de l'hiver|![](/fr-FR/2022/12/202212122300MorzineAvoriaz.jpg)|
 202212132300|GranParadiso100th|Le lac Agnel et le lac Serrù, parc national du Grand-Paradis, Italie (© agustavop/Getty Images)|Grand espace italien|![](/fr-FR/2022/12/202212132300GranParadiso100th.jpg)|
 202212142300|Borovets|Borovets, Bulgarie (© Grigor Ivanov/Cavan Images)|Du ski à petits prix|![](/fr-FR/2022/12/202212142300Borovets.jpg)|
+202212152300|AtlantaLights|Le Jardin botanique d’Atlanta illuminé pour les fêtes de fin d’année, Géorgie, États-Unis (© Natalia Kuzmina/Alamy)|Drôles de sapins !|![](/fr-FR/2022/12/202212152300AtlantaLights.jpg)|
