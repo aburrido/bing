@@ -16,3 +16,4 @@
 202212121830|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice they made it twice|![](/en-IN/2022/12/202212121830InstagramHallstatt.jpg)|
 202212131830|BambooTreesIndiaa|Bamboo trees in Guwahati, Assam, India (© Page bazar/500px/Getty Images)|A plant for all occasions|![](/en-IN/2022/12/202212131830BambooTreesIndiaa.jpg)|
 202212141830|Borovets|Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)|Winter wonderland for your wallet|![](/en-IN/2022/12/202212141830Borovets.jpg)|
+202212151830|AtlantaLights|Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)|Let there be lights!|![](/en-IN/2022/12/202212151830AtlantaLights.jpg)|
