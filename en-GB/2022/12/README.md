@@ -15,3 +15,4 @@
 ||||![](/en-GB/2022/12/.jpg)|
 202212130000|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|So nice, they made it twice|![](/en-GB/2022/12/202212130000InstagramHallstatt.jpg)|
 202212140000|BackTor|Back Tor on a foggy morning, Great Ridge, Derbyshire. (© John Finney Photography/Getty Images)|On the edge|![](/en-GB/2022/12/202212140000BackTor.jpg)|
+202212150000|Borovets|Borovets mountain resort, Bulgaria (© Grigor Ivanov/Cavan Images)|Beautiful Borovets|![](/en-GB/2022/12/202212150000Borovets.jpg)|
