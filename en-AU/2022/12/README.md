@@ -17,3 +17,4 @@
 202212130800|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|Info|![](/en-AU/2022/12/202212130800InstagramHallstatt.jpg)|
 202212140800|GranParadiso100th|Gran Paradiso National Park, Italy (© agustavop/Getty Images)|Info|![](/en-AU/2022/12/202212140800GranParadiso100th.jpg)|
 202212150800|Borovets|Borovets ski resort, Bulgaria (© Grigor Ivanov/Cavan Images)|Info|![](/en-AU/2022/12/202212150800Borovets.jpg)|
+202212160800|DudhsagarFallsGoa|Dudhsagar Falls, Goa, India (© Lucky-photographer/Getty Images)|Info|![](/en-AU/2022/12/202212160800DudhsagarFallsGoa.jpg)|
