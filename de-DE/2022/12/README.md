@@ -17,3 +17,4 @@
 202212132300|TangleCreekFalls|Tangle Creek Falls im Jasper-Nationalpark, Alberta, Kanada (© Jeff Foott/Minden Pictures)|Abfluss der Rocky Mountains|![](/de-DE/2022/12/202212132300TangleCreekFalls.jpg)|
 202212142300|Borovets|Borowez, Bulgarien (© Grigor Ivanov/Cavan Images)|Winterwunderland für Ihren Geldbeutel|![](/de-DE/2022/12/202212142300Borovets.jpg)|
 202212152300|AtlantaLights|Weihnachtsbeleuchtung im Atlanta Botanical Garden in Georgia, USA (© Natalia Kuzmina/Alamy)|Es werde Licht!|![](/de-DE/2022/12/202212152300AtlantaLights.jpg)|
+202212162300|GlacierGoats|Schneeziegen im Glacier-Nationalpark, Montana, USA (© Sumio Harada/Minden Pictures)|Kuschelige Kletterkünstler|![](/de-DE/2022/12/202212162300GlacierGoats.jpg)|
