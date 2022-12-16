@@ -18,3 +18,4 @@
 202212131600|GranParadiso100th|大帕拉迪索国家公园，意大利 (© agustavop/Getty Images)|意大利最古老的国家公园|![](/zh-CN/2022/12/202212131600GranParadiso100th.jpg)|
 202212141600|Borovets|博罗韦茨，保加利亚 (© Grigor Ivanov/Cavan Images)|冬季仙境|![](/zh-CN/2022/12/202212141600Borovets.jpg)|
 202212151600|DudhsagarFallsGoa|杜德萨加尔瀑布，印度果阿 (© Lucky-photographer/Getty Images)|令人难忘的景色|![](/zh-CN/2022/12/202212151600DudhsagarFallsGoa.jpg)|
+202212161600|GlacierGoats|冰川国家公园的山羊，美国蒙大拿州 (© Sumio Harada/Minden Pictures)|它们对你也同样好奇|![](/zh-CN/2022/12/202212161600GlacierGoats.jpg)|
