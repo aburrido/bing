@@ -17,3 +17,4 @@
 202212130500|InstagramHallstatt|Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)|A city so nice, they made it twice|![](/en-CA/2022/12/202212130500InstagramHallstatt.jpg)|
 202212140500|ButchartDisplay|The 12 Days of Christmas display at Butchart Gardens, Vancouver, B.C. (© Michael Wheatley/Alamy Stock Photo)|Festive foliage in the garden|![](/en-CA/2022/12/202212140500ButchartDisplay.jpg)|
 202212150500|Borovets|Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)|Winter wonderland for your wallet|![](/en-CA/2022/12/202212150500Borovets.jpg)|
+202212160500|AtlantaLights|Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)|Let there be lights!|![](/en-CA/2022/12/202212160500AtlantaLights.jpg)|
