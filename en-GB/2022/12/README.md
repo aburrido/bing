@@ -17,3 +17,4 @@
 202212140000|BackTor|Back Tor on a foggy morning, Great Ridge, Derbyshire. (© John Finney Photography/Getty Images)|On the edge|![](/en-GB/2022/12/202212140000BackTor.jpg)|
 202212150000|Borovets|Borovets mountain resort, Bulgaria (© Grigor Ivanov/Cavan Images)|Beautiful Borovets|![](/en-GB/2022/12/202212150000Borovets.jpg)|
 202212160000|LudlowLights|Christmas Lights, Ludlow, Shropshire (© Joe Daniel Price/Getty Images)|Ludlow aglow|![](/en-GB/2022/12/202212160000LudlowLights.jpg)|
+202212170000|GlacierGoats|Mountain goats at Glacier National Park in Montana, USA (© Sumio Harada/Minden Pictures)|Sociable climbers|![](/en-GB/2022/12/202212170000GlacierGoats.jpg)|
