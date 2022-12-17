@@ -18,3 +18,4 @@
 202212140800|GranParadiso100th|Gran Paradiso National Park, Italy (© agustavop/Getty Images)|Info|![](/en-AU/2022/12/202212140800GranParadiso100th.jpg)|
 202212150800|Borovets|Borovets ski resort, Bulgaria (© Grigor Ivanov/Cavan Images)|Info|![](/en-AU/2022/12/202212150800Borovets.jpg)|
 202212160800|DudhsagarFallsGoa|Dudhsagar Falls, Goa, India (© Lucky-photographer/Getty Images)|Info|![](/en-AU/2022/12/202212160800DudhsagarFallsGoa.jpg)|
+202212170800|GlacierGoats|Mountain goats, Glacier National Park, Montana, USA (© Sumio Harada/Minden Pictures)|Info|![](/en-AU/2022/12/202212170800GlacierGoats.jpg)|

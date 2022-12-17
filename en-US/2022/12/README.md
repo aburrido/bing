@@ -18,3 +18,4 @@
 202212140800|GildedFlicker|Great horned owls and a gilded flicker on a saguaro cactus in the Sonoran Desert, Arizona (© John Cancalosi/Minden Pictures)|Counting crows...and every other bird|![](/en-US/2022/12/202212140800GildedFlicker.jpg)|
 202212150800|Borovets|Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)|Winter wonderland for your wallet|![](/en-US/2022/12/202212150800Borovets.jpg)|
 202212160800|AtlantaLights|Holiday lights in the Atlanta Botanical Garden, Georgia (© Natalia Kuzmina/Alamy)|Let there be lights!|![](/en-US/2022/12/202212160800AtlantaLights.jpg)|
+202212170800|GlacierGoats|Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)|As curious about you as you are about them|![](/en-US/2022/12/202212170800GlacierGoats.jpg)|
