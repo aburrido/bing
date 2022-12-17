@@ -18,3 +18,4 @@
 202212142300|Borovets|Borovets, Bulgarie (© Grigor Ivanov/Cavan Images)|Du ski à petits prix|![](/fr-FR/2022/12/202212142300Borovets.jpg)|
 202212152300|AtlantaLights|Le Jardin botanique d’Atlanta illuminé pour les fêtes de fin d’année, Géorgie, États-Unis (© Natalia Kuzmina/Alamy)|Drôles de sapins !|![](/fr-FR/2022/12/202212152300AtlantaLights.jpg)|
 202212162300|GlacierGoats|Chèvres des montagnes rocheuses dans le parc national de Glacier, Montana, États-Unis (© Sumio Harada/Minden Pictures)|Se rendre chèvre|![](/fr-FR/2022/12/202212162300GlacierGoats.jpg)|
+202212172300|SnoeySavoie|Chute de neige sur La Clusaz, Les Alpes, Janvier 2018 (© Christoph Suarez/Biosphoto/Alamy Photostock)|Destination neige|![](/fr-FR/2022/12/202212172300SnoeySavoie.jpg)|

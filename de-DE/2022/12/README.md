@@ -18,3 +18,4 @@
 202212142300|Borovets|Borowez, Bulgarien (© Grigor Ivanov/Cavan Images)|Winterwunderland für Ihren Geldbeutel|![](/de-DE/2022/12/202212142300Borovets.jpg)|
 202212152300|AtlantaLights|Weihnachtsbeleuchtung im Atlanta Botanical Garden in Georgia, USA (© Natalia Kuzmina/Alamy)|Es werde Licht!|![](/de-DE/2022/12/202212152300AtlantaLights.jpg)|
 202212162300|GlacierGoats|Schneeziegen im Glacier-Nationalpark, Montana, USA (© Sumio Harada/Minden Pictures)|Kuschelige Kletterkünstler|![](/de-DE/2022/12/202212162300GlacierGoats.jpg)|
+202212172300|BlueLagoon|Thermalfreibad Blaue Lagune (Bláa Lónið), Grindavík, Island (© Westend61/Getty Images)|Die Heilkraft des Abwassers|![](/de-DE/2022/12/202212172300BlueLagoon.jpg)|
