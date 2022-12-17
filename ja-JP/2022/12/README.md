@@ -18,3 +18,4 @@
 202212141500|Borovets|ボロヴェッツ スキーリゾート, ブルガリア (© Grigor Ivanov/Cavan Images)|ボロヴェッツの森|![](/ja-JP/2022/12/202212141500Borovets.jpg)|
 202212151500|AtlantaLights|アトランタ ボタニカル ガーデン, 米国 ジョージア州 (© Natalia Kuzmina/Alamy)|アトランタ ボタニカル ガーデン|![](/ja-JP/2022/12/202212151500AtlantaLights.jpg)|
 202212161500|GlacierGoats|シロイワヤギ, 米国 モンタナ州 (© Sumio Harada/Minden Pictures)|シロイワヤギ|![](/ja-JP/2022/12/202212161500GlacierGoats.jpg)|
+202212171500|SouthBeach|マイアミ サウス・ビーチ, 米国 フロリダ州 (© Claudia Uripos/eStock Photo)|マイアミ サウス・ビーチ|![](/ja-JP/2022/12/202212171500SouthBeach.jpg)|
