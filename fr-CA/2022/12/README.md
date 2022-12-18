@@ -19,3 +19,4 @@
 202212150500|Borovets|Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)|Information|![](/fr-CA/2022/12/202212150500Borovets.jpg)|
 202212160500|AtlantaLights|Le Jardin botanique d’Atlanta illuminé pour les fêtes de fin d’année, Géorgie, États-Unis (© Natalia Kuzmina/Alamy)|Information|![](/fr-CA/2022/12/202212160500AtlantaLights.jpg)|
 202212170500|GlacierGoats|Chèvres des montagnes rocheuses dans le parc national de Glacier, Montana, États-Unis (© Sumio Harada/Minden Pictures)|Information|![](/fr-CA/2022/12/202212170500GlacierGoats.jpg)|
+202212180500|SouthBeach|South Beach, Miami, Floride, États-Unis (© Claudia Uripos/eStock Photo)|Information|![](/fr-CA/2022/12/202212180500SouthBeach.jpg)|

@@ -19,3 +19,4 @@
 202212150500|Borovets|Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)|Winter wonderland for your wallet|![](/en-CA/2022/12/202212150500Borovets.jpg)|
 202212160500|AtlantaLights|Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)|Let there be lights!|![](/en-CA/2022/12/202212160500AtlantaLights.jpg)|
 202212170500|GlacierGoats|Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)|As curious about you as you are about them|![](/en-CA/2022/12/202212170500GlacierGoats.jpg)|
+202212180500|SouthBeach|South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)|Gateway to Latin America|![](/en-CA/2022/12/202212180500SouthBeach.jpg)|
