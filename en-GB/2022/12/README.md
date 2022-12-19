@@ -19,3 +19,4 @@
 202212160000|LudlowLights|Christmas Lights, Ludlow, Shropshire (© Joe Daniel Price/Getty Images)|Ludlow aglow|![](/en-GB/2022/12/202212160000LudlowLights.jpg)|
 202212170000|GlacierGoats|Mountain goats at Glacier National Park in Montana, USA (© Sumio Harada/Minden Pictures)|Sociable climbers|![](/en-GB/2022/12/202212170000GlacierGoats.jpg)|
 202212180000|SanMartinoVillage|Village of Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)|Shining city on the hill|![](/en-GB/2022/12/202212180000SanMartinoVillage.jpg)|
+202212190000|WinterberryBush|A northern cardinal perched in a common winterberry bush in Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)|A berry merry Christmas|![](/en-GB/2022/12/202212190000WinterberryBush.jpg)|
