@@ -20,3 +20,4 @@
 202212162300|GlacierGoats|Schneeziegen im Glacier-Nationalpark, Montana, USA (© Sumio Harada/Minden Pictures)|Kuschelige Kletterkünstler|![](/de-DE/2022/12/202212162300GlacierGoats.jpg)|
 202212172300|BlueLagoon|Thermalfreibad Blaue Lagune (Bláa Lónið), Grindavík, Island (© Westend61/Getty Images)|Die Heilkraft des Abwassers|![](/de-DE/2022/12/202212172300BlueLagoon.jpg)|
 202212182300|WinterberryBush|Ein Rotkardinal in einem Winterbeerenstrauch, Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)|Farbtupfen in der Winterlandschaft|![](/de-DE/2022/12/202212182300WinterberryBush.jpg)|
+202212192300|PalaceBelvedere|Weihnachtsmarkt am Schloss Belvedere, Wien, Österreich (© Diyana Dimitrova/Alamy)|Barocker Weihnachtszauber in Wien|![](/de-DE/2022/12/202212192300PalaceBelvedere.jpg)|
