@@ -21,3 +21,4 @@
 202212161600|GlacierGoats|冰川国家公园的山羊，美国蒙大拿州 (© Sumio Harada/Minden Pictures)|它们对你也同样好奇|![](/zh-CN/2022/12/202212161600GlacierGoats.jpg)|
 202212171600|SouthBeach|迈阿密南海滩，美国佛罗里达州 (© Claudia Uripos/eStock Photo)|通往拉丁美洲的门户|![](/zh-CN/2022/12/202212171600SouthBeach.jpg)|
 202212181600|WinterberryBush|栖息在北美冬青上的北美红雀，美国伊利诺伊州 (© Richard and Susan Day/Danita Delimont)|一抹鲜艳的色彩|![](/zh-CN/2022/12/202212181600WinterberryBush.jpg)|
+202212191600|PalaceBelvedere|维也纳美景宫的圣诞市场，奥地利 (© Diyana Dimitrova/Alamy)|圣诞节的倒影|![](/zh-CN/2022/12/202212191600PalaceBelvedere.jpg)|
