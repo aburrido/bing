@@ -20,3 +20,4 @@
 202212161500|GlacierGoats|シロイワヤギ, 米国 モンタナ州 (© Sumio Harada/Minden Pictures)|シロイワヤギ|![](/ja-JP/2022/12/202212161500GlacierGoats.jpg)|
 202212171500|SouthBeach|マイアミ サウス・ビーチ, 米国 フロリダ州 (© Claudia Uripos/eStock Photo)|マイアミ サウス・ビーチ|![](/ja-JP/2022/12/202212171500SouthBeach.jpg)|
 202212181500|WinterberryBush|ショウジョウコウカンチョウ, 米国 イリノイ州 (© Richard and Susan Day/Danita Delimont)|ショウジョウコウカンチョウ|![](/ja-JP/2022/12/202212181500WinterberryBush.jpg)|
+202212191500|PalaceBelvedere|ベルヴェデーレ宮殿, オーストリア ウィーン (© Diyana Dimitrova/Alamy)|ベルヴェデーレ宮殿|![](/ja-JP/2022/12/202212191500PalaceBelvedere.jpg)|
