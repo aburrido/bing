@@ -20,3 +20,4 @@
 202212161830|GlacierGoats|Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)|As curious about you as you are about them|![](/en-IN/2022/12/202212161830GlacierGoats.jpg)|
 202212171830|SouthBeach|South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)|Gateway to Latin America|![](/en-IN/2022/12/202212171830SouthBeach.jpg)|
 202212181830|DudhsagarFallsGoa|Dudhsagar Falls, Goa, India (© Lucky-photographer/Getty Images)|Heaven meets Earth!|![](/en-IN/2022/12/202212181830DudhsagarFallsGoa.jpg)|
+202212191830|PalaceBelvedere|Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)|Reflecting on Christmas|![](/en-IN/2022/12/202212191830PalaceBelvedere.jpg)|
