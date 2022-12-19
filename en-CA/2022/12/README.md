@@ -20,3 +20,4 @@
 202212160500|AtlantaLights|Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)|Let there be lights!|![](/en-CA/2022/12/202212160500AtlantaLights.jpg)|
 202212170500|GlacierGoats|Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)|As curious about you as you are about them|![](/en-CA/2022/12/202212170500GlacierGoats.jpg)|
 202212180500|SouthBeach|South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)|Gateway to Latin America|![](/en-CA/2022/12/202212180500SouthBeach.jpg)|
+202212190500|WinterberryBush|A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)|Reddy for winter|![](/en-CA/2022/12/202212190500WinterberryBush.jpg)|
