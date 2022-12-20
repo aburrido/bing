@@ -21,3 +21,4 @@
 202212170800|GlacierGoats|Mountain goats, Glacier National Park, Montana, USA (© Sumio Harada/Minden Pictures)|Info|![](/en-AU/2022/12/202212170800GlacierGoats.jpg)|
 202212180800|SouthBeach|South Beach, Miami, Florida, USA (© Claudia Uripos/eStock Photo)|Info|![](/en-AU/2022/12/202212180800SouthBeach.jpg)|
 202212190800|WinterberryBush|Northern cardinal, Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)|Info|![](/en-AU/2022/12/202212190800WinterberryBush.jpg)|
+202212200800|PalaceBelvedere|Belvedere, Vienna, Austria (© Diyana Dimitrova/Alamy)|Info|![](/en-AU/2022/12/202212200800PalaceBelvedere.jpg)|
