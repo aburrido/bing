@@ -21,3 +21,4 @@
 202212172300|BlueLagoon|Thermalfreibad Blaue Lagune (Bláa Lónið), Grindavík, Island (© Westend61/Getty Images)|Die Heilkraft des Abwassers|![](/de-DE/2022/12/202212172300BlueLagoon.jpg)|
 202212182300|WinterberryBush|Ein Rotkardinal in einem Winterbeerenstrauch, Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)|Farbtupfen in der Winterlandschaft|![](/de-DE/2022/12/202212182300WinterberryBush.jpg)|
 202212192300|PalaceBelvedere|Weihnachtsmarkt am Schloss Belvedere, Wien, Österreich (© Diyana Dimitrova/Alamy)|Barocker Weihnachtszauber in Wien|![](/de-DE/2022/12/202212192300PalaceBelvedere.jpg)|
+202212202300|SolarHalo|Halo über dem Antermoiasee, Trentino, Dolomiten, Italien (© Walter Donega/Getty Images)|Himmlischer Regenbogen|![](/de-DE/2022/12/202212202300SolarHalo.jpg)|
