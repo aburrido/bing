@@ -21,3 +21,4 @@
 202212170500|GlacierGoats|Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)|As curious about you as you are about them|![](/en-CA/2022/12/202212170500GlacierGoats.jpg)|
 202212180500|SouthBeach|South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)|Gateway to Latin America|![](/en-CA/2022/12/202212180500SouthBeach.jpg)|
 202212190500|WinterberryBush|A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)|Reddy for winter|![](/en-CA/2022/12/202212190500WinterberryBush.jpg)|
+202212200500|PalaceBelvedere|Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)|Reflecting on Christmas|![](/en-CA/2022/12/202212200500PalaceBelvedere.jpg)|

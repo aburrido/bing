@@ -21,3 +21,4 @@
 202212170500|GlacierGoats|Chèvres des montagnes rocheuses dans le parc national de Glacier, Montana, États-Unis (© Sumio Harada/Minden Pictures)|Information|![](/fr-CA/2022/12/202212170500GlacierGoats.jpg)|
 202212180500|SouthBeach|South Beach, Miami, Floride, États-Unis (© Claudia Uripos/eStock Photo)|Information|![](/fr-CA/2022/12/202212180500SouthBeach.jpg)|
 202212190500|WinterberryBush|Un cardinal nordique perché dans un buisson d’hiver commun dans le comté de Marion, Illinois (© Richard and Susan Day/Danita Delimont)|Information|![](/fr-CA/2022/12/202212190500WinterberryBush.jpg)|
+202212200500|PalaceBelvedere|Le marché de Noël devant le palais du Belvédère à Vienne, Autriche (© Diyana Dimitrova/Alamy)|Information|![](/fr-CA/2022/12/202212200500PalaceBelvedere.jpg)|
