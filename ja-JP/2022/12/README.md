@@ -22,3 +22,4 @@
 202212181500|WinterberryBush|ショウジョウコウカンチョウ, 米国 イリノイ州 (© Richard and Susan Day/Danita Delimont)|ショウジョウコウカンチョウ|![](/ja-JP/2022/12/202212181500WinterberryBush.jpg)|
 202212191500|PalaceBelvedere|ベルヴェデーレ宮殿, オーストリア ウィーン (© Diyana Dimitrova/Alamy)|ベルヴェデーレ宮殿|![](/ja-JP/2022/12/202212191500PalaceBelvedere.jpg)|
 202212201500|TreeGaleriesLafayette|ギャラリー・ラファイエットのクリスマスツリー, フランス (© Geoffroy Van der Hasselt/AFP via Getty Images)|ギャラリー・ラファイエットのクリスマスツリー|![](/ja-JP/2022/12/202212201500TreeGaleriesLafayette.jpg)|
+202212211500|SolarHalo|アンテルモイア湖上空の日暈, イタリア (© Walter Donega/Getty Images)|今日は「冬至」|![](/ja-JP/2022/12/202212211500SolarHalo.jpg)|
