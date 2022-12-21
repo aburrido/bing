@@ -22,3 +22,4 @@
 202212180500|SouthBeach|South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)|Gateway to Latin America|![](/en-CA/2022/12/202212180500SouthBeach.jpg)|
 202212190500|WinterberryBush|A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)|Reddy for winter|![](/en-CA/2022/12/202212190500WinterberryBush.jpg)|
 202212200500|PalaceBelvedere|Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)|Reflecting on Christmas|![](/en-CA/2022/12/202212200500PalaceBelvedere.jpg)|
+202212210500|SolarHalo|Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)|Rainbow around the sun|![](/en-CA/2022/12/202212210500SolarHalo.jpg)|
