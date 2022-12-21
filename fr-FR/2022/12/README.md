@@ -22,3 +22,4 @@
 202212182300|AnnecyXmas|Annecy pendant les fêtes (© Sabine Klein/Alamy Stock Photo)|La Venise des Alpes|![](/fr-FR/2022/12/202212182300AnnecyXmas.jpg)|
 202212192300|PalaceBelvedere|Le marché de Noël devant le palais du Belvédère à Vienne, Autriche (© Diyana Dimitrova/Alamy)|Noël à Vienne|![](/fr-FR/2022/12/202212192300PalaceBelvedere.jpg)|
 202212202300|SolarHalo|Halo solaire au-dessus du lac d’Antermoia dans les Dolomites, Italie (© Walter Donega/Getty Images)|Lumière divine|![](/fr-FR/2022/12/202212202300SolarHalo.jpg)|
+202212212300|TreeGaleriesLafayette|Le sapin des Galeries Lafayette à Paris (© Geoffroy Van der Hasselt/AFP via Getty Images)|Le temple du shopping|![](/fr-FR/2022/12/202212212300TreeGaleriesLafayette.jpg)|
