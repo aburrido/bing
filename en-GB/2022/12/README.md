@@ -22,3 +22,4 @@
 202212190000|WinterberryBush|A northern cardinal perched in a common winterberry bush in Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)|A berry merry Christmas|![](/en-GB/2022/12/202212190000WinterberryBush.jpg)|
 202212200000|PalaceBelvedere|Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)|Reflecting on Christmas|![](/en-GB/2022/12/202212200000PalaceBelvedere.jpg)|
 202212210000|SolarHalo|Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)|Rainbow around the Sun|![](/en-GB/2022/12/202212210000SolarHalo.jpg)|
+202212220000|TreeGaleriesLafayette|Christmas tree at the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)|Season of light in the City of Light|![](/en-GB/2022/12/202212220000TreeGaleriesLafayette.jpg)|
