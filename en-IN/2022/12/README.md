@@ -23,3 +23,4 @@
 202212191830|PalaceBelvedere|Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)|Reflecting on Christmas|![](/en-IN/2022/12/202212191830PalaceBelvedere.jpg)|
 202212201830|SolarHalo|Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)|Rainbow around the sun|![](/en-IN/2022/12/202212201830SolarHalo.jpg)|
 202212211830|TreeGaleriesLafayette|Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)|Season of light in the City of Light|![](/en-IN/2022/12/202212211830TreeGaleriesLafayette.jpg)|
+202212221830|GentooGrievances|Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)|'I've got a lot of problems with you penguins!'|![](/en-IN/2022/12/202212221830GentooGrievances.jpg)|
