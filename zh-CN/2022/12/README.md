@@ -24,3 +24,4 @@
 202212191600|PalaceBelvedere|维也纳美景宫的圣诞市场，奥地利 (© Diyana Dimitrova/Alamy)|圣诞节的倒影|![](/zh-CN/2022/12/202212191600PalaceBelvedere.jpg)|
 202212201600|SolarHalo|多洛米蒂山脉安特莫亚湖上的日晕，意大利 (© Walter Donega/Getty Images)|环绕太阳的彩虹|![](/zh-CN/2022/12/202212201600SolarHalo.jpg)|
 202212211600|AnnecyXmas|安纳西，法国上瓦萨省 (© Sabine Klein/Alamy)|法国阿尔卑斯山的明珠|![](/zh-CN/2022/12/202212211600AnnecyXmas.jpg)|
+202212221600|GentooGrievances|南极洲的巴布亚企鹅 (© Nature Picture Library/Alamy)|南极洲的巴布亚企鹅|![](/zh-CN/2022/12/202212221600GentooGrievances.jpg)|
