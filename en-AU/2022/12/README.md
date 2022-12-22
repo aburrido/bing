@@ -23,3 +23,4 @@
 202212190800|WinterberryBush|Northern cardinal, Marion County, Illinois, USA (© Richard and Susan Day/Danita Delimont)|Info|![](/en-AU/2022/12/202212190800WinterberryBush.jpg)|
 202212200800|PalaceBelvedere|Belvedere, Vienna, Austria (© Diyana Dimitrova/Alamy)|Info|![](/en-AU/2022/12/202212200800PalaceBelvedere.jpg)|
 202212210800|SolarHalo|Sun halo, Lake Antermoia, Dolomite mountains, Italy (© Walter Donega/Getty Images)|Info|![](/en-AU/2022/12/202212210800SolarHalo.jpg)|
+202212220800|AnnecyXmas|Annecy, Haute-Savoie, France (© Sabine Klein/Alamy)|Info|![](/en-AU/2022/12/202212220800AnnecyXmas.jpg)|
