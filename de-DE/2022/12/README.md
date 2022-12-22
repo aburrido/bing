@@ -23,3 +23,4 @@
 202212192300|PalaceBelvedere|Weihnachtsmarkt am Schloss Belvedere, Wien, Österreich (© Diyana Dimitrova/Alamy)|Barocker Weihnachtszauber in Wien|![](/de-DE/2022/12/202212192300PalaceBelvedere.jpg)|
 202212202300|SolarHalo|Halo über dem Antermoiasee, Trentino, Dolomiten, Italien (© Walter Donega/Getty Images)|Himmlischer Regenbogen|![](/de-DE/2022/12/202212202300SolarHalo.jpg)|
 202212212300|TreeGaleriesLafayette|Weihnachtsbaum im Kaufhaus Galeries Lafayette in Paris, Frankreich (© Geoffroy Van der Hasselt/AFP via Getty Images)|Weihnachtslichter in der Stadt des Lichts|![](/de-DE/2022/12/202212212300TreeGaleriesLafayette.jpg)|
+202212222300|GentooGrievances|Eselspinguine in der Antarktis (© Nature Picture Library/Alamy)|Warten auf Weihnachten|![](/de-DE/2022/12/202212222300GentooGrievances.jpg)|
