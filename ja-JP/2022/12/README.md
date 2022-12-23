@@ -24,3 +24,4 @@
 202212201500|TreeGaleriesLafayette|ギャラリー・ラファイエットのクリスマスツリー, フランス (© Geoffroy Van der Hasselt/AFP via Getty Images)|ギャラリー・ラファイエットのクリスマスツリー|![](/ja-JP/2022/12/202212201500TreeGaleriesLafayette.jpg)|
 202212211500|SolarHalo|アンテルモイア湖上空の日暈, イタリア (© Walter Donega/Getty Images)|今日は「冬至」|![](/ja-JP/2022/12/202212211500SolarHalo.jpg)|
 202212221500|Enoshima|湘南の宝石, 神奈川 (© kittikun thienthong/Shutterstock)|湘南の宝石|![](/ja-JP/2022/12/202212221500Enoshima.jpg)|
+202212231500|AmalgaTree|アマルガ港のクリスマスツリー, 米国 アラスカ (© Mark Kelley/Tandem Stills + Motion)|アラスカ アマルガ港のクリスマスツリー|![](/ja-JP/2022/12/202212231500AmalgaTree.jpg)|
