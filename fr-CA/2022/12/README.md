@@ -24,3 +24,4 @@
 202212200500|PalaceBelvedere|Le marché de Noël devant le palais du Belvédère à Vienne, Autriche (© Diyana Dimitrova/Alamy)|Information|![](/fr-CA/2022/12/202212200500PalaceBelvedere.jpg)|
 202212210500|SolarHalo|Halo solaire au-dessus du lac Antermoia dans les Dolomites d’Italie (© Walter Donega/Getty Images)|Information|![](/fr-CA/2022/12/202212210500SolarHalo.jpg)|
 202212220500|TreeGaleriesLafayette|Le sapin des Galeries Lafayette à Paris (© Geoffroy Van der Hasselt/AFP via Getty Images)|Information|![](/fr-CA/2022/12/202212220500TreeGaleriesLafayette.jpg)|
+202212230500|GentooGrievances|Manchots papou en Antarctique (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/12/202212230500GentooGrievances.jpg)|
