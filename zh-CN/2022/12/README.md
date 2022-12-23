@@ -25,3 +25,4 @@
 202212201600|SolarHalo|多洛米蒂山脉安特莫亚湖上的日晕，意大利 (© Walter Donega/Getty Images)|环绕太阳的彩虹|![](/zh-CN/2022/12/202212201600SolarHalo.jpg)|
 202212211600|AnnecyXmas|安纳西，法国上瓦萨省 (© Sabine Klein/Alamy)|法国阿尔卑斯山的明珠|![](/zh-CN/2022/12/202212211600AnnecyXmas.jpg)|
 202212221600|GentooGrievances|南极洲的巴布亚企鹅 (© Nature Picture Library/Alamy)|南极洲的巴布亚企鹅|![](/zh-CN/2022/12/202212221600GentooGrievances.jpg)|
+202212231600|RoeTrentinoSnow|狍子，特伦蒂诺-上阿迪杰大区，意大利 (© Federica Cattaruzzi/eStock)|冰天雪地里的小可爱|![](/zh-CN/2022/12/202212231600RoeTrentinoSnow.jpg)|
