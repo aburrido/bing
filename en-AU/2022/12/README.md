@@ -24,3 +24,4 @@
 202212200800|PalaceBelvedere|Belvedere, Vienna, Austria (© Diyana Dimitrova/Alamy)|Info|![](/en-AU/2022/12/202212200800PalaceBelvedere.jpg)|
 202212210800|SolarHalo|Sun halo, Lake Antermoia, Dolomite mountains, Italy (© Walter Donega/Getty Images)|Info|![](/en-AU/2022/12/202212210800SolarHalo.jpg)|
 202212220800|AnnecyXmas|Annecy, Haute-Savoie, France (© Sabine Klein/Alamy)|Info|![](/en-AU/2022/12/202212220800AnnecyXmas.jpg)|
+202212230800|GentooGrievances|Gentoo penguins, Antarctica (© Nature Picture Library/Alamy)|Info|![](/en-AU/2022/12/202212230800GentooGrievances.jpg)|
