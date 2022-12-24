@@ -25,3 +25,4 @@
 202212210500|SolarHalo|Halo solaire au-dessus du lac Antermoia dans les Dolomites d’Italie (© Walter Donega/Getty Images)|Information|![](/fr-CA/2022/12/202212210500SolarHalo.jpg)|
 202212220500|TreeGaleriesLafayette|Le sapin des Galeries Lafayette à Paris (© Geoffroy Van der Hasselt/AFP via Getty Images)|Information|![](/fr-CA/2022/12/202212220500TreeGaleriesLafayette.jpg)|
 202212230500|GentooGrievances|Manchots papou en Antarctique (© Nature Picture Library/Alamy)|Information|![](/fr-CA/2022/12/202212230500GentooGrievances.jpg)|
+202212240500|AmalgaTree|Port d’Amalga, Alaska, États-Unis (© Mark Kelley/Tandem Stills + Motion)|Information|![](/fr-CA/2022/12/202212240500AmalgaTree.jpg)|
