@@ -25,3 +25,4 @@
 202212212300|TreeGaleriesLafayette|Weihnachtsbaum im Kaufhaus Galeries Lafayette in Paris, Frankreich (© Geoffroy Van der Hasselt/AFP via Getty Images)|Weihnachtslichter in der Stadt des Lichts|![](/de-DE/2022/12/202212212300TreeGaleriesLafayette.jpg)|
 202212222300|GentooGrievances|Eselspinguine in der Antarktis (© Nature Picture Library/Alamy)|Warten auf Weihnachten|![](/de-DE/2022/12/202212222300GentooGrievances.jpg)|
 202212232300|WeihnachtenWatzmann|Weihnachtsbaum bei Berchtesgaden mit dem Watzmann im Hintergrund, Bayern (© Günter Gräfenhain/eStock Photo)|Frohes Fest!|![](/de-DE/2022/12/202212232300WeihnachtenWatzmann.jpg)|
+202212242300|ChristmasSouvenir|Mini-Weihnachtsdorf in Straßburg, Frankreich (© Kavalenkava Volha/Alamy)|Fröhliche Weihnachten|![](/de-DE/2022/12/202212242300ChristmasSouvenir.jpg)|
