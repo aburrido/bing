@@ -26,3 +26,4 @@
 202212221500|Enoshima|湘南の宝石, 神奈川 (© kittikun thienthong/Shutterstock)|湘南の宝石|![](/ja-JP/2022/12/202212221500Enoshima.jpg)|
 202212231500|AmalgaTree|アマルガ港のクリスマスツリー, 米国 アラスカ (© Mark Kelley/Tandem Stills + Motion)|アラスカ アマルガ港のクリスマスツリー|![](/ja-JP/2022/12/202212231500AmalgaTree.jpg)|
 202212241500|ChristmasSouvenir|ストラスブールのクリスマス, フランス (© Kavalenkava Volha/Alamy)|ストラスブール|![](/ja-JP/2022/12/202212241500ChristmasSouvenir.jpg)|
+202212251500|BeverleyWestwood|ビバリー・ウェストウッドのブラックミル, 英国 (© Les Gibbon/Alamy)|今日は「ボクシング・デー」|![](/ja-JP/2022/12/202212251500BeverleyWestwood.jpg)|
