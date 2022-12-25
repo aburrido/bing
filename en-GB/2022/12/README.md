@@ -25,3 +25,4 @@
 202212220000|TreeGaleriesLafayette|Christmas tree at the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)|Season of light in the City of Light|![](/en-GB/2022/12/202212220000TreeGaleriesLafayette.jpg)|
 202212230000|GlosCathedral|Christmas decorations in the medieval cloister at Gloucester Cathedral (© PJ Photography/Shutterstock)|Christmas in the cloister|![](/en-GB/2022/12/202212230000GlosCathedral.jpg)|
 202212240000|AmalgaTree|Amalga Harbour, Alaska, USA (© Mark Kelley/Tandem Stills + Motion)|All is calm|![](/en-GB/2022/12/202212240000AmalgaTree.jpg)|
+202212250000|ChristmasSouvenir|Miniature Christmas village in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-GB/2022/12/202212250000ChristmasSouvenir.jpg)|
