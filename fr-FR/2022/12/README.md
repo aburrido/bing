@@ -26,3 +26,4 @@
 202212222300|GentooGrievances|Manchots papou en Antarctique  (© Nature Picture Library/Alamy)|Pas content !|![](/fr-FR/2022/12/202212222300GentooGrievances.jpg)|
 202212232300|AmalgaTree|Port d’Amalga, Alaska, États-Unis (© Mark Kelley/Tandem Stills + Motion)|Noël au bout du monde|![](/fr-FR/2022/12/202212232300AmalgaTree.jpg)|
 202212242300|ChristmasSouvenir|Scène de Noël à Strasbourg (© Kavalenkava Volha/Alamy)|Joyeux Noël !|![](/fr-FR/2022/12/202212242300ChristmasSouvenir.jpg)|
+202212252300|BeverleyWestwood|Parc près de Beverly, Yorkshire, Angleterre (© Les Gibbon/Alamy)|Le lendemain de Noël|![](/fr-FR/2022/12/202212252300BeverleyWestwood.jpg)|
