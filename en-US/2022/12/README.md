@@ -26,3 +26,4 @@
 202212220800|TreeGaleriesLafayette|Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)|Season of light in the City of Light|![](/en-US/2022/12/202212220800TreeGaleriesLafayette.jpg)|
 202212230800|GentooGrievances|Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)|'I've got a lot of problems with you penguins!'|![](/en-US/2022/12/202212230800GentooGrievances.jpg)|
 202212240800|AmalgaTree|Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)|All is calm|![](/en-US/2022/12/202212240800AmalgaTree.jpg)|
+202212250800|ChristmasSouvenir|Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-US/2022/12/202212250800ChristmasSouvenir.jpg)|

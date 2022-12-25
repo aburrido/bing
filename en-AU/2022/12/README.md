@@ -26,3 +26,4 @@
 202212220800|AnnecyXmas|Annecy, Haute-Savoie, France (© Sabine Klein/Alamy)|Info|![](/en-AU/2022/12/202212220800AnnecyXmas.jpg)|
 202212230800|GentooGrievances|Gentoo penguins, Antarctica (© Nature Picture Library/Alamy)|Info|![](/en-AU/2022/12/202212230800GentooGrievances.jpg)|
 202212240800|RoeTrentinoSnow|Roe deer, Trentino-Alto Adige, Italy (© Federica Cattaruzzi/eStock)|Info|![](/en-AU/2022/12/202212240800RoeTrentinoSnow.jpg)|
+202212250800|WhistlerVillage|Whistler village, Blackcomb mountain, British Columbia, Canada (© VisualCommunications/Getty Images)|Info|![](/en-AU/2022/12/202212250800WhistlerVillage.jpg)|
