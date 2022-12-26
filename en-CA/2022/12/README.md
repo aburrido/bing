@@ -27,3 +27,4 @@
 202212230500|GentooGrievances|Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)|'I've got a lot of problems with you penguins!'|![](/en-CA/2022/12/202212230500GentooGrievances.jpg)|
 202212240500|AmalgaTree|Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)|All is calm|![](/en-CA/2022/12/202212240500AmalgaTree.jpg)|
 202212250500|ChristmasSouvenir|Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-CA/2022/12/202212250500ChristmasSouvenir.jpg)|
+202212260500|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Giddy family fun|![](/en-CA/2022/12/202212260500BeverleyWestwood.jpg)|
