@@ -28,3 +28,4 @@
 202212231600|RoeTrentinoSnow|狍子，特伦蒂诺-上阿迪杰大区，意大利 (© Federica Cattaruzzi/eStock)|冰天雪地里的小可爱|![](/zh-CN/2022/12/202212231600RoeTrentinoSnow.jpg)|
 202212241600|WhistlerVillage|黑梳山附近的惠斯勒小镇，加拿大不列颠哥伦比亚省 (© VisualCommunications/Getty Images)|灯光点亮了悠闲的小镇|![](/zh-CN/2022/12/202212241600WhistlerVillage.jpg)|
 202212251600|BeverleyWestwood|贝弗利·韦斯特伍德，东约克郡，英格兰 (© Les Gibbon/Alamy)|阖家欢乐的一天|![](/zh-CN/2022/12/202212251600BeverleyWestwood.jpg)|
+202212261600|BlueLagoon|格林达维克的蓝湖，冰岛 (© Westend61/Getty Images)|治愈身心的“废水”|![](/zh-CN/2022/12/202212261600BlueLagoon.jpg)|
