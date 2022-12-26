@@ -26,3 +26,4 @@
 202212230000|GlosCathedral|Christmas decorations in the medieval cloister at Gloucester Cathedral (© PJ Photography/Shutterstock)|Christmas in the cloister|![](/en-GB/2022/12/202212230000GlosCathedral.jpg)|
 202212240000|AmalgaTree|Amalga Harbour, Alaska, USA (© Mark Kelley/Tandem Stills + Motion)|All is calm|![](/en-GB/2022/12/202212240000AmalgaTree.jpg)|
 202212250000|ChristmasSouvenir|Miniature Christmas village in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-GB/2022/12/202212250000ChristmasSouvenir.jpg)|
+202212260000|BeverleyWestwood|Beverley Westwood Common, East Yorkshire (© Les Gibbon/Alamy)|Happy Boxing Day!|![](/en-GB/2022/12/202212260000BeverleyWestwood.jpg)|
