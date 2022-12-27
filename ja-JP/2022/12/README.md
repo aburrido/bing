@@ -28,3 +28,4 @@
 202212241500|ChristmasSouvenir|ストラスブールのクリスマス, フランス (© Kavalenkava Volha/Alamy)|ストラスブール|![](/ja-JP/2022/12/202212241500ChristmasSouvenir.jpg)|
 202212251500|BeverleyWestwood|ビバリー・ウェストウッドのブラックミル, 英国 (© Les Gibbon/Alamy)|今日は「ボクシング・デー」|![](/ja-JP/2022/12/202212251500BeverleyWestwood.jpg)|
 202212261500|BlueLagoon|ブルーラグーン, アイスランド グリンダヴィーク (© Westend61/Getty Images)|ブルーラグーン|![](/ja-JP/2022/12/202212261500BlueLagoon.jpg)|
+202212271500|ChiesaBianca|マローヤの冬景色, スイス (© Roberto Moiola/Getty)|スイス マローヤの冬景色|![](/ja-JP/2022/12/202212271500ChiesaBianca.jpg)|
