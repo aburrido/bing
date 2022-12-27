@@ -28,3 +28,4 @@
 202212241830|ChristmasSouvenir|Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-IN/2022/12/202212241830ChristmasSouvenir.jpg)|
 202212251830|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Giddy family fun|![](/en-IN/2022/12/202212251830BeverleyWestwood.jpg)|
 202212261830|NagarholeNationalPark|Nagarhole National Park in Karnataka, India (© Vivek BR/Shutterstock)|The gateway to jungle|![](/en-IN/2022/12/202212261830NagarholeNationalPark.jpg)|
+202212271830|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|A life-sized snow globe|![](/en-IN/2022/12/202212271830ChiesaBianca.jpg)|
