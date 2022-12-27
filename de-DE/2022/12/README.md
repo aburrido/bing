@@ -28,3 +28,4 @@
 202212242300|ChristmasSouvenir|Mini-Weihnachtsdorf in Straßburg, Frankreich (© Kavalenkava Volha/Alamy)|Fröhliche Weihnachten|![](/de-DE/2022/12/202212242300ChristmasSouvenir.jpg)|
 202212252300|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Familienspaß im Schnee|![](/de-DE/2022/12/202212252300BeverleyWestwood.jpg)|
 202212262300|ChiesaBianca|Maloja, Schweiz (© Roberto Moiola/Getty)|Eine Schneekugel in Lebensgröße|![](/de-DE/2022/12/202212262300ChiesaBianca.jpg)|
+202212272300|OberstdorfSkispringen|Der finnische Skispringer Antti Aalto während seines Sprungs bei der Vierschanzentournee in Oberstdorf am 29. Dezember 2020, Bayern (© Adam Pretty/Getty Images)|Völlig losgelöst|![](/de-DE/2022/12/202212272300OberstdorfSkispringen.jpg)|
