@@ -28,3 +28,4 @@
 202212240800|RoeTrentinoSnow|Roe deer, Trentino-Alto Adige, Italy (© Federica Cattaruzzi/eStock)|Info|![](/en-AU/2022/12/202212240800RoeTrentinoSnow.jpg)|
 202212250800|WhistlerVillage|Whistler village, Blackcomb mountain, British Columbia, Canada (© VisualCommunications/Getty Images)|Info|![](/en-AU/2022/12/202212250800WhistlerVillage.jpg)|
 202212260800|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Info|![](/en-AU/2022/12/202212260800BeverleyWestwood.jpg)|
+202212270800|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|Info|![](/en-AU/2022/12/202212270800BlueLagoon.jpg)|

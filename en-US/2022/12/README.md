@@ -28,3 +28,4 @@
 202212240800|AmalgaTree|Amalga Harbor, Alaska (© Mark Kelley/Tandem Stills + Motion)|All is calm|![](/en-US/2022/12/202212240800AmalgaTree.jpg)|
 202212250800|ChristmasSouvenir|Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-US/2022/12/202212250800ChristmasSouvenir.jpg)|
 202212260800|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Giddy family fun|![](/en-US/2022/12/202212260800BeverleyWestwood.jpg)|
+202212270800|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|The healing powers of wastewater|![](/en-US/2022/12/202212270800BlueLagoon.jpg)|
