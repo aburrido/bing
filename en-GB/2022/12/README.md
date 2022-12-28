@@ -28,3 +28,4 @@
 202212250000|ChristmasSouvenir|Miniature Christmas village in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-GB/2022/12/202212250000ChristmasSouvenir.jpg)|
 202212260000|BeverleyWestwood|Beverley Westwood Common, East Yorkshire (© Les Gibbon/Alamy)|Happy Boxing Day!|![](/en-GB/2022/12/202212260000BeverleyWestwood.jpg)|
 202212270000|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|In hot water|![](/en-GB/2022/12/202212270000BlueLagoon.jpg)|
+202212280000|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|Wintry Swiss bliss|![](/en-GB/2022/12/202212280000ChiesaBianca.jpg)|
