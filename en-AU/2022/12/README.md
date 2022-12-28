@@ -29,3 +29,4 @@
 202212250800|WhistlerVillage|Whistler village, Blackcomb mountain, British Columbia, Canada (© VisualCommunications/Getty Images)|Info|![](/en-AU/2022/12/202212250800WhistlerVillage.jpg)|
 202212260800|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Info|![](/en-AU/2022/12/202212260800BeverleyWestwood.jpg)|
 202212270800|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|Info|![](/en-AU/2022/12/202212270800BlueLagoon.jpg)|
+202212280800|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|Info|![](/en-AU/2022/12/202212280800ChiesaBianca.jpg)|
