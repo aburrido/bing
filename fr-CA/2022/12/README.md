@@ -29,3 +29,4 @@
 202212250500|ChristmasSouvenir|Scène de Noël à Strasbourg (© Kavalenkava Volha/Alamy)|Information|![](/fr-CA/2022/12/202212250500ChristmasSouvenir.jpg)|
 202212260500|BeverleyWestwood|Parc près de Beverly, Yorkshire, Angleterre (© Les Gibbon/Alamy)|Information|![](/fr-CA/2022/12/202212260500BeverleyWestwood.jpg)|
 202212270500|BlueLagoon|Lagon Bleu, Grindavík, Islande (© Westend61/Getty Images)|Information|![](/fr-CA/2022/12/202212270500BlueLagoon.jpg)|
+202212280500|ChiesaBianca|La Maloja, Suisse (© Roberto Moiola/Getty)|Information|![](/fr-CA/2022/12/202212280500ChiesaBianca.jpg)|

@@ -29,3 +29,4 @@
 202212250500|ChristmasSouvenir|Miniature holiday scene in Strasbourg, France (© Kavalenkava Volha/Alamy)|Have a merry little Christmas|![](/en-CA/2022/12/202212250500ChristmasSouvenir.jpg)|
 202212260500|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Giddy family fun|![](/en-CA/2022/12/202212260500BeverleyWestwood.jpg)|
 202212270500|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|The healing powers of wastewater|![](/en-CA/2022/12/202212270500BlueLagoon.jpg)|
+202212280500|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|A life-sized snow globe|![](/en-CA/2022/12/202212280500ChiesaBianca.jpg)|
