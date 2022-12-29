@@ -30,3 +30,4 @@
 202212261500|BlueLagoon|ブルーラグーン, アイスランド グリンダヴィーク (© Westend61/Getty Images)|ブルーラグーン|![](/ja-JP/2022/12/202212261500BlueLagoon.jpg)|
 202212271500|ChiesaBianca|マローヤの冬景色, スイス (© Roberto Moiola/Getty)|スイス マローヤの冬景色|![](/ja-JP/2022/12/202212271500ChiesaBianca.jpg)|
 202212281500|ButterflyEffect|蝶のカップル (© Misja Smits/Minden Pictures)|「バタフライ効果」の発表から50周年|![](/ja-JP/2022/12/202212281500ButterflyEffect.jpg)|
+202212291500|ChalkRock|ホワイトデザート, エジプト (© Anton Petrus/Getty Images)|エジプト 白い砂漠の夕焼け|![](/ja-JP/2022/12/202212291500ChalkRock.jpg)|
