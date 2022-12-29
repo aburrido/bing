@@ -30,3 +30,4 @@
 202212261830|NagarholeNationalPark|Nagarhole National Park in Karnataka, India (© Vivek BR/Shutterstock)|The gateway to jungle|![](/en-IN/2022/12/202212261830NagarholeNationalPark.jpg)|
 202212271830|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|A life-sized snow globe|![](/en-IN/2022/12/202212271830ChiesaBianca.jpg)|
 202212281830|ButterflyEffect|A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)|The butterfly effect|![](/en-IN/2022/12/202212281830ButterflyEffect.jpg)|
+202212291830|ChalkRock|Rock formations in the White Desert, Egypt (© Anton Petrus/Getty Images)|This snow will never melt|![](/en-IN/2022/12/202212291830ChalkRock.jpg)|
