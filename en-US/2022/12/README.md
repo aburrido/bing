@@ -30,3 +30,4 @@
 202212260800|BeverleyWestwood|Beverley Westwood Common, East Yorkshire, England (© Les Gibbon/Alamy)|Giddy family fun|![](/en-US/2022/12/202212260800BeverleyWestwood.jpg)|
 202212270800|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|The healing powers of wastewater|![](/en-US/2022/12/202212270800BlueLagoon.jpg)|
 202212280800|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|A life-size snow globe|![](/en-US/2022/12/202212280800ChiesaBianca.jpg)|
+202212290800|ButterflyEffect|A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)|The butterfly effect|![](/en-US/2022/12/202212290800ButterflyEffect.jpg)|
