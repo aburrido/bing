@@ -31,3 +31,4 @@
 202212272300|OberstdorfSkispringen|Der finnische Skispringer Antti Aalto während seines Sprungs bei der Vierschanzentournee in Oberstdorf am 29. Dezember 2020, Bayern (© Adam Pretty/Getty Images)|Völlig losgelöst|![](/de-DE/2022/12/202212272300OberstdorfSkispringen.jpg)|
 202212282300|ButterflyEffect|Ein Paar Geißklee-Bläulinge (© Misja Smits/Minden Pictures)|Schmetterlingseffekt|![](/de-DE/2022/12/202212282300ButterflyEffect.jpg)|
 202212292300|ChalkRock|Felsformationen in der Weißen Wüste, Ägypten (© Anton Petrus/Getty Images)|Dieser „Schnee“ schmilzt nie|![](/de-DE/2022/12/202212292300ChalkRock.jpg)|
+202212302300|SydneyNYE|Silvesterfeuerwerk, Sydney Harbour Bridge, Sydney, Australien (© Wendell Teodoro/Getty Images)|Frohes neues Jahr aus Down Under!|![](/de-DE/2022/12/202212302300SydneyNYE.jpg)|

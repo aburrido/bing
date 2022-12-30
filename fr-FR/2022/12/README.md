@@ -31,3 +31,4 @@
 202212272300|ChiesaBianca|La Maloja, Suisse (© Roberto Moiola/Getty)|La belle Suisse|![](/fr-FR/2022/12/202212272300ChiesaBianca.jpg)|
 202212282300|ButterflyEffect|Couple de papillons Petits Argus (© Misja Smits/Minden Pictures)|L’effet papillon|![](/fr-FR/2022/12/202212282300ButterflyEffect.jpg)|
 202212292300|ChalkRock|Formations rocheuses dans le désert blanc, Égypte (© Anton Petrus/Getty Images)|Le désert blanc|![](/fr-FR/2022/12/202212292300ChalkRock.jpg)|
+202212302300|SydneyNYE|Feux d’artifice du Nouvel An, Harbor Bridge, Sydney, Australie (© Wendell Teodoro/Getty Images)|Bonne Année !|![](/fr-FR/2022/12/202212302300SydneyNYE.jpg)|
