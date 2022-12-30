@@ -31,3 +31,4 @@
 202212270500|BlueLagoon|Lagon Bleu, Grindavík, Islande (© Westend61/Getty Images)|Information|![](/fr-CA/2022/12/202212270500BlueLagoon.jpg)|
 202212280500|ChiesaBianca|La Maloja, Suisse (© Roberto Moiola/Getty)|Information|![](/fr-CA/2022/12/202212280500ChiesaBianca.jpg)|
 202212290500|ButterflyEffect|Couple de papillons Petits Argus (© Misja Smits/Minden Pictures)|Information|![](/fr-CA/2022/12/202212290500ButterflyEffect.jpg)|
+202212300500|ChalkRock|Formations rocheuses dans le désert blanc, Égypte (© Anton Petrus/Getty Images)|Information|![](/fr-CA/2022/12/202212300500ChalkRock.jpg)|
