@@ -31,3 +31,4 @@
 202212270800|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|Info|![](/en-AU/2022/12/202212270800BlueLagoon.jpg)|
 202212280800|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|Info|![](/en-AU/2022/12/202212280800ChiesaBianca.jpg)|
 202212290800|ButterflyEffect|Silver-studded blue butterflies (© Misja Smits/Minden Pictures)|Info|![](/en-AU/2022/12/202212290800ButterflyEffect.jpg)|
+202212300800|ChalkRock|White Desert National Park, Egypt (© Anton Petrus/Getty Images)|Info|![](/en-AU/2022/12/202212300800ChalkRock.jpg)|
