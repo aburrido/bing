@@ -30,3 +30,4 @@
 202212270000|BlueLagoon|Blue Lagoon, Grindavík, Iceland (© Westend61/Getty Images)|In hot water|![](/en-GB/2022/12/202212270000BlueLagoon.jpg)|
 202212280000|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|Wintry Swiss bliss|![](/en-GB/2022/12/202212280000ChiesaBianca.jpg)|
 202212290000|ButterflyEffect|A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)|The butterfly effect|![](/en-GB/2022/12/202212290000ButterflyEffect.jpg)|
+202212300000|ChalkRock|Rock formations in the White Desert, Egypt (© Anton Petrus/Getty Images)|This ‘snow’ never melts|![](/en-GB/2022/12/202212300000ChalkRock.jpg)|
