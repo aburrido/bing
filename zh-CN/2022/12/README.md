@@ -32,3 +32,4 @@
 202212271600|ChiesaBianca|马洛亚，瑞士 (© Roberto Moiola/Getty)|雪花玻璃球一般的美景|![](/zh-CN/2022/12/202212271600ChiesaBianca.jpg)|
 202212281600|StorrRocks|斯托尔石山，天空之岛，苏格兰 (© Aliaume Chapelle/Tandem Stills + Motion)|天空之岛|![](/zh-CN/2022/12/202212281600StorrRocks.jpg)|
 202212291600|ChalkRock|白沙漠中的岩石，埃及 (© Anton Petrus/Getty Images)|这些雪永远不会融化|![](/zh-CN/2022/12/202212291600ChalkRock.jpg)|
+202212301600|TheNationaDay|一起迎接2023年 (© GettyImages)|和谁一起跨年？|![](/zh-CN/2022/12/202212301600TheNationaDay.jpg)|
