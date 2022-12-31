@@ -32,3 +32,4 @@
 202212281500|ButterflyEffect|蝶のカップル (© Misja Smits/Minden Pictures)|「バタフライ効果」の発表から50周年|![](/ja-JP/2022/12/202212281500ButterflyEffect.jpg)|
 202212291500|ChalkRock|ホワイトデザート, エジプト (© Anton Petrus/Getty Images)|エジプト 白い砂漠の夕焼け|![](/ja-JP/2022/12/202212291500ChalkRock.jpg)|
 202212301500|Nara|東大寺の梵鐘, 奈良 (© Yellow Cat/Shutterstock)|大晦日|![](/ja-JP/2022/12/202212301500Nara.jpg)|
+202212311500|Gantan2023|富士山と日の出 (© Carlos Lorenzo/Shutterstock)|明けましておめでとうございます|![](/ja-JP/2022/12/202212311500Gantan2023.jpg)|
