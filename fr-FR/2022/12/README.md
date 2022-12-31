@@ -32,3 +32,4 @@
 202212282300|ButterflyEffect|Couple de papillons Petits Argus (© Misja Smits/Minden Pictures)|L’effet papillon|![](/fr-FR/2022/12/202212282300ButterflyEffect.jpg)|
 202212292300|ChalkRock|Formations rocheuses dans le désert blanc, Égypte (© Anton Petrus/Getty Images)|Le désert blanc|![](/fr-FR/2022/12/202212292300ChalkRock.jpg)|
 202212302300|SydneyNYE|Feux d’artifice du Nouvel An, Harbor Bridge, Sydney, Australie (© Wendell Teodoro/Getty Images)|Bonne Année !|![](/fr-FR/2022/12/202212302300SydneyNYE.jpg)|
+202212312300|NewDawn|Le Grand-Bornand, Massif des Aravis, Haute-Savoie (© Lansard Gilles/Hémis.fr/Alamy Photo Stock)|C’est reparti pour un tour|![](/fr-FR/2022/12/202212312300NewDawn.jpg)|

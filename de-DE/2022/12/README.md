@@ -32,3 +32,4 @@
 202212282300|ButterflyEffect|Ein Paar Geißklee-Bläulinge (© Misja Smits/Minden Pictures)|Schmetterlingseffekt|![](/de-DE/2022/12/202212282300ButterflyEffect.jpg)|
 202212292300|ChalkRock|Felsformationen in der Weißen Wüste, Ägypten (© Anton Petrus/Getty Images)|Dieser „Schnee“ schmilzt nie|![](/de-DE/2022/12/202212292300ChalkRock.jpg)|
 202212302300|SydneyNYE|Silvesterfeuerwerk, Sydney Harbour Bridge, Sydney, Australien (© Wendell Teodoro/Getty Images)|Frohes neues Jahr aus Down Under!|![](/de-DE/2022/12/202212302300SydneyNYE.jpg)|
+202212312300|NorwayNYD|Eisbär, Spitzbergen, Norwegen (© Dennis Stogsdill/Getty Images)|Nickerchen am Nordpol|![](/de-DE/2022/12/202212312300NorwayNYD.jpg)|
