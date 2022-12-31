@@ -31,3 +31,4 @@
 202212280000|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|Wintry Swiss bliss|![](/en-GB/2022/12/202212280000ChiesaBianca.jpg)|
 202212290000|ButterflyEffect|A pair of silver-studded blue butterflies (© Misja Smits/Minden Pictures)|The butterfly effect|![](/en-GB/2022/12/202212290000ButterflyEffect.jpg)|
 202212300000|ChalkRock|Rock formations in the White Desert, Egypt (© Anton Petrus/Getty Images)|This ‘snow’ never melts|![](/en-GB/2022/12/202212300000ChalkRock.jpg)|
+202212310000|SydneyNYE|New Year’s Eve fireworks, Sydney Harbour Bridge in Sydney, Australia (© Wendell Teodoro/Getty Images)|Happy New Year!|![](/en-GB/2022/12/202212310000SydneyNYE.jpg)|
