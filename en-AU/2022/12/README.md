@@ -32,3 +32,4 @@
 202212280800|ChiesaBianca|Maloja, Switzerland (© Roberto Moiola/Getty)|Info|![](/en-AU/2022/12/202212280800ChiesaBianca.jpg)|
 202212290800|ButterflyEffect|Silver-studded blue butterflies (© Misja Smits/Minden Pictures)|Info|![](/en-AU/2022/12/202212290800ButterflyEffect.jpg)|
 202212300800|ChalkRock|White Desert National Park, Egypt (© Anton Petrus/Getty Images)|Info|![](/en-AU/2022/12/202212300800ChalkRock.jpg)|
+202212310800|TheNationaDay|Nam Van Lake, Macau, China (© Mendowong Photography/Getty Images)|Info|![](/en-AU/2022/12/202212310800TheNationaDay.jpg)|
