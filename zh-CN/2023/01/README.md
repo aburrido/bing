@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202212311600|NorwayNYD|北极熊斯瓦尔巴群岛，挪威 (© Dennis Stogsdill/Getty Images)|在北极附近打盹|![](/zh-CN/2023/01/202212311600NorwayNYD.jpg)|
+202301011600|HohenzollernBurg|霍亨索伦城堡，德国 (© Sahara Prince/Shutterstock)|正如童话一般|![](/zh-CN/2023/01/202301011600HohenzollernBurg.jpg)|
