@@ -4,3 +4,4 @@
 202301011500|NorwayNYD|スバールバル諸島のホッキョクグマ, ノルウェー (© Dennis Stogsdill/Getty Images)|うたた寝するホッキョクグマ|![](/ja-JP/2023/01/202301011500NorwayNYD.jpg)|
 202301021500|HohenzollernBurg|ホーエンツォレルン城, ドイツ (© Sahara Prince/Shutterstock)|ドイツ 雪に覆われた山頂の城|![](/ja-JP/2023/01/202301021500HohenzollernBurg.jpg)|
 202301031500|Perihelion|国際宇宙ステーションから見た地球 (© JSC/NASA)|今日は地球の近日点|![](/ja-JP/2023/01/202301031500Perihelion.jpg)|
+202301041500|HIISSF|ハルビン氷祭り, 中国 黒竜江省 (© STR/AFP via Getty Images)|ハルビン 氷の町のライトアップ|![](/ja-JP/2023/01/202301041500HIISSF.jpg)|
