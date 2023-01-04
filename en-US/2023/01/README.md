@@ -4,3 +4,4 @@
 202301010800|NorwayNYD|Polar bear in Svalbard, Norway (© Dennis Stogsdill/Getty Images)|Napping near the North Pole|![](/en-US/2023/01/202301010800NorwayNYD.jpg)|
 202301020800|HohenzollernBurg|Hohenzollern Castle, Germany (© Sahara Prince/Shutterstock)|Fit for a fairy tale|![](/en-US/2023/01/202301020800HohenzollernBurg.jpg)|
 202301030800|SandhillSleeping|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico (© Jay Goodrich/Tandem Stills + Motion)|Who's snoozing?|![](/en-US/2023/01/202301030800SandhillSleeping.jpg)|
+202301040800|Perihelion|Earth as seen from the International Space Station (© JSC/NASA)|So close, yet so far|![](/en-US/2023/01/202301040800Perihelion.jpg)|
