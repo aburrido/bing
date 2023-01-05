@@ -5,3 +5,4 @@
 202301022300|SandhillSleeping|Kanadakraniche, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jay Goodrich/Tandem Stills + Motion)|Wer döst denn da?|![](/de-DE/2023/01/202301022300SandhillSleeping.jpg)|
 202301032300|Perihelion|Blick von der Internationalen Raumstation auf die Erde (© JSC/NASA)|So nah und doch so fern|![](/de-DE/2023/01/202301032300Perihelion.jpg)|
 202301042300|HIISSF|Harbiner Internationales Eis- und Schneefest, Harbin, Volksrepublik China (© STR/AFP via Getty Images)|Stadt aus Eis|![](/de-DE/2023/01/202301042300HIISSF.jpg)|
+202301052300|HermelinSchnee|Hermelin im Winterfell, Oberbayern, Bayern (© Konrad Wothe/Minden)|Gut getarnt jagt es sich besser|![](/de-DE/2023/01/202301052300HermelinSchnee.jpg)|
