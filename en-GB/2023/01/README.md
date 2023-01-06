@@ -5,3 +5,4 @@
 202301030000|SandhillSleeping|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jay Goodrich/Tandem Stills + Motion)|Who's snoozing?|![](/en-GB/2023/01/202301030000SandhillSleeping.jpg)|
 202301040000|Perihelion|The Earth as seen from the International Space Station (© JSC/NASA)|So close, yet so far|![](/en-GB/2023/01/202301040000Perihelion.jpg)|
 202301050000|HIISSF|Harbin International Ice and Snow Sculpture Festival, Harbin, China (© STR/AFP via Getty Images)|City of ice|![](/en-GB/2023/01/202301050000HIISSF.jpg)|
+202301060000|BlackFell|Black Fell, Lake District, Cumbria (© Daniel Kay/Shutterstock)|West of Windermere|![](/en-GB/2023/01/202301060000BlackFell.jpg)|
