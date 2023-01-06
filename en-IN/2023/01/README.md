@@ -6,3 +6,4 @@
 202301031830|Perihelion|The Earth as seen from the International Space Station (© JSC/NASA)|So close, yet so far|![](/en-IN/2023/01/202301031830Perihelion.jpg)|
 202301041830|HIISSF|Harbin International Ice and Snow Sculpture Festival, Harbin, China (© STR/AFP via Getty Images)|City of ice|![](/en-IN/2023/01/202301041830HIISSF.jpg)|
 202301051830|BlackFell|Black Fell, Lake District, England (© Daniel Kay/Shutterstock)|‘The hills have a power to soothe and heal...’|![](/en-IN/2023/01/202301051830BlackFell.jpg)|
+202301061830|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|What the heck is a distaff?|![](/en-IN/2023/01/202301061830Mohair.jpg)|
