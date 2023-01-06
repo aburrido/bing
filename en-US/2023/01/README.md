@@ -6,3 +6,4 @@
 202301030800|SandhillSleeping|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico (© Jay Goodrich/Tandem Stills + Motion)|Who's snoozing?|![](/en-US/2023/01/202301030800SandhillSleeping.jpg)|
 202301040800|Perihelion|Earth as seen from the International Space Station (© JSC/NASA)|So close, yet so far|![](/en-US/2023/01/202301040800Perihelion.jpg)|
 202301050800|HIISSF|Harbin International Ice and Snow Sculpture Festival, Harbin, China (© STR/AFP via Getty Images)|City of ice|![](/en-US/2023/01/202301050800HIISSF.jpg)|
+202301060800|BlackFell|Black Fell, Lake District, England (© Daniel Kay/Shutterstock)|'The hills have a power to soothe and heal...'|![](/en-US/2023/01/202301060800BlackFell.jpg)|
