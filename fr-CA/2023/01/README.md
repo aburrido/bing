@@ -7,3 +7,4 @@
 202301040500|Perihelion|La Terre vue depuis la Station spatiale internationale (© JSC/NASA)|Information|![](/fr-CA/2023/01/202301040500Perihelion.jpg)|
 202301050500|HIISSF|Festival international de sculpture sur glace et de neige de Harbin, Harbin, Chine (© STR/AFP via Getty Images)|Information|![](/fr-CA/2023/01/202301050500HIISSF.jpg)|
 202301060500|BlackFell|Black Fell, Lake District, Angleterre (© Daniel Kay/Shutterstock)|Information|![](/fr-CA/2023/01/202301060500BlackFell.jpg)|
+202301070500|Mohair|Pelotes de laine et de mohair (© Jurate Buiviene/Alamy)|Information|![](/fr-CA/2023/01/202301070500Mohair.jpg)|
