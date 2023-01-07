@@ -7,3 +7,4 @@
 202301041830|HIISSF|Harbin International Ice and Snow Sculpture Festival, Harbin, China (© STR/AFP via Getty Images)|City of ice|![](/en-IN/2023/01/202301041830HIISSF.jpg)|
 202301051830|BlackFell|Black Fell, Lake District, England (© Daniel Kay/Shutterstock)|‘The hills have a power to soothe and heal...’|![](/en-IN/2023/01/202301051830BlackFell.jpg)|
 202301061830|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|What the heck is a distaff?|![](/en-IN/2023/01/202301061830Mohair.jpg)|
+202301071830|Breckenridge|Breckenridge, Colorado (© Sean Pavone/Shutterstock)|Where we go to play|![](/en-IN/2023/01/202301071830Breckenridge.jpg)|
