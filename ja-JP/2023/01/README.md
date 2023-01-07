@@ -7,3 +7,4 @@
 202301041500|HIISSF|ハルビン氷祭り, 中国 黒竜江省 (© STR/AFP via Getty Images)|ハルビン 氷の町のライトアップ|![](/ja-JP/2023/01/202301041500HIISSF.jpg)|
 202301051500|BlackFell|ブラックフェル, イギリス (© Daniel Kay/Shutterstock)|イギリス 湖水地方の丘|![](/ja-JP/2023/01/202301051500BlackFell.jpg)|
 202301061500|Mohair|ウールとモヘアの毛糸玉 (© Jurate Buiviene/Alamy)|今日は「ディスタッフデー」|![](/ja-JP/2023/01/202301061500Mohair.jpg)|
+202301071500|Breckenridge|ブリッケンリッジ, 米国 コロラド州 (© Sean Pavone/Shutterstock)|コロラド 黄金色の夕暮れ|![](/ja-JP/2023/01/202301071500Breckenridge.jpg)|
