@@ -8,3 +8,4 @@
 202301052300|HermelinSchnee|Hermelin im Winterfell, Oberbayern, Bayern (© Konrad Wothe/Minden)|Gut getarnt jagt es sich besser|![](/de-DE/2023/01/202301052300HermelinSchnee.jpg)|
 202301062300|BlackFell|Black Fell, Lake District, England, Vereinigtes Königreich (© Daniel Kay/Shutterstock)|Was ist ein „Fell“?|![](/de-DE/2023/01/202301062300BlackFell.jpg)|
 202301072300|Breckenridge|Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)|Winter in Colorado|![](/de-DE/2023/01/202301072300Breckenridge.jpg)|
+202301082300|TeufelsbrueckeWilhelmshoehe|Teufelsbrücke im Bergpark Wilhelmshöhe, UNESCO-Welterbestätte, Kassel, Hessen (© Wilfried Martin/Alamy)|Teil eines Welterbes|![](/de-DE/2023/01/202301082300TeufelsbrueckeWilhelmshoehe.jpg)|

@@ -8,3 +8,4 @@
 202301052300|BlackFell|Black Fell, Lake District, Angleterre (© Daniel Kay/Shutterstock)|Sur les hauteurs anglaises|![](/fr-FR/2023/01/202301052300BlackFell.jpg)|
 202301062300|Mohair|Pelotes de laine et de mohair (© Jurate Buiviene/Alamy)|La fête de la quenouille !|![](/fr-FR/2023/01/202301062300Mohair.jpg)|
 202301072300|Breckenridge|Breckenridge, Colorado, États-Unis (© Sean Pavone/Shutterstock)|Du ski aux États-Unis|![](/fr-FR/2023/01/202301072300Breckenridge.jpg)|
+202301082300|BisonWindCave|Bisons d’Amérique dans le parc national de Wind Cave, Dakota du Sud, États-Unis (© Charlie Summers/Minden Pictures)|Sauvez les bisons !|![](/fr-FR/2023/01/202301082300BisonWindCave.jpg)|
