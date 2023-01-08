@@ -8,3 +8,4 @@
 202301050800|HermelinSchnee|Stoat (Mustela erminea), Upper Bavaria, Germany (© Konrad Wothe/Minden Pictures)|Info|![](/en-AU/2023/01/202301050800HermelinSchnee.jpg)|
 202301060800|BlackFell|Black Fell, Lake District, England (© Daniel Kay/Shutterstock)|Info|![](/en-AU/2023/01/202301060800BlackFell.jpg)|
 202301070800|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|Info|![](/en-AU/2023/01/202301070800Mohair.jpg)|
+202301080800|Breckenridge|Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)|Info|![](/en-AU/2023/01/202301080800Breckenridge.jpg)|
