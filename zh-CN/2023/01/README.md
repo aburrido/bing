@@ -8,3 +8,4 @@
 202301051600|BlackFell|英格兰湖区的Black Fell (© Daniel Kay/Shutterstock)|“群山拥有抚慰和治愈的力量”|![](/zh-CN/2023/01/202301051600BlackFell.jpg)|
 202301061600|Mohair|羊毛和马海毛纱线 (© Jurate Buiviene/Alamy)|纺纱杆到底是什么东西？|![](/zh-CN/2023/01/202301061600Mohair.jpg)|
 202301071600|Breckenridge|科罗拉多州布雷肯里奇 (© Sean Pavone/Shutterstock)|我们去哪里玩？|![](/zh-CN/2023/01/202301071600Breckenridge.jpg)|
+202301081600|BisonWindCave|南达科他州风洞国家公园的水牛 (© Charlie Summers/Minden Pictures)|神奇水牛在哪里？|![](/zh-CN/2023/01/202301081600BisonWindCave.jpg)|
