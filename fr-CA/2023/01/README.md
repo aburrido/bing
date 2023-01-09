@@ -9,3 +9,4 @@
 202301060500|BlackFell|Black Fell, Lake District, Angleterre (© Daniel Kay/Shutterstock)|Information|![](/fr-CA/2023/01/202301060500BlackFell.jpg)|
 202301070500|Mohair|Pelotes de laine et de mohair (© Jurate Buiviene/Alamy)|Information|![](/fr-CA/2023/01/202301070500Mohair.jpg)|
 202301080500|Breckenridge|Breckenridge, Colorado, États-Unis (© Sean Pavone/Shutterstock)|Information|![](/fr-CA/2023/01/202301080500Breckenridge.jpg)|
+202301090500|BisonWindCave|Bisons d’Amérique dans le parc national de Wind Cave, Dakota du Sud, États-Unis (© Charlie Summers/Minden Pictures)|Information|![](/fr-CA/2023/01/202301090500BisonWindCave.jpg)|

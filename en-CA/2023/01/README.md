@@ -9,3 +9,4 @@
 202301060500|BlackFell|Black Fell, Lake District, England (© Daniel Kay/Shutterstock)|‘The hills have a power to soothe and heal which is their very own.’|![](/en-CA/2023/01/202301060500BlackFell.jpg)|
 202301070500|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|What the heck is a distaff?|![](/en-CA/2023/01/202301070500Mohair.jpg)|
 202301080500|Breckenridge|Breckenridge, Colorado (© Sean Pavone/Shutterstock)|Where we go to play|![](/en-CA/2023/01/202301080500Breckenridge.jpg)|
+202301090500|BisonWindCave|Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)|Where buffalo roam|![](/en-CA/2023/01/202301090500BisonWindCave.jpg)|
