@@ -9,3 +9,4 @@
 202301062300|BlackFell|Black Fell, Lake District, England, Vereinigtes Königreich (© Daniel Kay/Shutterstock)|Was ist ein „Fell“?|![](/de-DE/2023/01/202301062300BlackFell.jpg)|
 202301072300|Breckenridge|Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)|Winter in Colorado|![](/de-DE/2023/01/202301072300Breckenridge.jpg)|
 202301082300|TeufelsbrueckeWilhelmshoehe|Teufelsbrücke im Bergpark Wilhelmshöhe, UNESCO-Welterbestätte, Kassel, Hessen (© Wilfried Martin/Alamy)|Teil eines Welterbes|![](/de-DE/2023/01/202301082300TeufelsbrueckeWilhelmshoehe.jpg)|
+202301092300|HummockIce|Eisschollen auf dem Peipussee, Estland (© Sven Zacek/Minden Pictures)|Wenn Eis Kunst imitiert|![](/de-DE/2023/01/202301092300HummockIce.jpg)|
