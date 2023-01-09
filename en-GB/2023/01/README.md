@@ -8,3 +8,4 @@
 202301060000|BlackFell|Black Fell, Lake District, Cumbria (© Daniel Kay/Shutterstock)|West of Windermere|![](/en-GB/2023/01/202301060000BlackFell.jpg)|
 202301070000|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|What's a distaff?|![](/en-GB/2023/01/202301070000Mohair.jpg)|
 202301080000|Breckenridge|Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)|Snow glow|![](/en-GB/2023/01/202301080000Breckenridge.jpg)|
+202301090000|HohenzollernBurg|Hohenzollern Castle, Baden-Württemberg, Germany (© Sahara Prince/Shutterstock)|Castle in the sky|![](/en-GB/2023/01/202301090000HohenzollernBurg.jpg)|
