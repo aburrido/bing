@@ -10,3 +10,4 @@
 202301071500|Breckenridge|ブリッケンリッジ, 米国 コロラド州 (© Sean Pavone/Shutterstock)|コロラド 黄金色の夕暮れ|![](/ja-JP/2023/01/202301071500Breckenridge.jpg)|
 202301081500|BisonWindCave|バッファロー, 米国 サウスダコタ州 (© Charlie Summers/Minden Pictures)|ウインドケーブ国立公園のバッファロー|![](/ja-JP/2023/01/202301081500BisonWindCave.jpg)|
 202301091500|HummockIce|ハンモックアイス, エストニア (© Sven Zacek/Minden Pictures)|エストニア 湖上にひしめく氷の波|![](/ja-JP/2023/01/202301091500HummockIce.jpg)|
+202301101500|Umschreibung|"Umschreibung" オラファー・エリアソン, ドイツ (© Manfred Bail/Alamy)|今日は「階段の日」|![](/ja-JP/2023/01/202301101500Umschreibung.jpg)|
