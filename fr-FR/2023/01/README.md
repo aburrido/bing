@@ -10,3 +10,4 @@
 202301072300|Breckenridge|Breckenridge, Colorado, États-Unis (© Sean Pavone/Shutterstock)|Du ski aux États-Unis|![](/fr-FR/2023/01/202301072300Breckenridge.jpg)|
 202301082300|BisonWindCave|Bisons d’Amérique dans le parc national de Wind Cave, Dakota du Sud, États-Unis (© Charlie Summers/Minden Pictures)|Sauvez les bisons !|![](/fr-FR/2023/01/202301082300BisonWindCave.jpg)|
 202301092300|TintinDay|Le musée Hergé à Louvain la Neuve, Belgique (© Ruaridh Stewart/ZUMAPRESS.com/Alamy Stock Photo)|Mille millions de mille sabords !|![](/fr-FR/2023/01/202301092300TintinDay.jpg)|
+202301102300|Umschreibung|'Umschreibung' par l’artiste Olafur Eliasson à Munich (© Manfred Bail/Alamy)|On prend les escaliers ?|![](/fr-FR/2023/01/202301102300Umschreibung.jpg)|
