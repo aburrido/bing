@@ -10,3 +10,4 @@
 202301070800|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|What the heck is a distaff?|![](/en-US/2023/01/202301070800Mohair.jpg)|
 202301080800|Breckenridge|Breckenridge, Colorado (© Sean Pavone/Shutterstock)|Where we go to play|![](/en-US/2023/01/202301080800Breckenridge.jpg)|
 202301090800|BisonWindCave|Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)|Where buffalo roam|![](/en-US/2023/01/202301090800BisonWindCave.jpg)|
+202301100800|HummockIce|Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)|When ice imitates art|![](/en-US/2023/01/202301100800HummockIce.jpg)|
