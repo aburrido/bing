@@ -9,3 +9,4 @@
 202301070000|Mohair|Wool and mohair yarn (© Jurate Buiviene/Alamy)|What's a distaff?|![](/en-GB/2023/01/202301070000Mohair.jpg)|
 202301080000|Breckenridge|Breckenridge, Colorado, USA (© Sean Pavone/Shutterstock)|Snow glow|![](/en-GB/2023/01/202301080000Breckenridge.jpg)|
 202301090000|HohenzollernBurg|Hohenzollern Castle, Baden-Württemberg, Germany (© Sahara Prince/Shutterstock)|Castle in the sky|![](/en-GB/2023/01/202301090000HohenzollernBurg.jpg)|
+202301100000|HummockIce|Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)|When ice imitates art|![](/en-GB/2023/01/202301100000HummockIce.jpg)|
