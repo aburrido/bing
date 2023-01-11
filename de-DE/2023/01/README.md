@@ -11,3 +11,4 @@
 202301082300|TeufelsbrueckeWilhelmshoehe|Teufelsbrücke im Bergpark Wilhelmshöhe, UNESCO-Welterbestätte, Kassel, Hessen (© Wilfried Martin/Alamy)|Teil eines Welterbes|![](/de-DE/2023/01/202301082300TeufelsbrueckeWilhelmshoehe.jpg)|
 202301092300|HummockIce|Eisschollen auf dem Peipussee, Estland (© Sven Zacek/Minden Pictures)|Wenn Eis Kunst imitiert|![](/de-DE/2023/01/202301092300HummockIce.jpg)|
 202301102300|Umschreibung|Skulptur „Umschreibung“ des Künstlers Ólafur Elíasson in München (© Manfred Bail/Alamy)|Wohin führt diese Treppe?|![](/de-DE/2023/01/202301102300Umschreibung.jpg)|
+202301112300|RumeliHisari|Die Festung Rumeli Hisarı am Bosporus, Istanbul, Türkei (© Drone in Wonderland/Amazing Aerial Agency)|Wo zwei Kontinente aufeinandertreffen|![](/de-DE/2023/01/202301112300RumeliHisari.jpg)|
