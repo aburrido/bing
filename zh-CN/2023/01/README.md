@@ -11,3 +11,4 @@
 202301081600|BisonWindCave|南达科他州风洞国家公园的水牛 (© Charlie Summers/Minden Pictures)|神奇水牛在哪里？|![](/zh-CN/2023/01/202301081600BisonWindCave.jpg)|
 202301091600|HummockIce|爱沙尼亚佩普斯湖上的小冰丘 (© Sven Zacek/Minden Pictures)|当冰块变成了艺术|![](/zh-CN/2023/01/202301091600HummockIce.jpg)|
 202301101600|GodrevyRocks|戈德雷维灯塔，英国康沃尔郡 (© Paul Nash/Shutterstock)|到灯塔去！|![](/zh-CN/2023/01/202301101600GodrevyRocks.jpg)|
+202301111600|RumeliHisari|博斯普鲁斯海峡的如梅利堡垒，土耳其伊斯坦布尔 (© Drone in Wonderland/Amazing Aerial Agency)|两大洲交接的地方|![](/zh-CN/2023/01/202301111600RumeliHisari.jpg)|
