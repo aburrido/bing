@@ -11,3 +11,4 @@
 202301080500|Breckenridge|Breckenridge, Colorado, États-Unis (© Sean Pavone/Shutterstock)|Information|![](/fr-CA/2023/01/202301080500Breckenridge.jpg)|
 202301090500|BisonWindCave|Bisons d’Amérique dans le parc national de Wind Cave, Dakota du Sud, États-Unis (© Charlie Summers/Minden Pictures)|Information|![](/fr-CA/2023/01/202301090500BisonWindCave.jpg)|
 202301100500|HummockIce|Glace sur le lac Peïpous en Estonie (© Sven Zacek/Minden Pictures)|Information|![](/fr-CA/2023/01/202301100500HummockIce.jpg)|
+202301110500|Umschreibung|'Umschreibung' par l’artiste Olafur Eliasson à Munich (© Manfred Bail/Alamy)|Information|![](/fr-CA/2023/01/202301110500Umschreibung.jpg)|

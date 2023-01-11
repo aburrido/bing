@@ -11,3 +11,4 @@
 202301080500|Breckenridge|Breckenridge, Colorado (© Sean Pavone/Shutterstock)|Where we go to play|![](/en-CA/2023/01/202301080500Breckenridge.jpg)|
 202301090500|BisonWindCave|Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)|Where buffalo roam|![](/en-CA/2023/01/202301090500BisonWindCave.jpg)|
 202301100500|HummockIce|Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)|When ice imitates art|![](/en-CA/2023/01/202301100500HummockIce.jpg)|
+202301110500|Umschreibung|'Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)|Stairway to where?|![](/en-CA/2023/01/202301110500Umschreibung.jpg)|
