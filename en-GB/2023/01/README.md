@@ -11,3 +11,4 @@
 202301090000|HohenzollernBurg|Hohenzollern Castle, Baden-Württemberg, Germany (© Sahara Prince/Shutterstock)|Castle in the sky|![](/en-GB/2023/01/202301090000HohenzollernBurg.jpg)|
 202301100000|HummockIce|Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)|When ice imitates art|![](/en-GB/2023/01/202301100000HummockIce.jpg)|
 202301110000|GodrevyRocks|Godrevy Lighthouse, Cornwall (© Paul Nash/Shutterstock)|Lighting the way|![](/en-GB/2023/01/202301110000GodrevyRocks.jpg)|
+202301120000|RumeliHisari|Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Where Asia meets Europe|![](/en-GB/2023/01/202301120000RumeliHisari.jpg)|
