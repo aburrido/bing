@@ -12,3 +12,4 @@
 202301090800|BisonWindCave|Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)|Where buffalo roam|![](/en-US/2023/01/202301090800BisonWindCave.jpg)|
 202301100800|HummockIce|Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)|When ice imitates art|![](/en-US/2023/01/202301100800HummockIce.jpg)|
 202301110800|Umschreibung|'Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)|Stairway to where?|![](/en-US/2023/01/202301110800Umschreibung.jpg)|
+202301120800|RumeliHisari|Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Where two continents meet|![](/en-US/2023/01/202301120800RumeliHisari.jpg)|

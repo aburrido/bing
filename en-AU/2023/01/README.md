@@ -12,3 +12,4 @@
 202301090800|BisonWindCave|Wind Cave National Park, South Dakota, USA (© Charlie Summers/Minden Pictures)|Info|![](/en-AU/2023/01/202301090800BisonWindCave.jpg)|
 202301100800|HummockIce|Hummock ice, Lake Peipus, Estonia (© Sven Zacek/Minden Pictures)|Info|![](/en-AU/2023/01/202301100800HummockIce.jpg)|
 202301110800|GodrevyRocks|Godrevy Lighthouse, Cornwall, England, UK (© Paul Nash/Shutterstock)|Imfo|![](/en-AU/2023/01/202301110800GodrevyRocks.jpg)|
+202301120800|RumeliHisari|Rumelihisarı, Bosporus Strait, Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Info|![](/en-AU/2023/01/202301120800RumeliHisari.jpg)|
