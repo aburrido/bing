@@ -12,3 +12,4 @@
 202301091500|HummockIce|ハンモックアイス, エストニア (© Sven Zacek/Minden Pictures)|エストニア 湖上にひしめく氷の波|![](/ja-JP/2023/01/202301091500HummockIce.jpg)|
 202301101500|Umschreibung|"Umschreibung" オラファー・エリアソン, ドイツ (© Manfred Bail/Alamy)|今日は「階段の日」|![](/ja-JP/2023/01/202301101500Umschreibung.jpg)|
 202301111500|RumeliHisari|ルメリ・ヒサルの城塞, トルコ (© Drone in Wonderland/Amazing Aerial Agency)|トルコ ルメリ・ヒサルの城塞|![](/ja-JP/2023/01/202301111500RumeliHisari.jpg)|
+202301121500|Pneumatocysts|チャネル諸島国立公園, 米国 カリフォルニア州 (© Brandon Cole Images/Shutterstock)|海のセコイヤ|![](/ja-JP/2023/01/202301121500Pneumatocysts.jpg)|
