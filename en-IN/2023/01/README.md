@@ -12,3 +12,4 @@
 202301091830|HummockIce|Hummock ice on Lake Peipus in Estonia (© Sven Zacek/Minden Pictures)|When ice imitates art|![](/en-IN/2023/01/202301091830HummockIce.jpg)|
 202301101830|Umschreibung|'Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)|Stairway to where?|![](/en-IN/2023/01/202301101830Umschreibung.jpg)|
 202301111830|RumeliHisari|Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Where two continents meet|![](/en-IN/2023/01/202301111830RumeliHisari.jpg)|
+202301121830|Pneumatocysts|Giant kelp in Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Sequoias of the sea|![](/en-IN/2023/01/202301121830Pneumatocysts.jpg)|
