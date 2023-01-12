@@ -12,3 +12,4 @@
 202301092300|TintinDay|Le musée Hergé à Louvain la Neuve, Belgique (© Ruaridh Stewart/ZUMAPRESS.com/Alamy Stock Photo)|Mille millions de mille sabords !|![](/fr-FR/2023/01/202301092300TintinDay.jpg)|
 202301102300|Umschreibung|'Umschreibung' par l’artiste Olafur Eliasson à Munich (© Manfred Bail/Alamy)|On prend les escaliers ?|![](/fr-FR/2023/01/202301102300Umschreibung.jpg)|
 202301112300|RumeliHisari|Rumeli Hisarı sur le Bosphore, Istanbul, Turquie (© Drone in Wonderland/Amazing Aerial Agency)|Au carrefour des continents|![](/fr-FR/2023/01/202301112300RumeliHisari.jpg)|
+202301122300|Pneumatocysts|Varech géant du sanctuaire marin des Channels Islands, Californie, USA  (© Brandon Cole Images/Shutterstock)|Le séquoia des mers|![](/fr-FR/2023/01/202301122300Pneumatocysts.jpg)|
