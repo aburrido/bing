@@ -13,3 +13,4 @@
 202301100500|HummockIce|Glace sur le lac Peïpous en Estonie (© Sven Zacek/Minden Pictures)|Information|![](/fr-CA/2023/01/202301100500HummockIce.jpg)|
 202301110500|Umschreibung|'Umschreibung' par l’artiste Olafur Eliasson à Munich (© Manfred Bail/Alamy)|Information|![](/fr-CA/2023/01/202301110500Umschreibung.jpg)|
 202301120500|RumeliHisari|Rumeli Hisarı sur le Bosphore, Istanbul, Turquie (© Drone in Wonderland/Amazing Aerial Agency)|Information|![](/fr-CA/2023/01/202301120500RumeliHisari.jpg)|
+||||![](/fr-CA/2023/01/.jpg)|
