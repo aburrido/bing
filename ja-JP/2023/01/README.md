@@ -13,3 +13,4 @@
 202301101500|Umschreibung|"Umschreibung" オラファー・エリアソン, ドイツ (© Manfred Bail/Alamy)|今日は「階段の日」|![](/ja-JP/2023/01/202301101500Umschreibung.jpg)|
 202301111500|RumeliHisari|ルメリ・ヒサルの城塞, トルコ (© Drone in Wonderland/Amazing Aerial Agency)|トルコ ルメリ・ヒサルの城塞|![](/ja-JP/2023/01/202301111500RumeliHisari.jpg)|
 202301121500|Pneumatocysts|チャネル諸島国立公園, 米国 カリフォルニア州 (© Brandon Cole Images/Shutterstock)|海のセコイヤ|![](/ja-JP/2023/01/202301121500Pneumatocysts.jpg)|
+202301131500|DonkeyFeast|桜の小枝を食べている家畜のロバ (© Juniors Bildarchiv GmbH/Alamy)|ロバにとって愉快な一日|![](/ja-JP/2023/01/202301131500DonkeyFeast.jpg)|
