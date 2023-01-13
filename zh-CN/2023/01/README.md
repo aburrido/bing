@@ -13,3 +13,4 @@
 202301101600|GodrevyRocks|戈德雷维灯塔，英国康沃尔郡 (© Paul Nash/Shutterstock)|到灯塔去！|![](/zh-CN/2023/01/202301101600GodrevyRocks.jpg)|
 202301111600|RumeliHisari|博斯普鲁斯海峡的如梅利堡垒，土耳其伊斯坦布尔 (© Drone in Wonderland/Amazing Aerial Agency)|两大洲交接的地方|![](/zh-CN/2023/01/202301111600RumeliHisari.jpg)|
 202301121600|Pneumatocysts|海峡群岛国家公园的巨藻，美国加利福尼亚州 (© Brandon Cole Images/Shutterstock)|海中的红杉|![](/zh-CN/2023/01/202301121600Pneumatocysts.jpg)|
+202301131600|DonkeyFeast|吃樱桃树枝的毛驴 (© Juniors Bildarchiv GmbH/Alamy)|快乐小毛驴|![](/zh-CN/2023/01/202301131600DonkeyFeast.jpg)|
