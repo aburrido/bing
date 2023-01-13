@@ -13,3 +13,4 @@
 202301100800|HummockIce|Hummock ice, Lake Peipus, Estonia (© Sven Zacek/Minden Pictures)|Info|![](/en-AU/2023/01/202301100800HummockIce.jpg)|
 202301110800|GodrevyRocks|Godrevy Lighthouse, Cornwall, England, UK (© Paul Nash/Shutterstock)|Imfo|![](/en-AU/2023/01/202301110800GodrevyRocks.jpg)|
 202301120800|RumeliHisari|Rumelihisarı, Bosporus Strait, Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Info|![](/en-AU/2023/01/202301120800RumeliHisari.jpg)|
+202301130800|Pneumatocysts|Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Info|![](/en-AU/2023/01/202301130800Pneumatocysts.jpg)|
