@@ -13,3 +13,4 @@
 202301102300|Umschreibung|'Umschreibung' par l’artiste Olafur Eliasson à Munich (© Manfred Bail/Alamy)|On prend les escaliers ?|![](/fr-FR/2023/01/202301102300Umschreibung.jpg)|
 202301112300|RumeliHisari|Rumeli Hisarı sur le Bosphore, Istanbul, Turquie (© Drone in Wonderland/Amazing Aerial Agency)|Au carrefour des continents|![](/fr-FR/2023/01/202301112300RumeliHisari.jpg)|
 202301122300|Pneumatocysts|Varech géant du sanctuaire marin des Channels Islands, Californie, USA  (© Brandon Cole Images/Shutterstock)|Le séquoia des mers|![](/fr-FR/2023/01/202301122300Pneumatocysts.jpg)|
+202301132300|CloudBlanket|Station de ski de Megeve (Megève) en Haute-Savoie dans les Alpes françaises (© Samuel Borges Photography/Shutterstock)|Domaine skiable de Megève dans les Alpes françaises|![](/fr-FR/2023/01/202301132300CloudBlanket.jpg)|
