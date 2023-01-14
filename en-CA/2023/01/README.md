@@ -14,3 +14,4 @@
 202301110500|Umschreibung|'Umschreibung,' a sculpture by artist Olafur Eliasson in Munich, Germany (© Manfred Bail/Alamy)|Stairway to where?|![](/en-CA/2023/01/202301110500Umschreibung.jpg)|
 202301120500|RumeliHisari|Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Where two continents meet|![](/en-CA/2023/01/202301120500RumeliHisari.jpg)|
 202301130500|Pneumatocysts|Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Sequoias of the sea|![](/en-CA/2023/01/202301130500Pneumatocysts.jpg)|
+202301140500|DonkeyFeast|Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)|A delightful day for donkeys|![](/en-CA/2023/01/202301140500DonkeyFeast.jpg)|

@@ -15,3 +15,4 @@
 202301120500|RumeliHisari|Rumeli Hisarı sur le Bosphore, Istanbul, Turquie (© Drone in Wonderland/Amazing Aerial Agency)|Information|![](/fr-CA/2023/01/202301120500RumeliHisari.jpg)|
 ||||![](/fr-CA/2023/01/.jpg)|
 202301130500|Pneumatocysts|Varech géant dans le sanctuaire marin des Channels Island, Californie, USA (© Brandon Cole Images/Shutterstock)|Les séquoias de la mer|![](/fr-CA/2023/01/202301130500Pneumatocysts.jpg)|
+202301140500|DonkeyFeast|Âne domestique se nourrissant de brindilles de cerisier (© Juniors Bildarchiv GmbH/Alamy)|Une journée délicieuse pour les ânes|![](/fr-CA/2023/01/202301140500DonkeyFeast.jpg)|
