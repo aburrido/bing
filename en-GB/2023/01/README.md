@@ -13,3 +13,4 @@
 202301110000|GodrevyRocks|Godrevy Lighthouse, Cornwall (© Paul Nash/Shutterstock)|Lighting the way|![](/en-GB/2023/01/202301110000GodrevyRocks.jpg)|
 202301120000|RumeliHisari|Rumelihisarı on the Bosporus Strait at Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Where Asia meets Europe|![](/en-GB/2023/01/202301120000RumeliHisari.jpg)|
 202301130000|Pneumatocysts|Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Sequoias of the sea|![](/en-GB/2023/01/202301130000Pneumatocysts.jpg)|
+202301140000|DonkeyFeast|Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)|A delightful day for donkeys|![](/en-GB/2023/01/202301140000DonkeyFeast.jpg)|
