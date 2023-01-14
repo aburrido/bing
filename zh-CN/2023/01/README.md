@@ -14,3 +14,4 @@
 202301111600|RumeliHisari|博斯普鲁斯海峡的如梅利堡垒，土耳其伊斯坦布尔 (© Drone in Wonderland/Amazing Aerial Agency)|两大洲交接的地方|![](/zh-CN/2023/01/202301111600RumeliHisari.jpg)|
 202301121600|Pneumatocysts|海峡群岛国家公园的巨藻，美国加利福尼亚州 (© Brandon Cole Images/Shutterstock)|海中的红杉|![](/zh-CN/2023/01/202301121600Pneumatocysts.jpg)|
 202301131600|DonkeyFeast|吃樱桃树枝的毛驴 (© Juniors Bildarchiv GmbH/Alamy)|快乐小毛驴|![](/zh-CN/2023/01/202301131600DonkeyFeast.jpg)|
+202301141600|Turku|横贯图尔库的奥拉河, 芬兰 (© Jarmo Piironen/Alamy)|冰雪皑皑的芬兰|![](/zh-CN/2023/01/202301141600Turku.jpg)|
