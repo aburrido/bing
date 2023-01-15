@@ -15,3 +15,4 @@
 202301122300|Pneumatocysts|Varech géant du sanctuaire marin des Channels Islands, Californie, USA  (© Brandon Cole Images/Shutterstock)|Le séquoia des mers|![](/fr-FR/2023/01/202301122300Pneumatocysts.jpg)|
 202301132300|CloudBlanket|Station de ski de Megeve (Megève) en Haute-Savoie dans les Alpes françaises (© Samuel Borges Photography/Shutterstock)|Domaine skiable de Megève dans les Alpes françaises|![](/fr-FR/2023/01/202301132300CloudBlanket.jpg)|
 202301142300|Turku|Fleuve Aura à Turku, Finlande (© Jarmo Piironen/Alamy)|Magie blanche en Finlande|![](/fr-FR/2023/01/202301142300Turku.jpg)|
+202301152300|BlueMonday|Parapente Rhone-Alpes, France (© plainpicture/Sabine Bungert)|Dites-non à la déprime du Blue Monday !|![](/fr-FR/2023/01/202301152300BlueMonday.jpg)|

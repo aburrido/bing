@@ -15,3 +15,4 @@
 202301122300|Pneumatocysts|Riesentang im nationalen Meeresschutzgebiet Channel Island, Kalifornien, USA (© Brandon Cole Images/Shutterstock)|Riesentang|![](/de-DE/2023/01/202301122300Pneumatocysts.jpg)|
 202301132300|DonkeyFeast|Hausesel beim Fressen von Kirschzweigen (© Juniors Bildarchiv GmbH/Alamy)|Ein Tag für die Esel|![](/de-DE/2023/01/202301132300DonkeyFeast.jpg)|
 202301142300|Turku|Aurajoki in Turku, Finnland (© Jarmo Piironen/Alamy)|Aurajoki in Turku|![](/de-DE/2023/01/202301142300Turku.jpg)|
+202301152300|BergpalaisPillnitz|Bergpalais, Schloss Pillnitz, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)|Schloss Pillnitz|![](/de-DE/2023/01/202301152300BergpalaisPillnitz.jpg)|
