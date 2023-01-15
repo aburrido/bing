@@ -16,3 +16,4 @@
 ||||![](/fr-CA/2023/01/.jpg)|
 202301130500|Pneumatocysts|Varech géant dans le sanctuaire marin des Channels Island, Californie, USA (© Brandon Cole Images/Shutterstock)|Les séquoias de la mer|![](/fr-CA/2023/01/202301130500Pneumatocysts.jpg)|
 202301140500|DonkeyFeast|Âne domestique se nourrissant de brindilles de cerisier (© Juniors Bildarchiv GmbH/Alamy)|Une journée délicieuse pour les ânes|![](/fr-CA/2023/01/202301140500DonkeyFeast.jpg)|
+202301150500|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Magie blanche en Finlande|![](/fr-CA/2023/01/202301150500Turku.jpg)|
