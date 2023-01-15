@@ -15,3 +15,4 @@
 202301121600|Pneumatocysts|海峡群岛国家公园的巨藻，美国加利福尼亚州 (© Brandon Cole Images/Shutterstock)|海中的红杉|![](/zh-CN/2023/01/202301121600Pneumatocysts.jpg)|
 202301131600|DonkeyFeast|吃樱桃树枝的毛驴 (© Juniors Bildarchiv GmbH/Alamy)|快乐小毛驴|![](/zh-CN/2023/01/202301131600DonkeyFeast.jpg)|
 202301141600|Turku|横贯图尔库的奥拉河, 芬兰 (© Jarmo Piironen/Alamy)|冰雪皑皑的芬兰|![](/zh-CN/2023/01/202301141600Turku.jpg)|
+202301151600|FrozenBubblesAlberta|麦切纳山和结冰的亚伯拉罕湖，加拿大艾伯塔省 (© Tom Mackie/plainpicture)|美丽又危险|![](/zh-CN/2023/01/202301151600FrozenBubblesAlberta.jpg)|
