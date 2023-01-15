@@ -15,3 +15,4 @@
 202301120800|RumeliHisari|Rumelihisarı, Bosporus Strait, Istanbul, Türkiye (© Drone in Wonderland/Amazing Aerial Agency)|Info|![](/en-AU/2023/01/202301120800RumeliHisari.jpg)|
 202301130800|Pneumatocysts|Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Info|![](/en-AU/2023/01/202301130800Pneumatocysts.jpg)|
 202301140800|DonkeyFeast|Domestic donkey (© Juniors Bildarchiv GmbH/Alamy)|Info|![](/en-AU/2023/01/202301140800DonkeyFeast.jpg)|
+202301150800|Turku|Aura River, Turku, Finland (© Jarmo Piironen/Alamy)|Info|![](/en-AU/2023/01/202301150800Turku.jpg)|
