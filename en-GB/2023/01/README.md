@@ -15,3 +15,4 @@
 202301130000|Pneumatocysts|Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Sequoias of the sea|![](/en-GB/2023/01/202301130000Pneumatocysts.jpg)|
 202301140000|DonkeyFeast|Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)|A delightful day for donkeys|![](/en-GB/2023/01/202301140000DonkeyFeast.jpg)|
 202301150000|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-GB/2023/01/202301150000Turku.jpg)|
+202301160000|BlackrockCottage|White Corries in winter, Glen Coe, Highlands, Scotland (© AWL Images/Danita Delimont)|Winter wonderland|![](/en-GB/2023/01/202301160000BlackrockCottage.jpg)|
