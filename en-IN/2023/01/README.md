@@ -16,3 +16,4 @@
 202301131830|KitesLohriIndia|Colourful kites in Ahmedabad, Gujarat, India (© Anand Purohit/Getty Images)|Paint the sky with colours|![](/en-IN/2023/01/202301131830KitesLohriIndia.jpg)|
 202301141830|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-IN/2023/01/202301141830Turku.jpg)|
 202301151830|FrozenBubblesAlberta|Mount Michener and a frozen Abraham Lake in Alberta, Canada (© Tom Mackie/plainpicture)|Scenic Mount Michener|![](/en-IN/2023/01/202301151830FrozenBubblesAlberta.jpg)|
+202301161830|SessileOaks|Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|Beauty comes in trees|![](/en-IN/2023/01/202301161830SessileOaks.jpg)|
