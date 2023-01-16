@@ -16,3 +16,4 @@
 202301132300|CloudBlanket|Station de ski de Megeve (Megève) en Haute-Savoie dans les Alpes françaises (© Samuel Borges Photography/Shutterstock)|Domaine skiable de Megève dans les Alpes françaises|![](/fr-FR/2023/01/202301132300CloudBlanket.jpg)|
 202301142300|Turku|Fleuve Aura à Turku, Finlande (© Jarmo Piironen/Alamy)|Magie blanche en Finlande|![](/fr-FR/2023/01/202301142300Turku.jpg)|
 202301152300|BlueMonday|Parapente Rhone-Alpes, France (© plainpicture/Sabine Bungert)|Dites-non à la déprime du Blue Monday !|![](/fr-FR/2023/01/202301152300BlueMonday.jpg)|
+202301162300|SessileOaks|Réserve naturelle de Muniellos, Asturies, Espagne (© Andres M. Dominguez/Minden Pictures)|L’arbre qui cache la forêt|![](/fr-FR/2023/01/202301162300SessileOaks.jpg)|
