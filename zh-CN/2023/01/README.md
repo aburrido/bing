@@ -16,3 +16,4 @@
 202301131600|DonkeyFeast|吃樱桃树枝的毛驴 (© Juniors Bildarchiv GmbH/Alamy)|快乐小毛驴|![](/zh-CN/2023/01/202301131600DonkeyFeast.jpg)|
 202301141600|Turku|横贯图尔库的奥拉河, 芬兰 (© Jarmo Piironen/Alamy)|冰雪皑皑的芬兰|![](/zh-CN/2023/01/202301141600Turku.jpg)|
 202301151600|FrozenBubblesAlberta|麦切纳山和结冰的亚伯拉罕湖，加拿大艾伯塔省 (© Tom Mackie/plainpicture)|美丽又危险|![](/zh-CN/2023/01/202301151600FrozenBubblesAlberta.jpg)|
+202301161600|SessileOaks|穆涅略斯自然保护区，西班牙 (© Andres M. Dominguez/Minden Pictures)|树木之美|![](/zh-CN/2023/01/202301161600SessileOaks.jpg)|
