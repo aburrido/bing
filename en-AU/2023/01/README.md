@@ -16,3 +16,4 @@
 202301130800|Pneumatocysts|Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Info|![](/en-AU/2023/01/202301130800Pneumatocysts.jpg)|
 202301140800|DonkeyFeast|Domestic donkey (© Juniors Bildarchiv GmbH/Alamy)|Info|![](/en-AU/2023/01/202301140800DonkeyFeast.jpg)|
 202301150800|Turku|Aura River, Turku, Finland (© Jarmo Piironen/Alamy)|Info|![](/en-AU/2023/01/202301150800Turku.jpg)|
+202301160800|FrozenBubblesAlberta|Mount Michener and Abraham Lake, Alberta, Canada (© Tom Mackie/plainpicture)|Info|![](/en-AU/2023/01/202301160800FrozenBubblesAlberta.jpg)|

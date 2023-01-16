@@ -16,3 +16,4 @@
 202301130800|Pneumatocysts|Giant kelp in the Channel Islands National Marine Sanctuary, California (© Brandon Cole Images/Shutterstock)|Sequoias of the sea|![](/en-US/2023/01/202301130800Pneumatocysts.jpg)|
 202301140800|DonkeyFeast|Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)|A delightful day for donkeys|![](/en-US/2023/01/202301140800DonkeyFeast.jpg)|
 202301150800|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-US/2023/01/202301150800Turku.jpg)|
+202301160800|InscriptionWall|Inscription Wall at the Martin Luther King Jr. Memorial in Washington, DC (© Ken Howard/Alamy)|Words of wisdom|![](/en-US/2023/01/202301160800InscriptionWall.jpg)|
