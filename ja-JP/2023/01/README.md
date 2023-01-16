@@ -16,3 +16,4 @@
 202301131500|DonkeyFeast|桜の小枝を食べている家畜のロバ (© Juniors Bildarchiv GmbH/Alamy)|ロバにとって愉快な一日|![](/ja-JP/2023/01/202301131500DonkeyFeast.jpg)|
 202301141500|Turku|トゥルクのアウラ川, フィンランド (© Jarmo Piironen/Alamy)|霜の降りたフィンランド|![](/ja-JP/2023/01/202301141500Turku.jpg)|
 202301151500|FrozenBubblesAlberta|ミッチェナー山と凍ったアブラハムレイク, カナダ アルバータ州 (© Tom Mackie/plainpicture)|氷の泡に覆われた湖|![](/ja-JP/2023/01/202301151500FrozenBubblesAlberta.jpg)|
+202301161500|SessileOaks|ムニエージョス生物圏保護区, スペイン (© Andres M. Dominguez/Minden Pictures)|木に宿る美しさ|![](/ja-JP/2023/01/202301161500SessileOaks.jpg)|
