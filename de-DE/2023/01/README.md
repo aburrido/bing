@@ -17,3 +17,4 @@
 202301142300|Turku|Aurajoki in Turku, Finnland (© Jarmo Piironen/Alamy)|Aurajoki in Turku|![](/de-DE/2023/01/202301142300Turku.jpg)|
 202301152300|BergpalaisPillnitz|Bergpalais, Schloss Pillnitz, Dresden, Sachsen (© Rüdiger Hess/geo-select FotoArt)|Schloss Pillnitz|![](/de-DE/2023/01/202301152300BergpalaisPillnitz.jpg)|
 202301162300|SessileOaks|Das Naturschutzgebiet Muniellos in Asturien, Spanien (© Andres M. Dominguez/Minden Pictures)|Die Magie der Bäume|![](/de-DE/2023/01/202301162300SessileOaks.jpg)|
+202301172300|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|Das größte Gipsdünenfeld der Welt|![](/de-DE/2023/01/202301172300WhiteSands.jpg)|
