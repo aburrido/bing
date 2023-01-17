@@ -16,3 +16,4 @@
 202301140000|DonkeyFeast|Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)|A delightful day for donkeys|![](/en-GB/2023/01/202301140000DonkeyFeast.jpg)|
 202301150000|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-GB/2023/01/202301150000Turku.jpg)|
 202301160000|BlackrockCottage|White Corries in winter, Glen Coe, Highlands, Scotland (© AWL Images/Danita Delimont)|Winter wonderland|![](/en-GB/2023/01/202301160000BlackrockCottage.jpg)|
+202301170000|SessileOaks|Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|Beauty comes in trees|![](/en-GB/2023/01/202301170000SessileOaks.jpg)|
