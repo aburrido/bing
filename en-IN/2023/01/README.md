@@ -17,3 +17,4 @@
 202301141830|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-IN/2023/01/202301141830Turku.jpg)|
 202301151830|FrozenBubblesAlberta|Mount Michener and a frozen Abraham Lake in Alberta, Canada (© Tom Mackie/plainpicture)|Scenic Mount Michener|![](/en-IN/2023/01/202301151830FrozenBubblesAlberta.jpg)|
 202301161830|SessileOaks|Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|Beauty comes in trees|![](/en-IN/2023/01/202301161830SessileOaks.jpg)|
+202301171830|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|The largest gypsum dune field|![](/en-IN/2023/01/202301171830WhiteSands.jpg)|
