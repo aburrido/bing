@@ -17,3 +17,4 @@
 202301140500|DonkeyFeast|Domestic donkey feeding on cherry twigs (© Juniors Bildarchiv GmbH/Alamy)|A delightful day for donkeys|![](/en-CA/2023/01/202301140500DonkeyFeast.jpg)|
 202301150500|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-CA/2023/01/202301150500Turku.jpg)|
 202301160500|FrozenBubblesAlberta|Mount Michener and a frozen Abraham Lake in Alberta, Canada (© Tom Mackie/plainpicture)|Scenic Mount Michener|![](/en-CA/2023/01/202301160500FrozenBubblesAlberta.jpg)|
+202301170500|SessileOaks|Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|Beauty resides in trees|![](/en-CA/2023/01/202301170500SessileOaks.jpg)|

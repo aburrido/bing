@@ -18,3 +18,4 @@
 202301140500|DonkeyFeast|Âne domestique se nourrissant de brindilles de cerisier (© Juniors Bildarchiv GmbH/Alamy)|Une journée délicieuse pour les ânes|![](/fr-CA/2023/01/202301140500DonkeyFeast.jpg)|
 202301150500|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Magie blanche en Finlande|![](/fr-CA/2023/01/202301150500Turku.jpg)|
 202301160500|FrozenBubblesAlberta|Le Mont Michener et le lac Abraham dans l'Alberta, Canada (© Tom Mackie/plainpicture)|L’incroyable Mont Michener|![](/fr-CA/2023/01/202301160500FrozenBubblesAlberta.jpg)|
+202301170500|SessileOaks|Réserve naturelle de Muniellos, Asturies, Espagne (© Andres M. Dominguez/Minden Pictures)|L’arbre qui cache la forêt|![](/fr-CA/2023/01/202301170500SessileOaks.jpg)|
