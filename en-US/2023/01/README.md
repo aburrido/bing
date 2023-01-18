@@ -18,3 +18,4 @@
 202301150800|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Frosty Finland|![](/en-US/2023/01/202301150800Turku.jpg)|
 202301160800|InscriptionWall|Inscription Wall at the Martin Luther King Jr. Memorial in Washington, DC (© Ken Howard/Alamy)|Words of wisdom|![](/en-US/2023/01/202301160800InscriptionWall.jpg)|
 202301170800|SessileOaks|Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|From little acorns…|![](/en-US/2023/01/202301170800SessileOaks.jpg)|
+202301180800|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|Happy birthday, White Sands!|![](/en-US/2023/01/202301180800WhiteSands.jpg)|
