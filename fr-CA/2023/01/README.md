@@ -19,3 +19,4 @@
 202301150500|Turku|Aura River in Turku, Finland (© Jarmo Piironen/Alamy)|Magie blanche en Finlande|![](/fr-CA/2023/01/202301150500Turku.jpg)|
 202301160500|FrozenBubblesAlberta|Le Mont Michener et le lac Abraham dans l'Alberta, Canada (© Tom Mackie/plainpicture)|L’incroyable Mont Michener|![](/fr-CA/2023/01/202301160500FrozenBubblesAlberta.jpg)|
 202301170500|SessileOaks|Réserve naturelle de Muniellos, Asturies, Espagne (© Andres M. Dominguez/Minden Pictures)|L’arbre qui cache la forêt|![](/fr-CA/2023/01/202301170500SessileOaks.jpg)|
+202301180500|WhiteSands|Parc national des white sands, Nouveau Mexique, USA (© Andrea Harrell/Tandem Stills + Motion)|Le plus grand champ de dunes de gypses|![](/fr-CA/2023/01/202301180500WhiteSands.jpg)|
