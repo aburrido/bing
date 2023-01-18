@@ -18,3 +18,4 @@
 202301151500|FrozenBubblesAlberta|ミッチェナー山と凍ったアブラハムレイク, カナダ アルバータ州 (© Tom Mackie/plainpicture)|氷の泡に覆われた湖|![](/ja-JP/2023/01/202301151500FrozenBubblesAlberta.jpg)|
 202301161500|SessileOaks|ムニエージョス生物圏保護区, スペイン (© Andres M. Dominguez/Minden Pictures)|木に宿る美しさ|![](/ja-JP/2023/01/202301161500SessileOaks.jpg)|
 202301171500|WhiteSands|ホワイトサンズ国定公園, 米国 ニューメキシコ州 (© Andrea Harrell/Tandem Stills + Motion)|広大な石膏の砂丘|![](/ja-JP/2023/01/202301171500WhiteSands.jpg)|
+202301181500|SFFParkCity|パークシティ, 米国 ユタ州 (© Kruck20/Getty Images)|サンダンスの上空で雲が舞う|![](/ja-JP/2023/01/202301181500SFFParkCity.jpg)|
