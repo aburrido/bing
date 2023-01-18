@@ -18,3 +18,4 @@
 202301151600|FrozenBubblesAlberta|麦切纳山和结冰的亚伯拉罕湖，加拿大艾伯塔省 (© Tom Mackie/plainpicture)|美丽又危险|![](/zh-CN/2023/01/202301151600FrozenBubblesAlberta.jpg)|
 202301161600|SessileOaks|穆涅略斯自然保护区，西班牙 (© Andres M. Dominguez/Minden Pictures)|树木之美|![](/zh-CN/2023/01/202301161600SessileOaks.jpg)|
 202301171600|WhiteSands|白沙国家公园，美国新墨西哥州 (© Andrea Harrell/Tandem Stills + Motion)|世界最大的石膏沙漠|![](/zh-CN/2023/01/202301171600WhiteSands.jpg)|
+202301181600|SFFParkCity|帕克城, 美国犹他州 (© Kruck20/Getty Images)|圣丹斯上空的云彩|![](/zh-CN/2023/01/202301181600SFFParkCity.jpg)|
