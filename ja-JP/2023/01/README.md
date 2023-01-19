@@ -19,3 +19,4 @@
 202301161500|SessileOaks|ムニエージョス生物圏保護区, スペイン (© Andres M. Dominguez/Minden Pictures)|木に宿る美しさ|![](/ja-JP/2023/01/202301161500SessileOaks.jpg)|
 202301171500|WhiteSands|ホワイトサンズ国定公園, 米国 ニューメキシコ州 (© Andrea Harrell/Tandem Stills + Motion)|広大な石膏の砂丘|![](/ja-JP/2023/01/202301171500WhiteSands.jpg)|
 202301181500|SFFParkCity|パークシティ, 米国 ユタ州 (© Kruck20/Getty Images)|サンダンスの上空で雲が舞う|![](/ja-JP/2023/01/202301181500SFFParkCity.jpg)|
+202301191500|Daikan2023|雪に覆われた清水寺, 京都 (© Paitoon Pornsuksomboon/Shutterstock)|今日は「大寒」|![](/ja-JP/2023/01/202301191500Daikan2023.jpg)|
