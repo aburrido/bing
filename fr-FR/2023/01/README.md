@@ -19,3 +19,4 @@
 202301162300|SessileOaks|Réserve naturelle de Muniellos, Asturies, Espagne (© Andres M. Dominguez/Minden Pictures)|L’arbre qui cache la forêt|![](/fr-FR/2023/01/202301162300SessileOaks.jpg)|
 202301172300|WhiteSands|Parc national  White sands, Nouveau Mexique, USA (© Andrea Harrell/Tandem Stills + Motion)|Le plus grand champ de dunes de gypses au monde|![](/fr-FR/2023/01/202301172300WhiteSands.jpg)|
 202301182300|SFFParkCity|Park City, Utah (© Kruck20/Getty Images)|Park City, ville du célèbre Festival Sundance|![](/fr-FR/2023/01/202301182300SFFParkCity.jpg)|
+202301192300|FalklandKings|Les manchots royaux des îles Malouines (© Elmar Weiss/Getty Images)|Allez les gars, c’est notre journée !|![](/fr-FR/2023/01/202301192300FalklandKings.jpg)|
