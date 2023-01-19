@@ -18,3 +18,4 @@
 202301160000|BlackrockCottage|White Corries in winter, Glen Coe, Highlands, Scotland (© AWL Images/Danita Delimont)|Winter wonderland|![](/en-GB/2023/01/202301160000BlackrockCottage.jpg)|
 202301170000|SessileOaks|Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|Beauty comes in trees|![](/en-GB/2023/01/202301170000SessileOaks.jpg)|
 202301180000|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|The largest gypsum dune field|![](/en-GB/2023/01/202301180000WhiteSands.jpg)|
+202301190000|SFFParkCity|Park City, Utah (© Kruck20/Getty Images)|Clouds dance above Sundance|![](/en-GB/2023/01/202301190000SFFParkCity.jpg)|
