@@ -20,3 +20,4 @@
 202301171600|WhiteSands|白沙国家公园，美国新墨西哥州 (© Andrea Harrell/Tandem Stills + Motion)|世界最大的石膏沙漠|![](/zh-CN/2023/01/202301171600WhiteSands.jpg)|
 202301181600|SFFParkCity|帕克城, 美国犹他州 (© Kruck20/Getty Images)|圣丹斯上空的云彩|![](/zh-CN/2023/01/202301181600SFFParkCity.jpg)|
 202301191600|FalklandKings|王企鹅，福克兰群岛 (© Elmar Weiss/Getty Images)|“兄弟们，跟我走”|![](/zh-CN/2023/01/202301191600FalklandKings.jpg)|
+202301201600|ChineseNewYearEve2023|除夕夜的中国新年灯笼 (© Toa55/Getty Images)|爆竹声中一岁除|![](/zh-CN/2023/01/202301201600ChineseNewYearEve2023.jpg)|
