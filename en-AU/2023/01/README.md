@@ -20,3 +20,4 @@
 202301170800|SessileOaks|Muniellos Nature Reserve, Asturias, Spain (© Andres M. Dominguez/Minden Pictures)|Info|![](/en-AU/2023/01/202301170800SessileOaks.jpg)|
 202301180800|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|Info|![](/en-AU/2023/01/202301180800WhiteSands.jpg)|
 202301190800|SFFParkCity|Park City, Utah, USA (© Kruck20/Getty Images)|Info|![](/en-AU/2023/01/202301190800SFFParkCity.jpg)|
+202301200800|FalklandKings|Falkland Islands (© Elmar Weiss/Getty Images)|Info|![](/en-AU/2023/01/202301200800FalklandKings.jpg)|
