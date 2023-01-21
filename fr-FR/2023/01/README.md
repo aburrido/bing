@@ -21,3 +21,4 @@
 202301182300|SFFParkCity|Park City, Utah (© Kruck20/Getty Images)|Park City, ville du célèbre Festival Sundance|![](/fr-FR/2023/01/202301182300SFFParkCity.jpg)|
 202301192300|FalklandKings|Les manchots royaux des îles Malouines (© Elmar Weiss/Getty Images)|Allez les gars, c’est notre journée !|![](/fr-FR/2023/01/202301192300FalklandKings.jpg)|
 202301202300|HuggingKanga|Maman kangourou et son bébé  (© Belle Ciezak/Shutterstock)|Vive les câlins !|![](/fr-FR/2023/01/202301202300HuggingKanga.jpg)|
+202301212300|YearRabbit|Lapin blanc dans le Derbyshire, Angleterre (© Ben Hall/Minden Pictures)|Quand le tigre cède sa place au lapin !|![](/fr-FR/2023/01/202301212300YearRabbit.jpg)|
