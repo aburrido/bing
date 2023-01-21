@@ -21,3 +21,4 @@
 202301180800|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|Happy birthday, White Sands!|![](/en-US/2023/01/202301180800WhiteSands.jpg)|
 202301190800|SFFParkCity|Park City, Utah (© Kruck20/Getty Images)|Clouds dance above Sundance|![](/en-US/2023/01/202301190800SFFParkCity.jpg)|
 202301200800|FalklandKings|King penguins in the Falkland Islands (© Elmar Weiss/Getty Images)|'Come on, guys, this way!'|![](/en-US/2023/01/202301200800FalklandKings.jpg)|
+202301210800|HuggingKanga|Kangaroo mother and baby (© Belle Ciezak/Shutterstock)|When only a hug will do|![](/en-US/2023/01/202301210800HuggingKanga.jpg)|
