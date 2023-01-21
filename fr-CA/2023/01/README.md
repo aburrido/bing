@@ -22,3 +22,4 @@
 202301180500|WhiteSands|Parc national des white sands, Nouveau Mexique, USA (© Andrea Harrell/Tandem Stills + Motion)|Le plus grand champ de dunes de gypses|![](/fr-CA/2023/01/202301180500WhiteSands.jpg)|
 202301190500|SFFParkCity|Park City, Utah, USA (© Kruck20/Getty Images)|Park City, ville du célèbre Festival Sundance|![](/fr-CA/2023/01/202301190500SFFParkCity.jpg)|
 202301200500|FalklandKings|Les manchots royaux des îles Malouines (© Elmar Weiss/Getty Images)|Allez les gars, c’est notre journée !|![](/fr-CA/2023/01/202301200500FalklandKings.jpg)|
+202301210500|HuggingKanga|Maman kangourou et son bébé (© Belle Ciezak/Shutterstock)|Quand seul un câlin peut aider|![](/fr-CA/2023/01/202301210500HuggingKanga.jpg)|

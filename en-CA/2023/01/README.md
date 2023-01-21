@@ -21,3 +21,4 @@
 202301180500|WhiteSands|White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)|The largest gypsum dune field|![](/en-CA/2023/01/202301180500WhiteSands.jpg)|
 202301190500|SFFParkCity|Park City, Utah (© Kruck20/Getty Images)|Clouds dance above Sundance|![](/en-CA/2023/01/202301190500SFFParkCity.jpg)|
 202301200500|FalklandKings|King penguins in the Falkland Islands (© Elmar Weiss/Getty Images)|'Come on, guys, this way!'|![](/en-CA/2023/01/202301200500FalklandKings.jpg)|
+202301210500|HuggingKanga|Kangaroo mother and baby (© Belle Ciezak/Shutterstock)|Is a hug really that magical?|![](/en-CA/2023/01/202301210500HuggingKanga.jpg)|
