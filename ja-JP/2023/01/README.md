@@ -22,3 +22,4 @@
 202301191500|Daikan2023|雪に覆われた清水寺, 京都 (© Paitoon Pornsuksomboon/Shutterstock)|今日は「大寒」|![](/ja-JP/2023/01/202301191500Daikan2023.jpg)|
 202301201500|HuggingKanga|カンガルーの母子 (© Belle Ciezak/Shutterstock)|今日はナショナル・ハグ・デー|![](/ja-JP/2023/01/202301201500HuggingKanga.jpg)|
 202301211500|YearRabbit|ユキウサギ, イギリス ダービーシャー州 (© Ben Hall/Minden Pictures)|今日は旧正月|![](/ja-JP/2023/01/202301211500YearRabbit.jpg)|
+202301221500|SunriseMoai|イースター島のモアイ像, チリ (© Karine Aigner/Tandem Stills + Motion)|大きな岩、大きな頭|![](/ja-JP/2023/01/202301221500SunriseMoai.jpg)|
