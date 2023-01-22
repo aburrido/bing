@@ -21,3 +21,4 @@
 202301190000|SFFParkCity|Park City, Utah (© Kruck20/Getty Images)|Clouds dance above Sundance|![](/en-GB/2023/01/202301190000SFFParkCity.jpg)|
 202301200000|FalklandKings|King penguins in the Falkland Islands (© Elmar Weiss/Getty Images)|'Come on, guys, this way!'|![](/en-GB/2023/01/202301200000FalklandKings.jpg)|
 202301210000|HuggingKanga|Kangaroo mother and baby (© Belle Ciezak/Shutterstock)|When only a hug will do|![](/en-GB/2023/01/202301210000HuggingKanga.jpg)|
+202301220000|YearRabbit|Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)|Hop into Lunar New Year|![](/en-GB/2023/01/202301220000YearRabbit.jpg)|
