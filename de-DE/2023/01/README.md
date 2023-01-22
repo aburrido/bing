@@ -22,3 +22,4 @@
 202301192300|FalklandKings|Königspinguine auf den Falklandinseln (© Elmar Weiss/Getty Images)|Königspinguine|![](/de-DE/2023/01/202301192300FalklandKings.jpg)|
 202301202300|WaschbaerBirke|Waschbär (Procyon Lotor) zwei Babys klettern auf den Baum (© Tim Fitzharris/Minden)|Wenn nur eine Umarmung genügt|![](/de-DE/2023/01/202301202300WaschbaerBirke.jpg)|
 202301212300|YearRabbit|Schneehase in Derbyshire, England (© Ben Hall/Minden Pictures)|Sprung ins neue Mondjahr|![](/de-DE/2023/01/202301212300YearRabbit.jpg)|
+202301222300|SunriseMoai|Moai-Statuen auf der Osterinsel, Chile (© Karine Aigner/Tandem Stills + Motion)|Moai-Statuen|![](/de-DE/2023/01/202301222300SunriseMoai.jpg)|

@@ -22,3 +22,4 @@
 202301192300|FalklandKings|Les manchots royaux des îles Malouines (© Elmar Weiss/Getty Images)|Allez les gars, c’est notre journée !|![](/fr-FR/2023/01/202301192300FalklandKings.jpg)|
 202301202300|HuggingKanga|Maman kangourou et son bébé  (© Belle Ciezak/Shutterstock)|Vive les câlins !|![](/fr-FR/2023/01/202301202300HuggingKanga.jpg)|
 202301212300|YearRabbit|Lapin blanc dans le Derbyshire, Angleterre (© Ben Hall/Minden Pictures)|Quand le tigre cède sa place au lapin !|![](/fr-FR/2023/01/202301212300YearRabbit.jpg)|
+202301222300|SunriseMoai|Les statues Moaï de l’Île de Pâques, Chili (© Karine Aigner/Tandem Stills + Motion)|Mystérieuses statues|![](/fr-FR/2023/01/202301222300SunriseMoai.jpg)|
