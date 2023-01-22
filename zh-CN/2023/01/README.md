@@ -22,3 +22,4 @@
 202301191600|FalklandKings|王企鹅，福克兰群岛 (© Elmar Weiss/Getty Images)|“兄弟们，跟我走”|![](/zh-CN/2023/01/202301191600FalklandKings.jpg)|
 202301201600|ChineseNewYearEve2023|除夕夜的中国新年灯笼 (© Toa55/Getty Images)|爆竹声中一岁除|![](/zh-CN/2023/01/202301201600ChineseNewYearEve2023.jpg)|
 202301211600|ChineseSpringFestival2023|春节的桃花和红灯笼 (© David Ng+EyeEm/Getty Images)|春节快乐，兔年大吉！|![](/zh-CN/2023/01/202301211600ChineseSpringFestival2023.jpg)|
+202301221600|SunriseMoai|复活节岛上的摩艾石像，智利 (© Karine Aigner/Tandem Stills + Motion)|摩艾石像|![](/zh-CN/2023/01/202301221600SunriseMoai.jpg)|
