@@ -23,3 +23,4 @@
 202301201500|HuggingKanga|カンガルーの母子 (© Belle Ciezak/Shutterstock)|今日はナショナル・ハグ・デー|![](/ja-JP/2023/01/202301201500HuggingKanga.jpg)|
 202301211500|YearRabbit|ユキウサギ, イギリス ダービーシャー州 (© Ben Hall/Minden Pictures)|今日は旧正月|![](/ja-JP/2023/01/202301211500YearRabbit.jpg)|
 202301221500|SunriseMoai|イースター島のモアイ像, チリ (© Karine Aigner/Tandem Stills + Motion)|大きな岩、大きな頭|![](/ja-JP/2023/01/202301221500SunriseMoai.jpg)|
+202301231500|ColleSantaLucia|ドロミテ山地のコッレ・サンタ・ルチーア, イタリア (© mauritius images GmbH/Alamy)|ポストカードとスノーボールのような冬景色|![](/ja-JP/2023/01/202301231500ColleSantaLucia.jpg)|
