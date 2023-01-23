@@ -23,3 +23,4 @@
 202301200800|FalklandKings|King penguins in the Falkland Islands (© Elmar Weiss/Getty Images)|'Come on, guys, this way!'|![](/en-US/2023/01/202301200800FalklandKings.jpg)|
 202301210800|HuggingKanga|Kangaroo mother and baby (© Belle Ciezak/Shutterstock)|When only a hug will do|![](/en-US/2023/01/202301210800HuggingKanga.jpg)|
 202301220800|YearRabbit|Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)|Hop into Lunar New Year|![](/en-US/2023/01/202301220800YearRabbit.jpg)|
+202301230800|SunriseMoai|Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)|Stony sentinels|![](/en-US/2023/01/202301230800SunriseMoai.jpg)|
