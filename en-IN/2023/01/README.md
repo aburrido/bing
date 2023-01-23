@@ -23,3 +23,4 @@
 202301201830|HuggingKanga|Kangaroo mother and baby (© Belle Ciezak/Shutterstock)|When only a hug will do|![](/en-IN/2023/01/202301201830HuggingKanga.jpg)|
 202301211830|YearRabbit|Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)|Hop into Lunar New Year|![](/en-IN/2023/01/202301211830YearRabbit.jpg)|
 202301221830|SunriseMoai|Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)|Big rocks, big heads|![](/en-IN/2023/01/202301221830SunriseMoai.jpg)|
+202301231830|ColleSantaLucia|Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)|The envy of postcards and snowglobes|![](/en-IN/2023/01/202301231830ColleSantaLucia.jpg)|
