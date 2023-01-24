@@ -25,3 +25,4 @@
 202301210500|HuggingKanga|Maman kangourou et son bébé (© Belle Ciezak/Shutterstock)|Quand seul un câlin peut aider|![](/fr-CA/2023/01/202301210500HuggingKanga.jpg)|
 202301220500|YearRabbit|Lapin blanc dans le Derbyshire, Angleterre (© Ben Hall/Minden Pictures)|Quand le tigre cède sa place au lapin|![](/fr-CA/2023/01/202301220500YearRabbit.jpg)|
 202301230500|SunriseMoai|Les statues Moaï de l’Île de Pâques, Chili (© Karine Aigner/Tandem Stills + Motion)|Mystérieuses statues|![](/fr-CA/2023/01/202301230500SunriseMoai.jpg)|
+202301240500|ColleSantaLucia|Colle Santa Lucia dans les Dolomites, Italie (© mauritius images GmbH/Alamy)|Un paysage digne d'une boule à neige|![](/fr-CA/2023/01/202301240500ColleSantaLucia.jpg)|
