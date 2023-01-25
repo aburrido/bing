@@ -25,3 +25,4 @@
 202301220800|YearRabbit|Mountain hare, Derbyshire, England (© Ben Hall/Minden Pictures)|Info|![](/en-AU/2023/01/202301220800YearRabbit.jpg)|
 202301230800|SunriseMoai|Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)|Info|![](/en-AU/2023/01/202301230800SunriseMoai.jpg)|
 202301240800|ColleSantaLucia|Dolomites, Italy (© mauritius images GmbH/Alamy)|Info|![](/en-AU/2023/01/202301240800ColleSantaLucia.jpg)|
+202301250800|BirksofAberfeldy|Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Info|![](/en-AU/2023/01/202301250800BirksofAberfeldy.jpg)|

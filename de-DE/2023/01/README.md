@@ -25,3 +25,4 @@
 202301222300|SunriseMoai|Moai-Statuen auf der Osterinsel, Chile (© Karine Aigner/Tandem Stills + Motion)|Moai-Statuen|![](/de-DE/2023/01/202301222300SunriseMoai.jpg)|
 202301232300|ColleSantaLucia|Colle Santa Lucia in den Dolomiten, Italien (© mauritius images GmbH/Alamy)|Postkartenidylle in den Alpen|![](/de-DE/2023/01/202301232300ColleSantaLucia.jpg)|
 202301242300|BirksofAberfeldy|Statue von Robert Burns in den Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Ein Fest für den Schottischen Dichter|![](/de-DE/2023/01/202301242300BirksofAberfeldy.jpg)|
+||||![](/de-DE/2023/01/.jpg)|
