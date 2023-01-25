@@ -26,3 +26,4 @@
 202301220500|YearRabbit|Lapin blanc dans le Derbyshire, Angleterre (© Ben Hall/Minden Pictures)|Quand le tigre cède sa place au lapin|![](/fr-CA/2023/01/202301220500YearRabbit.jpg)|
 202301230500|SunriseMoai|Les statues Moaï de l’Île de Pâques, Chili (© Karine Aigner/Tandem Stills + Motion)|Mystérieuses statues|![](/fr-CA/2023/01/202301230500SunriseMoai.jpg)|
 202301240500|ColleSantaLucia|Colle Santa Lucia dans les Dolomites, Italie (© mauritius images GmbH/Alamy)|Un paysage digne d'une boule à neige|![](/fr-CA/2023/01/202301240500ColleSantaLucia.jpg)|
+202301250500|BirksofAberfeldy|Statue de Robert Burns dans les environs d'Aberfeldy, à Perth et Kinross, en Écosse (© Dennis Barnes/Getty Images)|Hommage au poète écossais|![](/fr-CA/2023/01/202301250500BirksofAberfeldy.jpg)|

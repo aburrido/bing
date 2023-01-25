@@ -25,3 +25,4 @@
 202301220500|YearRabbit|Mountain hare in Derbyshire, England (© Ben Hall/Minden Pictures)|Hop into Lunar New Year|![](/en-CA/2023/01/202301220500YearRabbit.jpg)|
 202301230500|SunriseMoai|Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)|Big rocks, big heads, still counting?|![](/en-CA/2023/01/202301230500SunriseMoai.jpg)|
 202301240500|ColleSantaLucia|Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)|The envy of postcards and snow globes|![](/en-CA/2023/01/202301240500ColleSantaLucia.jpg)|
+202301250500|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish bard|![](/en-CA/2023/01/202301250500BirksofAberfeldy.jpg)|
