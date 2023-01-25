@@ -25,3 +25,4 @@
 202301222300|SunriseMoai|Les statues Moaï de l’Île de Pâques, Chili (© Karine Aigner/Tandem Stills + Motion)|Mystérieuses statues|![](/fr-FR/2023/01/202301222300SunriseMoai.jpg)|
 202301232300|ColleSantaLucia|Colle Santa Lucia dans les Dolomites, Italie (© mauritius images GmbH/Alamy)|Un paysage digne d'une boule à neige|![](/fr-FR/2023/01/202301232300ColleSantaLucia.jpg)|
 202301242300|BirksofAberfeldy|Statue de Robert Burns, Aberfeldy, Écosse. (© Dennis Barnes/Getty Images)|Hommage au poète écossais Robert Burns|![](/fr-FR/2023/01/202301242300BirksofAberfeldy.jpg)|
+202301252300|HighArchChina|La Porte du Ciel dans le parc national de la montagne Tianmen, Chine (© Shane P. White/Minden Pictures)|Un escalier vers le ciel|![](/fr-FR/2023/01/202301252300HighArchChina.jpg)|
