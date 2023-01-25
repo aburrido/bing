@@ -25,3 +25,4 @@
 202301221600|SunriseMoai|复活节岛上的摩艾石像，智利 (© Karine Aigner/Tandem Stills + Motion)|摩艾石像|![](/zh-CN/2023/01/202301221600SunriseMoai.jpg)|
 202301231600|ColleSantaLucia|多洛米蒂山谷中的科莱圣卢恰小镇，意大利 (© mauritius images GmbH/Alamy)|明信片和雪花球的取景地|![](/zh-CN/2023/01/202301231600ColleSantaLucia.jpg)|
 202301241600|BirksofAberfeldy|位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰 (© Dennis Barnes/Getty Images)|谁写下了友谊天长地久？|![](/zh-CN/2023/01/202301241600BirksofAberfeldy.jpg)|
+202301251600|HighArchChina|天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)|通往天门的阶梯|![](/zh-CN/2023/01/202301251600HighArchChina.jpg)|
