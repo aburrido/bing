@@ -26,3 +26,4 @@
 202301231830|ColleSantaLucia|Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)|The envy of postcards and snowglobes|![](/en-IN/2023/01/202301231830ColleSantaLucia.jpg)|
 202301241830|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish bard|![](/en-IN/2023/01/202301241830BirksofAberfeldy.jpg)|
 202301251830|RepublicDayIndia|Indian Army soldiers march through the ceremonial Rajpath in New Delhi (© T. Narayan/Getty Images)|Republic Day|![](/en-IN/2023/01/202301251830RepublicDayIndia.jpg)|
+||||![](/en-IN/2023/01/.jpg)|
