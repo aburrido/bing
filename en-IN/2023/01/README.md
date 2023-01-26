@@ -27,3 +27,4 @@
 202301241830|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish bard|![](/en-IN/2023/01/202301241830BirksofAberfeldy.jpg)|
 202301251830|RepublicDayIndia|Indian Army soldiers march through the ceremonial Rajpath in New Delhi (© T. Narayan/Getty Images)|Republic Day|![](/en-IN/2023/01/202301251830RepublicDayIndia.jpg)|
 ||||![](/en-IN/2023/01/.jpg)|
+202301261830|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|Guanahacabibes National Park, Cuba|![](/en-IN/2023/01/202301261830RedMangrove.jpg)|
