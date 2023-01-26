@@ -27,3 +27,4 @@
 202301242300|BirksofAberfeldy|Statue von Robert Burns in den Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Ein Fest für den Schottischen Dichter|![](/de-DE/2023/01/202301242300BirksofAberfeldy.jpg)|
 ||||![](/de-DE/2023/01/.jpg)|
 202301252300|HighArchChina|Das Himmelstor im Tianmen-Berg-Nationalpark, China (© Shane P. White/Minden Pictures)|Treppe zum Himmel|![](/de-DE/2023/01/202301252300HighArchChina.jpg)|
+202301262300|RedMangrove|Rote Mangrove im Guanahacabibes Nationalpark, Kuba (© Claudio Contreras/Minden Pictures)|Hoch lebe die mächtige Mangrove!|![](/de-DE/2023/01/202301262300RedMangrove.jpg)|

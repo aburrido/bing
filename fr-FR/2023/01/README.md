@@ -27,3 +27,4 @@
 202301242300|BirksofAberfeldy|Statue de Robert Burns, Aberfeldy, Écosse. (© Dennis Barnes/Getty Images)|Hommage au poète écossais Robert Burns|![](/fr-FR/2023/01/202301242300BirksofAberfeldy.jpg)|
 202301252300|HighArchChina|La Porte du Ciel dans le parc national de la montagne Tianmen, Chine (© Shane P. White/Minden Pictures)|Un escalier vers le ciel|![](/fr-FR/2023/01/202301252300HighArchChina.jpg)|
 ||||![](/fr-FR/2023/01/.jpg)|
+202301262300|RedMangrove|Mangrove rouge, Parque Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)|Découvrez ces mangroves extraordinaires|![](/fr-FR/2023/01/202301262300RedMangrove.jpg)|
