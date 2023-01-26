@@ -26,3 +26,4 @@
 202301230800|SunriseMoai|Moai statues on Easter Island, Chile (© Karine Aigner/Tandem Stills + Motion)|Stony sentinels|![](/en-US/2023/01/202301230800SunriseMoai.jpg)|
 202301240800|ColleSantaLucia|Colle Santa Lucia in the Dolomites, Italy (© mauritius images GmbH/Alamy)|The envy of postcards and snow globes|![](/en-US/2023/01/202301240800ColleSantaLucia.jpg)|
 202301250800|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish Bard|![](/en-US/2023/01/202301250800BirksofAberfeldy.jpg)|
+202301260800|HighArchChina|Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)|A heavenly view|![](/en-US/2023/01/202301260800HighArchChina.jpg)|
