@@ -28,3 +28,4 @@
 202301250800|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish Bard|![](/en-US/2023/01/202301250800BirksofAberfeldy.jpg)|
 202301260800|HighArchChina|Heaven's Gate Cave in Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)|A heavenly view|![](/en-US/2023/01/202301260800HighArchChina.jpg)|
 ||||![](/en-US/2023/01/.jpg)|
+202301270800|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|All hail the mighty mangrove!|![](/en-US/2023/01/202301270800RedMangrove.jpg)|

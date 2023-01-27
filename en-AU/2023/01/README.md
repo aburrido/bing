@@ -28,3 +28,4 @@
 202301250800|BirksofAberfeldy|Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Info|![](/en-AU/2023/01/202301250800BirksofAberfeldy.jpg)|
 202301260800|HighArchChina|Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)|Info|![](/en-AU/2023/01/202301260800HighArchChina.jpg)|
 ||||![](/en-AU/2023/01/.jpg)|
+202301270800|RedMangrove|Red mangrove tree seedlings (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2023/01/202301270800RedMangrove.jpg)|
