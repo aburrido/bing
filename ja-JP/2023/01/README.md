@@ -28,3 +28,4 @@
 ||||![](/ja-JP/2023/01/.jpg)|
 202301251500|HighArchChina|張家界天門山 天国の門, 中国 湖南省 (© Shane P. White/Minden Pictures)|天国への階段|![](/ja-JP/2023/01/202301251500HighArchChina.jpg)|
 202301261500|RedMangrove|グアナハカビベス国立公園, キューバ (© Claudio Contreras/Minden Pictures)|水辺の森、マングローブ|![](/ja-JP/2023/01/202301261500RedMangrove.jpg)|
+202301271500|BlueBahamas|国際宇宙ステーションから見たバハマ (© NASA)|水面下に広がる深海の丘|![](/ja-JP/2023/01/202301271500BlueBahamas.jpg)|
