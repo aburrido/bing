@@ -28,3 +28,4 @@
 202301252300|HighArchChina|La Porte du Ciel dans le parc national de la montagne Tianmen, Chine (© Shane P. White/Minden Pictures)|Un escalier vers le ciel|![](/fr-FR/2023/01/202301252300HighArchChina.jpg)|
 ||||![](/fr-FR/2023/01/.jpg)|
 202301262300|RedMangrove|Mangrove rouge, Parque Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)|Découvrez ces mangroves extraordinaires|![](/fr-FR/2023/01/202301262300RedMangrove.jpg)|
+202301272300|BlueBahamas|Eaux turquoises des Bahamas depuis la Station Spatiale Internationale (© NASA)|Peinture ou nature ?|![](/fr-FR/2023/01/202301272300BlueBahamas.jpg)|
