@@ -28,3 +28,4 @@
 202301250500|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish bard|![](/en-CA/2023/01/202301250500BirksofAberfeldy.jpg)|
 ||||![](/en-CA/2023/01/.jpg)|
 202301260500|CypressCreek|Rainforest trails along Cypress Creek, West Vancouver, BC (© Jason Wilde/TANDEM Stills + Motion)|Trails leading to the gateway of nature.|![](/en-CA/2023/01/202301260500CypressCreek.jpg)|
+202301270500|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|All hail the mighty mangrove!|![](/en-CA/2023/01/202301270500RedMangrove.jpg)|
