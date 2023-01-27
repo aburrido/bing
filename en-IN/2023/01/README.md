@@ -28,3 +28,4 @@
 202301251830|RepublicDayIndia|Indian Army soldiers march through the ceremonial Rajpath in New Delhi (© T. Narayan/Getty Images)|Republic Day|![](/en-IN/2023/01/202301251830RepublicDayIndia.jpg)|
 ||||![](/en-IN/2023/01/.jpg)|
 202301261830|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|Guanahacabibes National Park, Cuba|![](/en-IN/2023/01/202301261830RedMangrove.jpg)|
+202301271830|BlueBahamas|Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)|When life imitates art|![](/en-IN/2023/01/202301271830BlueBahamas.jpg)|
