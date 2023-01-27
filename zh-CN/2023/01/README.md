@@ -28,3 +28,4 @@
 202301251600|HighArchChina|天门洞，湖南天门山国家森林公园，中国 (© Shane P. White/Minden Pictures)|通往天门的阶梯|![](/zh-CN/2023/01/202301251600HighArchChina.jpg)|
 202301261600|RedMangrove|瓜纳阿卡维韦斯半岛国家公园的红树林，古巴 (© Claudio Contreras/Minden Pictures)|向伟大的红树林致敬！|![](/zh-CN/2023/01/202301261600RedMangrove.jpg)|
 ||||![](/zh-CN/2023/01/.jpg)|
+202301271600|BlueBahamas|从国际空间站看到的巴哈马周围的蓝绿色水域 (© NASA)|像极了艺术画作的真实照片|![](/zh-CN/2023/01/202301271600BlueBahamas.jpg)|
