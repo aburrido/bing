@@ -27,3 +27,4 @@
 202301250000|BirksofAberfeldy|Statue of Robert Burns in the Birks of Aberfeldy, Perth and Kinross, Scotland (© Dennis Barnes/Getty Images)|Celebrating the Scottish bard|![](/en-GB/2023/01/202301250000BirksofAberfeldy.jpg)|
 ||||![](/en-GB/2023/01/.jpg)|
 202301260000|SilburySnow|Silbury Hill in the winter snow at sunrise, Avebury, Wiltshire (© Tim Gainey/Alamy)|The glowing winter|![](/en-GB/2023/01/202301260000SilburySnow.jpg)|
+202301270000|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|All hail the mighty mangrove!|![](/en-GB/2023/01/202301270000RedMangrove.jpg)|
