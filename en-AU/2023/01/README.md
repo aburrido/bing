@@ -29,3 +29,4 @@
 202301260800|HighArchChina|Tianmen Mountain National Park, China (© Shane P. White/Minden Pictures)|Info|![](/en-AU/2023/01/202301260800HighArchChina.jpg)|
 ||||![](/en-AU/2023/01/.jpg)|
 202301270800|RedMangrove|Red mangrove tree seedlings (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2023/01/202301270800RedMangrove.jpg)|
+202301280800|BlueBahamas|Blue-green waters (© NASA)|Info|![](/en-AU/2023/01/202301280800BlueBahamas.jpg)|
