@@ -29,3 +29,4 @@
 202301252300|HighArchChina|Das Himmelstor im Tianmen-Berg-Nationalpark, China (© Shane P. White/Minden Pictures)|Treppe zum Himmel|![](/de-DE/2023/01/202301252300HighArchChina.jpg)|
 202301262300|RedMangrove|Rote Mangrove im Guanahacabibes Nationalpark, Kuba (© Claudio Contreras/Minden Pictures)|Hoch lebe die mächtige Mangrove!|![](/de-DE/2023/01/202301262300RedMangrove.jpg)|
 202301272300|BlueBahamas|Türkisgrün Wasser um die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)|Wenn das Leben Kunst imitiert|![](/de-DE/2023/01/202301272300BlueBahamas.jpg)|
+202301282300|BlackbirdDay|Amsel in Essex, England (© Bill Coster/Alamy Stock Photo)|Was verbindet Amseln mit Winter?|![](/de-DE/2023/01/202301282300BlackbirdDay.jpg)|
