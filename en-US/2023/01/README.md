@@ -30,3 +30,4 @@
 ||||![](/en-US/2023/01/.jpg)|
 202301270800|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|All hail the mighty mangrove!|![](/en-US/2023/01/202301270800RedMangrove.jpg)|
 202301280800|BlueBahamas|Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)|When life imitates art|![](/en-US/2023/01/202301280800BlueBahamas.jpg)|
+202301290800|BlackbirdDay|Blackbird in Essex, England (© Bill Coster/Alamy)|Days of the blackbird|![](/en-US/2023/01/202301290800BlackbirdDay.jpg)|
