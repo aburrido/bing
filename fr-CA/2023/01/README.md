@@ -30,3 +30,4 @@
 202301260500|HighArchChina|La Porte du Ciel dans le parc national de la montagne Tianmen, Chine (© Shane P. White/Minden Pictures)|Un escalier vers le ciel|![](/fr-CA/2023/01/202301260500HighArchChina.jpg)|
 202301270500|RedMangrove|Mangrove rouge, Parque Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)|Découvrez ces mangroves extraordinaires|![](/fr-CA/2023/01/202301270500RedMangrove.jpg)|
 202301280500|BlueBahamas|Eaux bleues-vertes autour des Bahamas, vues depuis la Station spatiale internationale (© NASA)|Peinture ou nature ?|![](/fr-CA/2023/01/202301280500BlueBahamas.jpg)|
+202301290500|BlackbirdDay|Merle Carouge de l’Essex, Angleterre (© Bill Coster/Alamy)|La légende du merle noir|![](/fr-CA/2023/01/202301290500BlackbirdDay.jpg)|
