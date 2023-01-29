@@ -30,3 +30,4 @@
 202301262300|RedMangrove|Mangrove rouge, Parque Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)|Découvrez ces mangroves extraordinaires|![](/fr-FR/2023/01/202301262300RedMangrove.jpg)|
 202301272300|BlueBahamas|Eaux turquoises des Bahamas depuis la Station Spatiale Internationale (© NASA)|Peinture ou nature ?|![](/fr-FR/2023/01/202301272300BlueBahamas.jpg)|
 202301282300|BlackbirdDay|Merle Carouge de l'Essex, Angletterre (© Bill Coster/Alamy Stock Photo)|Savez-vous à quoi correspondent "les jours du merle” en Italie ?|![](/fr-FR/2023/01/202301282300BlackbirdDay.jpg)|
+202301292300|IceSailingBalaton|Championnat du monde de voile sur glace, lac Balaton, Hongrie (© mauritius images GmbH/Alamy Stock Photo)|À vos voiliers !|![](/fr-FR/2023/01/202301292300IceSailingBalaton.jpg)|
