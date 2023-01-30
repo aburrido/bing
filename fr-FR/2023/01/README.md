@@ -31,3 +31,4 @@
 202301272300|BlueBahamas|Eaux turquoises des Bahamas depuis la Station Spatiale Internationale (© NASA)|Peinture ou nature ?|![](/fr-FR/2023/01/202301272300BlueBahamas.jpg)|
 202301282300|BlackbirdDay|Merle Carouge de l'Essex, Angletterre (© Bill Coster/Alamy Stock Photo)|Savez-vous à quoi correspondent "les jours du merle” en Italie ?|![](/fr-FR/2023/01/202301282300BlackbirdDay.jpg)|
 202301292300|IceSailingBalaton|Championnat du monde de voile sur glace, lac Balaton, Hongrie (© mauritius images GmbH/Alamy Stock Photo)|À vos voiliers !|![](/fr-FR/2023/01/202301292300IceSailingBalaton.jpg)|
+202301302300|ZebraTrio|Zèbres de Burchell, Réserve de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|C'est la journée du Zèbre !|![](/fr-FR/2023/01/202301302300ZebraTrio.jpg)|

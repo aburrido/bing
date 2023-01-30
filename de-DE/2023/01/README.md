@@ -31,3 +31,4 @@
 202301272300|BlueBahamas|Türkisgrün Wasser um die Bahamas von der Internationalen Raumstation aus gesehen (© NASA)|Wenn das Leben Kunst imitiert|![](/de-DE/2023/01/202301272300BlueBahamas.jpg)|
 202301282300|BlackbirdDay|Amsel in Essex, England (© Bill Coster/Alamy Stock Photo)|Was verbindet Amseln mit Winter?|![](/de-DE/2023/01/202301282300BlackbirdDay.jpg)|
 202301292300|IceSailingBalaton|Europameisterschaft im Eis- und Schneesegeln auf dem Plattensee in Ungarn (© mauritius images GmbH/Alamy Stock Photo)|Windbetriebene Eisrennen|![](/de-DE/2023/01/202301292300IceSailingBalaton.jpg)|
+202301302300|GoldruteWinter|Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)|Pfälzerwald|![](/de-DE/2023/01/202301302300GoldruteWinter.jpg)|
