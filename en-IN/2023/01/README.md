@@ -31,3 +31,4 @@
 202301271830|BlueBahamas|Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)|When life imitates art|![](/en-IN/2023/01/202301271830BlueBahamas.jpg)|
 202301281830|BlackbirdDay|Blackbird in Essex, England (© Bill Coster/Alamy)|Why are blackbirds tied to winter?|![](/en-IN/2023/01/202301281830BlackbirdDay.jpg)|
 202301291830|IceSailingBalaton|Ice and snow sailing European Championship on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)|Wind powered ice racing|![](/en-IN/2023/01/202301291830IceSailingBalaton.jpg)|
+202301301830|ZebraTrio|Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Zebras enjoying their day|![](/en-IN/2023/01/202301301830ZebraTrio.jpg)|
