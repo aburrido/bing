@@ -31,3 +31,4 @@
 202301270500|RedMangrove|Red mangrove tree seedlings in Guanahacabibes National Park, Cuba (© Claudio Contreras/Minden Pictures)|All hail the mighty mangrove!|![](/en-CA/2023/01/202301270500RedMangrove.jpg)|
 202301280500|BlueBahamas|Blue-green waters around the Bahamas as seen from the International Space Station (© NASA)|When life imitates art|![](/en-CA/2023/01/202301280500BlueBahamas.jpg)|
 202301290500|BlackbirdDay|Blackbird in Essex, England (© Bill Coster/Alamy)|Why are blackbirds tied to winter?|![](/en-CA/2023/01/202301290500BlackbirdDay.jpg)|
+202301300500|IceSailingBalaton|Ice and snow sailing European Championship on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)|Wind-powered ice racing|![](/en-CA/2023/01/202301300500IceSailingBalaton.jpg)|
