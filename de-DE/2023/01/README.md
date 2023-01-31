@@ -32,3 +32,4 @@
 202301282300|BlackbirdDay|Amsel in Essex, England (© Bill Coster/Alamy Stock Photo)|Was verbindet Amseln mit Winter?|![](/de-DE/2023/01/202301282300BlackbirdDay.jpg)|
 202301292300|IceSailingBalaton|Europameisterschaft im Eis- und Schneesegeln auf dem Plattensee in Ungarn (© mauritius images GmbH/Alamy Stock Photo)|Windbetriebene Eisrennen|![](/de-DE/2023/01/202301292300IceSailingBalaton.jpg)|
 202301302300|GoldruteWinter|Samenköpfe der Kanadischen Goldrute im Raureif im Morgenlicht, Wasgau, NP Pfälzerwald, Biosphärenreservat Pfälzerwald-Nordvogesen, Rheinland-Pfalz (©  mauritius images GmbH/Alamy Stock Photo)|Pfälzerwald|![](/de-DE/2023/01/202301302300GoldruteWinter.jpg)|
+202301312300|SunriseCastle|Das Château de Pierrefonds im Departement Oise in der Picardie, Frankreich (© Hemis/Alamy)|Ein Schloss voller Geschichte|![](/de-DE/2023/01/202301312300SunriseCastle.jpg)|
