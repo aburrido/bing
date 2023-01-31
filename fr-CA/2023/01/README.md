@@ -32,3 +32,4 @@
 202301280500|BlueBahamas|Eaux bleues-vertes autour des Bahamas, vues depuis la Station spatiale internationale (© NASA)|Peinture ou nature ?|![](/fr-CA/2023/01/202301280500BlueBahamas.jpg)|
 202301290500|BlackbirdDay|Merle Carouge de l’Essex, Angleterre (© Bill Coster/Alamy)|La légende du merle noir|![](/fr-CA/2023/01/202301290500BlackbirdDay.jpg)|
 202301300500|IceSailingBalaton|Championnat du monde de voile sur glace, lac Balaton, Hongrie (© mauritius images GmbH/Alamy Stock Photo)|Course écolo sur la glace !|![](/fr-CA/2023/01/202301300500IceSailingBalaton.jpg)|
+202301310500|ZebraTrio|Zèbres de Burchell, Réserve de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|Protégeons ces animaux uniques|![](/fr-CA/2023/01/202301310500ZebraTrio.jpg)|
