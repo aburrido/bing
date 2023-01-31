@@ -32,3 +32,4 @@
 202301280800|BlueBahamas|Blue-green waters (© NASA)|Info|![](/en-AU/2023/01/202301280800BlueBahamas.jpg)|
 202301290800|BlackbirdDay|Blackbird (© Bill Coster/Alamy)|Info|![](/en-AU/2023/01/202301290800BlackbirdDay.jpg)|
 202301300800|NagarholeNationalPark|Nagarhole National Park, Karnataka, India (© Vivek BR/Shutterstock)|Info|![](/en-AU/2023/01/202301300800NagarholeNationalPark.jpg)|
+202301310800|ZebraTrio|Burchell's zebras (© Richard Du Toit/Minden Pictures)|Info|![](/en-AU/2023/01/202301310800ZebraTrio.jpg)|
