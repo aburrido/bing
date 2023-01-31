@@ -32,3 +32,4 @@
 202301281500|BlackbirdDay|雪の枝に留まるクロウタドリ, イギリス エセックス (© Bill Coster/Alamy)|今日は「クロウタドリの日」|![](/ja-JP/2023/01/202301281500BlackbirdDay.jpg)|
 202301291500|IceSailingBalaton|アイス・スノーセーリング世界選手権大会, ハンガリー (© mauritius images GmbH/Alamy Stock Photo)|アイス・スノーセーリング世界大会開幕|![](/ja-JP/2023/01/202301291500IceSailingBalaton.jpg)|
 202301301500|ZebraTrio|バーチェルサバンナシマウマ, 南アフリカ (© Richard Du Toit/Minden Pictures)|今日は「国際シマウマの日」|![](/ja-JP/2023/01/202301301500ZebraTrio.jpg)|
+202301311500|TangleCreekFalls|ジャスパー国立公園, カナダ アルバータ州 (© Jeff Foott/Minden Pictures)|タングルクリーク滝|![](/ja-JP/2023/01/202301311500TangleCreekFalls.jpg)|
