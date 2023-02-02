@@ -3,3 +3,4 @@
 202301310800|ZebraTrio|Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|A dazzling sight|![](/en-US/2023/02/202301310800ZebraTrio.jpg)|
 202302010800|LittleRockNine|'Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)|Courage and conviction|![](/en-US/2023/02/202302010800LittleRockNine.jpg)|
 ||||![](/en-US/2023/02/.jpg)|
+202302020800|GroundhogThree|Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)|Signs of spring?|![](/en-US/2023/02/202302020800GroundhogThree.jpg)|
