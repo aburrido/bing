@@ -4,3 +4,4 @@
 ||||![](/ja-JP/2023/02/.jpg)|
 202302011500|GroundhogThree|ホーエ・タウエルン国立公園のアルパインマーモット, オーストリア (© Michaela Walch/Alamy)|春の訪れを待ちわびて|![](/ja-JP/2023/02/202302011500GroundhogThree.jpg)|
 202302021500|Setsubun2023|枡いっぱいの節分の福豆 (© Nishihama/Shutterstock)|今日は「節分」|![](/ja-JP/2023/02/202302021500Setsubun2023.jpg)|
+202302031500|Risshun2023|初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)|今日は「立春」|![](/ja-JP/2023/02/202302031500Risshun2023.jpg)|
