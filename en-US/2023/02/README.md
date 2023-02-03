@@ -4,3 +4,4 @@
 202302010800|LittleRockNine|'Testament: The Little Rock Nine Monument,' Little Rock, Arkansas (© Rex Lisman/Getty Images)|Courage and conviction|![](/en-US/2023/02/202302010800LittleRockNine.jpg)|
 ||||![](/en-US/2023/02/.jpg)|
 202302020800|GroundhogThree|Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)|Signs of spring?|![](/en-US/2023/02/202302020800GroundhogThree.jpg)|
+202302030800|QuebecFrontenac|Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)|Warmly embracing winter|![](/en-US/2023/02/202302030800QuebecFrontenac.jpg)|
