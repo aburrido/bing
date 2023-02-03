@@ -4,3 +4,4 @@
 202302010500|SunriseCastle|The Château de Pierrefonds in the Oise department of Picardy, France (© Hemis/Alamy)|The old castle at sunrise|![](/en-CA/2023/02/202302010500SunriseCastle.jpg)|
 ||||![](/en-CA/2023/02/.jpg)|
 202302020500|GroundhogThree|Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)|Spring is coming|![](/en-CA/2023/02/202302020500GroundhogThree.jpg)|
+202302030500|QuebecFrontenac|Chateau Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)|Good cold fun|![](/en-CA/2023/02/202302030500QuebecFrontenac.jpg)|
