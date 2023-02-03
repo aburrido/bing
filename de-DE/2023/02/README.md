@@ -4,3 +4,4 @@
 ||||![](/de-DE/2023/02/.jpg)|
 202302012300|GroundhogThree|Alpenmurmeltiere im Nationalpark Hohe Tauern, Österreich (© Michaela Walch/Alamy)|Der Frühling kommt|![](/de-DE/2023/02/202302012300GroundhogThree.jpg)|
 202302022300|QuebecFrontenac|Chateau Frontenac, Quebec-Stadt, Kanada (© Romiana Lee/Shutterstock)|Spaß in der Kälte|![](/de-DE/2023/02/202302022300QuebecFrontenac.jpg)|
+202302032300|FeldbergSchnee|Feldbergturm im Schwarzwald, Baden-Württemberg (© Hemis/Alamy)|Turm mit traumhafter Aussicht|![](/de-DE/2023/02/202302032300FeldbergSchnee.jpg)|
