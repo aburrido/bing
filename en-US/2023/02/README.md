@@ -5,3 +5,4 @@
 ||||![](/en-US/2023/02/.jpg)|
 202302020800|GroundhogThree|Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)|Signs of spring?|![](/en-US/2023/02/202302020800GroundhogThree.jpg)|
 202302030800|QuebecFrontenac|Château Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)|Warmly embracing winter|![](/en-US/2023/02/202302030800QuebecFrontenac.jpg)|
+202302040800|RosaParksBus|Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)|Remembering Rosa Parks|![](/en-US/2023/02/202302040800RosaParksBus.jpg)|
