@@ -5,3 +5,4 @@
 202302011600|GroundhogThree|高地陶恩国家公园内的高山土拨鼠，奥地利 (© Michaela Walch/Alamy)|春天来了|![](/zh-CN/2023/02/202302011600GroundhogThree.jpg)|
 202302021600|QuebecFrontenac|费尔蒙芳堤娜城堡酒店，魁北克省，加拿大 (© Romiana Lee/Shutterstock)|冬天的乐趣|![](/zh-CN/2023/02/202302021600QuebecFrontenac.jpg)|
 202302031600|Lichun2023|永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)|早春的气息|![](/zh-CN/2023/02/202302031600Lichun2023.jpg)|
+202302041600|YearRabbit|毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)|兔年元宵节快乐！|![](/zh-CN/2023/02/202302041600YearRabbit.jpg)|
