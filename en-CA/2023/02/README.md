@@ -6,3 +6,4 @@
 202302020500|GroundhogThree|Alpine marmots in Hohe Tauern National Park, Austria (© Michaela Walch/Alamy)|Spring is coming|![](/en-CA/2023/02/202302020500GroundhogThree.jpg)|
 202302030500|QuebecFrontenac|Chateau Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)|Good cold fun|![](/en-CA/2023/02/202302030500QuebecFrontenac.jpg)|
 202302040500|FeldbergSchnee|Feldberg Tower in the Black Forest, Baden-Württemberg, Germany (© Hemis/Alamy)|Best views tower|![](/en-CA/2023/02/202302040500FeldbergSchnee.jpg)|
+202302050500|MonarchPismo|Monarch butterflies at Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)|What are these colourful insects?|![](/en-CA/2023/02/202302050500MonarchPismo.jpg)|
