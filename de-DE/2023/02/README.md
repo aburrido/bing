@@ -6,3 +6,4 @@
 202302022300|QuebecFrontenac|Chateau Frontenac, Quebec-Stadt, Kanada (© Romiana Lee/Shutterstock)|Spaß in der Kälte|![](/de-DE/2023/02/202302022300QuebecFrontenac.jpg)|
 202302032300|FeldbergSchnee|Feldbergturm im Schwarzwald, Baden-Württemberg (© Hemis/Alamy)|Turm mit traumhafter Aussicht|![](/de-DE/2023/02/202302032300FeldbergSchnee.jpg)|
 202302042300|MonarchPismo|Monarch butterflies at Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)|Was sind das für bunte Insekten?|![](/de-DE/2023/02/202302042300MonarchPismo.jpg)|
+202302052300|WaitangiFjordlandNP|Fiordland-Nationalpark auf der Südinsel Neuseelands (© WitR/Adobe Stock)|Die unendlichen Weiten der Natur|![](/de-DE/2023/02/202302052300WaitangiFjordlandNP.jpg)|
