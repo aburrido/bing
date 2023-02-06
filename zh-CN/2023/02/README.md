@@ -7,3 +7,4 @@
 202302031600|Lichun2023|永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)|早春的气息|![](/zh-CN/2023/02/202302031600Lichun2023.jpg)|
 202302041600|YearRabbit|毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)|兔年元宵节快乐！|![](/zh-CN/2023/02/202302041600YearRabbit.jpg)|
 202302051600|WaitangiFjordlandNP|峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)|峡湾国家公园|![](/zh-CN/2023/02/202302051600WaitangiFjordlandNP.jpg)|
+202302061600|MedievalLabro|拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)|历史悠久的山顶村庄|![](/zh-CN/2023/02/202302061600MedievalLabro.jpg)|
