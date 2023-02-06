@@ -7,3 +7,4 @@
 202302031500|Risshun2023|初春の梅に飛来したメジロ (© tahirsphotography/Shutterstock)|今日は「立春」|![](/ja-JP/2023/02/202302031500Risshun2023.jpg)|
 202302041500|QuebecFrontenac|シャトー・フロンテナック, カナダ ケベック州 (© Romiana Lee/Shutterstock)|今日からケベック・ウィンター・カーニバル|![](/ja-JP/2023/02/202302041500QuebecFrontenac.jpg)|
 202302051500|WaitangiFjordlandNP|南島のフィヨルドランド国立公園， ニュージーランド (© WitR/Adobe Stock)|氷河が刻んだ美しい入り江|![](/ja-JP/2023/02/202302051500WaitangiFjordlandNP.jpg)|
+202302061500|MedievalLabro|ラブロ, イタリア ラツィオ州 (© Marco Ilari/Shutterstock)|雪化粧のお城|![](/ja-JP/2023/02/202302061500MedievalLabro.jpg)|
