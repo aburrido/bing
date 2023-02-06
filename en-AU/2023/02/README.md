@@ -7,3 +7,4 @@
 202302030800|QuebecFrontenac|Chateau Frontenac, (© Romiana Lee/Shutterstock)|Info|![](/en-AU/2023/02/202302030800QuebecFrontenac.jpg)|
 202302040800|FeldbergSchnee|Feldberg Tower (© Hemis/Alamy)|Info|![](/en-AU/2023/02/202302040800FeldbergSchnee.jpg)|
 202302050800|MonarchPismo|Monarch butterflies (© Mimi Ditchie/Getty Images)|Info|![](/en-AU/2023/02/202302050800MonarchPismo.jpg)|
+202302060800|WaitangiFjordlandNP|Fiordland National Park, South Island, New Zealand (© WitR/Adobe Stock)|Info|![](/en-AU/2023/02/202302060800WaitangiFjordlandNP.jpg)|
