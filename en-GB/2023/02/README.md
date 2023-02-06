@@ -6,3 +6,4 @@
 202302030000|QuebecFrontenac|Chateau Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)|Good cold fun|![](/en-GB/2023/02/202302030000QuebecFrontenac.jpg)|
 202302040000|FeldbergSchnee|Feldberg Tower in the Black Forest, Baden-Württemberg, Germany  (© Hemis/Alamy)|Best views tower|![](/en-GB/2023/02/202302040000FeldbergSchnee.jpg)|
 202302050000|MonarchPismo|Monarch butterflies at Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)|What are these colorful insects?|![](/en-GB/2023/02/202302050000MonarchPismo.jpg)|
+202302060000|WaitangiFjordlandNP|Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)|When landscape met wilderness|![](/en-GB/2023/02/202302060000WaitangiFjordlandNP.jpg)|
