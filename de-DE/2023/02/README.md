@@ -7,3 +7,4 @@
 202302032300|FeldbergSchnee|Feldbergturm im Schwarzwald, Baden-Württemberg (© Hemis/Alamy)|Turm mit traumhafter Aussicht|![](/de-DE/2023/02/202302032300FeldbergSchnee.jpg)|
 202302042300|MonarchPismo|Monarch butterflies at Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)|Was sind das für bunte Insekten?|![](/de-DE/2023/02/202302042300MonarchPismo.jpg)|
 202302052300|WaitangiFjordlandNP|Fiordland-Nationalpark auf der Südinsel Neuseelands (© WitR/Adobe Stock)|Die unendlichen Weiten der Natur|![](/de-DE/2023/02/202302052300WaitangiFjordlandNP.jpg)|
+202302062300|MedievalLabro|Dorf Labro, Provinz Rieti, Italien (© Marco Ilari/Shutterstock)|Ein geschichtsträchtiger Hügel|![](/de-DE/2023/02/202302062300MedievalLabro.jpg)|
