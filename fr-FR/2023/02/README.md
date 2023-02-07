@@ -8,3 +8,4 @@
 202302042300|MonarchPismo|Papillons Monarques, Pismo Beach, Californie (© Mimi Ditchie/Getty Images)|La journée du papillon Monarque|![](/fr-FR/2023/02/202302042300MonarchPismo.jpg)|
 202302052300|WaitangiFjordlandNP|Parc national de Fiordland, Nouvelle-Zélande  (© WitR/Adobe Stock)|Le paradis sur terre ?|![](/fr-FR/2023/02/202302052300WaitangiFjordlandNP.jpg)|
 202302062300|SkiCourch|Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)|Championnats du monde FIS de ski alpin Courchevel Méribel 2023|![](/fr-FR/2023/02/202302062300SkiCourch.jpg)|
+202302072300|NorwayRestArea|Aire de repos Ureddplassen sur la route panoramique Helgelandskyste, Norvège (© Eyesite/Alamy)|Aire de repos dans le grand nord|![](/fr-FR/2023/02/202302072300NorwayRestArea.jpg)|
