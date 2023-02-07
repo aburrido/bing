@@ -8,3 +8,4 @@
 202302040500|FeldbergSchnee|Tour Feldberg Tower, Forêt Noire, Baden-Württemberg, Allemagne (© Hemis/Alamy)|La plus belle vue sur la fôret noire|![](/fr-CA/2023/02/202302040500FeldbergSchnee.jpg)|
 202302050500|MonarchPismo|Monarques à Pismo Beach, Californie, États-Unis (© Mimi Ditchie/Getty Images)|Mais que sont ces insectes colorés ?|![](/fr-CA/2023/02/202302050500MonarchPismo.jpg)|
 202302060500|WaitangiFjordlandNP|Parc national de Fiordland, Nouvelle-Zélande (© WitR/Adobe Stock)|Fête nationale en Nouvelle-Zélande !|![](/fr-CA/2023/02/202302060500WaitangiFjordlandNP.jpg)|
+202302070500|MedievalLabro|Village de Labro, Province de Rieti, Italie (© Marco Ilari/Shutterstock)|L’histoire nous attend au sommet|![](/fr-CA/2023/02/202302070500MedievalLabro.jpg)|
