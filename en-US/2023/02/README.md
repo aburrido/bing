@@ -8,3 +8,4 @@
 202302040800|RosaParksBus|Rosa Parks sits in the front of a bus in Montgomery, Alabama, Dec 21, 1956 (© Bettmann Archive/Getty Images)|Remembering Rosa Parks|![](/en-US/2023/02/202302040800RosaParksBus.jpg)|
 202302050800|MonarchPismo|Monarch butterflies at Pismo Beach, California (© Mimi Ditchie/Getty Images)|Migration of the monarchs|![](/en-US/2023/02/202302050800MonarchPismo.jpg)|
 202302060800|WaitangiFjordlandNP|Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)|Where fiords meet forests|![](/en-US/2023/02/202302060800WaitangiFjordlandNP.jpg)|
+202302070800|MedievalLabro|Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)|History on the hill|![](/en-US/2023/02/202302070800MedievalLabro.jpg)|
