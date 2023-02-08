@@ -9,3 +9,4 @@
 202302050500|MonarchPismo|Monarch butterflies at Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)|What are these colourful insects?|![](/en-CA/2023/02/202302050500MonarchPismo.jpg)|
 202302060500|WaitangiFjordlandNP|Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)|When landscape met wilderness|![](/en-CA/2023/02/202302060500WaitangiFjordlandNP.jpg)|
 202302070500|MedievalLabro|Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)|History awaits atop the hill|![](/en-CA/2023/02/202302070500MedievalLabro.jpg)|
+202302080500|NorwayRestArea|Ureddplassen rest area on the Helgelandskysten Norwegian Scenic Route, Norway (© Eyesite/Alamy)|A public restroom or a tourist spot?|![](/en-CA/2023/02/202302080500NorwayRestArea.jpg)|
