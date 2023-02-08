@@ -9,3 +9,4 @@
 202302051830|WaitangiFjordlandNP|Fiordland National Park in South Island, New Zealand (© WitR/Adobe Stock)|When landscape met wilderness|![](/en-IN/2023/02/202302051830WaitangiFjordlandNP.jpg)|
 202302061830|MedievalLabro|Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)|History awaits atop the hill|![](/en-IN/2023/02/202302061830MedievalLabro.jpg)|
 202302071830|NorwayRestArea|Ureddplassen rest area on the Helgelandskysten Norwegian Scenic Route, Norway (© Eyesite/Alamy)|A public restroom or a tourist spot?|![](/en-IN/2023/02/202302071830NorwayRestArea.jpg)|
+202302081830|LowerAntelopeAZ|Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)|What are these beautiful sandy waves?|![](/en-IN/2023/02/202302081830LowerAntelopeAZ.jpg)|
