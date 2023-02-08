@@ -9,3 +9,4 @@
 202302051500|WaitangiFjordlandNP|南島のフィヨルドランド国立公園， ニュージーランド (© WitR/Adobe Stock)|氷河が刻んだ美しい入り江|![](/ja-JP/2023/02/202302051500WaitangiFjordlandNP.jpg)|
 202302061500|MedievalLabro|ラブロ, イタリア ラツィオ州 (© Marco Ilari/Shutterstock)|雪化粧のお城|![](/ja-JP/2023/02/202302061500MedievalLabro.jpg)|
 202302071500|NorwayRestArea|ウーレッドプラッセン, ノルウェー (© Eyesite/Alamy)|世界で最も美しいトイレ？|![](/ja-JP/2023/02/202302071500NorwayRestArea.jpg)|
+202302081500|LowerAntelopeAZ|ローワーアンテロープキャニオン, 米国 アリゾナ州 (© AZCat/Getty Images)|赤い渓谷に美しい空間|![](/ja-JP/2023/02/202302081500LowerAntelopeAZ.jpg)|
