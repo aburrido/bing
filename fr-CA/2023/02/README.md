@@ -10,3 +10,4 @@
 202302060500|WaitangiFjordlandNP|Parc national de Fiordland, Nouvelle-Zélande (© WitR/Adobe Stock)|Fête nationale en Nouvelle-Zélande !|![](/fr-CA/2023/02/202302060500WaitangiFjordlandNP.jpg)|
 202302070500|MedievalLabro|Village de Labro, Province de Rieti, Italie (© Marco Ilari/Shutterstock)|L’histoire nous attend au sommet|![](/fr-CA/2023/02/202302070500MedievalLabro.jpg)|
 202302080500|NorwayRestArea|Aire de repos Ureddplassen sur la route panoramique Helgelandskysten en Norvège (© Eyesite/Alamy)|Toilettes publiques ou lieu touristique ?|![](/fr-CA/2023/02/202302080500NorwayRestArea.jpg)|
+202302090500|LowerAntelopeAZ|Lower Antelope Canyon, Arizona, États-Unis (© AZCat/Getty Images)|Des vagues dans le désert ?|![](/fr-CA/2023/02/202302090500LowerAntelopeAZ.jpg)|
