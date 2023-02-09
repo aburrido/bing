@@ -10,3 +10,4 @@
 202302061600|MedievalLabro|拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)|历史悠久的山顶村庄|![](/zh-CN/2023/02/202302061600MedievalLabro.jpg)|
 202302071600|EileanDonanDawn|艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)|湖滨城堡|![](/zh-CN/2023/02/202302071600EileanDonanDawn.jpg)|
 202302081600|LowerAntelopeAZ|下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images)|这些美丽的岩石波浪是什么？|![](/zh-CN/2023/02/202302081600LowerAntelopeAZ.jpg)|
+202302091600|EpidaurusGreece|埃庇道鲁斯剧场, 希腊阿尔戈利斯省 (© George Pachantouris/Getty Images)|声学杰作|![](/zh-CN/2023/02/202302091600EpidaurusGreece.jpg)|
