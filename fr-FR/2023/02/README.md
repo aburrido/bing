@@ -10,3 +10,4 @@
 202302062300|SkiCourch|Ski hors-piste, Courchevel, France (© Andrew Lloyd/Alamy Stock Photo)|Championnats du monde FIS de ski alpin Courchevel Méribel 2023|![](/fr-FR/2023/02/202302062300SkiCourch.jpg)|
 202302072300|NorwayRestArea|Aire de repos Ureddplassen sur la route panoramique Helgelandskyste, Norvège (© Eyesite/Alamy)|Aire de repos dans le grand nord|![](/fr-FR/2023/02/202302072300NorwayRestArea.jpg)|
 202302082300|LowerAntelopeAZ|Lower Antelope Canyon, Arizona (© AZCat/Getty Images)|Des vagues dans le désert ?|![](/fr-FR/2023/02/202302082300LowerAntelopeAZ.jpg)|
+202302092300|EpidaurusGreece|Théâtre antique d'Épidaure, Argolis, Grèce (© George Pachantouris/Getty Images)|Le génie de la Grèce Antique|![](/fr-FR/2023/02/202302092300EpidaurusGreece.jpg)|

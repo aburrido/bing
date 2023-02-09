@@ -10,3 +10,4 @@
 202302062300|MedievalLabro|Dorf Labro, Provinz Rieti, Italien (© Marco Ilari/Shutterstock)|Ein geschichtsträchtiger Hügel|![](/de-DE/2023/02/202302062300MedievalLabro.jpg)|
 202302072300|NorwayRestArea|Rastplatz Ureddplassen an der Helgelandskysten Norwegian Scenic Route, Norwegen (© Eyesite/Alamy)|Toilette oder Touristenattraktion?|![](/de-DE/2023/02/202302072300NorwayRestArea.jpg)|
 202302082300|LowerAntelopeAZ|Unterer Antelope Canyon in Arizona, USA (© AZCat/Getty Images)|Was sind das für schöne Sandwellen?|![](/de-DE/2023/02/202302082300LowerAntelopeAZ.jpg)|
+202302092300|EpidaurusGreece|Antikes Theater von Epidaurus in der Provinz Argolis, Griechenland Griechenland (© George Pachantouris/Getty Images)|Das Meisterwerk der Akustikwissenschaft|![](/de-DE/2023/02/202302092300EpidaurusGreece.jpg)|
