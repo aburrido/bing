@@ -11,3 +11,4 @@
 202302070800|MedievalLabro|Labro, Province of Rieti, Italy (© Marco Ilari/Shutterstock)|Info|![](/en-AU/2023/02/202302070800MedievalLabro.jpg)|
 202302080800|EileanDonanDawn|Eilean Donan Castle, Highlands, Scotland (© VisualCommunications/Getty Images)|Info|![](/en-AU/2023/02/202302080800EileanDonanDawn.jpg)|
 202302090800|LowerAntelopeAZ|Lower Antelope Canyon, Arizona, USA (© AZCat/Getty Images)|Info|![](/en-AU/2023/02/202302090800LowerAntelopeAZ.jpg)|
+202302100800|EpidaurusGreece|Ancient Theatre of Epidaurus, Greece (© George Pachantouris/Getty Images)|Info|![](/en-AU/2023/02/202302100800EpidaurusGreece.jpg)|
