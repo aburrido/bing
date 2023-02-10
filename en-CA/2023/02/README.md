@@ -11,3 +11,4 @@
 202302070500|MedievalLabro|Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)|History awaits atop the hill|![](/en-CA/2023/02/202302070500MedievalLabro.jpg)|
 202302080500|NorwayRestArea|Ureddplassen rest area on the Helgelandskysten Norwegian Scenic Route, Norway (© Eyesite/Alamy)|A public restroom or a tourist spot?|![](/en-CA/2023/02/202302080500NorwayRestArea.jpg)|
 202302090500|LowerAntelopeAZ|Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)|What are these beautiful sandy waves?|![](/en-CA/2023/02/202302090500LowerAntelopeAZ.jpg)|
+202302100500|EpidaurusGreece|Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)|Masterpiece of acoustic science|![](/en-CA/2023/02/202302100500EpidaurusGreece.jpg)|
