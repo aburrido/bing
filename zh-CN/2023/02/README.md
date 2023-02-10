@@ -11,3 +11,4 @@
 202302071600|EileanDonanDawn|艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)|湖滨城堡|![](/zh-CN/2023/02/202302071600EileanDonanDawn.jpg)|
 202302081600|LowerAntelopeAZ|下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images)|这些美丽的岩石波浪是什么？|![](/zh-CN/2023/02/202302081600LowerAntelopeAZ.jpg)|
 202302091600|EpidaurusGreece|埃庇道鲁斯剧场, 希腊阿尔戈利斯省 (© George Pachantouris/Getty Images)|声学杰作|![](/zh-CN/2023/02/202302091600EpidaurusGreece.jpg)|
+202302101600|DarkSkiesDV|死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)|布满星星的天空|![](/zh-CN/2023/02/202302101600DarkSkiesDV.jpg)|
