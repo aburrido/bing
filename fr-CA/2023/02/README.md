@@ -12,3 +12,4 @@
 202302080500|NorwayRestArea|Aire de repos Ureddplassen sur la route panoramique Helgelandskysten en Norvège (© Eyesite/Alamy)|Toilettes publiques ou lieu touristique ?|![](/fr-CA/2023/02/202302080500NorwayRestArea.jpg)|
 202302090500|LowerAntelopeAZ|Lower Antelope Canyon, Arizona, États-Unis (© AZCat/Getty Images)|Des vagues dans le désert ?|![](/fr-CA/2023/02/202302090500LowerAntelopeAZ.jpg)|
 202302100500|EpidaurusGreece|Théâtre antique d'Épidaure, Argolis, Grèce (© George Pachantouris/Getty Images)|Le génie de la Grèce Antique|![](/fr-CA/2023/02/202302100500EpidaurusGreece.jpg)|
+202302110500|DarkSkiesDV|Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie, États-Unis (© Matt Anderson Photography/Getty Images)|Un ciel plein d'étoiles|![](/fr-CA/2023/02/202302110500DarkSkiesDV.jpg)|
