@@ -12,3 +12,4 @@
 202302082300|LowerAntelopeAZ|Lower Antelope Canyon, Arizona (© AZCat/Getty Images)|Des vagues dans le désert ?|![](/fr-FR/2023/02/202302082300LowerAntelopeAZ.jpg)|
 202302092300|EpidaurusGreece|Théâtre antique d'Épidaure, Argolis, Grèce (© George Pachantouris/Getty Images)|Le génie de la Grèce Antique|![](/fr-FR/2023/02/202302092300EpidaurusGreece.jpg)|
 202302102300|MentonLemons|Temple chinois Fête du Citron de 2015, Menton, Cote d'Azur, France (© Peter Seyfferth/imageBROKER/Shutterstock)|Un festival unique au monde !|![](/fr-FR/2023/02/202302102300MentonLemons.jpg)|
+202302112300|BoobyDarwinDay|Fou à pieds bleus, îles Galapagos, Équateur  (© Tui De Roy/Minden Pictures)|Prêt pour l’atterrissage !|![](/fr-FR/2023/02/202302112300BoobyDarwinDay.jpg)|
