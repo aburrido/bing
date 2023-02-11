@@ -12,3 +12,4 @@
 202302081500|LowerAntelopeAZ|ローワーアンテロープキャニオン, 米国 アリゾナ州 (© AZCat/Getty Images)|赤い渓谷に美しい空間|![](/ja-JP/2023/02/202302081500LowerAntelopeAZ.jpg)|
 202302091500|EpidaurusGreece|エピダウロス古代劇場, ギリシャ (© George Pachantouris/Getty Images)|音響に優れた劇場|![](/ja-JP/2023/02/202302091500EpidaurusGreece.jpg)|
 202302101500|DarkSkiesDV|ザブリスキーポイント, 米国 カリフォルニア州 (© Matt Anderson Photography/Getty Images)|ゴールデンキャニオンから見た満天の星空|![](/ja-JP/2023/02/202302101500DarkSkiesDV.jpg)|
+202302111500|BoobyDarwinDay|アオアシカツオドリ, エクアドル ガラパゴス諸島 (© Tui De Roy/Minden Pictures)|今日はダーウィンの日|![](/ja-JP/2023/02/202302111500BoobyDarwinDay.jpg)|
