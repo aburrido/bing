@@ -12,3 +12,4 @@
 202302080800|EileanDonanDawn|Eilean Donan Castle, Highlands, Scotland (© VisualCommunications/Getty Images)|Info|![](/en-AU/2023/02/202302080800EileanDonanDawn.jpg)|
 202302090800|LowerAntelopeAZ|Lower Antelope Canyon, Arizona, USA (© AZCat/Getty Images)|Info|![](/en-AU/2023/02/202302090800LowerAntelopeAZ.jpg)|
 202302100800|EpidaurusGreece|Ancient Theatre of Epidaurus, Greece (© George Pachantouris/Getty Images)|Info|![](/en-AU/2023/02/202302100800EpidaurusGreece.jpg)|
+202302110800|DarkSkiesDV|Milky Way over Zabriskie Point, California, USA (© Matt Anderson Photography/Getty Images)|Info|![](/en-AU/2023/02/202302110800DarkSkiesDV.jpg)|
