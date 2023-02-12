@@ -13,3 +13,4 @@
 202302092300|EpidaurusGreece|Antikes Theater von Epidaurus in der Provinz Argolis, Griechenland Griechenland (© George Pachantouris/Getty Images)|Das Meisterwerk der Akustikwissenschaft|![](/de-DE/2023/02/202302092300EpidaurusGreece.jpg)|
 202302102300|DarkSkiesDV|Die Milchstraße über Zabriskie Point, Death Valley, Kalifornien, USA (© Matt Anderson Photography/Getty Images)|Ein Himmel voller Sterne|![](/de-DE/2023/02/202302102300DarkSkiesDV.jpg)|
 202302112300|BoobyDarwinDay|Blaufußtölpel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)|Eine sanfte Fußlandung|![](/de-DE/2023/02/202302112300BoobyDarwinDay.jpg)|
+202302122300|MoonValley|Achaches Aussichtspunkt, Tal des Mondes, Chile (© Ignacio Palacios/Getty Images)|Fliege mich zum Mond!|![](/de-DE/2023/02/202302122300MoonValley.jpg)|
