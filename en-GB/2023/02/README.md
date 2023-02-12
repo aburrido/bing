@@ -12,3 +12,4 @@
 202302090000|LowerAntelopeAZ|Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)|What are these beautiful sandy waves?|![](/en-GB/2023/02/202302090000LowerAntelopeAZ.jpg)|
 202302100000|EpidaurusGreece|Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)|Masterpiece of acoustic engineering|![](/en-GB/2023/02/202302100000EpidaurusGreece.jpg)|
 202302110000|DarkSkiesDV|The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)|A sky full of stars|![](/en-GB/2023/02/202302110000DarkSkiesDV.jpg)|
+202302120000|BoobyDarwinDay|Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A smooth landing, feet first|![](/en-GB/2023/02/202302120000BoobyDarwinDay.jpg)|
