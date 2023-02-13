@@ -14,3 +14,4 @@
 202302101500|DarkSkiesDV|ザブリスキーポイント, 米国 カリフォルニア州 (© Matt Anderson Photography/Getty Images)|ゴールデンキャニオンから見た満天の星空|![](/ja-JP/2023/02/202302101500DarkSkiesDV.jpg)|
 202302111500|BoobyDarwinDay|アオアシカツオドリ, エクアドル ガラパゴス諸島 (© Tui De Roy/Minden Pictures)|今日はダーウィンの日|![](/ja-JP/2023/02/202302111500BoobyDarwinDay.jpg)|
 202302121500|MoonValley|アタカマ 月の谷, チリ (© Ignacio Palacios/Getty Images)|月によく似た風景|![](/ja-JP/2023/02/202302121500MoonValley.jpg)|
+202302131500|OtaruIgloo|小樽雪あかりの路, 北海道 (© T Photography/Shutterstock)|今日はバレンタインデー|![](/ja-JP/2023/02/202302131500OtaruIgloo.jpg)|
