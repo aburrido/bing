@@ -14,3 +14,4 @@
 202302100800|EpidaurusGreece|Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)|Built to last|![](/en-US/2023/02/202302100800EpidaurusGreece.jpg)|
 202302110800|DarkSkiesDV|The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)|Death Valley's star appeal|![](/en-US/2023/02/202302110800DarkSkiesDV.jpg)|
 202302120800|BoobyDarwinDay|Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Coming in for a smooth landing?|![](/en-US/2023/02/202302120800BoobyDarwinDay.jpg)|
+202302130800|MoonValley|Achaches lookout, El Valle de la Luna, Chile (© Ignacio Palacios/Getty Images)|In the Valley of the Moon|![](/en-US/2023/02/202302130800MoonValley.jpg)|
