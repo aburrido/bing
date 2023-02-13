@@ -14,3 +14,4 @@
 202302101830|DarkSkiesDV|The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)|A sky full of stars|![](/en-IN/2023/02/202302101830DarkSkiesDV.jpg)|
 202302111830|BoobyDarwinDay|Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A smooth landing, feet first|![](/en-IN/2023/02/202302111830BoobyDarwinDay.jpg)|
 202302121830|MoonValley|Achaches lookout, Valley of the Moon, Chile (© Ignacio Palacios/Getty Images)|Fly me to the moon|![](/en-IN/2023/02/202302121830MoonValley.jpg)|
+202302131830|OtaruIgloo|Valentine’s Day (© T Photography/Shutterstock)|Love is in the snow|![](/en-IN/2023/02/202302131830OtaruIgloo.jpg)|
