@@ -14,3 +14,4 @@
 202302101600|DarkSkiesDV|死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)|布满星星的天空|![](/zh-CN/2023/02/202302101600DarkSkiesDV.jpg)|
 202302111600|BoobyDarwinDay|一对蓝脚鲣鸟，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|平稳着陆，双脚先行|![](/zh-CN/2023/02/202302111600BoobyDarwinDay.jpg)|
 202302121600|MoonValley|阿卡切斯瞭望台，月亮谷，智利 (© Ignacio Palacios/Getty Images)|带我飞向月球|![](/zh-CN/2023/02/202302121600MoonValley.jpg)|
+202302131600|OtaruIgloo|日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock)|雪中之恋|![](/zh-CN/2023/02/202302131600OtaruIgloo.jpg)|
