@@ -14,3 +14,4 @@
 202302102300|DarkSkiesDV|Die Milchstraße über Zabriskie Point, Death Valley, Kalifornien, USA (© Matt Anderson Photography/Getty Images)|Ein Himmel voller Sterne|![](/de-DE/2023/02/202302102300DarkSkiesDV.jpg)|
 202302112300|BoobyDarwinDay|Blaufußtölpel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)|Eine sanfte Fußlandung|![](/de-DE/2023/02/202302112300BoobyDarwinDay.jpg)|
 202302122300|MoonValley|Achaches Aussichtspunkt, Tal des Mondes, Chile (© Ignacio Palacios/Getty Images)|Fliege mich zum Mond!|![](/de-DE/2023/02/202302122300MoonValley.jpg)|
+202302132300|OtaruIgloo|Iglu beim Otaru-Schneefest, Hokkaido, Japan (© T Photography/Shutterstock)|Schneeherzen|![](/de-DE/2023/02/202302132300OtaruIgloo.jpg)|
