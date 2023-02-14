@@ -15,3 +15,4 @@
 202302111830|BoobyDarwinDay|Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A smooth landing, feet first|![](/en-IN/2023/02/202302111830BoobyDarwinDay.jpg)|
 202302121830|MoonValley|Achaches lookout, Valley of the Moon, Chile (© Ignacio Palacios/Getty Images)|Fly me to the moon|![](/en-IN/2023/02/202302121830MoonValley.jpg)|
 202302131830|OtaruIgloo|Valentine’s Day (© T Photography/Shutterstock)|Love is in the snow|![](/en-IN/2023/02/202302131830OtaruIgloo.jpg)|
+202302141830|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|World Hippo Day, a giant celebration|![](/en-IN/2023/02/202302141830HippoDayChobe.jpg)|
