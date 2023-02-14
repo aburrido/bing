@@ -15,3 +15,4 @@
 202302112300|BoobyDarwinDay|Fou à pieds bleus, îles Galapagos, Équateur  (© Tui De Roy/Minden Pictures)|Prêt pour l’atterrissage !|![](/fr-FR/2023/02/202302112300BoobyDarwinDay.jpg)|
 202302122300|MoonValley|Mirador d’Achaches, Vallée de la Lune, Chili (© Ignacio Palacios/Getty Images)|On vous promet la Lune !|![](/fr-FR/2023/02/202302122300MoonValley.jpg)|
 202302132300|OtaruIgloo|Igloo décoré pour le festival du chemin de neige et de lumière d’Otaru, Hokkaido, Japon (© T Photography/Shutterstock)|C’est l’amour à la neige !|![](/fr-FR/2023/02/202302132300OtaruIgloo.jpg)|
+202302142300|HippoDayChobe|Une maman hippopotame et son bébé, parc national de Chobe, Botswana (© jacobeukman/Getty Images)|Journée mondiale de l’hippopotame|![](/fr-FR/2023/02/202302142300HippoDayChobe.jpg)|

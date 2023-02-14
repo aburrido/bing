@@ -15,3 +15,4 @@
 202302112300|BoobyDarwinDay|Blaufußtölpel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)|Eine sanfte Fußlandung|![](/de-DE/2023/02/202302112300BoobyDarwinDay.jpg)|
 202302122300|MoonValley|Achaches Aussichtspunkt, Tal des Mondes, Chile (© Ignacio Palacios/Getty Images)|Fliege mich zum Mond!|![](/de-DE/2023/02/202302122300MoonValley.jpg)|
 202302132300|OtaruIgloo|Iglu beim Otaru-Schneefest, Hokkaido, Japan (© T Photography/Shutterstock)|Schneeherzen|![](/de-DE/2023/02/202302132300OtaruIgloo.jpg)|
+202302142300|HippoDayChobe|Flusspferdmutter und -baby, Chobe-Nationalpark, Botsuana (© jacobeukman/Getty Images)|Welt Flusspferd Tag, ein riesiges Fest|![](/de-DE/2023/02/202302142300HippoDayChobe.jpg)|
