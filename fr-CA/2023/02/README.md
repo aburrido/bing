@@ -15,3 +15,4 @@
 202302110500|DarkSkiesDV|Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie, États-Unis (© Matt Anderson Photography/Getty Images)|Un ciel plein d'étoiles|![](/fr-CA/2023/02/202302110500DarkSkiesDV.jpg)|
 202302120500|BoobyDarwinDay|Fou à pieds bleus, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)|Un atterrissage en douceur, les pieds d'abord|![](/fr-CA/2023/02/202302120500BoobyDarwinDay.jpg)|
 202302130500|MoonValley|Mirador d’Achaches, Vallée de la Lune, Chili (© Ignacio Palacios/Getty Images)|On vous promet la Lune!|![](/fr-CA/2023/02/202302130500MoonValley.jpg)|
+202302140500|OtaruIgloo|Igloo décoré pour le festival du chemin de neige et de lumière d’Otaru, Hokkaido, Japon (© T Photography/Shutterstock)|C’est l’amour à la neige!|![](/fr-CA/2023/02/202302140500OtaruIgloo.jpg)|
