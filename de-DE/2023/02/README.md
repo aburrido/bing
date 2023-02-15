@@ -16,3 +16,4 @@
 202302122300|MoonValley|Achaches Aussichtspunkt, Tal des Mondes, Chile (© Ignacio Palacios/Getty Images)|Fliege mich zum Mond!|![](/de-DE/2023/02/202302122300MoonValley.jpg)|
 202302132300|OtaruIgloo|Iglu beim Otaru-Schneefest, Hokkaido, Japan (© T Photography/Shutterstock)|Schneeherzen|![](/de-DE/2023/02/202302132300OtaruIgloo.jpg)|
 202302142300|HippoDayChobe|Flusspferdmutter und -baby, Chobe-Nationalpark, Botsuana (© jacobeukman/Getty Images)|Welt Flusspferd Tag, ein riesiges Fest|![](/de-DE/2023/02/202302142300HippoDayChobe.jpg)|
+202302152300|BerlinaleEroeffnung|Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)|Ein Fest für den Film|![](/de-DE/2023/02/202302152300BerlinaleEroeffnung.jpg)|
