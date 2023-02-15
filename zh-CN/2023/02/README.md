@@ -16,3 +16,4 @@
 202302121600|MoonValley|阿卡切斯瞭望台，月亮谷，智利 (© Ignacio Palacios/Getty Images)|带我飞向月球|![](/zh-CN/2023/02/202302121600MoonValley.jpg)|
 202302131600|OtaruIgloo|日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock)|雪中之恋|![](/zh-CN/2023/02/202302131600OtaruIgloo.jpg)|
 202302141600|HippoDayChobe|河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images)|世界河马日，隆重的庆典|![](/zh-CN/2023/02/202302141600HippoDayChobe.jpg)|
+202302151600|FireFallYosemite|“火流”马尾瀑布，约塞米蒂国家公园，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)|这个悬崖怎么着火了？|![](/zh-CN/2023/02/202302151600FireFallYosemite.jpg)|
