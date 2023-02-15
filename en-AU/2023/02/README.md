@@ -16,3 +16,4 @@
 202302120800|BoobyDarwinDay|Blue-footed booby, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|A smooth landing, feet first|![](/en-AU/2023/02/202302120800BoobyDarwinDay.jpg)|
 202302130800|MoonValley|Valley of the Moon, Chile (© Ignacio Palacios/Getty Images)|Info|![](/en-AU/2023/02/202302130800MoonValley.jpg)|
 202302140800|OtaruIgloo|Igloo in Otaru, Hokkaido, Japan (© T Photography/Shutterstock)|Info|![](/en-AU/2023/02/202302140800OtaruIgloo.jpg)|
+202302150800|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|Info|![](/en-AU/2023/02/202302150800HippoDayChobe.jpg)|
