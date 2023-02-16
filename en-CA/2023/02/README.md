@@ -17,3 +17,4 @@
 202302130500|MoonValley|Achaches lookout, Valley of the Moon, Chile (© Ignacio Palacios/Getty Images)|Fly me to the moon|![](/en-CA/2023/02/202302130500MoonValley.jpg)|
 202302140500|OtaruIgloo|Valentine’s Day (© T Photography/Shutterstock)|Love is in the snow|![](/en-CA/2023/02/202302140500OtaruIgloo.jpg)|
 202302150500|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|World Hippo Day, a giant celebration|![](/en-CA/2023/02/202302150500HippoDayChobe.jpg)|
+202302160500|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Why is this cliffside ablaze?|![](/en-CA/2023/02/202302160500FireFallYosemite.jpg)|
