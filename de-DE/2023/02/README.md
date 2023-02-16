@@ -17,3 +17,4 @@
 202302132300|OtaruIgloo|Iglu beim Otaru-Schneefest, Hokkaido, Japan (© T Photography/Shutterstock)|Schneeherzen|![](/de-DE/2023/02/202302132300OtaruIgloo.jpg)|
 202302142300|HippoDayChobe|Flusspferdmutter und -baby, Chobe-Nationalpark, Botsuana (© jacobeukman/Getty Images)|Welt Flusspferd Tag, ein riesiges Fest|![](/de-DE/2023/02/202302142300HippoDayChobe.jpg)|
 202302152300|BerlinaleEroeffnung|Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)|Ein Fest für den Film|![](/de-DE/2023/02/202302152300BerlinaleEroeffnung.jpg)|
+202302162300|BirdcountAllen|Allen-Kolibri auf roter Kängurupflanze (© GypsyPictureShow/Shutterstock)|Der Great Backyard Bird Count kann nun beginnen!|![](/de-DE/2023/02/202302162300BirdcountAllen.jpg)|

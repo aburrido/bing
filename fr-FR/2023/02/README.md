@@ -17,3 +17,4 @@
 202302132300|OtaruIgloo|Igloo décoré pour le festival du chemin de neige et de lumière d’Otaru, Hokkaido, Japon (© T Photography/Shutterstock)|C’est l’amour à la neige !|![](/fr-FR/2023/02/202302132300OtaruIgloo.jpg)|
 202302142300|HippoDayChobe|Une maman hippopotame et son bébé, parc national de Chobe, Botswana (© jacobeukman/Getty Images)|Journée mondiale de l’hippopotame|![](/fr-FR/2023/02/202302142300HippoDayChobe.jpg)|
 202302152300|FireFallYosemite|Cascade de feu au chute de Horsetail, Yosemite, Califonie, USA (© Jeff Lewis/Tandem Stills + Motion)|L’eau en feu ?|![](/fr-FR/2023/02/202302152300FireFallYosemite.jpg)|
+202302162300|SnoweyParis|Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)|Connaissez-vous les toits de Paris ?|![](/fr-FR/2023/02/202302162300SnoweyParis.jpg)|
