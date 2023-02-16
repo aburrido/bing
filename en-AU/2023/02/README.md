@@ -17,3 +17,4 @@
 202302130800|MoonValley|Valley of the Moon, Chile (© Ignacio Palacios/Getty Images)|Info|![](/en-AU/2023/02/202302130800MoonValley.jpg)|
 202302140800|OtaruIgloo|Igloo in Otaru, Hokkaido, Japan (© T Photography/Shutterstock)|Info|![](/en-AU/2023/02/202302140800OtaruIgloo.jpg)|
 202302150800|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|Info|![](/en-AU/2023/02/202302150800HippoDayChobe.jpg)|
+202302160800|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2023/02/202302160800FireFallYosemite.jpg)|

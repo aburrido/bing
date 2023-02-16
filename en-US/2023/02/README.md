@@ -17,3 +17,4 @@
 202302130800|MoonValley|Achaches lookout, El Valle de la Luna, Chile (© Ignacio Palacios/Getty Images)|In the Valley of the Moon|![](/en-US/2023/02/202302130800MoonValley.jpg)|
 202302140800|OtaruIgloo|Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)|Love is in the snow|![](/en-US/2023/02/202302140800OtaruIgloo.jpg)|
 202302150800|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|World Hippo Day, a giant celebration|![](/en-US/2023/02/202302150800HippoDayChobe.jpg)|
+202302160800|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Why is El Capitan ablaze?|![](/en-US/2023/02/202302160800FireFallYosemite.jpg)|
