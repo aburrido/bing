@@ -17,3 +17,4 @@
 202302131500|OtaruIgloo|小樽雪あかりの路, 北海道 (© T Photography/Shutterstock)|今日はバレンタインデー|![](/ja-JP/2023/02/202302131500OtaruIgloo.jpg)|
 202302141500|HippoDayChobe|チョベ国立公園, ボツワナ (© jacobeukman/Getty Images)|世界カバの日|![](/ja-JP/2023/02/202302141500HippoDayChobe.jpg)|
 202302151500|FireFallYosemite|ホーステール滝, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|火の滝|![](/ja-JP/2023/02/202302151500FireFallYosemite.jpg)|
+202302161500|BirdcountAllen|赤いカンガルーポーの枝に留まるアレンハチドリ (© GypsyPictureShow/Shutterstock)|今日は「鳥を数える日」|![](/ja-JP/2023/02/202302161500BirdcountAllen.jpg)|
