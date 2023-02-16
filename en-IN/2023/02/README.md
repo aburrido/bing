@@ -17,3 +17,4 @@
 202302131830|OtaruIgloo|Valentine’s Day (© T Photography/Shutterstock)|Love is in the snow|![](/en-IN/2023/02/202302131830OtaruIgloo.jpg)|
 202302141830|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|World Hippo Day, a giant celebration|![](/en-IN/2023/02/202302141830HippoDayChobe.jpg)|
 202302151830|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Why is this cliffside ablaze?|![](/en-IN/2023/02/202302151830FireFallYosemite.jpg)|
+202302161830|BirdcountAllen|Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)|Let the Great Backyard Bird Count begin!|![](/en-IN/2023/02/202302161830BirdcountAllen.jpg)|
