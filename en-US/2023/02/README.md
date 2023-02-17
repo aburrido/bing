@@ -18,3 +18,4 @@
 202302140800|OtaruIgloo|Igloo at Otaru Snow Light Path Festival, Hokkaido, Japan (© T Photography/Shutterstock)|Love is in the snow|![](/en-US/2023/02/202302140800OtaruIgloo.jpg)|
 202302150800|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|World Hippo Day, a giant celebration|![](/en-US/2023/02/202302150800HippoDayChobe.jpg)|
 202302160800|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Why is El Capitan ablaze?|![](/en-US/2023/02/202302160800FireFallYosemite.jpg)|
+202302170800|BirdcountAllen|Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)|Let the Great Backyard Bird Count begin!|![](/en-US/2023/02/202302170800BirdcountAllen.jpg)|
