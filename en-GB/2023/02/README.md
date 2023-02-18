@@ -18,3 +18,4 @@
 202302150000|HippoDayChobe|Hippopotamus mother and baby, Chobe National Park, Botswana (© jacobeukman/Getty Images)|We’re all smiles for World Hippo Day|![](/en-GB/2023/02/202302150000HippoDayChobe.jpg)|
 202302160000|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Why is this cliffside ablaze?|![](/en-GB/2023/02/202302160000FireFallYosemite.jpg)|
 202302170000|BirdcountAllen|Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)|Let the Great Backyard Bird Count begin!|![](/en-GB/2023/02/202302170000BirdcountAllen.jpg)|
+202302180000|EbenIceCave|Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)|A breathtaking cave when it’s cold|![](/en-GB/2023/02/202302180000EbenIceCave.jpg)|
