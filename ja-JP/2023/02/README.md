@@ -19,3 +19,4 @@
 202302151500|FireFallYosemite|ホーステール滝, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|火の滝|![](/ja-JP/2023/02/202302151500FireFallYosemite.jpg)|
 202302161500|BirdcountAllen|赤いカンガルーポーの枝に留まるアレンハチドリ (© GypsyPictureShow/Shutterstock)|今日は「鳥を数える日」|![](/ja-JP/2023/02/202302161500BirdcountAllen.jpg)|
 202302171500|EbenIceCave|エベン氷穴, 米国 ミシガン州 (© Dean Pennala/Shutterstock)|息を吞むような氷の絶景|![](/ja-JP/2023/02/202302171500EbenIceCave.jpg)|
+202302181500|MauiWhale|ザトウクジラ, 米国 ハワイ州 (© Flip Nicklin/Minden Pictures)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2023/02/202302181500MauiWhale.jpg)|
