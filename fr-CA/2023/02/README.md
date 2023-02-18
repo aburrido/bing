@@ -19,3 +19,4 @@
 202302150500|HippoDayChobe|Une maman hippopotame et son bébé, parc national de Chobe, Botswana (© jacobeukman/Getty Images)|Journée mondiale de l’hippopotame|![](/fr-CA/2023/02/202302150500HippoDayChobe.jpg)|
 202302160500|FireFallYosemite|Cascade de feu au chute de Horsetail, Yosemite, Califonie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|L’eau en feu?|![](/fr-CA/2023/02/202302160500FireFallYosemite.jpg)|
 202302170500|Itaimbezinho|Canyon d'Itaimbezinho, Brésil (© NidoHuebl/Getty Images)|Une promenade en pleine nature|![](/fr-CA/2023/02/202302170500Itaimbezinho.jpg)|
+202302180500|EbenIceCave|Eben grotte de glace, Michigan, États-Unis (© Dean Pennala/Shutterstock)|Un spectacle à couper le souffle|![](/fr-CA/2023/02/202302180500EbenIceCave.jpg)|
