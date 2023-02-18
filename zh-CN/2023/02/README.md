@@ -19,3 +19,4 @@
 202302151600|FireFallYosemite|“火流”马尾瀑布，约塞米蒂国家公园，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)|这个悬崖怎么着火了？|![](/zh-CN/2023/02/202302151600FireFallYosemite.jpg)|
 202302161600|BirdcountAllen|栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock)|“后院鸟类统计”活动开始了！|![](/zh-CN/2023/02/202302161600BirdcountAllen.jpg)|
 202302171600|EbenIceCave|埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)|令人叹为观止的冰洞|![](/zh-CN/2023/02/202302171600EbenIceCave.jpg)|
+202302181600|MauiWhale|毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures)|海洋之王|![](/zh-CN/2023/02/202302181600MauiWhale.jpg)|
