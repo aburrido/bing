@@ -19,3 +19,4 @@
 202302152300|FireFallYosemite|Cascade de feu au chute de Horsetail, Yosemite, Califonie, USA (© Jeff Lewis/Tandem Stills + Motion)|L’eau en feu ?|![](/fr-FR/2023/02/202302152300FireFallYosemite.jpg)|
 202302162300|SnoweyParis|Les toits de Paris sous la neige (© Brasil2/iStock/Getty Images Plus)|Connaissez-vous les toits de Paris ?|![](/fr-FR/2023/02/202302162300SnoweyParis.jpg)|
 202302172300|EbenIceCave|Eben grotte de glace, Michigan, USA (© Dean Pennala/Shutterstock)|Un spectacle à couper le souffle|![](/fr-FR/2023/02/202302172300EbenIceCave.jpg)|
+202302182300|MauiWhale|Baleines à bosse, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)|La reine des océans|![](/fr-FR/2023/02/202302182300MauiWhale.jpg)|

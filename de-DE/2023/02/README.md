@@ -19,3 +19,4 @@
 202302152300|BerlinaleEroeffnung|Industriekletterer besteigen den Berlinale-Bären im Kino Zoo-Palast, Berlin (© Britta Pedersen/dpa/Alamy Live News)|Ein Fest für den Film|![](/de-DE/2023/02/202302152300BerlinaleEroeffnung.jpg)|
 202302162300|BirdcountAllen|Allen-Kolibri auf roter Kängurupflanze (© GypsyPictureShow/Shutterstock)|Der Great Backyard Bird Count kann nun beginnen!|![](/de-DE/2023/02/202302162300BirdcountAllen.jpg)|
 202302172300|EbenIceCave|Eben Ice Caves, Michigan, USA (© Dean Pennala/Shutterstock)|Die Höhle für den Winter|![](/de-DE/2023/02/202302172300EbenIceCave.jpg)|
+202302182300|MauiWhale|Buckelwale, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)|König der Ozeane|![](/de-DE/2023/02/202302182300MauiWhale.jpg)|
