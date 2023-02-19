@@ -20,3 +20,4 @@
 202302161500|BirdcountAllen|赤いカンガルーポーの枝に留まるアレンハチドリ (© GypsyPictureShow/Shutterstock)|今日は「鳥を数える日」|![](/ja-JP/2023/02/202302161500BirdcountAllen.jpg)|
 202302171500|EbenIceCave|エベン氷穴, 米国 ミシガン州 (© Dean Pennala/Shutterstock)|息を吞むような氷の絶景|![](/ja-JP/2023/02/202302171500EbenIceCave.jpg)|
 202302181500|MauiWhale|ザトウクジラ, 米国 ハワイ州 (© Flip Nicklin/Minden Pictures)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2023/02/202302181500MauiWhale.jpg)|
+202302191500|SandhillSleeping|カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)|ボスケ・デル・アパッチ国立野生動物保護区|![](/ja-JP/2023/02/202302191500SandhillSleeping.jpg)|
