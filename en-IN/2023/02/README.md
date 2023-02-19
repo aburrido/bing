@@ -20,3 +20,4 @@
 202302161830|BirdcountAllen|Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)|Let the Great Backyard Bird Count begin!|![](/en-IN/2023/02/202302161830BirdcountAllen.jpg)|
 202302171830|EbenIceCave|Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)|A breathtaking cave when it’s cold|![](/en-IN/2023/02/202302171830EbenIceCave.jpg)|
 202302181830|MauiWhale|Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)|King of the ocean|![](/en-IN/2023/02/202302181830MauiWhale.jpg)|
+202302191830|WinterberryBush|A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)|A splash of colour|![](/en-IN/2023/02/202302191830WinterberryBush.jpg)|
