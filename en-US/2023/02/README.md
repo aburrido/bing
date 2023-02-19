@@ -20,3 +20,4 @@
 202302160800|FireFallYosemite|'Firefall' on Horsetail Fall, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)|Why is El Capitan ablaze?|![](/en-US/2023/02/202302160800FireFallYosemite.jpg)|
 202302170800|BirdcountAllen|Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)|Let the Great Backyard Bird Count begin!|![](/en-US/2023/02/202302170800BirdcountAllen.jpg)|
 202302180800|EbenIceCave|Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)|It's cold inside!|![](/en-US/2023/02/202302180800EbenIceCave.jpg)|
+202302190800|MauiWhale|Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)|Migrating giants|![](/en-US/2023/02/202302190800MauiWhale.jpg)|
