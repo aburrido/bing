@@ -21,3 +21,4 @@
 202302171600|EbenIceCave|埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)|令人叹为观止的冰洞|![](/zh-CN/2023/02/202302171600EbenIceCave.jpg)|
 202302181600|MauiWhale|毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures)|海洋之王|![](/zh-CN/2023/02/202302181600MauiWhale.jpg)|
 202302191600|Itaimbezinho|Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)|在大自然中漫步|![](/zh-CN/2023/02/202302191600Itaimbezinho.jpg)|
+202302201600|MardiGrasNOLA|新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)|带上国王饼|![](/zh-CN/2023/02/202302201600MardiGrasNOLA.jpg)|
