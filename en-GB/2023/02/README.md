@@ -20,3 +20,4 @@
 202302170000|BirdcountAllen|Allen's hummingbird perched on a red kangaroo paw plant (© GypsyPictureShow/Shutterstock)|Let the Great Backyard Bird Count begin!|![](/en-GB/2023/02/202302170000BirdcountAllen.jpg)|
 202302180000|EbenIceCave|Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)|A breathtaking cave when it’s cold|![](/en-GB/2023/02/202302180000EbenIceCave.jpg)|
 202302190000|MauiWhale|Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)|King of the ocean|![](/en-GB/2023/02/202302190000MauiWhale.jpg)|
+202302200000|MiamiDT|Miami, Florida (© Matteo Colombo/Getty Images)|Check out The Magic City of Miami|![](/en-GB/2023/02/202302200000MiamiDT.jpg)|
