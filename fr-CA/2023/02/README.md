@@ -21,3 +21,4 @@
 202302170500|Itaimbezinho|Canyon d'Itaimbezinho, Brésil (© NidoHuebl/Getty Images)|Une promenade en pleine nature|![](/fr-CA/2023/02/202302170500Itaimbezinho.jpg)|
 202302180500|EbenIceCave|Eben grotte de glace, Michigan, États-Unis (© Dean Pennala/Shutterstock)|Un spectacle à couper le souffle|![](/fr-CA/2023/02/202302180500EbenIceCave.jpg)|
 202302190500|MauiWhale|Baleines à bosse, Île Maui, Hawaii, États-Unis (© Flip Nicklin/Minden Pictures)|La reine des océans|![](/fr-CA/2023/02/202302190500MauiWhale.jpg)|
+202302200500|GB25Anni|Musée Guggenheim de Bilbao, Espagne (© Jeremy Horner/Getty Images)|Où se trouve ce majestueux musée?|![](/fr-CA/2023/02/202302200500GB25Anni.jpg)|
