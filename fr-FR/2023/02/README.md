@@ -21,3 +21,4 @@
 202302172300|EbenIceCave|Eben grotte de glace, Michigan, USA (© Dean Pennala/Shutterstock)|Un spectacle à couper le souffle|![](/fr-FR/2023/02/202302172300EbenIceCave.jpg)|
 202302182300|MauiWhale|Baleines à bosse, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)|La reine des océans|![](/fr-FR/2023/02/202302182300MauiWhale.jpg)|
 202302192300|DarkSkiesDV|Voie lactée au-dessus de Zabriskie Point, Vallée de la Mort, Californie (© Matt Anderson Photography/Getty Images)|Un ciel plein d'étoiles|![](/fr-FR/2023/02/202302192300DarkSkiesDV.jpg)|
+202302202300|MardiGrasNOLA|Quartier français, Nouvelle-Orléans, Louisiane, Etats-Unis (© f11photo/Getty Images)|C’est carnaval !|![](/fr-FR/2023/02/202302202300MardiGrasNOLA.jpg)|
