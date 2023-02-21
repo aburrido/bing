@@ -22,3 +22,4 @@
 202302182300|MauiWhale|Buckelwale, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)|König der Ozeane|![](/de-DE/2023/02/202302182300MauiWhale.jpg)|
 202302192300|Itaimbezinho|Itaimbezinho Canyon, Brasilien (© NidoHuebl/Getty Images)|Der majestätische Canyon Brasiliens|![](/de-DE/2023/02/202302192300Itaimbezinho.jpg)|
 202302202300|MardiGrasNOLA|Französisches Viertel, New Orleans, USA (© f11photo/Getty Images)|Fasching in New Orleans|![](/de-DE/2023/02/202302202300MardiGrasNOLA.jpg)|
+202302212300|FriedensglockeFichtelberg|Friedensglocke auf dem Gipfel des Fichtelbergs, Sachsen (© Jan Drahokoupil/Getty Images)|Eine Glocke für den Frieden|![](/de-DE/2023/02/202302212300FriedensglockeFichtelberg.jpg)|
