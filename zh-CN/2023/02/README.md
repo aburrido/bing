@@ -23,3 +23,4 @@
 202302191600|Itaimbezinho|Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)|在大自然中漫步|![](/zh-CN/2023/02/202302191600Itaimbezinho.jpg)|
 202302201600|MardiGrasNOLA|新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)|带上国王饼|![](/zh-CN/2023/02/202302201600MardiGrasNOLA.jpg)|
 202302211600|FriedensglockeFichtelberg|菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)|和平之钟|![](/zh-CN/2023/02/202302211600FriedensglockeFichtelberg.jpg)|
+202302221600|BabblingBrook|克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)|宁静的山谷|![](/zh-CN/2023/02/202302221600BabblingBrook.jpg)|
