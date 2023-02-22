@@ -23,3 +23,4 @@
 202302190800|MauiWhale|Humpback whales, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)|Info|![](/en-AU/2023/02/202302190800MauiWhale.jpg)|
 202302200800|Itaimbezinho|Itaimbezinho canyon (© NidoHuebl/Getty Images)|Info|![](/en-AU/2023/02/202302200800Itaimbezinho.jpg)|
 202302210800|MardiGrasNOLA|French Quarter, New Orleans, Louisiana, USA (© f11photo/Getty Images)|Info|![](/en-AU/2023/02/202302210800MardiGrasNOLA.jpg)|
+202302220800|FriedensglockeFichtelberg|Peace bell on the summit of Fichtelberg, Saxony, Germany (© Jan Drahokoupil/Getty Images)|Info|![](/en-AU/2023/02/202302220800FriedensglockeFichtelberg.jpg)|
