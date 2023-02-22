@@ -23,3 +23,4 @@
 202302190500|MauiWhale|Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)|King of the ocean|![](/en-CA/2023/02/202302190500MauiWhale.jpg)|
 202302200500|GB25Anni|Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)|Where is this majestic museum?|![](/en-CA/2023/02/202302200500GB25Anni.jpg)|
 202302210500|MardiGrasNOLA|French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)|Bring the king cakes|![](/en-CA/2023/02/202302210500MardiGrasNOLA.jpg)|
+202302220500|FosterCoveredBridge|Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)|A modern recreation|![](/en-CA/2023/02/202302220500FosterCoveredBridge.jpg)|

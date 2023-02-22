@@ -23,3 +23,4 @@
 202302190500|MauiWhale|Baleines à bosse, Île Maui, Hawaii, États-Unis (© Flip Nicklin/Minden Pictures)|La reine des océans|![](/fr-CA/2023/02/202302190500MauiWhale.jpg)|
 202302200500|GB25Anni|Musée Guggenheim de Bilbao, Espagne (© Jeremy Horner/Getty Images)|Où se trouve ce majestueux musée?|![](/fr-CA/2023/02/202302200500GB25Anni.jpg)|
 202302210500|MardiGrasNOLA|Quartier français, Nouvelle-Orléans, Louisiane, États-Unis (© f11photo/Getty Images)|C’est carnaval !|![](/fr-CA/2023/02/202302210500MardiGrasNOLA.jpg)|
+202302220500|FosterCoveredBridge|Pont couvert à Cabot dans le Vermont (© Alan Majchrowicz/Getty Images)|Une reconstitution moderne|![](/fr-CA/2023/02/202302220500FosterCoveredBridge.jpg)|
