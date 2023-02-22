@@ -23,3 +23,4 @@
 202302191500|SandhillSleeping|カナダヅル, 米国 ニューメキシコ州 (© Jay Goodrich/Tandem Stills + Motion)|ボスケ・デル・アパッチ国立野生動物保護区|![](/ja-JP/2023/02/202302191500SandhillSleeping.jpg)|
 202302201500|MardiGrasNOLA|フレンチ・クォーター ニューオリンズ, 米国 ルイジアナ州 (© f11photo/Getty Images)|今日はマルディグラの開催日|![](/ja-JP/2023/02/202302201500MardiGrasNOLA.jpg)|
 202302211500|ParisWinter|パリ, フランス (© somchaij/Shutterstock)|素晴らしいパリの風景|![](/ja-JP/2023/02/202302211500ParisWinter.jpg)|
+202302221500|MtFuji2023|水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)|今日は富士山の日|![](/ja-JP/2023/02/202302221500MtFuji2023.jpg)|
