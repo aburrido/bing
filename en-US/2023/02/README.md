@@ -24,3 +24,4 @@
 202302200800|PresDayDC|Washington Monument and Capitol Building on the National Mall, Washington, DC (© AevanStock/Shutterstock)|Happy Presidents Day!|![](/en-US/2023/02/202302200800PresDayDC.jpg)|
 202302210800|MardiGrasNOLA|French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)|Bring the king cakes|![](/en-US/2023/02/202302210800MardiGrasNOLA.jpg)|
 202302220800|FreedomRallyChi|Freedom Sunday rally, Soldier Field, Chicago, Illinois, July 10, 1966 (© Bettmann/Getty Images)|Milestone in Black history|![](/en-US/2023/02/202302220800FreedomRallyChi.jpg)|
+202302230800|BlueWinterParis|Paris, France (© somchaij/Shutterstock)|Night falls on the City of Light|![](/en-US/2023/02/202302230800BlueWinterParis.jpg)|

@@ -24,3 +24,4 @@
 202302200800|Itaimbezinho|Itaimbezinho canyon (© NidoHuebl/Getty Images)|Info|![](/en-AU/2023/02/202302200800Itaimbezinho.jpg)|
 202302210800|MardiGrasNOLA|French Quarter, New Orleans, Louisiana, USA (© f11photo/Getty Images)|Info|![](/en-AU/2023/02/202302210800MardiGrasNOLA.jpg)|
 202302220800|FriedensglockeFichtelberg|Peace bell on the summit of Fichtelberg, Saxony, Germany (© Jan Drahokoupil/Getty Images)|Info|![](/en-AU/2023/02/202302220800FriedensglockeFichtelberg.jpg)|
+202302230800|BabblingBrook|Croesor Valley, Snowdonia National Park, Wales, UK (© Matthew Williams-Ellis/Plainpicture)|Info|![](/en-AU/2023/02/202302230800BabblingBrook.jpg)|
