@@ -24,3 +24,4 @@
 202302202300|MardiGrasNOLA|Quartier français, Nouvelle-Orléans, Louisiane, Etats-Unis (© f11photo/Getty Images)|C’est carnaval !|![](/fr-FR/2023/02/202302202300MardiGrasNOLA.jpg)|
 202302212300|FriedensglockeFichtelberg|Cloche de la paix, sommet de Fichtelberg, Saxe, Allemagne (© Jan Drahokoupil/Getty Images)|Une cloche pour la paix|![](/fr-FR/2023/02/202302212300FriedensglockeFichtelberg.jpg)|
 202302222300|ParisWinter|Paris, France (© somchaij/Shutterstock)|Paris ville lumière|![](/fr-FR/2023/02/202302222300ParisWinter.jpg)|
+202302232300|RichmondParkDuck|Canard mandarin, Richmond Park, Londres, Royaume-Uni  (© Oscar Dewhurst/Minden Pictures)|Un canard coloré pour égayer l’hiver|![](/fr-FR/2023/02/202302232300RichmondParkDuck.jpg)|
