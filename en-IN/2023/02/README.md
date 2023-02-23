@@ -24,3 +24,4 @@
 202302201830|MardiGrasNOLA|French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)|Bring out the king cakes|![](/en-IN/2023/02/202302201830MardiGrasNOLA.jpg)|
 202302211830|GlassOctopus|Glass octopus in the Atlantic Ocean off Cabo Verde (© Solvin Zankl/Minden Pictures)|See-through cephalopod|![](/en-IN/2023/02/202302211830GlassOctopus.jpg)|
 202302221830|ParisWinter|Paris, France (© somchaij/Shutterstock)|Isn’t this view mesmerizing?|![](/en-IN/2023/02/202302221830ParisWinter.jpg)|
+202302231830|RichmondParkDuck|Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)|A flashy, frigid waterfowl|![](/en-IN/2023/02/202302231830RichmondParkDuck.jpg)|
