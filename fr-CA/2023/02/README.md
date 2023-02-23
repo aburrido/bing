@@ -24,3 +24,4 @@
 202302200500|GB25Anni|Musée Guggenheim de Bilbao, Espagne (© Jeremy Horner/Getty Images)|Où se trouve ce majestueux musée?|![](/fr-CA/2023/02/202302200500GB25Anni.jpg)|
 202302210500|MardiGrasNOLA|Quartier français, Nouvelle-Orléans, Louisiane, États-Unis (© f11photo/Getty Images)|C’est carnaval !|![](/fr-CA/2023/02/202302210500MardiGrasNOLA.jpg)|
 202302220500|FosterCoveredBridge|Pont couvert à Cabot dans le Vermont (© Alan Majchrowicz/Getty Images)|Une reconstitution moderne|![](/fr-CA/2023/02/202302220500FosterCoveredBridge.jpg)|
+202302230500|ParisWinter|Paris, France (© somchaij/Shutterstock)|Paris, ville de lumière|![](/fr-CA/2023/02/202302230500ParisWinter.jpg)|
