@@ -25,3 +25,4 @@
 202302210500|MardiGrasNOLA|Quartier français, Nouvelle-Orléans, Louisiane, États-Unis (© f11photo/Getty Images)|C’est carnaval !|![](/fr-CA/2023/02/202302210500MardiGrasNOLA.jpg)|
 202302220500|FosterCoveredBridge|Pont couvert à Cabot dans le Vermont (© Alan Majchrowicz/Getty Images)|Une reconstitution moderne|![](/fr-CA/2023/02/202302220500FosterCoveredBridge.jpg)|
 202302230500|ParisWinter|Paris, France (© somchaij/Shutterstock)|Paris, ville de lumière|![](/fr-CA/2023/02/202302230500ParisWinter.jpg)|
+202302240500|RichmondParkDuck|Canard mandarin, Richmond Park, Londres, Royaume-Uni (© Oscar Dewhurst/Minden Pictures)|Un canard coloré pour égayer l’hiver|![](/fr-CA/2023/02/202302240500RichmondParkDuck.jpg)|
