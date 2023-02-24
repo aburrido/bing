@@ -25,3 +25,4 @@
 202302211500|ParisWinter|パリ, フランス (© somchaij/Shutterstock)|素晴らしいパリの風景|![](/ja-JP/2023/02/202302211500ParisWinter.jpg)|
 202302221500|MtFuji2023|水面に映る紅富士, 山梨 (© Nyoman Sundra/Getty Images)|今日は富士山の日|![](/ja-JP/2023/02/202302221500MtFuji2023.jpg)|
 202302231500|RichmondParkDuck|リッチモンドパーク, イギリス ロンドン (© Oscar Dewhurst/Minden Pictures)|美しくて派手なオシドリ|![](/ja-JP/2023/02/202302231500RichmondParkDuck.jpg)|
+202302241500|BryceAnniv|ブライスキャニオン国立公園, 米国 ユタ州 (© Piriya Photography/Getty Images)|雪に覆われた尖塔群|![](/ja-JP/2023/02/202302241500BryceAnniv.jpg)|
