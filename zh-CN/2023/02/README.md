@@ -25,3 +25,4 @@
 202302211600|FriedensglockeFichtelberg|菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)|和平之钟|![](/zh-CN/2023/02/202302211600FriedensglockeFichtelberg.jpg)|
 202302221600|BabblingBrook|克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)|宁静的山谷|![](/zh-CN/2023/02/202302221600BabblingBrook.jpg)|
 202302231600|RichmondParkDuck|里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures)|一只华丽招摇的鸳鸯|![](/zh-CN/2023/02/202302231600RichmondParkDuck.jpg)|
+202302241600|BryceAnniv|布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)|冬天的布莱斯峡谷石林|![](/zh-CN/2023/02/202302241600BryceAnniv.jpg)|
