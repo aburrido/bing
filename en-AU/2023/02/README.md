@@ -26,3 +26,4 @@
 202302220800|FriedensglockeFichtelberg|Peace bell on the summit of Fichtelberg, Saxony, Germany (© Jan Drahokoupil/Getty Images)|Info|![](/en-AU/2023/02/202302220800FriedensglockeFichtelberg.jpg)|
 202302230800|BabblingBrook|Croesor Valley, Snowdonia National Park, Wales, UK (© Matthew Williams-Ellis/Plainpicture)|Info|![](/en-AU/2023/02/202302230800BabblingBrook.jpg)|
 202302240800|RichmondParkDuck|Mandarin duck, Richmond Park, London, UK (© Oscar Dewhurst/Minden Pictures)|Info|![](/en-AU/2023/02/202302240800RichmondParkDuck.jpg)|
+202302250800|BryceAnniv|Hoodoos at Bryce Canyon National Park in Utah, USA (© Piriya Photography/Getty Images)|Info|![](/en-AU/2023/02/202302250800BryceAnniv.jpg)|
