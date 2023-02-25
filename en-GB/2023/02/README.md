@@ -25,3 +25,4 @@
 202302220000|PromsLast|Royal Albert Hall at night, South Kensington, London. (© Sharrocks/Getty Images)|Last night of the Proms|![](/en-GB/2023/02/202302220000PromsLast.jpg)|
 202302230000|ParisWinter|Paris, France (© somchaij/Shutterstock)|Isn’t this view mesmerizing?|![](/en-GB/2023/02/202302230000ParisWinter.jpg)|
 202302240000|RichmondParkDuck|Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)|A flashy, frigid waterfowl|![](/en-GB/2023/02/202302240000RichmondParkDuck.jpg)|
+202302250000|BryceAnniv|Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)|Bryce Canyon hoodoos in winter|![](/en-GB/2023/02/202302250000BryceAnniv.jpg)|
