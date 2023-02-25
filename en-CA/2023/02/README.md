@@ -26,3 +26,4 @@
 202302220500|FosterCoveredBridge|Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)|A modern recreation|![](/en-CA/2023/02/202302220500FosterCoveredBridge.jpg)|
 202302230500|ParisWinter|Paris, France (© somchaij/Shutterstock)|Isn’t this view mesmerizing?|![](/en-CA/2023/02/202302230500ParisWinter.jpg)|
 202302240500|RichmondParkDuck|Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)|A flashy, frigid waterfowl|![](/en-CA/2023/02/202302240500RichmondParkDuck.jpg)|
+202302250500|BryceAnniv|Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)|Bryce Canyon hoodoos in winter|![](/en-CA/2023/02/202302250500BryceAnniv.jpg)|
