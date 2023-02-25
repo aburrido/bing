@@ -26,3 +26,4 @@
 202302222300|ParisWinter|Paris, Frankreich (© somchaij/Shutterstock)|Ist diese Aussicht nicht faszinierend?|![](/de-DE/2023/02/202302222300ParisWinter.jpg)|
 202302232300|RichmondParkDuck|Mandarinente, Richmond Park, London, UK (© Oscar Dewhurst/Minden Pictures)|Ein farbenfroher Vogel|![](/de-DE/2023/02/202302232300RichmondParkDuck.jpg)|
 202302242300|BryceAnniv|Hoodoos, Bryce Canyon Nationalpark in Utah, USA (© Piriya Photography/Getty Images)|Felspyramiden im Bryce-Canyon-Nationalpark|![](/de-DE/2023/02/202302242300BryceAnniv.jpg)|
+202302252300|CanopyPeru|Reserva Nacional Tambopata, Peru (© Pere Rubi/Getty Images)|Schaukeln Sie inmitten des Amazonas|![](/de-DE/2023/02/202302252300CanopyPeru.jpg)|
