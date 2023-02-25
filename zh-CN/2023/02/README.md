@@ -26,3 +26,4 @@
 202302221600|BabblingBrook|克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)|宁静的山谷|![](/zh-CN/2023/02/202302221600BabblingBrook.jpg)|
 202302231600|RichmondParkDuck|里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures)|一只华丽招摇的鸳鸯|![](/zh-CN/2023/02/202302231600RichmondParkDuck.jpg)|
 202302241600|BryceAnniv|布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)|冬天的布莱斯峡谷石林|![](/zh-CN/2023/02/202302241600BryceAnniv.jpg)|
+202302251600|CanopyPeru|亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)|随着亚马孙的树冠摇摆|![](/zh-CN/2023/02/202302251600CanopyPeru.jpg)|
