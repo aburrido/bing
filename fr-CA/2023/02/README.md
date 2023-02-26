@@ -27,3 +27,4 @@
 202302230500|ParisWinter|Paris, France (© somchaij/Shutterstock)|Paris, ville de lumière|![](/fr-CA/2023/02/202302230500ParisWinter.jpg)|
 202302240500|RichmondParkDuck|Canard mandarin, Richmond Park, Londres, Royaume-Uni (© Oscar Dewhurst/Minden Pictures)|Un canard coloré pour égayer l’hiver|![](/fr-CA/2023/02/202302240500RichmondParkDuck.jpg)|
 202302250500|BryceAnniv|Hoodoos dans le parc national de Bryce Canyon, Utah, États-Unis (© Piriya Photography/Getty Images)|Les hoodoos de Bryce Canyon en hiver|![](/fr-CA/2023/02/202302250500BryceAnniv.jpg)|
+202302260500|CanopyPeru|Aventure dans la canopée péruvienne, réserve naturelle de Tambopata, Pérou (© Pere Rubi/Getty Images)|Marchez dans la canopée amazonienne|![](/fr-CA/2023/02/202302260500CanopyPeru.jpg)|
