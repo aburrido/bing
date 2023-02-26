@@ -26,3 +26,4 @@
 202302230000|ParisWinter|Paris, France (© somchaij/Shutterstock)|Isn’t this view mesmerizing?|![](/en-GB/2023/02/202302230000ParisWinter.jpg)|
 202302240000|RichmondParkDuck|Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)|A flashy, frigid waterfowl|![](/en-GB/2023/02/202302240000RichmondParkDuck.jpg)|
 202302250000|BryceAnniv|Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)|Bryce Canyon hoodoos in winter|![](/en-GB/2023/02/202302250000BryceAnniv.jpg)|
+202302260000|CanopyPeru|Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)|Sway with the Amazonian canopy|![](/en-GB/2023/02/202302260000CanopyPeru.jpg)|
