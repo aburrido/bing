@@ -27,3 +27,4 @@
 202302230800|BlueWinterParis|Paris, France (© somchaij/Shutterstock)|Night falls on the City of Light|![](/en-US/2023/02/202302230800BlueWinterParis.jpg)|
 202302240800|RichmondParkDuck|Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)|Who’s this colorful character?|![](/en-US/2023/02/202302240800RichmondParkDuck.jpg)|
 202302250800|BryceAnniv|Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)|A huddle of hoodoos|![](/en-US/2023/02/202302250800BryceAnniv.jpg)|
+202302260800|CanopyPeru|Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)|A walk in the trees|![](/en-US/2023/02/202302260800CanopyPeru.jpg)|
