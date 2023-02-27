@@ -28,3 +28,4 @@
 202302242300|BryceAnniv|Hoodoos dans le parc national de Bryce Canyon, Utah, États-Unis (© Piriya Photography/Getty Images)|Les hoodoos de Bryce Canyon en hiver|![](/fr-FR/2023/02/202302242300BryceAnniv.jpg)|
 202302252300|ChauvetCave|Reproductions fresques de la Grotte de Chauvet, Ardèche, France (© Abaca Press/Alamy Stock Photo)|Voyage au cœur du paléolithique|![](/fr-FR/2023/02/202302252300ChauvetCave.jpg)|
 202302262300|PolarBearFrost|Ours polaires endormis au Canada (© David Pike/Minden Pictures)|Créatures majestueuses du Grand Nord|![](/fr-FR/2023/02/202302262300PolarBearFrost.jpg)|
+202302272300|AtraniAmalfi|Atrani, Côte Amalfitaine, Italie (© Amazing Aerial/Shutterstock)|Carte postale italienne|![](/fr-FR/2023/02/202302272300AtraniAmalfi.jpg)|
