@@ -28,3 +28,4 @@
 202302241600|BryceAnniv|布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)|冬天的布莱斯峡谷石林|![](/zh-CN/2023/02/202302241600BryceAnniv.jpg)|
 202302251600|CanopyPeru|亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)|随着亚马孙的树冠摇摆|![](/zh-CN/2023/02/202302251600CanopyPeru.jpg)|
 202302261600|PolarBearFrost|北极熊在加拿大沉睡 (© David Pike/Minden Pictures)|冰冷的北极，温暖的拥抱|![](/zh-CN/2023/02/202302261600PolarBearFrost.jpg)|
+202302271600|AtraniAmalfi|阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)|一张来自意大利的明信片|![](/zh-CN/2023/02/202302271600AtraniAmalfi.jpg)|
