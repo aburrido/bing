@@ -28,3 +28,4 @@
 202302241500|BryceAnniv|ブライスキャニオン国立公園, 米国 ユタ州 (© Piriya Photography/Getty Images)|雪に覆われた尖塔群|![](/ja-JP/2023/02/202302241500BryceAnniv.jpg)|
 202302251500|CanopyPeru|タンボパタ自然保護区, ペルー (© Pere Rubi/Getty Images)|アマゾンの樹冠にかかる吊り橋|![](/ja-JP/2023/02/202302251500CanopyPeru.jpg)|
 202302261500|PolarBearFrost|ぐっすりと寝ているホッキョクグマ親子, カナダ (© David Pike/Minden Pictures)|今日は国際ホッキョクグマの日|![](/ja-JP/2023/02/202302261500PolarBearFrost.jpg)|
+202302271500|AtraniAmalfi|アトラーニ, イタリア カンパニア州 (© Amazing Aerial/Shutterstock)|世界で最も美しい海岸線の小さな村|![](/ja-JP/2023/02/202302271500AtraniAmalfi.jpg)|
