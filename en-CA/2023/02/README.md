@@ -28,3 +28,4 @@
 202302240500|RichmondParkDuck|Mandarin duck, Richmond Park, London, England (© Oscar Dewhurst/Minden Pictures)|A flashy, frigid waterfowl|![](/en-CA/2023/02/202302240500RichmondParkDuck.jpg)|
 202302250500|BryceAnniv|Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)|Bryce Canyon hoodoos in winter|![](/en-CA/2023/02/202302250500BryceAnniv.jpg)|
 202302260500|CanopyPeru|Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)|Sway with the Amazonian canopy|![](/en-CA/2023/02/202302260500CanopyPeru.jpg)|
+202302270500|PolarBearFrost|Polar bears asleep in Canada (© David Pike/Minden Pictures)|A warm hug in the icy north|![](/en-CA/2023/02/202302270500PolarBearFrost.jpg)|
