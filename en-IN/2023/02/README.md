@@ -28,3 +28,4 @@
 202302241830|BryceAnniv|Hoodoos at Bryce Canyon National Park, Utah (© Piriya Photography/Getty Images)|Bryce Canyon hoodoos in winter|![](/en-IN/2023/02/202302241830BryceAnniv.jpg)|
 202302251830|CanopyPeru|Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)|Sway with the Amazonian canopy|![](/en-IN/2023/02/202302251830CanopyPeru.jpg)|
 202302261830|PolarBearFrost|Polar bears asleep in Canada (© David Pike/Minden Pictures)|A warm hug in the icy north|![](/en-IN/2023/02/202302261830PolarBearFrost.jpg)|
+202302271830|AtraniAmalfi|Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)|Postcard from Italy|![](/en-IN/2023/02/202302271830AtraniAmalfi.jpg)|
