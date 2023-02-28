@@ -29,3 +29,4 @@
 202302251600|CanopyPeru|亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)|随着亚马孙的树冠摇摆|![](/zh-CN/2023/02/202302251600CanopyPeru.jpg)|
 202302261600|PolarBearFrost|北极熊在加拿大沉睡 (© David Pike/Minden Pictures)|冰冷的北极，温暖的拥抱|![](/zh-CN/2023/02/202302261600PolarBearFrost.jpg)|
 202302271600|AtraniAmalfi|阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)|一张来自意大利的明信片|![](/zh-CN/2023/02/202302271600AtraniAmalfi.jpg)|
+202302281600|LuebeckCityGate|吕贝克的霍尔斯滕门，德国 (© Harald Nachtmann/Getty Images)|纪念硬币上的著名建筑|![](/zh-CN/2023/02/202302281600LuebeckCityGate.jpg)|
