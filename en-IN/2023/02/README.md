@@ -29,3 +29,4 @@
 202302251830|CanopyPeru|Suspension bridge in Tambopata National Reserve, Amazon Basin, Peru (© Pere Rubi/Getty Images)|Sway with the Amazonian canopy|![](/en-IN/2023/02/202302251830CanopyPeru.jpg)|
 202302261830|PolarBearFrost|Polar bears asleep in Canada (© David Pike/Minden Pictures)|A warm hug in the icy north|![](/en-IN/2023/02/202302261830PolarBearFrost.jpg)|
 202302271830|AtraniAmalfi|Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)|Postcard from Italy|![](/en-IN/2023/02/202302271830AtraniAmalfi.jpg)|
+202302281830|SanMartinoVillage|Village of Castelmezzano, Potenza, Basilicata, Italy (© Roberto Moiola/Getty Images)|Shining city on the hill|![](/en-IN/2023/02/202302281830SanMartinoVillage.jpg)|
