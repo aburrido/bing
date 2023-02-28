@@ -29,3 +29,4 @@
 202302251500|CanopyPeru|タンボパタ自然保護区, ペルー (© Pere Rubi/Getty Images)|アマゾンの樹冠にかかる吊り橋|![](/ja-JP/2023/02/202302251500CanopyPeru.jpg)|
 202302261500|PolarBearFrost|ぐっすりと寝ているホッキョクグマ親子, カナダ (© David Pike/Minden Pictures)|今日は国際ホッキョクグマの日|![](/ja-JP/2023/02/202302261500PolarBearFrost.jpg)|
 202302271500|AtraniAmalfi|アトラーニ, イタリア カンパニア州 (© Amazing Aerial/Shutterstock)|世界で最も美しい海岸線の小さな村|![](/ja-JP/2023/02/202302271500AtraniAmalfi.jpg)|
+202302281500|FriedensglockeFichtelberg|フィヒテルベルク, ドイツ (© Jan Drahokoupil/Getty Images)|雪に覆われる平和の鐘|![](/ja-JP/2023/02/202302281500FriedensglockeFichtelberg.jpg)|
