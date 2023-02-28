@@ -29,3 +29,4 @@
 202302252300|CanopyPeru|Reserva Nacional Tambopata, Peru (© Pere Rubi/Getty Images)|Schaukeln Sie inmitten des Amazonas|![](/de-DE/2023/02/202302252300CanopyPeru.jpg)|
 202302262300|PolarBearFrost|Schlafende Eisbären in Kanada (© David Pike/Minden Pictures)|Herzliche Umarmungen im eiskalten Norden|![](/de-DE/2023/02/202302262300PolarBearFrost.jpg)|
 202302272300|AtraniAmalfi|Atrani, Amalfiküste, Italien (© Amazing Aerial/Shutterstock)|Postkarten aus Italien|![](/de-DE/2023/02/202302272300AtraniAmalfi.jpg)|
+202302282300|LuebeckCityGate|Holstentor in Lübeck (© Harald Nachtmann/Getty Images)|Das Wahrzeichen Lübecks|![](/de-DE/2023/02/202302282300LuebeckCityGate.jpg)|
