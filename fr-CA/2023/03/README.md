@@ -4,3 +4,4 @@
 202303010500|BridalVeilFalls|La chute du Voile de la Mariée, une cascade dans le parc national de Yosemite, Californie (© Jeff Foott/Minden Pictures)|Esprit du vent soufflant|![](/fr-CA/2023/03/202303010500BridalVeilFalls.jpg)|
 202303020500|NegratinSpain|Lac Negratin, Grenade, Espagne (© Andres Martinez Olmedo/Getty Images)|Le Colorado andalou|![](/fr-CA/2023/03/202303020500NegratinSpain.jpg)|
 202303030500|OrcaNorway|Orques à Spildra, Norvège (© Alex Mustard/Minden Pictures)|Superprédateurs des mers|![](/fr-CA/2023/03/202303030500OrcaNorway.jpg)|
+202303040500|PicoVolcano|Route sinueuse vers le Mont Pico, Portugal (© Marco Bottigelli/Getty Images)|En route vers le ciel|![](/fr-CA/2023/03/202303040500PicoVolcano.jpg)|
