@@ -5,3 +5,4 @@
 202303020500|NegratinSpain|Negratín Reservoir, Granada, Spain (© Andres Martinez Olmedo/Getty Images)|Nature’s own canvas|![](/en-CA/2023/03/202303020500NegratinSpain.jpg)|
 202303030500|OrcaNorway|Killer whales in the waters off Spildra, Norway (© Alex Mustard/Minden Pictures)|What are these predators doing?|![](/en-CA/2023/03/202303030500OrcaNorway.jpg)|
 202303040500|PicoVolcano|Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)|The road less taken?|![](/en-CA/2023/03/202303040500PicoVolcano.jpg)|
+202303050500|TokyoMoat|Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)|Stop and smell the 'Sakura'|![](/en-CA/2023/03/202303050500TokyoMoat.jpg)|
