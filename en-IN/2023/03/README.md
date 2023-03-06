@@ -6,3 +6,4 @@
 202303031830|PicoVolcano|Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)|The road less taken?|![](/en-IN/2023/03/202303031830PicoVolcano.jpg)|
 202303041830|TokyoMoat|Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)|Stop and smell the 'sakura'|![](/en-IN/2023/03/202303041830TokyoMoat.jpg)|
 202303051830|IcelandHorses|Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)|What are these unique creatures?|![](/en-IN/2023/03/202303051830IcelandHorses.jpg)|
+202303061830|YuanyangChina|Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)|An iridescent view|![](/en-IN/2023/03/202303061830YuanyangChina.jpg)|
