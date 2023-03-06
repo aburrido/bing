@@ -6,3 +6,4 @@
 202303030800|OrcaNorway|Killer whales in Spildra, Norway (© Alex Mustard/Minden Pictures)|Info|![](/en-AU/2023/03/202303030800OrcaNorway.jpg)|
 202303040800|PicoVolcano|Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2023/03/202303040800PicoVolcano.jpg)|
 202303050800|TokyoMoat|Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)|Info|![](/en-AU/2023/03/202303050800TokyoMoat.jpg)|
+202303060800|IcelandHorses|Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)|Info|![](/en-AU/2023/03/202303060800IcelandHorses.jpg)|
