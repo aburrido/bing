@@ -6,3 +6,4 @@
 202303031600|PicoVolcano|通往皮库山的道路，葡萄牙 (© Marco Bottigelli/Getty Images)|人迹罕至的一条路|![](/zh-CN/2023/03/202303031600PicoVolcano.jpg)|
 202303041600|HuggingKanga|袋鼠妈妈和宝宝 (© Belle Ciezak/Shutterstock)|来自妈妈的拥抱和爱|![](/zh-CN/2023/03/202303041600HuggingKanga.jpg)|
 202303051600|IcelandHorses|站在自己领域的冰岛马，冰岛 (© Rodrigo Lourezini/Shutterstock)|这些独特的生物是什么?|![](/zh-CN/2023/03/202303051600IcelandHorses.jpg)|
+202303061600|YuanyangChina|梯田鸟瞰图，元阳，中国 (© AlexGcs/Getty Images)|彩虹般的风景|![](/zh-CN/2023/03/202303061600YuanyangChina.jpg)|
