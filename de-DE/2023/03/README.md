@@ -6,3 +6,4 @@
 202303032300|PicoVolcano|Pico-Berg, Azoren, Portugal (© Marco Bottigelli/Getty Images)|Der Weg ist das Ziel|![](/de-DE/2023/03/202303032300PicoVolcano.jpg)|
 202303042300|YuanyangChina|Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)|Ist das nicht unglaublich?|![](/de-DE/2023/03/202303042300YuanyangChina.jpg)|
 202303052300|IcelandHorses|Islandpferde, Island (© Rodrigo Lourezini/Shutterstock)|Islandpferde, einfach einzigartige Geschöpfe|![](/de-DE/2023/03/202303052300IcelandHorses.jpg)|
+202303062300|ParktheaterGoeggingen|Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)|Kurhaus Göggingen|![](/de-DE/2023/03/202303062300ParktheaterGoeggingen.jpg)|
