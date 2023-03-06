@@ -6,3 +6,4 @@
 202303030500|OrcaNorway|Orques à Spildra, Norvège (© Alex Mustard/Minden Pictures)|Superprédateurs des mers|![](/fr-CA/2023/03/202303030500OrcaNorway.jpg)|
 202303040500|PicoVolcano|Route sinueuse vers le Mont Pico, Portugal (© Marco Bottigelli/Getty Images)|En route vers le ciel|![](/fr-CA/2023/03/202303040500PicoVolcano.jpg)|
 202303050500|BarnOwlWinter|Chouette effraie dans l'herbe blanche du matin, Angleterre (© Ondrej Prosicky/Getty Images)|L’animal symbole de la sagesse|![](/fr-CA/2023/03/202303050500BarnOwlWinter.jpg)|
+202303060500|IcelandHorses|Chevaux islandais dans un champ enneigé, Islande (© Rodrigo Lourezini/Shutterstock)|Des chevaux uniques|![](/fr-CA/2023/03/202303060500IcelandHorses.jpg)|
