@@ -7,3 +7,4 @@
 202303042300|YuanyangChina|Luftaufnahme von terrassierten Reisfeldern, Yuanyang, China (© AlexGcs/Getty Images)|Ist das nicht unglaublich?|![](/de-DE/2023/03/202303042300YuanyangChina.jpg)|
 202303052300|IcelandHorses|Islandpferde, Island (© Rodrigo Lourezini/Shutterstock)|Islandpferde, einfach einzigartige Geschöpfe|![](/de-DE/2023/03/202303052300IcelandHorses.jpg)|
 202303062300|ParktheaterGoeggingen|Parktheater im Kurhaus Göggingen, Architekt Jean Keller, Bayern (© imageBROKER/Alamy Stock Photo)|Kurhaus Göggingen|![](/de-DE/2023/03/202303062300ParktheaterGoeggingen.jpg)|
+202303072300|IntlWomensDayChange|Der Cibeles-Brunnen ist anlässlich des Internationalen Frauentags beleuchtet, Madrid, Spanien (© dpa picture alliance/Alamy)|Wir feiern die Frauen|![](/de-DE/2023/03/202303072300IntlWomensDayChange.jpg)|

@@ -7,3 +7,4 @@
 202303042300|GranmotherDay|Le jardin de Monet à Giverny, France (© Simon Kirwan/Alamy Stock Photo)|Bonne fête à nos grands-mères !|![](/fr-FR/2023/03/202303042300GranmotherDay.jpg)|
 202303052300|IcelandHorses|Chevaux islandais dans un champ enneigé, Islande (© Rodrigo Lourezini/Shutterstock)|Des chevaux uniques au monde|![](/fr-FR/2023/03/202303052300IcelandHorses.jpg)|
 202303062300|YuanyangChina|Vue aérienne de rizières en terrasse, Yuanyang, Chine (© AlexGcs/Getty Images)|Que sont ces paysages ?|![](/fr-FR/2023/03/202303062300YuanyangChina.jpg)|
+202303072300|IntlWomensDayChange|Fontaine des Cibeles et hotel de ville illuminés pour la Journée Internationale de la Femme, Madrid, Espagne (© dpa picture alliance/Alamy)|Les Femmes à l’honneur|![](/fr-FR/2023/03/202303072300IntlWomensDayChange.jpg)|
