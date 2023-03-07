@@ -7,3 +7,4 @@
 202303040500|PicoVolcano|Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)|The road less taken?|![](/en-CA/2023/03/202303040500PicoVolcano.jpg)|
 202303050500|TokyoMoat|Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)|Stop and smell the 'Sakura'|![](/en-CA/2023/03/202303050500TokyoMoat.jpg)|
 202303060500|IcelandHorses|Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)|What are these unique creatures?|![](/en-CA/2023/03/202303060500IcelandHorses.jpg)|
+202303070500|ValleyForge|Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)|Winter at Valley Forge|![](/en-CA/2023/03/202303070500ValleyForge.jpg)|
