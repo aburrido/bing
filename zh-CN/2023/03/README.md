@@ -8,3 +8,4 @@
 202303051600|IcelandHorses|站在自己领域的冰岛马，冰岛 (© Rodrigo Lourezini/Shutterstock)|这些独特的生物是什么?|![](/zh-CN/2023/03/202303051600IcelandHorses.jpg)|
 202303061600|YuanyangChina|梯田鸟瞰图，元阳，中国 (© AlexGcs/Getty Images)|彩虹般的风景|![](/zh-CN/2023/03/202303061600YuanyangChina.jpg)|
 202303071600|WhitehorseAurora|极光展示，怀特霍斯，育空地区，加拿大 (© John Hyde/plainpicture/Design Pics)|守候浪漫的极光|![](/zh-CN/2023/03/202303071600WhitehorseAurora.jpg)|
+202303081600|WaimeaRainbow|威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国 (© Beverley Van Praagh/Getty Images)|雨后见彩虹|![](/zh-CN/2023/03/202303081600WaimeaRainbow.jpg)|
