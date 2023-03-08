@@ -8,3 +8,4 @@
 202303050500|BarnOwlWinter|Chouette effraie dans l'herbe blanche du matin, Angleterre (© Ondrej Prosicky/Getty Images)|L’animal symbole de la sagesse|![](/fr-CA/2023/03/202303050500BarnOwlWinter.jpg)|
 202303060500|IcelandHorses|Chevaux islandais dans un champ enneigé, Islande (© Rodrigo Lourezini/Shutterstock)|Des chevaux uniques|![](/fr-CA/2023/03/202303060500IcelandHorses.jpg)|
 202303070500|ValleyForge|Cabanes dans le parc historique national de Valley Forge, Pennsylvanie (© Mark C. Morris/Shutterstock)|L’hiver à Valley Forge|![](/fr-CA/2023/03/202303070500ValleyForge.jpg)|
+202303080500|IntlWomensDayChange|Cibeles Fontaine et mairie de Madrid illuminées pour la Journée internationale de la femme, Madrid, Espagne (© dpa picture alliance/Alamy)|Les Femmes à l’honneur|![](/fr-CA/2023/03/202303080500IntlWomensDayChange.jpg)|
