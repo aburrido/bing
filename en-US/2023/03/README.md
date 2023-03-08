@@ -8,3 +8,4 @@
 202303050800|TokyoMoat|Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)|Spring blossoms in Tokyo|![](/en-US/2023/03/202303050800TokyoMoat.jpg)|
 202303060800|IcelandHorses|Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)|Norse horses|![](/en-US/2023/03/202303060800IcelandHorses.jpg)|
 202303070800|YuanyangChina|Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)|Shining through the centuries|![](/en-US/2023/03/202303070800YuanyangChina.jpg)|
+202303080800|IntlWomensDayChange|Cibeles Fountain and Madrid City Hall lit for International Women's Day, Madrid, Spain (© dpa picture alliance/Alamy)|Celebrating women|![](/en-US/2023/03/202303080800IntlWomensDayChange.jpg)|
