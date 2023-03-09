@@ -8,3 +8,4 @@
 202303060000|IcelandHorses|Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)|What are these unique creatures?|![](/en-GB/2023/03/202303060000IcelandHorses.jpg)|
 202303070000|YuanyangChina|Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)|An iridescent view|![](/en-GB/2023/03/202303070000YuanyangChina.jpg)|
 202303080000|IntlWomensDayChange|Cibeles Fountain and Madrid City Hall lit for International Women's Day, Madrid, Spain (© dpa picture alliance/Alamy)|Celebrating women|![](/en-GB/2023/03/202303080000IntlWomensDayChange.jpg)|
+202303090000|WaimeaRainbow|Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)|A rainbow that’s worth the rainfall|![](/en-GB/2023/03/202303090000WaimeaRainbow.jpg)|
