@@ -10,3 +10,4 @@
 202303070500|ValleyForge|Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)|Winter at Valley Forge|![](/en-CA/2023/03/202303070500ValleyForge.jpg)|
 202303080500|IntlWomensDayChange|Cibeles Fountain and Madrid City Hall lit for International Women's Day, Madrid, Spain (© dpa picture alliance/Alamy)|Celebrating women|![](/en-CA/2023/03/202303080500IntlWomensDayChange.jpg)|
 202303090500|WaimeaRainbow|Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)|A rainbow that’s worth the rainfall|![](/en-CA/2023/03/202303090500WaimeaRainbow.jpg)|
+202303100500|EdaleValley|Edale Valley, Peak District, England (© John Finney/Getty Images)|A puzzle for giants|![](/en-CA/2023/03/202303100500EdaleValley.jpg)|
