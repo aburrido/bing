@@ -10,3 +10,4 @@
 202303072300|IntlWomensDayChange|Der Cibeles-Brunnen ist anlässlich des Internationalen Frauentags beleuchtet, Madrid, Spanien (© dpa picture alliance/Alamy)|Wir feiern die Frauen|![](/de-DE/2023/03/202303072300IntlWomensDayChange.jpg)|
 202303082300|WaimeaRainbow|Regenbogen über Waimea Canyon, Kauai, Hawaii, USA (© Beverley Van Praagh/Getty Images)|Magischer Regenbogen|![](/de-DE/2023/03/202303082300WaimeaRainbow.jpg)|
 202303092300|EdaleValley|Edale Valley, Peak District, England (© John Finney/Getty Images)|Ein Puzzle für Riesen|![](/de-DE/2023/03/202303092300EdaleValley.jpg)|
+202303102300|LongWharf|Sumpfgebiet, Gloucester, Massachusetts, USA (© Thomas H. Mitchell/Getty Images)|Wie Farbe auf Leinwand|![](/de-DE/2023/03/202303102300LongWharf.jpg)|
