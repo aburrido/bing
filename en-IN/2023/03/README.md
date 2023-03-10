@@ -10,3 +10,4 @@
 202303071830|IndiaNandGaonHoli|Holi celebrations, Nandgaon, Uttar Pradesh, India (© Avishek Das/Getty Images)|The festival of colours|![](/en-IN/2023/03/202303071830IndiaNandGaonHoli.jpg)|
 202303081830|WaimeaRainbow|Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)|A rainbow that’s worth the rainfall|![](/en-IN/2023/03/202303081830WaimeaRainbow.jpg)|
 202303091830|EdaleValley|Edale Valley, Peak District, England (© John Finney/Getty Images)|A puzzle for giants|![](/en-IN/2023/03/202303091830EdaleValley.jpg)|
+202303101830|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Like paint on a canvas|![](/en-IN/2023/03/202303101830LongWharf.jpg)|
