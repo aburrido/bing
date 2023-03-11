@@ -11,3 +11,4 @@
 202303081500|WaimeaRainbow|カウアイ島, 米国 ハワイ州 (© Beverley Van Praagh/Getty Images)|ワイメア渓谷とワイポオ滝にかかる虹|![](/ja-JP/2023/03/202303081500WaimeaRainbow.jpg)|
 202303091500|EdaleValley|イーデルの谷, イギリス (© John Finney/Getty Images)|ピーク・ディストリクト国立公園|![](/ja-JP/2023/03/202303091500EdaleValley.jpg)|
 202303101500|Fukushima2023|秋元湖の朝, 福島 (© I am happy taking photographs./Getty Images)|東日本大震災から 12 年|![](/ja-JP/2023/03/202303101500Fukushima2023.jpg)|
+202303111500|TheaterRomania|クルジュ・ナポカ国立劇場, ルーマニア (© Thomas Mueller/Shutterstock)|豪華壮麗なバロック建築|![](/ja-JP/2023/03/202303111500TheaterRomania.jpg)|
