@@ -11,3 +11,4 @@
 202303080500|IntlWomensDayChange|Cibeles Fontaine et mairie de Madrid illuminées pour la Journée internationale de la femme, Madrid, Espagne (© dpa picture alliance/Alamy)|Les Femmes à l’honneur|![](/fr-CA/2023/03/202303080500IntlWomensDayChange.jpg)|
 202303090500|WaimeaRainbow|Arc-en-ciel au-dessus du Grand Canyon du Pacifique, Hawaii, Etats-Unis (© Beverley Van Praagh/Getty Images)|Un arc en ciel dans la brume|![](/fr-CA/2023/03/202303090500WaimeaRainbow.jpg)|
 202303100500|EdaleValley|Vallée d'Edale, Peak District, Royaume-Uni (© John Finney/Getty Images)|Un puzzle géant|![](/fr-CA/2023/03/202303100500EdaleValley.jpg)|
+202303110500|LongWharf|Marais, Gloucester, Massachusetts, États-Unis (© Thomas H. Mitchell/Getty Images)|Paysage salé fascinant|![](/fr-CA/2023/03/202303110500LongWharf.jpg)|
