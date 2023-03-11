@@ -11,3 +11,4 @@
 202303082300|WaimeaRainbow|Arc-en-ciel au-dessus du Grand Canyon du Pacifique, Hawaii, Etats-Unis (© Beverley Van Praagh/Getty Images)|Un arc en ciel dans la brume|![](/fr-FR/2023/03/202303082300WaimeaRainbow.jpg)|
 202303092300|EdaleValley|Vallée d'Edale, Peak District, Royaume-Uni (© John Finney/Getty Images)|Un puzzle géant|![](/fr-FR/2023/03/202303092300EdaleValley.jpg)|
 202303102300|LongWharf|Marais, Gloucester, Massachusetts, États-Unis (© Thomas H. Mitchell/Getty Images)|Le mariage de la terre, de la mer et du vent|![](/fr-FR/2023/03/202303102300LongWharf.jpg)|
+202303112300|TheaterRomania|Théâtre national, Cluj-Napoca, Roumanie (© Thomas Mueller/Shutterstock)|Splendeur architecturale des Balkans|![](/fr-FR/2023/03/202303112300TheaterRomania.jpg)|
