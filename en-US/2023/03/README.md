@@ -11,3 +11,4 @@
 202303080800|IntlWomensDayChange|Cibeles Fountain and Madrid City Hall lit for International Women's Day, Madrid, Spain (© dpa picture alliance/Alamy)|Celebrating women|![](/en-US/2023/03/202303080800IntlWomensDayChange.jpg)|
 202303090800|WaimeaRainbow|Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)|Under the rainbow|![](/en-US/2023/03/202303090800WaimeaRainbow.jpg)|
 202303100800|EdaleValley|Vale of Edale, Peak District, England (© John Finney/Getty Images)|Up hill and down dale|![](/en-US/2023/03/202303100800EdaleValley.jpg)|
+202303110800|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Protecting shorelines|![](/en-US/2023/03/202303110800LongWharf.jpg)|
