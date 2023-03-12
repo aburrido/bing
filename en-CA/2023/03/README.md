@@ -12,3 +12,4 @@
 202303090500|WaimeaRainbow|Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)|A rainbow that’s worth the rainfall|![](/en-CA/2023/03/202303090500WaimeaRainbow.jpg)|
 202303100500|EdaleValley|Edale Valley, Peak District, England (© John Finney/Getty Images)|A puzzle for giants|![](/en-CA/2023/03/202303100500EdaleValley.jpg)|
 202303110500|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Like paint on a canvas|![](/en-CA/2023/03/202303110500LongWharf.jpg)|
+202303120500|TheaterRomania|National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)|Behold the architectural marvel|![](/en-CA/2023/03/202303120500TheaterRomania.jpg)|
