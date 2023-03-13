@@ -13,3 +13,4 @@
 202303102300|LongWharf|Marais, Gloucester, Massachusetts, États-Unis (© Thomas H. Mitchell/Getty Images)|Le mariage de la terre, de la mer et du vent|![](/fr-FR/2023/03/202303102300LongWharf.jpg)|
 202303112300|TheaterRomania|Théâtre national, Cluj-Napoca, Roumanie (© Thomas Mueller/Shutterstock)|Splendeur architecturale des Balkans|![](/fr-FR/2023/03/202303112300TheaterRomania.jpg)|
 202303122300|Atoll|Atoll de Kauehi, archipel des Tuamotu, Polynésie française (© WaterFrame/Alamy Stock Photo)|Un petit coin de Paradis|![](/fr-FR/2023/03/202303122300Atoll.jpg)|
+202303132300|CyprusMaze|Parc botanique de Cyherbia, Chypre (© Tpopova/Getty Images)|C’est la journée des matheux !|![](/fr-FR/2023/03/202303132300CyprusMaze.jpg)|
