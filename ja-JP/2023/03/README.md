@@ -13,3 +13,4 @@
 202303101500|Fukushima2023|秋元湖の朝, 福島 (© I am happy taking photographs./Getty Images)|東日本大震災から 12 年|![](/ja-JP/2023/03/202303101500Fukushima2023.jpg)|
 202303111500|TheaterRomania|クルジュ・ナポカ国立劇場, ルーマニア (© Thomas Mueller/Shutterstock)|豪華壮麗なバロック建築|![](/ja-JP/2023/03/202303111500TheaterRomania.jpg)|
 202303121500|LongWharf|グロスターの湿地, 米国 マサチューセッツ州 (© Thomas H. Mitchell/Getty Images)|鮮やかな沿岸湿地|![](/ja-JP/2023/03/202303121500LongWharf.jpg)|
+202303131500|CyprusMaze|サイヘルビア植物園, キプロス (© Tpopova/Getty Images)|今日は円周率の日|![](/ja-JP/2023/03/202303131500CyprusMaze.jpg)|
