@@ -12,3 +12,4 @@
 202303100000|EdaleValley|Edale Valley, Peak District, England (© John Finney/Getty Images)|A puzzle for giants|![](/en-GB/2023/03/202303100000EdaleValley.jpg)|
 202303110000|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Like paint on a canvas|![](/en-GB/2023/03/202303110000LongWharf.jpg)|
 202303120000|TheaterRomania|National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)|Behold the architectural marvel|![](/en-GB/2023/03/202303120000TheaterRomania.jpg)|
+202303130000|LionessesNap|Lionesses sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)|Nap your worries away|![](/en-GB/2023/03/202303130000LionessesNap.jpg)|
