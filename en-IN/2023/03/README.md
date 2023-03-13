@@ -13,3 +13,4 @@
 202303101830|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Like paint on a canvas|![](/en-IN/2023/03/202303101830LongWharf.jpg)|
 202303111830|TheaterRomania|National Theatre, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)|Behold the architectural marvel|![](/en-IN/2023/03/202303111830TheaterRomania.jpg)|
 202303121830|LionessesNap|Lionesses sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)|Nap your worries away|![](/en-IN/2023/03/202303121830LionessesNap.jpg)|
+202303131830|CyprusMaze|Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|A beautiful labyrinth|![](/en-IN/2023/03/202303131830CyprusMaze.jpg)|
