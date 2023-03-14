@@ -14,3 +14,4 @@
 202303110500|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Like paint on a canvas|![](/en-CA/2023/03/202303110500LongWharf.jpg)|
 202303120500|TheaterRomania|National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)|Behold the architectural marvel|![](/en-CA/2023/03/202303120500TheaterRomania.jpg)|
 202303130400|CommonwealthDay|Flags of the Commonwealth of Nations (© hamzehsh12/iStock/Getty Images Plus)|‘A sustainable and peaceful common future’|![](/en-CA/2023/03/202303130400CommonwealthDay.jpg)|
+202303140400|CyprusMaze|Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|A beautiful labyrinth|![](/en-CA/2023/03/202303140400CyprusMaze.jpg)|
