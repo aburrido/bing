@@ -14,3 +14,4 @@
 202303111600|SouthDownsSheep|南唐斯国家公园的绵羊，东萨塞克斯郡，英国 (© Slawek Staszczuk/Alamy)|波浪板起伏的绿丘|![](/zh-CN/2023/03/202303111600SouthDownsSheep.jpg)|
 202303121600|LionessesNap|正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)|午睡消除烦恼|![](/zh-CN/2023/03/202303121600LionessesNap.jpg)|
 202303131600|CyprusMaze|阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)|美丽的曲径迷宫|![](/zh-CN/2023/03/202303131600CyprusMaze.jpg)|
+202303141600|AgueroSpain|阿圭罗村庄，西班牙 (© Andrea Comi/Getty Images)|如此美景在何处？|![](/zh-CN/2023/03/202303141600AgueroSpain.jpg)|
