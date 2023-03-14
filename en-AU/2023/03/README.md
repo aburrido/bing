@@ -14,3 +14,4 @@
 202303110800|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Info|![](/en-AU/2023/03/202303110800LongWharf.jpg)|
 202303120700|SouthDownsSheep|Sheep in South Downs National Park, East Sussex, England (© Slawek Staszczuk/Alamy)|Info|![](/en-AU/2023/03/202303120700SouthDownsSheep.jpg)|
 202303130700|LionessesNap|Lionesses sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)|Info|![](/en-AU/2023/03/202303130700LionessesNap.jpg)|
+202303140700|CyprusMaze|Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|Info|![](/en-AU/2023/03/202303140700CyprusMaze.jpg)|

@@ -14,3 +14,4 @@
 202303110800|LongWharf|Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)|Protecting shorelines|![](/en-US/2023/03/202303110800LongWharf.jpg)|
 202303120700|TheaterRomania|Lucian Blaga National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)|A real showstopper|![](/en-US/2023/03/202303120700TheaterRomania.jpg)|
 202303130700|LionessesNap|Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)|Just 'lion' around|![](/en-US/2023/03/202303130700LionessesNap.jpg)|
+202303140700|CyprusMaze|Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|A beautiful labyrinth|![](/en-US/2023/03/202303140700CyprusMaze.jpg)|
