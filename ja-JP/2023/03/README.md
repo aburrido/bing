@@ -15,3 +15,4 @@
 202303121500|LongWharf|グロスターの湿地, 米国 マサチューセッツ州 (© Thomas H. Mitchell/Getty Images)|鮮やかな沿岸湿地|![](/ja-JP/2023/03/202303121500LongWharf.jpg)|
 202303131500|CyprusMaze|サイヘルビア植物園, キプロス (© Tpopova/Getty Images)|今日は円周率の日|![](/ja-JP/2023/03/202303131500CyprusMaze.jpg)|
 202303141500|AgueroSpain|アグエロ村, スペイン アラゴン州 (© Andrea Comi/Getty Images)|巨大岩群に囲まれた小さな村|![](/ja-JP/2023/03/202303141500AgueroSpain.jpg)|
+202303151500|ChengduPanda|成都ジャイアントパンダ繁殖研究基地, 中国 四川省 (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|今日はナショナルパンダデー|![](/ja-JP/2023/03/202303151500ChengduPanda.jpg)|
