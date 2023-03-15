@@ -15,3 +15,4 @@
 202303122300|Atoll|Atoll de Kauehi, archipel des Tuamotu, Polynésie française (© WaterFrame/Alamy Stock Photo)|Un petit coin de Paradis|![](/fr-FR/2023/03/202303122300Atoll.jpg)|
 202303132300|CyprusMaze|Parc botanique de Cyherbia, Chypre (© Tpopova/Getty Images)|C’est la journée des matheux !|![](/fr-FR/2023/03/202303132300CyprusMaze.jpg)|
 202303142300|AgueroSpain|Agüero, Huesca, Espagne (© Andrea Comi/Getty Images)|Un village au creux des falaises|![](/fr-FR/2023/03/202303142300AgueroSpain.jpg)|
+202303152300|ChengduPanda|Centre de recherche sur le Panda géant de Chengdu, Chine (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Le panda des neiges !|![](/fr-FR/2023/03/202303152300ChengduPanda.jpg)|

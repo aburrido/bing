@@ -15,3 +15,4 @@
 202303122300|LionessesNap|Schlafende Löwen, Serengeti-Nationalpark, Tansania (© Cavan Images/Shutterstock)|Schlaf deine Sorgen weg|![](/de-DE/2023/03/202303122300LionessesNap.jpg)|
 202303132300|CyprusMaze|Botanischer Garten Cyherbia, Zypern (© Tpopova/Getty Images)|Ein wunderschönes Labyrinth|![](/de-DE/2023/03/202303132300CyprusMaze.jpg)|
 202303142300|AgueroSpain|Agüero, Spanien (© Andrea Comi/Getty Images)|Wo kann man diesen spektakulären Ausblick genießen?|![](/de-DE/2023/03/202303142300AgueroSpain.jpg)|
+202303152300|ChengduPanda|Panda-Station Chengdu, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Genießen Pandas den Winter?|![](/de-DE/2023/03/202303152300ChengduPanda.jpg)|
