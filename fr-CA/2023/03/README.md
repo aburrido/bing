@@ -15,3 +15,4 @@
 202303120500|TheaterRomania|Théâtre national, Cluj-Napoca, Roumanie (© Thomas Mueller/Shutterstock)|Splendeur architecturale des Balkans|![](/fr-CA/2023/03/202303120500TheaterRomania.jpg)|
 202303130400|CommonwealthDay|Drapeaux des nations du Commonwealth (© hamzehsh12/iStock/Getty Images Plus)|Journée du Commonwealth|![](/fr-CA/2023/03/202303130400CommonwealthDay.jpg)|
 202303140400|CyprusMaze|Parc botanique de Cyherbia, Chypre (© Tpopova/Getty Images)|C’est la journée des matheux !|![](/fr-CA/2023/03/202303140400CyprusMaze.jpg)|
+202303150400|AgueroSpain|Agüero, Espagne (© Andrea Comi/Getty Images)|Un village au creux des falaises|![](/fr-CA/2023/03/202303150400AgueroSpain.jpg)|
