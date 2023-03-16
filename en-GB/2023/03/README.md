@@ -16,3 +16,4 @@
 202303140000|CyprusMaze|Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|A beautiful labyrinth|![](/en-GB/2023/03/202303140000CyprusMaze.jpg)|
 202303150000|AgueroSpain|Agüero, Spain (© Andrea Comi/Getty Images)|Where is this scenic view?|![](/en-GB/2023/03/202303150000AgueroSpain.jpg)|
 202303160000|ChengduPanda|Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Do pandas enjoy winter?|![](/en-GB/2023/03/202303160000ChengduPanda.jpg)|
+||||![](/en-GB/2023/03/.jpg)|
