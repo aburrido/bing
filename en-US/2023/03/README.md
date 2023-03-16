@@ -16,3 +16,4 @@
 202303130700|LionessesNap|Female lions sleeping, Serengeti National Park, Tanzania (© Cavan Images/Shutterstock)|Just 'lion' around|![](/en-US/2023/03/202303130700LionessesNap.jpg)|
 202303140700|CyprusMaze|Hedge maze in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|A beautiful labyrinth|![](/en-US/2023/03/202303140700CyprusMaze.jpg)|
 202303150700|AgueroSpain|Agüero, Spain (© Andrea Comi/Getty Images)|A hidden gem|![](/en-US/2023/03/202303150700AgueroSpain.jpg)|
+202303160700|ChengduPanda|Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Happy Panda Day!|![](/en-US/2023/03/202303160700ChengduPanda.jpg)|
