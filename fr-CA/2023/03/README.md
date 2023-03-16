@@ -16,3 +16,4 @@
 202303130400|CommonwealthDay|Drapeaux des nations du Commonwealth (© hamzehsh12/iStock/Getty Images Plus)|Journée du Commonwealth|![](/fr-CA/2023/03/202303130400CommonwealthDay.jpg)|
 202303140400|CyprusMaze|Parc botanique de Cyherbia, Chypre (© Tpopova/Getty Images)|C’est la journée des matheux !|![](/fr-CA/2023/03/202303140400CyprusMaze.jpg)|
 202303150400|AgueroSpain|Agüero, Espagne (© Andrea Comi/Getty Images)|Un village au creux des falaises|![](/fr-CA/2023/03/202303150400AgueroSpain.jpg)|
+202303160400|ChengduPanda|Centre de recherche sur le Panda géant de Chengdu, Chine (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Le panda des neiges!|![](/fr-CA/2023/03/202303160400ChengduPanda.jpg)|

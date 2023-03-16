@@ -16,3 +16,4 @@
 202303130400|CommonwealthDay|Flags of the Commonwealth of Nations (© hamzehsh12/iStock/Getty Images Plus)|‘A sustainable and peaceful common future’|![](/en-CA/2023/03/202303130400CommonwealthDay.jpg)|
 202303140400|CyprusMaze|Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)|A beautiful labyrinth|![](/en-CA/2023/03/202303140400CyprusMaze.jpg)|
 202303150400|AgueroSpain|Agüero, Spain (© Andrea Comi/Getty Images)|Where is this scenic view?|![](/en-CA/2023/03/202303150400AgueroSpain.jpg)|
+202303160400|ChengduPanda|Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Do pandas enjoy winter?|![](/en-CA/2023/03/202303160400ChengduPanda.jpg)|
