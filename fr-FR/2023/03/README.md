@@ -18,3 +18,4 @@
 202303152300|ChengduPanda|Centre de recherche sur le Panda géant de Chengdu, Chine (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Le panda des neiges !|![](/fr-FR/2023/03/202303152300ChengduPanda.jpg)|
 ||||![](/fr-FR/2023/03/.jpg)|
 202303162300|BallyvooneyCove|Ballyvooney Cove, Copper Coast Geopark, Irlande (© Andrea Pistolesi/Getty Images)|Vive la Saint Patrick !|![](/fr-FR/2023/03/202303162300BallyvooneyCove.jpg)|
+202303172300|Francophonie|Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)|Semaine de la Francophonie|![](/fr-FR/2023/03/202303172300Francophonie.jpg)|

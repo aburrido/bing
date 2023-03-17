@@ -18,3 +18,4 @@
 202303152300|ChengduPanda|Panda-Station Chengdu, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Genießen Pandas den Winter?|![](/de-DE/2023/03/202303152300ChengduPanda.jpg)|
 ||||![](/de-DE/2023/03/.jpg)|
 202303162300|BallyvooneyCove|Ballyvooney Cove, Geopark Copper Coast, Irland (© Andrea Pistolesi/Getty Images)|Dort wo der Regenbogen endet|![](/de-DE/2023/03/202303162300BallyvooneyCove.jpg)|
+202303172300|MarsTars|Gamboa-Krater, Mars (© NASA/JPL-Caltech/University of Arizona)|Nicht von dieser Welt|![](/de-DE/2023/03/202303172300MarsTars.jpg)|
