@@ -19,3 +19,4 @@
 202303161830|BallyvooneyCove|Ballyvooney Cove, Copper Coast Geopark, Ireland (© Andrea Pistolesi/Getty Images)|Where the rainbow ends|![](/en-IN/2023/03/202303161830BallyvooneyCove.jpg)|
 ||||![](/en-IN/2023/03/.jpg)|
 202303171830|GreatCormorants|Great cormorants gliding through a snowstorm in Hesse, Germany (© Wilfried Martin/Getty Images)|What are these beautiful birds?|![](/en-IN/2023/03/202303171830GreatCormorants.jpg)|
+202303181830|BarnOwlWinter|Barn owl, England (© Ondrej Prosicky/Getty Images)|Who’s the wisest of them all?|![](/en-IN/2023/03/202303181830BarnOwlWinter.jpg)|
