@@ -19,3 +19,4 @@
 202303160400|ChengduPanda|Giant panda at Chengdu Panda Base, China (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)|Do pandas enjoy winter?|![](/en-CA/2023/03/202303160400ChengduPanda.jpg)|
 ||||![](/en-CA/2023/03/.jpg)|
 202303170400|BallyvooneyCove|Ballyvooney Cove, Copper Coast Geopark, Ireland (© Andrea Pistolesi/Getty Images)|Where the rainbow ends|![](/en-CA/2023/03/202303170400BallyvooneyCove.jpg)|
+202303180400|MarsTars|Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)|Out of this world|![](/en-CA/2023/03/202303180400MarsTars.jpg)|
