@@ -20,3 +20,4 @@
 ||||![](/en-AU/2023/03/.jpg)|
 202303170700|BallyvooneyCove|Ballyvooney Cove, Copper Coast Geopark, Ireland (© Andrea Pistolesi/Getty Images)|Info|![](/en-AU/2023/03/202303170700BallyvooneyCove.jpg)|
 202303180700|MarsTars|Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)|Info|![](/en-AU/2023/03/202303180700MarsTars.jpg)|
+202303190700|BarnOwlWinter|Barn owl, England (© Ondrej Prosicky/Getty Images)|Info|![](/en-AU/2023/03/202303190700BarnOwlWinter.jpg)|
