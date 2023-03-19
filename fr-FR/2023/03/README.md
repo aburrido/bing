@@ -20,3 +20,4 @@
 202303162300|BallyvooneyCove|Ballyvooney Cove, Copper Coast Geopark, Irlande (© Andrea Pistolesi/Getty Images)|Vive la Saint Patrick !|![](/fr-FR/2023/03/202303162300BallyvooneyCove.jpg)|
 202303172300|Francophonie|Mur peint des écrivains, Lyon, France (© Russ Bishop/Alamy Stock Photo)|Semaine de la Francophonie|![](/fr-FR/2023/03/202303172300Francophonie.jpg)|
 202303182300|BarnOwlWinter|Chouette effraie dans l'herbe blanche du matin, Angleterre (© Ondrej Prosicky/Getty Images)|L’animal symbole La sagesse|![](/fr-FR/2023/03/202303182300BarnOwlWinter.jpg)|
+202303192300|PurpleCrocus|Crocus du printemps (© Raimund Linke/Getty Images)|Equinox de printemps|![](/fr-FR/2023/03/202303192300PurpleCrocus.jpg)|
