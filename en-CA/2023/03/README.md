@@ -20,3 +20,4 @@
 ||||![](/en-CA/2023/03/.jpg)|
 202303170400|BallyvooneyCove|Ballyvooney Cove, Copper Coast Geopark, Ireland (© Andrea Pistolesi/Getty Images)|Where the rainbow ends|![](/en-CA/2023/03/202303170400BallyvooneyCove.jpg)|
 202303180400|MarsTars|Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)|Out of this world|![](/en-CA/2023/03/202303180400MarsTars.jpg)|
+202303190400|MilkyWayTwoJackLake|Aurora Borealis at Two Jack Lake, Alberta, Canada (© Jesús M. García/Getty Images)|Straight out of a fairytale|![](/en-CA/2023/03/202303190400MilkyWayTwoJackLake.jpg)|
