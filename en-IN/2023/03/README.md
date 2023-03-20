@@ -21,3 +21,4 @@
 202303171830|GreatCormorants|Great cormorants gliding through a snowstorm in Hesse, Germany (© Wilfried Martin/Getty Images)|What are these beautiful birds?|![](/en-IN/2023/03/202303171830GreatCormorants.jpg)|
 202303181830|BarnOwlWinter|Barn owl, England (© Ondrej Prosicky/Getty Images)|Who’s the wisest of them all?|![](/en-IN/2023/03/202303181830BarnOwlWinter.jpg)|
 202303191830|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Colours of spring|![](/en-IN/2023/03/202303191830PurpleCrocus.jpg)|
+202303201830|ColourDay|Colorful pastel chalk (© Stephen Shepherd/plainpicture)|What’s your favorite colour?|![](/en-IN/2023/03/202303201830ColourDay.jpg)|
