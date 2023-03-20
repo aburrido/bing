@@ -21,3 +21,4 @@
 202303171500|MarsTars|ガンボアクレーター, 火星 (© NASA/JPL-Caltech/University of Arizona)|ガンボアクレーターの波紋|![](/ja-JP/2023/03/202303171500MarsTars.jpg)|
 202303181500|BarnOwlWinter|メンフクロウ, イギリス (© Ondrej Prosicky/Getty Images)|ハート形の顔を持つ白いフクロウ|![](/ja-JP/2023/03/202303181500BarnOwlWinter.jpg)|
 202303191500|ColourDay|カラフルなパステル (© Stephen Shepherd/plainpicture)|明日はインターナショナル・カラー・デイ|![](/ja-JP/2023/03/202303191500ColourDay.jpg)|
+202303201500|PurpleCrocus|紫色のクロッカス (© Raimund Linke/Getty Images)|今日は春分の日|![](/ja-JP/2023/03/202303201500PurpleCrocus.jpg)|
