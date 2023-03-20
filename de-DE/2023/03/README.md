@@ -21,3 +21,4 @@
 202303172300|MarsTars|Gamboa-Krater, Mars (© NASA/JPL-Caltech/University of Arizona)|Nicht von dieser Welt|![](/de-DE/2023/03/202303172300MarsTars.jpg)|
 202303182300|Erlebnisholzkugel|Erlebnisholzkugel, Steinberg am See, Bayern (© Rüdiger Hess/geo-select FotoArt)|Die Welt in einer Kugel|![](/de-DE/2023/03/202303182300Erlebnisholzkugel.jpg)|
 202303192300|PurpleCrocus|Violetter Krokus (© Raimund Linke/Getty Images)|Frühlingsfarben|![](/de-DE/2023/03/202303192300PurpleCrocus.jpg)|
+202303202300|ColourDay|Bunte Pastellkreide (© Stephen Shepherd/plainpicture)|Welche ist Ihre Lieblingsfarbe?|![](/de-DE/2023/03/202303202300ColourDay.jpg)|
