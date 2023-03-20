@@ -21,3 +21,4 @@
 202303171600|MarsTars|甘博阿陨击坑，火星 (© NASA/JPL-Caltech/University of Arizona)|此景只应天上有|![](/zh-CN/2023/03/202303171600MarsTars.jpg)|
 202303181600|BarnOwlWinter|仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)|用脸比心|![](/zh-CN/2023/03/202303181600BarnOwlWinter.jpg)|
 202303191600|PurpleCrocus|紫番红花 (© Raimund Linke/Getty Images)|春天的色彩|![](/zh-CN/2023/03/202303191600PurpleCrocus.jpg)|
+202303201600|ColourDay|彩色粉笔 (© Stephen Shepherd/Plainpicture)|你最喜欢什么颜色？|![](/zh-CN/2023/03/202303201600ColourDay.jpg)|
