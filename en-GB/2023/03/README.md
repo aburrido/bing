@@ -21,3 +21,4 @@
 202303180000|MarsTars|Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)|Out of this world|![](/en-GB/2023/03/202303180000MarsTars.jpg)|
 202303190000|LondonWestminster|Westminster Abbey, a UNESCO World heritage site, London, England (© AWL Images/Shutterstock)|Crowning jewel of London|![](/en-GB/2023/03/202303190000LondonWestminster.jpg)|
 202303200000|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Colors of spring|![](/en-GB/2023/03/202303200000PurpleCrocus.jpg)|
+202303210000|ColourDay|Colourful pastel chalk (© Stephen Shepherd/plainpicture)|What’s your favorite colour?|![](/en-GB/2023/03/202303210000ColourDay.jpg)|
