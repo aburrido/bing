@@ -22,3 +22,4 @@
 202303180700|MarsTars|Gamboa Crater, Mars (© NASA/JPL-Caltech/University of Arizona)|Out of this world|![](/en-US/2023/03/202303180700MarsTars.jpg)|
 202303190700|BarnOwlWinter|Barn owl, England (© Ondrej Prosicky/Getty Images)|Whooo's the wisest of them all?|![](/en-US/2023/03/202303190700BarnOwlWinter.jpg)|
 202303200700|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Hello spring!|![](/en-US/2023/03/202303200700PurpleCrocus.jpg)|
+202303210700|ColourDay|Colorful pastel chalk (© Stephen Shepherd/plainpicture)|What's your favorite color?|![](/en-US/2023/03/202303210700ColourDay.jpg)|
