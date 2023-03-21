@@ -22,3 +22,4 @@
 202303181830|BarnOwlWinter|Barn owl, England (© Ondrej Prosicky/Getty Images)|Who’s the wisest of them all?|![](/en-IN/2023/03/202303181830BarnOwlWinter.jpg)|
 202303191830|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Colours of spring|![](/en-IN/2023/03/202303191830PurpleCrocus.jpg)|
 202303201830|ColourDay|Colorful pastel chalk (© Stephen Shepherd/plainpicture)|What’s your favorite colour?|![](/en-IN/2023/03/202303201830ColourDay.jpg)|
+202303211830|LakePowellAerial|Lake Powell on the Colorado River, USA (© Peter Schaefer/Alamy)|Man-made, meandering Lake Powell|![](/en-IN/2023/03/202303211830LakePowellAerial.jpg)|
