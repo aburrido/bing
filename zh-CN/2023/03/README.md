@@ -22,3 +22,4 @@
 202303181600|BarnOwlWinter|仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)|用脸比心|![](/zh-CN/2023/03/202303181600BarnOwlWinter.jpg)|
 202303191600|PurpleCrocus|紫番红花 (© Raimund Linke/Getty Images)|春天的色彩|![](/zh-CN/2023/03/202303191600PurpleCrocus.jpg)|
 202303201600|ColourDay|彩色粉笔 (© Stephen Shepherd/Plainpicture)|你最喜欢什么颜色？|![](/zh-CN/2023/03/202303201600ColourDay.jpg)|
+202303211600|LakePowellAerial|鲍威尔湖，美国 (© Peter Schaefer/Alamy)|蜿蜒曲折的人工湖泊，鲍威尔湖|![](/zh-CN/2023/03/202303211600LakePowellAerial.jpg)|
