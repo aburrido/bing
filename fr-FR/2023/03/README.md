@@ -22,3 +22,4 @@
 202303182300|BarnOwlWinter|Chouette effraie dans l'herbe blanche du matin, Angleterre (© Ondrej Prosicky/Getty Images)|L’animal symbole La sagesse|![](/fr-FR/2023/03/202303182300BarnOwlWinter.jpg)|
 202303192300|PurpleCrocus|Crocus du printemps (© Raimund Linke/Getty Images)|Equinox de printemps|![](/fr-FR/2023/03/202303192300PurpleCrocus.jpg)|
 202303202300|ColourDay|Craies couleur pastel (© Stephen Shepherd/plainpicture)|Quelle est votre couleur préférée ?|![](/fr-FR/2023/03/202303202300ColourDay.jpg)|
+202303212300|LakePowellAerial|Lac Powell, Arizona, États-Unis (© Peter Schaefer/Alamy)|Un lac aux couleurs du Colorado|![](/fr-FR/2023/03/202303212300LakePowellAerial.jpg)|
