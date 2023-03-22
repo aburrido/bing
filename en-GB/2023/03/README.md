@@ -22,3 +22,4 @@
 202303190000|LondonWestminster|Westminster Abbey, a UNESCO World heritage site, London, England (© AWL Images/Shutterstock)|Crowning jewel of London|![](/en-GB/2023/03/202303190000LondonWestminster.jpg)|
 202303200000|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Colors of spring|![](/en-GB/2023/03/202303200000PurpleCrocus.jpg)|
 202303210000|ColourDay|Colourful pastel chalk (© Stephen Shepherd/plainpicture)|What’s your favorite colour?|![](/en-GB/2023/03/202303210000ColourDay.jpg)|
+202303220000|LakePowellAerial|Lake Powell on the Colorado River, USA (© Peter Schaefer/Alamy)|Man-made, meandering Lake Powell|![](/en-GB/2023/03/202303220000LakePowellAerial.jpg)|
