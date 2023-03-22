@@ -23,3 +23,4 @@
 202303191830|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Colours of spring|![](/en-IN/2023/03/202303191830PurpleCrocus.jpg)|
 202303201830|ColourDay|Colorful pastel chalk (© Stephen Shepherd/plainpicture)|What’s your favorite colour?|![](/en-IN/2023/03/202303201830ColourDay.jpg)|
 202303211830|LakePowellAerial|Lake Powell on the Colorado River, USA (© Peter Schaefer/Alamy)|Man-made, meandering Lake Powell|![](/en-IN/2023/03/202303211830LakePowellAerial.jpg)|
+202303221830|CloudsPatagonia|Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)|We’ve identified these ‘flying objects’|![](/en-IN/2023/03/202303221830CloudsPatagonia.jpg)|
