@@ -23,3 +23,4 @@
 202303192300|PurpleCrocus|Crocus du printemps (© Raimund Linke/Getty Images)|Equinox de printemps|![](/fr-FR/2023/03/202303192300PurpleCrocus.jpg)|
 202303202300|ColourDay|Craies couleur pastel (© Stephen Shepherd/plainpicture)|Quelle est votre couleur préférée ?|![](/fr-FR/2023/03/202303202300ColourDay.jpg)|
 202303212300|LakePowellAerial|Lac Powell, Arizona, États-Unis (© Peter Schaefer/Alamy)|Un lac aux couleurs du Colorado|![](/fr-FR/2023/03/202303212300LakePowellAerial.jpg)|
+202303222300|MarsTars|Cratère Gamboa, planète Mars (© NASA/JPL-Caltech/University of Arizona)|Un paysage hors du monde|![](/fr-FR/2023/03/202303222300MarsTars.jpg)|
