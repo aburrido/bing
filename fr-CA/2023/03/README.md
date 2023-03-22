@@ -23,3 +23,4 @@
 202303190400|MilkyWayTwoJackLake|Aurore boréale au lac Two Jack, Alberta, Canada (© Jesús M. García/Getty Images)|Un paysage de conte de fées|![](/fr-CA/2023/03/202303190400MilkyWayTwoJackLake.jpg)|
 202303200400|PurpleCrocus|Crocus (© Raimund Linke/Getty Images)|C’est le printemps!|![](/fr-CA/2023/03/202303200400PurpleCrocus.jpg)|
 202303210400|ColourDay|Craies couleur pastel (© Stephen Shepherd/plainpicture)|Quelle est votre couleur préférée?|![](/fr-CA/2023/03/202303210400ColourDay.jpg)|
+202303220400|LakePowellAerial|Lake Powell, Arizona, États-Unis (© Peter Schaefer/Alamy)|Un lac aux couleurs su Colorado|![](/fr-CA/2023/03/202303220400LakePowellAerial.jpg)|

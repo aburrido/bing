@@ -23,3 +23,4 @@
 202303190400|MilkyWayTwoJackLake|Aurora Borealis at Two Jack Lake, Alberta, Canada (© Jesús M. García/Getty Images)|Straight out of a fairytale|![](/en-CA/2023/03/202303190400MilkyWayTwoJackLake.jpg)|
 202303200400|PurpleCrocus|Crocus flowers (© Raimund Linke/Getty Images)|Colours of spring|![](/en-CA/2023/03/202303200400PurpleCrocus.jpg)|
 202303210400|ColourDay|Colorful pastel chalk (© Stephen Shepherd/plainpicture)|What’s your favourite colour?|![](/en-CA/2023/03/202303210400ColourDay.jpg)|
+202303220400|LakePowellAerial|Lake Powell on the Colorado River, USA (© Peter Schaefer/Alamy)|Man-made, meandering Lake Powell|![](/en-CA/2023/03/202303220400LakePowellAerial.jpg)|
