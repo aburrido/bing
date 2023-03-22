@@ -23,3 +23,4 @@
 202303190700|BarnOwlWinter|Barn owl, England (© Ondrej Prosicky/Getty Images)|Info|![](/en-AU/2023/03/202303190700BarnOwlWinter.jpg)|
 202303200700|PurpleCrocus|Purple crocus (© Raimund Linke/Getty Images)|Info|![](/en-AU/2023/03/202303200700PurpleCrocus.jpg)|
 202303210700|ColourDay|Colourful pastel chalk (© Stephen Shepherd/Plainpicture)|Info|![](/en-AU/2023/03/202303210700ColourDay.jpg)|
+202303220700|LakePowellAerial|Lake Powell, USA (© Peter Schaefer/Alamy)|Info|![](/en-AU/2023/03/202303220700LakePowellAerial.jpg)|
