@@ -24,3 +24,4 @@
 202303202300|ColourDay|Bunte Pastellkreide (© Stephen Shepherd/plainpicture)|Welche ist Ihre Lieblingsfarbe?|![](/de-DE/2023/03/202303202300ColourDay.jpg)|
 202303212300|LakePowellAerial|Lake Powell, USA (© Peter Schaefer/Alamy)|Der künstlich angelegte, mäandernde Lake Powell|![](/de-DE/2023/03/202303212300LakePowellAerial.jpg)|
 202303222300|CloudsPatagonia|Lenticularis-Wolken, Patagonien (© Sasha Juliard/Shutterstock)|Wir würden diese als "fliegende Objekte" definieren, und Sie?|![](/de-DE/2023/03/202303222300CloudsPatagonia.jpg)|
+202303232300|WildGarlic|Blühender Bärlauch, Nationalpark Hainich (© Frank Sommariva/Getty Images)|Schon mal Knoblauch blühen sehen?|![](/de-DE/2023/03/202303232300WildGarlic.jpg)|
