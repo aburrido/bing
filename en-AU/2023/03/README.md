@@ -24,3 +24,4 @@
 202303200700|PurpleCrocus|Purple crocus (© Raimund Linke/Getty Images)|Info|![](/en-AU/2023/03/202303200700PurpleCrocus.jpg)|
 202303210700|ColourDay|Colourful pastel chalk (© Stephen Shepherd/Plainpicture)|Info|![](/en-AU/2023/03/202303210700ColourDay.jpg)|
 202303220700|LakePowellAerial|Lake Powell, USA (© Peter Schaefer/Alamy)|Info|![](/en-AU/2023/03/202303220700LakePowellAerial.jpg)|
+202303230700|ChavarocheWinter|Gorges du Fier, Haute-Savoie, France (© Jean-Philippe Delobelle/Biosphoto/Alamy)|Info|![](/en-AU/2023/03/202303230700ChavarocheWinter.jpg)|
