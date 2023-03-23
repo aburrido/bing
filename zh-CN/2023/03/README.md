@@ -24,3 +24,4 @@
 202303201600|ColourDay|彩色粉笔 (© Stephen Shepherd/Plainpicture)|你最喜欢什么颜色？|![](/zh-CN/2023/03/202303201600ColourDay.jpg)|
 202303211600|LakePowellAerial|鲍威尔湖，美国 (© Peter Schaefer/Alamy)|蜿蜒曲折的人工湖泊，鲍威尔湖|![](/zh-CN/2023/03/202303211600LakePowellAerial.jpg)|
 202303221600|ChavarocheWinter|杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)|惊人的自然奇观|![](/zh-CN/2023/03/202303221600ChavarocheWinter.jpg)|
+202303231600|WildGarlic|盛开的野蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)|你见过大蒜开花吗？|![](/zh-CN/2023/03/202303231600WildGarlic.jpg)|
