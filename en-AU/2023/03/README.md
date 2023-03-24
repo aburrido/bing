@@ -25,3 +25,4 @@
 202303210700|ColourDay|Colourful pastel chalk (© Stephen Shepherd/Plainpicture)|Info|![](/en-AU/2023/03/202303210700ColourDay.jpg)|
 202303220700|LakePowellAerial|Lake Powell, USA (© Peter Schaefer/Alamy)|Info|![](/en-AU/2023/03/202303220700LakePowellAerial.jpg)|
 202303230700|ChavarocheWinter|Gorges du Fier, Haute-Savoie, France (© Jean-Philippe Delobelle/Biosphoto/Alamy)|Info|![](/en-AU/2023/03/202303230700ChavarocheWinter.jpg)|
+202303240700|WildGarlic|Blooming wild garlic, Hainich National Park, Germany (© Frank Sommariva/Getty Images)|Info|![](/en-AU/2023/03/202303240700WildGarlic.jpg)|

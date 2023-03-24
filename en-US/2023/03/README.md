@@ -25,3 +25,4 @@
 202303210700|ColourDay|Colorful pastel chalk (© Stephen Shepherd/plainpicture)|What's your favorite color?|![](/en-US/2023/03/202303210700ColourDay.jpg)|
 202303220700|LakePowellAerial|Lake Powell on the Colorado River (© Peter Schaefer/Alamy)|World Water Day|![](/en-US/2023/03/202303220700LakePowellAerial.jpg)|
 202303230700|CloudsPatagonia|Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)|We've identified these 'flying objects'|![](/en-US/2023/03/202303230700CloudsPatagonia.jpg)|
+202303240700|WildGarlic|Blooming wild garlic, Hainich National Park, Germany (© Frank Sommariva/Getty Images)|Stop and smell the…garlic?|![](/en-US/2023/03/202303240700WildGarlic.jpg)|
