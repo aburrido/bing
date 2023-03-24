@@ -25,3 +25,4 @@
 202303211600|LakePowellAerial|鲍威尔湖，美国 (© Peter Schaefer/Alamy)|蜿蜒曲折的人工湖泊，鲍威尔湖|![](/zh-CN/2023/03/202303211600LakePowellAerial.jpg)|
 202303221600|ChavarocheWinter|杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)|惊人的自然奇观|![](/zh-CN/2023/03/202303221600ChavarocheWinter.jpg)|
 202303231600|WildGarlic|盛开的野蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)|你见过大蒜开花吗？|![](/zh-CN/2023/03/202303231600WildGarlic.jpg)|
+202303241600|CecilBrewerStaircase|塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)|通往天堂的楼梯？|![](/zh-CN/2023/03/202303241600CecilBrewerStaircase.jpg)|
