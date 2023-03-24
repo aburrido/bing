@@ -25,3 +25,4 @@
 202303210400|ColourDay|Craies couleur pastel (© Stephen Shepherd/plainpicture)|Quelle est votre couleur préférée?|![](/fr-CA/2023/03/202303210400ColourDay.jpg)|
 202303220400|LakePowellAerial|Lake Powell, Arizona, États-Unis (© Peter Schaefer/Alamy)|Un lac aux couleurs su Colorado|![](/fr-CA/2023/03/202303220400LakePowellAerial.jpg)|
 202303230400|CloudsPatagonia|Nuages lenticulaires, Patagonie (© Sasha Juliard/Shutterstock)|Objets volants identifiés|![](/fr-CA/2023/03/202303230400CloudsPatagonia.jpg)|
+202303240400|WildGarlic|Ail des ours en fleur, Parc National de Hainich, Allemagne (© Frank Sommariva/Getty Images)|L’ail des ours fleurit|![](/fr-CA/2023/03/202303240400WildGarlic.jpg)|
