@@ -25,3 +25,4 @@
 202303211500|LakePowellAerial|パウエル湖, 米国 (© Peter Schaefer/Alamy)|今日は世界水の日|![](/ja-JP/2023/03/202303211500LakePowellAerial.jpg)|
 202303221500|LuebeckCityGate|リューベック旧市街, ドイツ (© Harald Nachtmann/Getty Images)|重厚な歴史的建物、ホルステン門|![](/ja-JP/2023/03/202303221500LuebeckCityGate.jpg)|
 202303231500|WildGarlic|ハイニッヒ国立公園, ドイツ テューリンゲン (© Frank Sommariva/Getty Images)|白い花を咲かせる野生ニンニク|![](/ja-JP/2023/03/202303231500WildGarlic.jpg)|
+202303241500|CecilBrewerStaircase|セシル・ブリュワー階段, イギリス ロンドン (© Yiran An/Getty Images)|見事な螺旋階段|![](/ja-JP/2023/03/202303241500CecilBrewerStaircase.jpg)|
