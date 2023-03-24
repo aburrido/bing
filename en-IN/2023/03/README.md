@@ -25,3 +25,4 @@
 202303211830|LakePowellAerial|Lake Powell on the Colorado River, USA (© Peter Schaefer/Alamy)|Man-made, meandering Lake Powell|![](/en-IN/2023/03/202303211830LakePowellAerial.jpg)|
 202303221830|CloudsPatagonia|Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)|We’ve identified these ‘flying objects’|![](/en-IN/2023/03/202303221830CloudsPatagonia.jpg)|
 202303231830|WildGarlic|Blooming wild garlic, Hainich National Park, Germany (© Frank Sommariva/Getty Images)|Ever seen garlic bloom?|![](/en-IN/2023/03/202303231830WildGarlic.jpg)|
+202303241830|CecilBrewerStaircase|Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)|Stairway to heaven?|![](/en-IN/2023/03/202303241830CecilBrewerStaircase.jpg)|
