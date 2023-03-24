@@ -25,3 +25,4 @@
 202303212300|LakePowellAerial|Lake Powell, USA (© Peter Schaefer/Alamy)|Der künstlich angelegte, mäandernde Lake Powell|![](/de-DE/2023/03/202303212300LakePowellAerial.jpg)|
 202303222300|CloudsPatagonia|Lenticularis-Wolken, Patagonien (© Sasha Juliard/Shutterstock)|Wir würden diese als "fliegende Objekte" definieren, und Sie?|![](/de-DE/2023/03/202303222300CloudsPatagonia.jpg)|
 202303232300|WildGarlic|Blühender Bärlauch, Nationalpark Hainich (© Frank Sommariva/Getty Images)|Schon mal Knoblauch blühen sehen?|![](/de-DE/2023/03/202303232300WildGarlic.jpg)|
+202303242300|Mohnblumen|Blühender Mohn und Kornblumen in einem Rapsfeld, Penzlin (© Sandra Bartocha/Minden)|Blühende Felder|![](/de-DE/2023/03/202303242300Mohnblumen.jpg)|
