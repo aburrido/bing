@@ -26,3 +26,4 @@
 202303221500|LuebeckCityGate|リューベック旧市街, ドイツ (© Harald Nachtmann/Getty Images)|重厚な歴史的建物、ホルステン門|![](/ja-JP/2023/03/202303221500LuebeckCityGate.jpg)|
 202303231500|WildGarlic|ハイニッヒ国立公園, ドイツ テューリンゲン (© Frank Sommariva/Getty Images)|白い花を咲かせる野生ニンニク|![](/ja-JP/2023/03/202303231500WildGarlic.jpg)|
 202303241500|CecilBrewerStaircase|セシル・ブリュワー階段, イギリス ロンドン (© Yiran An/Getty Images)|見事な螺旋階段|![](/ja-JP/2023/03/202303241500CecilBrewerStaircase.jpg)|
+202303251500|WildAnza|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)|砂漠を彩る野生の花々|![](/ja-JP/2023/03/202303251500WildAnza.jpg)|
