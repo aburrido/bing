@@ -26,3 +26,4 @@
 202303222300|CloudsPatagonia|Lenticularis-Wolken, Patagonien (© Sasha Juliard/Shutterstock)|Wir würden diese als "fliegende Objekte" definieren, und Sie?|![](/de-DE/2023/03/202303222300CloudsPatagonia.jpg)|
 202303232300|WildGarlic|Blühender Bärlauch, Nationalpark Hainich (© Frank Sommariva/Getty Images)|Schon mal Knoblauch blühen sehen?|![](/de-DE/2023/03/202303232300WildGarlic.jpg)|
 202303242300|Mohnblumen|Blühender Mohn und Kornblumen in einem Rapsfeld, Penzlin (© Sandra Bartocha/Minden)|Blühende Felder|![](/de-DE/2023/03/202303242300Mohnblumen.jpg)|
+202303252300|WildAnza|Wildblumen im Anza Borrego Desert State Park, Kalifornien, USA (© Ron and Patty Thomas/Getty Images)|Die Natur in ihrer ganzen Farbenpracht|![](/de-DE/2023/03/202303252300WildAnza.jpg)|
