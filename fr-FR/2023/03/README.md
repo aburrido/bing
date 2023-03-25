@@ -26,3 +26,4 @@
 202303222300|MarsTars|Cratère Gamboa, planète Mars (© NASA/JPL-Caltech/University of Arizona)|Un paysage hors du monde|![](/fr-FR/2023/03/202303222300MarsTars.jpg)|
 202303232300|WildGarlic|Ail des ours en fleur, Parc National de Hainich, Allemagne (© Frank Sommariva/Getty Images)|L’ail des ours fleurit|![](/fr-FR/2023/03/202303232300WildGarlic.jpg)|
 202303242300|JavaBromo|Mont Bromo, dans l’est de Java, Indonésie (© Bento Fotography/Getty Images)|Un volcan qui semble flotter|![](/fr-FR/2023/03/202303242300JavaBromo.jpg)|
+202303252200|WildAnza|Fleurs sauvages dans le Désert d’Anza Borrego, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|La Nature dans toute sa beauté colorée|![](/fr-FR/2023/03/202303252200WildAnza.jpg)|
