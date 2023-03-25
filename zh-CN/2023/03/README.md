@@ -26,3 +26,4 @@
 202303221600|ChavarocheWinter|杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)|惊人的自然奇观|![](/zh-CN/2023/03/202303221600ChavarocheWinter.jpg)|
 202303231600|WildGarlic|盛开的野蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)|你见过大蒜开花吗？|![](/zh-CN/2023/03/202303231600WildGarlic.jpg)|
 202303241600|CecilBrewerStaircase|塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)|通往天堂的楼梯？|![](/zh-CN/2023/03/202303241600CecilBrewerStaircase.jpg)|
+202303251600|WildAnza|安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)|大自然最为色彩鲜艳的一面|![](/zh-CN/2023/03/202303251600WildAnza.jpg)|
