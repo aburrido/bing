@@ -27,3 +27,4 @@
 202303232300|WildGarlic|Ail des ours en fleur, Parc National de Hainich, Allemagne (© Frank Sommariva/Getty Images)|L’ail des ours fleurit|![](/fr-FR/2023/03/202303232300WildGarlic.jpg)|
 202303242300|JavaBromo|Mont Bromo, dans l’est de Java, Indonésie (© Bento Fotography/Getty Images)|Un volcan qui semble flotter|![](/fr-FR/2023/03/202303242300JavaBromo.jpg)|
 202303252200|WildAnza|Fleurs sauvages dans le Désert d’Anza Borrego, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|La Nature dans toute sa beauté colorée|![](/fr-FR/2023/03/202303252200WildAnza.jpg)|
+202303262200|NYCClouds|New York dans les nuages (© Orbon Alija/Getty Images)|La Grosse Pomme dans les nuages|![](/fr-FR/2023/03/202303262200NYCClouds.jpg)|
