@@ -26,3 +26,4 @@
 202303230000|CloudsPatagonia|Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)|We’ve identified these ‘flying objects’|![](/en-GB/2023/03/202303230000CloudsPatagonia.jpg)|
 202303240000|WildGarlic|Blooming wild garlic, Hainich National Park, Germany (© Frank Sommariva/Getty Images)|Ever seen garlic bloom?|![](/en-GB/2023/03/202303240000WildGarlic.jpg)|
 202303250000|CecilBrewerStaircase|Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)|Stairway to heaven?|![](/en-GB/2023/03/202303250000CecilBrewerStaircase.jpg)|
+202303260000|WildAnza|Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)|Nature at its colourful best|![](/en-GB/2023/03/202303260000WildAnza.jpg)|
