@@ -27,3 +27,4 @@
 202303231500|WildGarlic|ハイニッヒ国立公園, ドイツ テューリンゲン (© Frank Sommariva/Getty Images)|白い花を咲かせる野生ニンニク|![](/ja-JP/2023/03/202303231500WildGarlic.jpg)|
 202303241500|CecilBrewerStaircase|セシル・ブリュワー階段, イギリス ロンドン (© Yiran An/Getty Images)|見事な螺旋階段|![](/ja-JP/2023/03/202303241500CecilBrewerStaircase.jpg)|
 202303251500|WildAnza|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)|砂漠を彩る野生の花々|![](/ja-JP/2023/03/202303251500WildAnza.jpg)|
+202303261500|NYCClouds|ニューヨーク市, 米国 (© Orbon Alija/Getty Images)|雲の中の高層ビル|![](/ja-JP/2023/03/202303261500NYCClouds.jpg)|
