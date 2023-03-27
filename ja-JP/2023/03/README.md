@@ -28,3 +28,4 @@
 202303241500|CecilBrewerStaircase|セシル・ブリュワー階段, イギリス ロンドン (© Yiran An/Getty Images)|見事な螺旋階段|![](/ja-JP/2023/03/202303241500CecilBrewerStaircase.jpg)|
 202303251500|WildAnza|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)|砂漠を彩る野生の花々|![](/ja-JP/2023/03/202303251500WildAnza.jpg)|
 202303261500|NYCClouds|ニューヨーク市, 米国 (© Orbon Alija/Getty Images)|雲の中の高層ビル|![](/ja-JP/2023/03/202303261500NYCClouds.jpg)|
+202303271500|MWDolomites|トレ・チーメ・ディ・ラヴァレード, イタリア ヴェネト州 (© Juan Romero/Cavan Images)|天の川の下に聳える峰々|![](/ja-JP/2023/03/202303271500MWDolomites.jpg)|
