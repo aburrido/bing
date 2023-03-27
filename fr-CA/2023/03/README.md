@@ -28,3 +28,4 @@
 202303240400|WildGarlic|Ail des ours en fleur, Parc National de Hainich, Allemagne (© Frank Sommariva/Getty Images)|L’ail des ours fleurit|![](/fr-CA/2023/03/202303240400WildGarlic.jpg)|
 202303250400|CecilBrewerStaircase|Cecil Brewer Staircase, The Heal's Building, Londres, Angleterre (© Yiran An/Getty Images)|Où mènent ces escaliers?|![](/fr-CA/2023/03/202303250400CecilBrewerStaircase.jpg)|
 202303260400|WildAnza|Fleurs sauvages dans le Désert d’Anza Borrego, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|La Nature dans toute sa beauté colorée|![](/fr-CA/2023/03/202303260400WildAnza.jpg)|
+202303270400|NYCClouds|New York dans les nuages (© Orbon Alija/Getty Images)|La Grosse Pomme dans les nuages|![](/fr-CA/2023/03/202303270400NYCClouds.jpg)|

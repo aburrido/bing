@@ -28,3 +28,4 @@
 202303240400|WildGarlic|Blooming wild garlic, Hainich National Park, Germany (© Frank Sommariva/Getty Images)|Ever seen garlic bloom?|![](/en-CA/2023/03/202303240400WildGarlic.jpg)|
 202303250400|CecilBrewerStaircase|Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)|Stairway to heaven?|![](/en-CA/2023/03/202303250400CecilBrewerStaircase.jpg)|
 202303260400|WildAnza|Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)|Nature at its colourful best|![](/en-CA/2023/03/202303260400WildAnza.jpg)|
+202303270400|NYCClouds|New York City skyline in fog (© Orbon Alija/Getty Images)|The Big Apple with a foggy topping|![](/en-CA/2023/03/202303270400NYCClouds.jpg)|
