@@ -28,3 +28,4 @@
 202303241600|CecilBrewerStaircase|塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)|通往天堂的楼梯？|![](/zh-CN/2023/03/202303241600CecilBrewerStaircase.jpg)|
 202303251600|WildAnza|安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)|大自然最为色彩鲜艳的一面|![](/zh-CN/2023/03/202303251600WildAnza.jpg)|
 202303261600|NYCClouds|云层中的纽约市天际线 (© Orbon Alija/Getty Images)|云雾缭绕的纽约市|![](/zh-CN/2023/03/202303261600NYCClouds.jpg)|
+202303271600|MWDolomites|意大利三峰山上空的银河 (© Juan Romero/Cavan Images)|这些蔚为壮观的山峰在何处？|![](/zh-CN/2023/03/202303271600MWDolomites.jpg)|
