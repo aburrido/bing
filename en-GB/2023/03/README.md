@@ -28,3 +28,4 @@
 202303250000|CecilBrewerStaircase|Cecil Brewer Staircase, the Heal's Building, London, England (© Yiran An/Getty Images)|Stairway to heaven?|![](/en-GB/2023/03/202303250000CecilBrewerStaircase.jpg)|
 202303260000|WildAnza|Wildflowers in Anza-Borrego Desert State Park, California (© Ron and Patty Thomas/Getty Images)|Nature at its colourful best|![](/en-GB/2023/03/202303260000WildAnza.jpg)|
 202303262300|NYCClouds|New York City skyline in fog (© Orbon Alija/Getty Images)|The Big Apple with a foggy topping|![](/en-GB/2023/03/202303262300NYCClouds.jpg)|
+202303272300|MWDolomites|Milky Way above Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)|Where are these spectacular peaks?|![](/en-GB/2023/03/202303272300MWDolomites.jpg)|
