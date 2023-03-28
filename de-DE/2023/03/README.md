@@ -29,3 +29,4 @@
 202303252300|WildAnza|Wildblumen im Anza Borrego Desert State Park, Kalifornien, USA (© Ron and Patty Thomas/Getty Images)|Die Natur in ihrer ganzen Farbenpracht|![](/de-DE/2023/03/202303252300WildAnza.jpg)|
 202303262200|NYCClouds|New York City Skyline in den Wolken (© Orbon Alija/Getty Images)|Nebeldecke über New York City|![](/de-DE/2023/03/202303262200NYCClouds.jpg)|
 202303272200|MWDolomites|Milchstraße über die Drei Zinnen, Italien (© Juan Romero/Cavan Images)|Wo befinden sich diese spektakulären Gipfel?|![](/de-DE/2023/03/202303272200MWDolomites.jpg)|
+202303282200|NuzzleManatee|Zwei Seekühe, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sehen Sie sich diese süßen Seekühe an|![](/de-DE/2023/03/202303282200NuzzleManatee.jpg)|
