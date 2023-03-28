@@ -29,3 +29,4 @@
 202303250700|CecilBrewerStaircase|Cecil Brewer Staircase, London, England (© Yiran An/Getty Images)|Info|![](/en-AU/2023/03/202303250700CecilBrewerStaircase.jpg)|
 202303260700|WildAnza|Wildflowers in Anza Borrego Desert State Park, California, USA (© Ron and Patty Thomas/Getty Images)|Info|![](/en-AU/2023/03/202303260700WildAnza.jpg)|
 202303270700|NYCClouds|New York City skyline in the clouds (© Orbon Alija/Getty Images)|Info|![](/en-AU/2023/03/202303270700NYCClouds.jpg)|
+202303280700|MWDolomites|Milky Way above Tre Cime di Lavaredo, Italy (© Juan Romero/Cavan Images)|Info|![](/en-AU/2023/03/202303280700MWDolomites.jpg)|
