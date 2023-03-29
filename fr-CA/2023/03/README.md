@@ -30,3 +30,4 @@
 202303260400|WildAnza|Fleurs sauvages dans le Désert d’Anza Borrego, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|La Nature dans toute sa beauté colorée|![](/fr-CA/2023/03/202303260400WildAnza.jpg)|
 202303270400|NYCClouds|New York dans les nuages (© Orbon Alija/Getty Images)|La Grosse Pomme dans les nuages|![](/fr-CA/2023/03/202303270400NYCClouds.jpg)|
 202303280400|MWDolomites|Voie lactée sur les Tre Cime di Lavaredo, Italie (© Juan Romero/Cavan Images)|Où sont ces pics impressionnants?|![](/fr-CA/2023/03/202303280400MWDolomites.jpg)|
+202303290400|NuzzleManatee|Deux lamantins, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)|“Vache des mers” ou sirène?|![](/fr-CA/2023/03/202303290400NuzzleManatee.jpg)|
