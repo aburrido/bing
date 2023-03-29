@@ -30,3 +30,4 @@
 202303261500|NYCClouds|ニューヨーク市, 米国 (© Orbon Alija/Getty Images)|雲の中の高層ビル|![](/ja-JP/2023/03/202303261500NYCClouds.jpg)|
 202303271500|MWDolomites|トレ・チーメ・ディ・ラヴァレード, イタリア ヴェネト州 (© Juan Romero/Cavan Images)|天の川の下に聳える峰々|![](/ja-JP/2023/03/202303271500MWDolomites.jpg)|
 202303281500|NuzzleManatee|クリスタルリバー, 米国  フロリダ州 (© Gregory Sweeney/Getty Images)|今日はマナティー感謝の日|![](/ja-JP/2023/03/202303281500NuzzleManatee.jpg)|
+202303291500|PeacockFeathers|クジャク (© Sarayut Thaneerat/Getty Images)|立派な飾り羽|![](/ja-JP/2023/03/202303291500PeacockFeathers.jpg)|
