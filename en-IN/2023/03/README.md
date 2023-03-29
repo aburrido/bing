@@ -30,3 +30,4 @@
 202303261830|NYCClouds|New York City skyline in fog (© Orbon Alija/Getty Images)|The Big Apple with a foggy topping|![](/en-IN/2023/03/202303261830NYCClouds.jpg)|
 202303271830|MWDolomites|Milky Way above Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)|Where are these spectacular peaks?|![](/en-IN/2023/03/202303271830MWDolomites.jpg)|
 202303281830|NuzzleManatee|Manatees, Crystal River, Florida (© Gregory Sweeney/Getty Images)|Check out these ‘sea cows’|![](/en-IN/2023/03/202303281830NuzzleManatee.jpg)|
+202303291830|PeacockFeathers|Peacock feathers (© Sarayut Thaneerat/Getty Images)|Regal Radiance|![](/en-IN/2023/03/202303291830PeacockFeathers.jpg)|
