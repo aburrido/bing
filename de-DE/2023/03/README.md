@@ -30,3 +30,4 @@
 202303262200|NYCClouds|New York City Skyline in den Wolken (© Orbon Alija/Getty Images)|Nebeldecke über New York City|![](/de-DE/2023/03/202303262200NYCClouds.jpg)|
 202303272200|MWDolomites|Milchstraße über die Drei Zinnen, Italien (© Juan Romero/Cavan Images)|Wo befinden sich diese spektakulären Gipfel?|![](/de-DE/2023/03/202303272200MWDolomites.jpg)|
 202303282200|NuzzleManatee|Zwei Seekühe, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sehen Sie sich diese süßen Seekühe an|![](/de-DE/2023/03/202303282200NuzzleManatee.jpg)|
+202303292200|PeacockFeathers|Pfauenfedern (© Sarayut Thaneerat/Getty Images)|Königlicher Glanz|![](/de-DE/2023/03/202303292200PeacockFeathers.jpg)|
