@@ -31,3 +31,4 @@
 202303271830|MWDolomites|Milky Way above Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)|Where are these spectacular peaks?|![](/en-IN/2023/03/202303271830MWDolomites.jpg)|
 202303281830|NuzzleManatee|Manatees, Crystal River, Florida (© Gregory Sweeney/Getty Images)|Check out these ‘sea cows’|![](/en-IN/2023/03/202303281830NuzzleManatee.jpg)|
 202303291830|PeacockFeathers|Peacock feathers (© Sarayut Thaneerat/Getty Images)|Regal Radiance|![](/en-IN/2023/03/202303291830PeacockFeathers.jpg)|
+202303301830|SteyrRiver|Steyr River, Austria (© guenterguni/Getty Images)|Nature’s blue wonder|![](/en-IN/2023/03/202303301830SteyrRiver.jpg)|
