@@ -31,3 +31,4 @@
 202303271600|MWDolomites|意大利三峰山上空的银河 (© Juan Romero/Cavan Images)|这些蔚为壮观的山峰在何处？|![](/zh-CN/2023/03/202303271600MWDolomites.jpg)|
 202303281600|NuzzleManatee|两只海牛，佛罗里达州的水晶河，美国 (© Gregory Sweeney/Getty Images)|世界海牛日|![](/zh-CN/2023/03/202303281600NuzzleManatee.jpg)|
 202303291600|PeacockFeathers|孔雀羽毛 (© sarayut Thaneerat/Getty Images)|华贵的色彩|![](/zh-CN/2023/03/202303291600PeacockFeathers.jpg)|
+202303301600|SteyrRiver|斯太尔河, 奥地利 (© guenterguni/Getty Images)|大自然的蓝色奇观|![](/zh-CN/2023/03/202303301600SteyrRiver.jpg)|
