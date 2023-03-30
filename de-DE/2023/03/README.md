@@ -31,3 +31,4 @@
 202303272200|MWDolomites|Milchstraße über die Drei Zinnen, Italien (© Juan Romero/Cavan Images)|Wo befinden sich diese spektakulären Gipfel?|![](/de-DE/2023/03/202303272200MWDolomites.jpg)|
 202303282200|NuzzleManatee|Zwei Seekühe, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sehen Sie sich diese süßen Seekühe an|![](/de-DE/2023/03/202303282200NuzzleManatee.jpg)|
 202303292200|PeacockFeathers|Pfauenfedern (© Sarayut Thaneerat/Getty Images)|Königlicher Glanz|![](/de-DE/2023/03/202303292200PeacockFeathers.jpg)|
+202303302200|SteyrRiver|Fluss Steyr, Österreich (© guenterguni/Getty Images)|Wunder der Natur|![](/de-DE/2023/03/202303302200SteyrRiver.jpg)|
