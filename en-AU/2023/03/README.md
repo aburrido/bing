@@ -31,3 +31,4 @@
 202303270700|NYCClouds|New York City skyline in the clouds (© Orbon Alija/Getty Images)|Info|![](/en-AU/2023/03/202303270700NYCClouds.jpg)|
 202303280700|MWDolomites|Milky Way above Tre Cime di Lavaredo, Italy (© Juan Romero/Cavan Images)|Info|![](/en-AU/2023/03/202303280700MWDolomites.jpg)|
 202303290700|NuzzleManatee|Two manatees, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Info|![](/en-AU/2023/03/202303290700NuzzleManatee.jpg)|
+202303300700|PeacockFeathers|Peacock feathers (© sarayut Thaneerat/Getty Images)|Info|![](/en-AU/2023/03/202303300700PeacockFeathers.jpg)|

@@ -31,3 +31,4 @@
 202303270700|NYCClouds|New York City skyline in fog (© Orbon Alija/Getty Images)|Cloud City|![](/en-US/2023/03/202303270700NYCClouds.jpg)|
 202303280700|MWDolomites|Milky Way above the Tre Cime di Lavaredo, South Tyrol, Italy (© Juan Romero/Cavan Images)|Peak stargazing|![](/en-US/2023/03/202303280700MWDolomites.jpg)|
 202303290700|NuzzleManatee|Manatees, Crystal River, Florida (© Gregory Sweeney/Getty Images)|Snuggling sea cows|![](/en-US/2023/03/202303290700NuzzleManatee.jpg)|
+202303300700|PeacockFeathers|Peacock feathers (© Sarayut Thaneerat/Getty Images)|Regal radiance|![](/en-US/2023/03/202303300700PeacockFeathers.jpg)|
