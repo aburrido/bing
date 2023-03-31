@@ -32,3 +32,4 @@
 202303282200|NuzzleManatee|Deux lamantins, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)|“Vache des mers” ou sirène ?|![](/fr-FR/2023/03/202303282200NuzzleManatee.jpg)|
 202303292200|PeacockFeathers|Plumes de paon (© Sarayut Thaneerat/Getty Images)|Éclat royal|![](/fr-FR/2023/03/202303292200PeacockFeathers.jpg)|
 202303302200|SteyrRiver|Rivière Steyr, Autriche (© guenterguni/Getty Images)|La merveille (bleue) de la Nature|![](/fr-FR/2023/03/202303302200SteyrRiver.jpg)|
+202303312200|MinouLighthouse|Phare du Petit-Minou, Plouzané, France (© RooM the Agency/Alamy Stock Photo)|Ce phare vous fait les yeux doux|![](/fr-FR/2023/03/202303312200MinouLighthouse.jpg)|

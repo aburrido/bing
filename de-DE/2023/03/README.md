@@ -32,3 +32,4 @@
 202303282200|NuzzleManatee|Zwei Seekühe, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sehen Sie sich diese süßen Seekühe an|![](/de-DE/2023/03/202303282200NuzzleManatee.jpg)|
 202303292200|PeacockFeathers|Pfauenfedern (© Sarayut Thaneerat/Getty Images)|Königlicher Glanz|![](/de-DE/2023/03/202303292200PeacockFeathers.jpg)|
 202303302200|SteyrRiver|Fluss Steyr, Österreich (© guenterguni/Getty Images)|Wunder der Natur|![](/de-DE/2023/03/202303302200SteyrRiver.jpg)|
+202303312200|FrogMonth|Java Flug-Frosch (© kuritafsheen/Getty Images)|Grün vor neid?|![](/de-DE/2023/03/202303312200FrogMonth.jpg)|
