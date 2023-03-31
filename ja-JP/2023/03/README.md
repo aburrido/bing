@@ -32,3 +32,4 @@
 202303281500|NuzzleManatee|クリスタルリバー, 米国  フロリダ州 (© Gregory Sweeney/Getty Images)|今日はマナティー感謝の日|![](/ja-JP/2023/03/202303281500NuzzleManatee.jpg)|
 202303291500|PeacockFeathers|クジャク (© Sarayut Thaneerat/Getty Images)|立派な飾り羽|![](/ja-JP/2023/03/202303291500PeacockFeathers.jpg)|
 202303301500|SteyrRiver|シュタイアー川, オーストリア オーバーエスターライヒ州 (© guenterguni/Getty Images)|森を流れるターコイズブルーの川|![](/ja-JP/2023/03/202303301500SteyrRiver.jpg)|
+202303311500|JavaBromo|ブロモ山, インドネシア ジャワ島東部 (© Bento Fotography/Getty Images)|煙霞に聳え立つブロモ山|![](/ja-JP/2023/03/202303311500JavaBromo.jpg)|
