@@ -4,3 +4,4 @@
 202304011830|JavaBromo|Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)|Where is this ethereal mountain?|![](/en-IN/2023/04/202304011830JavaBromo.jpg)|
 202304021830|AgraFort|India Aerial view above of Agra Fort (© Amazing Aerial Premium/Shutterstock)|The picturesque Mughal architecture|![](/en-IN/2023/04/202304021830AgraFort.jpg)|
 202304031830|RomanBridge|Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)|Where is this historical bridge?|![](/en-IN/2023/04/202304031830RomanBridge.jpg)|
+202304041830|BlackGrouseLekking|Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)|Which bird wore it best?|![](/en-IN/2023/04/202304041830BlackGrouseLekking.jpg)|
