@@ -6,3 +6,4 @@
 202304030700|HonaunauNP|Pu'uhonua o Hōnaunau National Historical Park, Big Island, Hawaii (© Westend61/Getty Images)|Chasing rainbows|![](/en-US/2023/04/202304030700HonaunauNP.jpg)|
 202304040700|RomanBridge|Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)|The historic heart of Córdoba|![](/en-US/2023/04/202304040700RomanBridge.jpg)|
 202304050700|BlackGrouseLekking|Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)|Ruffling feathers|![](/en-US/2023/04/202304050700BlackGrouseLekking.jpg)|
+202304060700|ArizonaPinkMoon|Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)|Pink moon rising|![](/en-US/2023/04/202304060700ArizonaPinkMoon.jpg)|
