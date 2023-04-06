@@ -6,3 +6,4 @@
 202304032300|RomanBridge|Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)|Where is this historical bridge?|![](/en-GB/2023/04/202304032300RomanBridge.jpg)|
 202304042300|BlackGrouseLekking|Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)|Let’s have a lek, see?|![](/en-GB/2023/04/202304042300BlackGrouseLekking.jpg)|
 202304052300|ArizonaPinkMoon|Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)|A pink moon over Arizona|![](/en-GB/2023/04/202304052300ArizonaPinkMoon.jpg)|
+202304062300|KitsAspen|Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)|Two hungry baby beavers|![](/en-GB/2023/04/202304062300KitsAspen.jpg)|
