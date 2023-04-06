@@ -6,3 +6,4 @@
 202304032200|RomanBridge|Pont romain, Cordoue, Espagne (© Jeremy Woodhouse/Getty Images)|Un pont chargé d’histoire|![](/fr-FR/2023/04/202304032200RomanBridge.jpg)|
 202304042200|BlackGrouseLekking|Petits coqs de bruyère à Kuusamo, Finlande (© Markus Varesvuo/Minden Pictures)|C’est qui le plus beau ?|![](/fr-FR/2023/04/202304042200BlackGrouseLekking.jpg)|
 202304052200|ArizonaPinkMoon|Pleine lune, Tucson, Arizona, États-Unis (© Tim Murphy/Shutterstock)|Lune rose de printemps en Arizona|![](/fr-FR/2023/04/202304052200ArizonaPinkMoon.jpg)|
+202304062200|KitsAspen|Bébés castors d’Europe, Finlande (© Danny Green/Minden Pictures)|Un constructeur de digues hors pair !|![](/fr-FR/2023/04/202304062200KitsAspen.jpg)|
