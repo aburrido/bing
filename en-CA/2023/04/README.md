@@ -5,3 +5,4 @@
 202304030400|HonaunauNP|Pu'uhonua o Hōnaunau National Historical Park, Big Island, Hawaii (© Westend61/Getty Images)|Chasing rainbows|![](/en-CA/2023/04/202304030400HonaunauNP.jpg)|
 202304040400|CanadianMuseumforHumanRights|The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)|Where are these illuminated walkways?|![](/en-CA/2023/04/202304040400CanadianMuseumforHumanRights.jpg)|
 202304050400|BlackGrouseLekking|Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)|Let’s have a lek, see?|![](/en-CA/2023/04/202304050400BlackGrouseLekking.jpg)|
+202304060400|ArizonaPinkMoon|Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)|A pink moon over Arizona|![](/en-CA/2023/04/202304060400ArizonaPinkMoon.jpg)|
