@@ -6,3 +6,4 @@
 202304040400|CanadianMuseumforHumanRights|Musée canadien pour les droits de la personne, Winnipeg (© Cavan Images/Alamy Stock Photo)|Où se trouvent ces passerelles lumineuses?|![](/fr-CA/2023/04/202304040400CanadianMuseumforHumanRights.jpg)|
 202304050400|BlackGrouseLekking|Petits coqs de bruyère à Kuusamo, Finlande (© Markus Varesvuo/Minden Pictures)|C’est qui le plus beau?|![](/fr-CA/2023/04/202304050400BlackGrouseLekking.jpg)|
 202304060400|ArizonaPinkMoon|Pleine lune, Tucson, Arizona, États-Unis (© Tim Murphy/Shutterstock)|Lune rose de printemps en Arizona|![](/fr-CA/2023/04/202304060400ArizonaPinkMoon.jpg)|
+202304070400|KitsAspen|Bébés castors d’Europe, Finlande (© Danny Green/Minden Pictures)|Un constructeur de digues hors pair!|![](/fr-CA/2023/04/202304070400KitsAspen.jpg)|
