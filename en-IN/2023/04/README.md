@@ -7,3 +7,4 @@
 202304041830|BlackGrouseLekking|Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)|Which bird wore it best?|![](/en-IN/2023/04/202304041830BlackGrouseLekking.jpg)|
 202304051830|ArizonaPinkMoon|Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)|A pink moon over Arizona|![](/en-IN/2023/04/202304051830ArizonaPinkMoon.jpg)|
 202304061830|KitsAspen|Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)|Two hungry baby beavers|![](/en-IN/2023/04/202304061830KitsAspen.jpg)|
+202304071830|NIrelandGiants|The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)|A legend sprung from the ground|![](/en-IN/2023/04/202304071830NIrelandGiants.jpg)|
