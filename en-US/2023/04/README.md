@@ -7,3 +7,4 @@
 202304040700|RomanBridge|Roman bridge, Córdoba, Spain (© Jeremy Woodhouse/Getty Images)|The historic heart of Córdoba|![](/en-US/2023/04/202304040700RomanBridge.jpg)|
 202304050700|BlackGrouseLekking|Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)|Ruffling feathers|![](/en-US/2023/04/202304050700BlackGrouseLekking.jpg)|
 202304060700|ArizonaPinkMoon|Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)|Pink moon rising|![](/en-US/2023/04/202304060700ArizonaPinkMoon.jpg)|
+202304070700|KitsAspen|Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)|Saluting beavers|![](/en-US/2023/04/202304070700KitsAspen.jpg)|
