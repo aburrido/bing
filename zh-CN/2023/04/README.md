@@ -7,3 +7,4 @@
 202304041600|QingMing2023|杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images)|水墨西湖|![](/zh-CN/2023/04/202304041600QingMing2023.jpg)|
 202304051600|ArizonaPinkMoon|月亮升起，图森，亚利桑那州，美国 (© Tim Murphy/Shutterstock)|亚利桑那州空中的粉月亮|![](/zh-CN/2023/04/202304051600ArizonaPinkMoon.jpg)|
 202304061600|KitsAspen|欧亚河狸宝宝，芬兰 (© Danny Green/Minden Pictures)|两只饥饿的小河狸|![](/zh-CN/2023/04/202304061600KitsAspen.jpg)|
+202304071600|NIrelandGiants|巨人之路，北爱尔兰，英国 (© DieterMeyrl/Getty Images)|从地下起源的传说|![](/zh-CN/2023/04/202304071600NIrelandGiants.jpg)|
