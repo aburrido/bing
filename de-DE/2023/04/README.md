@@ -7,3 +7,4 @@
 202304042200|BlackGrouseLekking|Männliche Birkhühner in Kuusamo, Finnland (© Markus Varesvuo/Minden Pictures)|Lass uns tanzen|![](/de-DE/2023/04/202304042200BlackGrouseLekking.jpg)|
 202304052200|ArizonaPinkMoon|Mondaufgang, Tucson, Arizona, USA (© Tim Murphy/Shutterstock)|Pink Moon über Arizona|![](/de-DE/2023/04/202304052200ArizonaPinkMoon.jpg)|
 202304062200|KitsAspen|Europäische Biberbabys, Finnland (© Danny Green/Minden Pictures)|Zwei hungrige Biberbabys|![](/de-DE/2023/04/202304062200KitsAspen.jpg)|
+202304072200|NIrelandGiants|Giant's Causeway, Nordirland, Großbritannien (© Dieter Meyrl/Getty Images)|Der Damm der Riesen|![](/de-DE/2023/04/202304072200NIrelandGiants.jpg)|
