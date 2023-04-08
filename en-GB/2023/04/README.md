@@ -8,3 +8,4 @@
 202304052300|ArizonaPinkMoon|Moon rising, Tucson, Arizona (© Tim Murphy/Shutterstock)|A pink moon over Arizona|![](/en-GB/2023/04/202304052300ArizonaPinkMoon.jpg)|
 202304062300|KitsAspen|Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)|Two hungry baby beavers|![](/en-GB/2023/04/202304062300KitsAspen.jpg)|
 202304072300|HouseofParliament|House of Parliament on the Thames, London, UK (© the Trinity/Getty Images)|History in the making|![](/en-GB/2023/04/202304072300HouseofParliament.jpg)|
+202304082300|LithuanianEggs|Lithuanian Easter eggs (© fotomem/Getty Images)|A delightfully ornate Easter display|![](/en-GB/2023/04/202304082300LithuanianEggs.jpg)|
