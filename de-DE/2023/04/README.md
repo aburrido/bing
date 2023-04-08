@@ -8,3 +8,4 @@
 202304052200|ArizonaPinkMoon|Mondaufgang, Tucson, Arizona, USA (© Tim Murphy/Shutterstock)|Pink Moon über Arizona|![](/de-DE/2023/04/202304052200ArizonaPinkMoon.jpg)|
 202304062200|KitsAspen|Europäische Biberbabys, Finnland (© Danny Green/Minden Pictures)|Zwei hungrige Biberbabys|![](/de-DE/2023/04/202304062200KitsAspen.jpg)|
 202304072200|NIrelandGiants|Giant's Causeway, Nordirland, Großbritannien (© Dieter Meyrl/Getty Images)|Der Damm der Riesen|![](/de-DE/2023/04/202304072200NIrelandGiants.jpg)|
+202304082200|LithuanianEggs|Litauische dekorierte Ostereier (© fotomem/Getty Images)|Ein herrlich verziertes Osterbild|![](/de-DE/2023/04/202304082200LithuanianEggs.jpg)|

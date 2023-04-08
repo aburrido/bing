@@ -8,3 +8,4 @@
 202304052200|ArizonaPinkMoon|Pleine lune, Tucson, Arizona, États-Unis (© Tim Murphy/Shutterstock)|Lune rose de printemps en Arizona|![](/fr-FR/2023/04/202304052200ArizonaPinkMoon.jpg)|
 202304062200|KitsAspen|Bébés castors d’Europe, Finlande (© Danny Green/Minden Pictures)|Un constructeur de digues hors pair !|![](/fr-FR/2023/04/202304062200KitsAspen.jpg)|
 202304072200|NIrelandGiants|Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Dieter Meyrl/Getty Images)|Une légende de Géants|![](/fr-FR/2023/04/202304072200NIrelandGiants.jpg)|
+202304082200|LithuanianEggs|Œufs de Pâques décorés (© fotomem/Getty Images)|Pourquoi ces œufs sont-ils décorés ?|![](/fr-FR/2023/04/202304082200LithuanianEggs.jpg)|
