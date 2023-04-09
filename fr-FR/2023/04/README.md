@@ -9,3 +9,4 @@
 202304062200|KitsAspen|Bébés castors d’Europe, Finlande (© Danny Green/Minden Pictures)|Un constructeur de digues hors pair !|![](/fr-FR/2023/04/202304062200KitsAspen.jpg)|
 202304072200|NIrelandGiants|Chaussée des Géants, Irlande du Nord, Royaume-Uni (© Dieter Meyrl/Getty Images)|Une légende de Géants|![](/fr-FR/2023/04/202304072200NIrelandGiants.jpg)|
 202304082200|LithuanianEggs|Œufs de Pâques décorés (© fotomem/Getty Images)|Pourquoi ces œufs sont-ils décorés ?|![](/fr-FR/2023/04/202304082200LithuanianEggs.jpg)|
+202304092200|BirdcountAllen|Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)|Les oiseaux sont de retour !|![](/fr-FR/2023/04/202304092200BirdcountAllen.jpg)|
