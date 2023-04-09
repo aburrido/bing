@@ -9,3 +9,4 @@
 202304061500|KitsAspen|赤ちゃんヨーロッパビーバー, フィンランド (© Danny Green/Minden Pictures)|今日は国際ビーバーデー|![](/ja-JP/2023/04/202304061500KitsAspen.jpg)|
 202304071500|BuddhasBirthday2023|池に咲く睡蓮 (© Masahiro Noguchi/GettyImages)|今日は灌仏会|![](/ja-JP/2023/04/202304071500BuddhasBirthday2023.jpg)|
 202304081500|LithuanianEggs|華やかなイースターエッグ (© fotomem/Getty Images)|今日は復活祭|![](/ja-JP/2023/04/202304081500LithuanianEggs.jpg)|
+202304091500|ElephantTwins|アンボセリ国立公園, ケニア (© Diana Robinson/Getty Images)|今日は兄弟姉妹の日|![](/ja-JP/2023/04/202304091500ElephantTwins.jpg)|
