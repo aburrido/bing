@@ -9,3 +9,4 @@
 202304060700|ArizonaPinkMoon|Moon rising, Tucson, Arizona, USA (© Tim Murphy/Shutterstock)|Info|![](/en-AU/2023/04/202304060700ArizonaPinkMoon.jpg)|
 202304070700|KitsAspen|Eurasian baby beavers, Finland (© Danny Green/Minden Pictures)|Info|![](/en-AU/2023/04/202304070700KitsAspen.jpg)|
 202304080700|NIrelandGiants|Giant's Causeway, Northern Ireland, United Kingdom (© DieterMeyrl/Getty Images)|Info|![](/en-AU/2023/04/202304080700NIrelandGiants.jpg)|
+202304090700|MilkyWayTwoJackLake|Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)|Info|![](/en-AU/2023/04/202304090700MilkyWayTwoJackLake.jpg)|
