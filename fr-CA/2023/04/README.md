@@ -9,3 +9,4 @@
 202304070400|KitsAspen|Bébés castors d’Europe, Finlande (© Danny Green/Minden Pictures)|Un constructeur de digues hors pair!|![](/fr-CA/2023/04/202304070400KitsAspen.jpg)|
 202304080400|NIrelandGiants|Chaussée des Géants, Irlande du Nord, Royaume-Uni (© DieterMeyrl/Getty Images)|Une légende de Géants|![](/fr-CA/2023/04/202304080400NIrelandGiants.jpg)|
 202304090400|LithuanianEggs|Œufs de Pâques décorés (© fotomem/Getty Images)|Pourquoi ces œufs sont-ils décorés?|![](/fr-CA/2023/04/202304090400LithuanianEggs.jpg)|
+202304100400|ElephantTwins|Éléphants dans le Parc National d’Amboseli, Kenya (© Diana Robinson/Getty Images)|Un solide lien fraternel|![](/fr-CA/2023/04/202304100400ElephantTwins.jpg)|
