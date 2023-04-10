@@ -10,3 +10,4 @@
 202304072200|NIrelandGiants|Giant's Causeway, Nordirland, Großbritannien (© Dieter Meyrl/Getty Images)|Der Damm der Riesen|![](/de-DE/2023/04/202304072200NIrelandGiants.jpg)|
 202304082200|LithuanianEggs|Litauische dekorierte Ostereier (© fotomem/Getty Images)|Ein herrlich verziertes Osterbild|![](/de-DE/2023/04/202304082200LithuanianEggs.jpg)|
 202304092200|ElephantTwins|Elefanten im Amboseli-Nationalpark, Kenia (© Diana Robinson/Getty Images)|Starke Geschwisterbindung|![](/de-DE/2023/04/202304092200ElephantTwins.jpg)|
+202304102200|Tatzlwurmbruecke|Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)|Halb Brücke - Halb Tatzelwurm|![](/de-DE/2023/04/202304102200Tatzlwurmbruecke.jpg)|
