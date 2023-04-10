@@ -10,3 +10,4 @@
 202304070700|KitsAspen|Baby Eurasian beavers, Finland (© Danny Green/Minden Pictures)|Saluting beavers|![](/en-US/2023/04/202304070700KitsAspen.jpg)|
 202304080700|NIrelandGiants|The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)|In the footsteps of giants|![](/en-US/2023/04/202304080700NIrelandGiants.jpg)|
 202304090700|LithuanianEggs|Lithuanian Easter eggs (© fotomem/Getty Images)|Happy Easter!|![](/en-US/2023/04/202304090700LithuanianEggs.jpg)|
+202304100700|ElephantTwins|Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Strong sibling bonds|![](/en-US/2023/04/202304100700ElephantTwins.jpg)|
