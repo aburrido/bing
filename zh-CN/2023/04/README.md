@@ -10,3 +10,4 @@
 202304071600|NIrelandGiants|巨人之路，北爱尔兰，英国 (© DieterMeyrl/Getty Images)|从地下起源的传说|![](/zh-CN/2023/04/202304071600NIrelandGiants.jpg)|
 202304081600|LithuanianEggs|复活节彩蛋 (© fotomem/Getty Images)|装饰华丽的复活节彩蛋|![](/zh-CN/2023/04/202304081600LithuanianEggs.jpg)|
 202304091600|ElephantTwins|安博塞利国家公园的大象，肯尼亚 (© Diana Robinson/Getty Images)|强大的亲缘纽带|![](/zh-CN/2023/04/202304091600ElephantTwins.jpg)|
+202304101600|MossyGrottoFalls|哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)|这个隐秘的瀑布在哪里？|![](/zh-CN/2023/04/202304101600MossyGrottoFalls.jpg)|
