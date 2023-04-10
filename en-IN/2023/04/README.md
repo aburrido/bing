@@ -10,3 +10,4 @@
 202304071830|NIrelandGiants|The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)|A legend sprung from the ground|![](/en-IN/2023/04/202304071830NIrelandGiants.jpg)|
 202304081830|Honnavaralavenderfields|Sunrise over misty lavender fields (© Amith Nag Photography/Getty Images Plus)|Purple bliss as far as the eye can see|![](/en-IN/2023/04/202304081830Honnavaralavenderfields.jpg)|
 202304091830|ElephantTwins|Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Strong sibling bonds|![](/en-IN/2023/04/202304091830ElephantTwins.jpg)|
+202304101830|MossyGrottoFalls|Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)|Where is this hidden waterfall?|![](/en-IN/2023/04/202304101830MossyGrottoFalls.jpg)|
