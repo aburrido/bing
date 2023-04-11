@@ -11,3 +11,4 @@
 202304082300|LithuanianEggs|Lithuanian Easter eggs (© fotomem/Getty Images)|A delightfully ornate Easter display|![](/en-GB/2023/04/202304082300LithuanianEggs.jpg)|
 202304092300|ElephantTwins|Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Strong sibling bonds|![](/en-GB/2023/04/202304092300ElephantTwins.jpg)|
 202304102300|MossyGrottoFalls|Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)|Where is this hidden waterfall?|![](/en-GB/2023/04/202304102300MossyGrottoFalls.jpg)|
+202304112300|EuropeFromISS|Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)|A view that’s out of this world|![](/en-GB/2023/04/202304112300EuropeFromISS.jpg)|
