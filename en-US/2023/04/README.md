@@ -11,3 +11,4 @@
 202304080700|NIrelandGiants|The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)|In the footsteps of giants|![](/en-US/2023/04/202304080700NIrelandGiants.jpg)|
 202304090700|LithuanianEggs|Lithuanian Easter eggs (© fotomem/Getty Images)|Happy Easter!|![](/en-US/2023/04/202304090700LithuanianEggs.jpg)|
 202304100700|ElephantTwins|Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Strong sibling bonds|![](/en-US/2023/04/202304100700ElephantTwins.jpg)|
+202304110700|MossyGrottoFalls|Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)|Where is this hidden waterfall?|![](/en-US/2023/04/202304110700MossyGrottoFalls.jpg)|

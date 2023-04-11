@@ -11,3 +11,4 @@
 202304080700|NIrelandGiants|Giant's Causeway, Northern Ireland, United Kingdom (© DieterMeyrl/Getty Images)|Info|![](/en-AU/2023/04/202304080700NIrelandGiants.jpg)|
 202304090700|MilkyWayTwoJackLake|Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)|Info|![](/en-AU/2023/04/202304090700MilkyWayTwoJackLake.jpg)|
 202304100700|ElephantTwins|Elephants in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Info|![](/en-AU/2023/04/202304100700ElephantTwins.jpg)|
+202304110700|MossyGrottoFalls|Columbia River Gorge, Oregon, USA (© Chase Dekker Wild-Life Images/Getty Images)|Info|![](/en-AU/2023/04/202304110700MossyGrottoFalls.jpg)|
