@@ -12,3 +12,4 @@
 202304090700|MilkyWayTwoJackLake|Aurora at Two Jack Lake, Banff National Park, Alberta, Canada (© Jesús M. García/Getty Images)|Info|![](/en-AU/2023/04/202304090700MilkyWayTwoJackLake.jpg)|
 202304100700|ElephantTwins|Elephants in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Info|![](/en-AU/2023/04/202304100700ElephantTwins.jpg)|
 202304110700|MossyGrottoFalls|Columbia River Gorge, Oregon, USA (© Chase Dekker Wild-Life Images/Getty Images)|Info|![](/en-AU/2023/04/202304110700MossyGrottoFalls.jpg)|
+202304120700|EuropeFromISS|Earth from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)|Info|![](/en-AU/2023/04/202304120700EuropeFromISS.jpg)|
