@@ -11,3 +11,4 @@
 202304090400|LithuanianEggs|Œufs de Pâques décorés (© fotomem/Getty Images)|Pourquoi ces œufs sont-ils décorés?|![](/fr-CA/2023/04/202304090400LithuanianEggs.jpg)|
 202304100400|ElephantTwins|Éléphants dans le Parc National d’Amboseli, Kenya (© Diana Robinson/Getty Images)|Un solide lien fraternel|![](/fr-CA/2023/04/202304100400ElephantTwins.jpg)|
 202304110400|CanadaContinentalDivide|Ligne Continentale de partage des eaux, Parc National de Yoho, Canada (© Peter Essick/Cavan Images)|Un aperçu du parc national Yoho|![](/fr-CA/2023/04/202304110400CanadaContinentalDivide.jpg)|
+202304120400|EuropeFromISS|La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)|Une vue d’un autre monde|![](/fr-CA/2023/04/202304120400EuropeFromISS.jpg)|
