@@ -12,3 +12,4 @@
 202304092200|BirdcountAllen|Colibri d'Allen perché sur la plante patte de kangourou rouge (© GypsyPictureShow/Shutterstock)|Les oiseaux sont de retour !|![](/fr-FR/2023/04/202304092200BirdcountAllen.jpg)|
 202304102200|MossyGrottoFalls|Gorge du fleuve Columbia, Oregon, États-Unis (© Chase Dekker Wild-Life Images/Getty Images)|Où se trouve cette cascade ?|![](/fr-FR/2023/04/202304102200MossyGrottoFalls.jpg)|
 202304112200|TaiwanYuhina|Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)|Quels sont ces oiseaux si mignons?|![](/fr-FR/2023/04/202304112200TaiwanYuhina.jpg)|
+202304122200|PhloxSubulata|Parc de Hitsujiyama, Saitama, Japon (© Takashi Images/Shutterstock)|Quelles sont ces fleurs magnifiques ?|![](/fr-FR/2023/04/202304122200PhloxSubulata.jpg)|

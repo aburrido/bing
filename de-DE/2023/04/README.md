@@ -12,3 +12,4 @@
 202304092200|ElephantTwins|Elefanten im Amboseli-Nationalpark, Kenia (© Diana Robinson/Getty Images)|Starke Geschwisterbindung|![](/de-DE/2023/04/202304092200ElephantTwins.jpg)|
 202304102200|Tatzlwurmbruecke|Tatzelwurm Holzbrücke, Essing, (© Rüdiger Hess/geo-select FotoArt)|Halb Brücke - Halb Tatzelwurm|![](/de-DE/2023/04/202304102200Tatzlwurmbruecke.jpg)|
 202304112200|EuropeFromISS|Die Erde von der Internationalen Raumstation aus gesehen (© Tim Peake/ESA/NASA via Getty Images)|Unsere Heimat|![](/de-DE/2023/04/202304112200EuropeFromISS.jpg)|
+202304122200|PhloxSubulata|Hitsujiyama Park, Präfektur Saitama, Japan (© Takashi Images/Shutterstock)|Rosa in all ihren Farbvarianten|![](/de-DE/2023/04/202304122200PhloxSubulata.jpg)|
