@@ -13,3 +13,4 @@
 202304101600|MossyGrottoFalls|哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)|这个隐秘的瀑布在哪里？|![](/zh-CN/2023/04/202304101600MossyGrottoFalls.jpg)|
 202304111600|EuropeFromISS|从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)|此景只应天上有|![](/zh-CN/2023/04/202304111600EuropeFromISS.jpg)|
 202304121600|SnowdoniaNational|斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)|徒步旅行者的向往之地|![](/zh-CN/2023/04/202304121600SnowdoniaNational.jpg)|
+202304131600|RedSeaStars|红海星, 地中海 (© Hans Leijnse/Minden Pictures)|日光下的星星|![](/zh-CN/2023/04/202304131600RedSeaStars.jpg)|
