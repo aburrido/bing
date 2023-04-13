@@ -13,3 +13,4 @@
 202304101500|MossyGrottoFalls|コロンビア川峡谷, 米国 オレゴン州 (© Chase Dekker Wild-Life Images/Getty Images)|苔むした岩に囲まれた滝|![](/ja-JP/2023/04/202304101500MossyGrottoFalls.jpg)|
 202304111500|EuropeFromISS|国際宇宙ステーションから見た地球 (© Tim Peake/ESA/NASA via Getty Images)|今日はユーリズナイト|![](/ja-JP/2023/04/202304111500EuropeFromISS.jpg)|
 202304121500|PhloxSubulata|羊山公園, 埼玉県 (© Takashi Images/Shutterstock)|ピンクや白で彩られた芝桜の絨毯|![](/ja-JP/2023/04/202304121500PhloxSubulata.jpg)|
+202304131500|NIrelandGiants|ジャイアンツ・コーズウェー, イギリス 北アイルランド (© Dieter Meyrl/Getty Images)|巨人伝説とともに残る石柱群|![](/ja-JP/2023/04/202304131500NIrelandGiants.jpg)|
