@@ -13,3 +13,4 @@
 202304100700|ElephantTwins|Elephant family in Amboseli National Park, Kenya (© Diana Robinson/Getty Images)|Strong sibling bonds|![](/en-US/2023/04/202304100700ElephantTwins.jpg)|
 202304110700|MossyGrottoFalls|Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)|Where is this hidden waterfall?|![](/en-US/2023/04/202304110700MossyGrottoFalls.jpg)|
 202304120700|EuropeFromISS|Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)|A view that's out of this world|![](/en-US/2023/04/202304120700EuropeFromISS.jpg)|
+202304130700|PhloxSubulata|Moss pink displays at Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)|Pretty in pink|![](/en-US/2023/04/202304130700PhloxSubulata.jpg)|
