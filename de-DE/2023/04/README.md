@@ -14,3 +14,4 @@
 202304112200|EuropeFromISS|Die Erde von der Internationalen Raumstation aus gesehen (© Tim Peake/ESA/NASA via Getty Images)|Unsere Heimat|![](/de-DE/2023/04/202304112200EuropeFromISS.jpg)|
 202304122200|PhloxSubulata|Hitsujiyama Park, Präfektur Saitama, Japan (© Takashi Images/Shutterstock)|Rosa in all ihren Farbvarianten|![](/de-DE/2023/04/202304122200PhloxSubulata.jpg)|
 202304132200|Mannheim|Wasserturm, Mannheim (© tichr/Getty Images)|Die Stadt der Musik|![](/de-DE/2023/04/202304132200Mannheim.jpg)|
+202304142200|LorenzoQuinn|„Together” von Lorenzo Quinn, Große Pyramiden von Gizeh, Kairo, Ägypten (© Sima Diab/Getty Images)|Antike und Moderne, eine Hand wäscht die andere|![](/de-DE/2023/04/202304142200LorenzoQuinn.jpg)|

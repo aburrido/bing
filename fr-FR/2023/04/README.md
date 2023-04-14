@@ -14,3 +14,4 @@
 202304112200|TaiwanYuhina|Yuhina de Taïwan, Aire panoramique nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)|Quels sont ces oiseaux si mignons?|![](/fr-FR/2023/04/202304112200TaiwanYuhina.jpg)|
 202304122200|PhloxSubulata|Parc de Hitsujiyama, Saitama, Japon (© Takashi Images/Shutterstock)|Quelles sont ces fleurs magnifiques ?|![](/fr-FR/2023/04/202304122200PhloxSubulata.jpg)|
 202304132200|RedSeaStars|Étoile de mer rouge, Mer Méditerranée (© Hans Leijnse/Minden Pictures)|Animal ou végétal?|![](/fr-FR/2023/04/202304132200RedSeaStars.jpg)|
+202304142200|LorenzoQuinn|‘Together’ de Lorenzo Quinn, Grandes Pyramides de Gizeh, Le Caire, Égypte (© Sima Diab/Getty Images)|Quand l'art imite la vie|![](/fr-FR/2023/04/202304142200LorenzoQuinn.jpg)|
