@@ -14,3 +14,4 @@
 202304112300|EuropeFromISS|Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)|A view that’s out of this world|![](/en-GB/2023/04/202304112300EuropeFromISS.jpg)|
 202304122300|RandoxGrandNationalFestival|Randox National Festival, Liverpool, England, UK (© Tim Goode - Pool/Getty Images)|Home of racing legends|![](/en-GB/2023/04/202304122300RandoxGrandNationalFestival.jpg)|
 202304132300|RedSeaStars|Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Stars in daylight|![](/en-GB/2023/04/202304132300RedSeaStars.jpg)|
+202304142300|LorenzoQuinn|'Together' by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)|When art imitates life|![](/en-GB/2023/04/202304142300LorenzoQuinn.jpg)|
