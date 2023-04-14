@@ -14,3 +14,4 @@
 202304110700|MossyGrottoFalls|Columbia River Gorge, Oregon, USA (© Chase Dekker Wild-Life Images/Getty Images)|Info|![](/en-AU/2023/04/202304110700MossyGrottoFalls.jpg)|
 202304120700|EuropeFromISS|Earth from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)|Info|![](/en-AU/2023/04/202304120700EuropeFromISS.jpg)|
 202304130700|SnowdoniaNational|Snowdonia National Park, Gwynedd, Wales, UK (© Sebastian Wasek/eStock Photo)|Info|![](/en-AU/2023/04/202304130700SnowdoniaNational.jpg)|
+202304140700|RedSeaStars|Red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Info|![](/en-AU/2023/04/202304140700RedSeaStars.jpg)|
