@@ -13,3 +13,4 @@
 202304110400|CanadaContinentalDivide|Ligne Continentale de partage des eaux, Parc National de Yoho, Canada (© Peter Essick/Cavan Images)|Un aperçu du parc national Yoho|![](/fr-CA/2023/04/202304110400CanadaContinentalDivide.jpg)|
 202304120400|EuropeFromISS|La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)|Une vue d’un autre monde|![](/fr-CA/2023/04/202304120400EuropeFromISS.jpg)|
 202304130400|PhloxSubulata|Parc d’Hitsujiyama, Préfecture de Saitama, Japon (© Takashi Images/Shutterstock)|La vie en rose|![](/fr-CA/2023/04/202304130400PhloxSubulata.jpg)|
+202304140400|RedSeaStars|Étoile de mer rouge, Mer Méditerranée (© Hans Leijnse/Minden Pictures)|Étoiles dans la lumière|![](/fr-CA/2023/04/202304140400RedSeaStars.jpg)|

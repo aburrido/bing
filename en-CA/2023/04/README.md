@@ -13,3 +13,4 @@
 202304110400|TheCanadaContinentalDivide|Canada Continental Divide, Yoho National Park, Canada (© Peter Essick/Cavan Images)|A glimpse of Yoho National Park|![](/en-CA/2023/04/202304110400TheCanadaContinentalDivide.jpg)|
 202304120400|EuropeFromISS|Earth seen from the International Space Station (© Tim Peake/ESA/NASA via Getty Images)|A view that’s out of this world|![](/en-CA/2023/04/202304120400EuropeFromISS.jpg)|
 202304130400|PhloxSubulata|Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)|Pretty in pink|![](/en-CA/2023/04/202304130400PhloxSubulata.jpg)|
+202304140400|RedSeaStars|Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Stars in daylight|![](/en-CA/2023/04/202304140400RedSeaStars.jpg)|
