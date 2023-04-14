@@ -14,3 +14,4 @@
 202304111600|EuropeFromISS|从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)|此景只应天上有|![](/zh-CN/2023/04/202304111600EuropeFromISS.jpg)|
 202304121600|SnowdoniaNational|斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)|徒步旅行者的向往之地|![](/zh-CN/2023/04/202304121600SnowdoniaNational.jpg)|
 202304131600|RedSeaStars|红海星, 地中海 (© Hans Leijnse/Minden Pictures)|日光下的星星|![](/zh-CN/2023/04/202304131600RedSeaStars.jpg)|
+202304141600|NahargarhFort|从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)|宏伟的堡垒和宫殿|![](/zh-CN/2023/04/202304141600NahargarhFort.jpg)|
