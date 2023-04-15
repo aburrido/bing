@@ -15,3 +15,4 @@
 202304121500|PhloxSubulata|羊山公園, 埼玉県 (© Takashi Images/Shutterstock)|ピンクや白で彩られた芝桜の絨毯|![](/ja-JP/2023/04/202304121500PhloxSubulata.jpg)|
 202304131500|NIrelandGiants|ジャイアンツ・コーズウェー, イギリス 北アイルランド (© Dieter Meyrl/Getty Images)|巨人伝説とともに残る石柱群|![](/ja-JP/2023/04/202304131500NIrelandGiants.jpg)|
 202304141500|LorenzoQuinn|ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)|今日はワールドアートデー|![](/ja-JP/2023/04/202304141500LorenzoQuinn.jpg)|
+202304151500|KiteDay|アデレードの空に舞うカイト, オーストラリア (© Andrey Moisseyev/Alamy)|凧揚げに行こう|![](/ja-JP/2023/04/202304151500KiteDay.jpg)|
