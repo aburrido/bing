@@ -15,3 +15,4 @@
 202304122200|PhloxSubulata|Hitsujiyama Park, Präfektur Saitama, Japan (© Takashi Images/Shutterstock)|Rosa in all ihren Farbvarianten|![](/de-DE/2023/04/202304122200PhloxSubulata.jpg)|
 202304132200|Mannheim|Wasserturm, Mannheim (© tichr/Getty Images)|Die Stadt der Musik|![](/de-DE/2023/04/202304132200Mannheim.jpg)|
 202304142200|LorenzoQuinn|„Together” von Lorenzo Quinn, Große Pyramiden von Gizeh, Kairo, Ägypten (© Sima Diab/Getty Images)|Antike und Moderne, eine Hand wäscht die andere|![](/de-DE/2023/04/202304142200LorenzoQuinn.jpg)|
+202304152200|KiteDay|Drachenfestival von Adelaide, Australien (© Andrey Moisseyev/Alamy)|Lassen Sie Ihren Drachen steigen!|![](/de-DE/2023/04/202304152200KiteDay.jpg)|
