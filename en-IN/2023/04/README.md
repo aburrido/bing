@@ -15,3 +15,4 @@
 202304121830|PhloxSubulata|Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)|Pretty in pink|![](/en-IN/2023/04/202304121830PhloxSubulata.jpg)|
 202304131830|RedSeaStars|Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Stars in daylight|![](/en-IN/2023/04/202304131830RedSeaStars.jpg)|
 202304141830|TheRedFort|Ornate arcade at the Red Fort of Delhi, India (© Andrew Palmer/Alamy Stock Photo)|The Royal touch|![](/en-IN/2023/04/202304141830TheRedFort.jpg)|
+202304151830|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-IN/2023/04/202304151830KiteDay.jpg)|
