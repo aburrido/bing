@@ -16,3 +16,4 @@
 202304131600|RedSeaStars|红海星, 地中海 (© Hans Leijnse/Minden Pictures)|日光下的星星|![](/zh-CN/2023/04/202304131600RedSeaStars.jpg)|
 202304141600|NahargarhFort|从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)|宏伟的堡垒和宫殿|![](/zh-CN/2023/04/202304141600NahargarhFort.jpg)|
 202304151600|KiteDay|阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)|去放风筝吧！|![](/zh-CN/2023/04/202304151600KiteDay.jpg)|
+202304161600|MinouLighthouse|布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)|有点孤单，有点浪漫|![](/zh-CN/2023/04/202304161600MinouLighthouse.jpg)|
