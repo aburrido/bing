@@ -16,3 +16,4 @@
 202304132300|RedSeaStars|Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Stars in daylight|![](/en-GB/2023/04/202304132300RedSeaStars.jpg)|
 202304142300|LorenzoQuinn|'Together' by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)|When art imitates life|![](/en-GB/2023/04/202304142300LorenzoQuinn.jpg)|
 202304152300|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-GB/2023/04/202304152300KiteDay.jpg)|
+202304162300|OneThousandSprings|Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Poetry in suspense|![](/en-GB/2023/04/202304162300OneThousandSprings.jpg)|
