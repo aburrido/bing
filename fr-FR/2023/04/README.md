@@ -16,3 +16,4 @@
 202304132200|RedSeaStars|Étoile de mer rouge, Mer Méditerranée (© Hans Leijnse/Minden Pictures)|Animal ou végétal?|![](/fr-FR/2023/04/202304132200RedSeaStars.jpg)|
 202304142200|LorenzoQuinn|‘Together’ de Lorenzo Quinn, Grandes Pyramides de Gizeh, Le Caire, Égypte (© Sima Diab/Getty Images)|Quand l'art imite la vie|![](/fr-FR/2023/04/202304142200LorenzoQuinn.jpg)|
 202304152200|KiteDay|Festival International de Cerfs-Volants d’Adelaïde, Australie (© Andrey Moisseyev/Alamy)|Prêts pour le décollage?|![](/fr-FR/2023/04/202304152200KiteDay.jpg)|
+202304162200|OneThousandSprings|Installation artistique Haïku, Jardins Botaniques Royaux de Kew, Londres (© Guy Bell/Alamy Live News)|Poésie suspendue|![](/fr-FR/2023/04/202304162200OneThousandSprings.jpg)|
