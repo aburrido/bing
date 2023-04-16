@@ -16,3 +16,4 @@
 202304130700|SnowdoniaNational|Snowdonia National Park, Gwynedd, Wales, UK (© Sebastian Wasek/eStock Photo)|Info|![](/en-AU/2023/04/202304130700SnowdoniaNational.jpg)|
 202304140700|RedSeaStars|Red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Info|![](/en-AU/2023/04/202304140700RedSeaStars.jpg)|
 202304150700|NahargarhFort|Aerial view of Jaipur from Nahargarh Fort in Rajasthan, India (© Sean3810/iStock/Getty Images Plus)|Info|![](/en-AU/2023/04/202304150700NahargarhFort.jpg)|
+202304160700|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Info|![](/en-AU/2023/04/202304160700KiteDay.jpg)|

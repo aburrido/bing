@@ -16,3 +16,4 @@
 202304130700|PhloxSubulata|Moss pink displays at Hitsujiyama Park, Saitama Prefecture, Japan (© Takashi Images/Shutterstock)|Pretty in pink|![](/en-US/2023/04/202304130700PhloxSubulata.jpg)|
 202304140700|RedSeaStars|Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Stars in daylight|![](/en-US/2023/04/202304140700RedSeaStars.jpg)|
 202304150700|LorenzoQuinn|'Together' sculpture by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)|When art imitates life|![](/en-US/2023/04/202304150700LorenzoQuinn.jpg)|
+202304160700|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-US/2023/04/202304160700KiteDay.jpg)|
