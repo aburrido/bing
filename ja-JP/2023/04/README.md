@@ -17,3 +17,4 @@
 202304141500|LorenzoQuinn|ギザの大ピラミッド, エジプト (© Sima Diab/Getty Images)|今日はワールドアートデー|![](/ja-JP/2023/04/202304141500LorenzoQuinn.jpg)|
 202304151500|KiteDay|アデレードの空に舞うカイト, オーストラリア (© Andrey Moisseyev/Alamy)|凧揚げに行こう|![](/ja-JP/2023/04/202304151500KiteDay.jpg)|
 202304161500|OneThousandSprings|キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)|千の春|![](/ja-JP/2023/04/202304161500OneThousandSprings.jpg)|
+202304171500|MPPUnesco|マチュ・ピチュ, ペルー (© Dora Dalton/Getty Images)|今日は世界遺産の日|![](/ja-JP/2023/04/202304171500MPPUnesco.jpg)|
