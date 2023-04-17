@@ -17,3 +17,4 @@
 202304142200|LorenzoQuinn|„Together” von Lorenzo Quinn, Große Pyramiden von Gizeh, Kairo, Ägypten (© Sima Diab/Getty Images)|Antike und Moderne, eine Hand wäscht die andere|![](/de-DE/2023/04/202304142200LorenzoQuinn.jpg)|
 202304152200|KiteDay|Drachenfestival von Adelaide, Australien (© Andrey Moisseyev/Alamy)|Lassen Sie Ihren Drachen steigen!|![](/de-DE/2023/04/202304152200KiteDay.jpg)|
 202304162200|OneThousandSprings|Haiku-Kunstinstallation, Kew Royal Botanic Gardens, London (© Guy Bell/Alamy Live News)|Schwebende Lyrik|![](/de-DE/2023/04/202304162200OneThousandSprings.jpg)|
+202304172200|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|Ein architektonisches Weltwunder weit oben auf den Anden|![](/de-DE/2023/04/202304172200MPPUnesco.jpg)|
