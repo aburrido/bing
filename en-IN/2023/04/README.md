@@ -17,3 +17,4 @@
 202304141830|TheRedFort|Ornate arcade at the Red Fort of Delhi, India (© Andrew Palmer/Alamy Stock Photo)|The Royal touch|![](/en-IN/2023/04/202304141830TheRedFort.jpg)|
 202304151830|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-IN/2023/04/202304151830KiteDay.jpg)|
 202304161830|OneThousandSprings|Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Beauty all around|![](/en-IN/2023/04/202304161830OneThousandSprings.jpg)|
+202304171830|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|A mountaintop cultural wonder|![](/en-IN/2023/04/202304171830MPPUnesco.jpg)|
