@@ -16,3 +16,4 @@
 202304140400|RedSeaStars|Mediterranean red sea stars, Mediterranean Sea (© Hans Leijnse/Minden Pictures)|Stars in daylight|![](/en-CA/2023/04/202304140400RedSeaStars.jpg)|
 202304150400|Thecherryblossomtrees|Japanese cherry blossom trees in High Park, Toronto (© Oleksandra Korobova/Getty Images)|A street filled with sakura trees|![](/en-CA/2023/04/202304150400Thecherryblossomtrees.jpg)|
 202304160400|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-CA/2023/04/202304160400KiteDay.jpg)|
+202304170400|OneThousandSprings|Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Poetry in suspense|![](/en-CA/2023/04/202304170400OneThousandSprings.jpg)|
