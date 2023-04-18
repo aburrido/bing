@@ -18,3 +18,4 @@
 202304151600|KiteDay|阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)|去放风筝吧！|![](/zh-CN/2023/04/202304151600KiteDay.jpg)|
 202304161600|MinouLighthouse|布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)|有点孤单，有点浪漫|![](/zh-CN/2023/04/202304161600MinouLighthouse.jpg)|
 202304171600|MPPUnesco|马丘比丘，秘鲁 (© Dora Dalton/Getty Images)|山顶上的文化奇观|![](/zh-CN/2023/04/202304171600MPPUnesco.jpg)|
+202304181600|TaiwanYuhina|褐头凤鹛 (© Staffan Widstrand/Minden Pictures)|一对互相依偎的褐头凤鹛|![](/zh-CN/2023/04/202304181600TaiwanYuhina.jpg)|
