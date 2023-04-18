@@ -18,3 +18,4 @@
 202304152300|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-GB/2023/04/202304152300KiteDay.jpg)|
 202304162300|OneThousandSprings|Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Poetry in suspense|![](/en-GB/2023/04/202304162300OneThousandSprings.jpg)|
 202304172300|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|A mountaintop cultural wonder|![](/en-GB/2023/04/202304172300MPPUnesco.jpg)|
+202304182300|TaiwanYuhina|Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|A cuddling pair of Taiwan yuhina|![](/en-GB/2023/04/202304182300TaiwanYuhina.jpg)|
