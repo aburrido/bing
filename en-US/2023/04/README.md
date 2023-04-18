@@ -18,3 +18,4 @@
 202304150700|LorenzoQuinn|'Together' sculpture by Lorenzo Quinn, Great Pyramids of Giza, Cairo, Egypt (© Sima Diab/Getty Images)|When art imitates life|![](/en-US/2023/04/202304150700LorenzoQuinn.jpg)|
 202304160700|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Go fly a kite!|![](/en-US/2023/04/202304160700KiteDay.jpg)|
 202304170700|OneThousandSprings|'One Thousand Springs' haiku art installation by Chiharu Shiota, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Poetry in suspense|![](/en-US/2023/04/202304170700OneThousandSprings.jpg)|
+202304180700|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|A mountaintop marvel|![](/en-US/2023/04/202304180700MPPUnesco.jpg)|

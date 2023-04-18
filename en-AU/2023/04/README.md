@@ -18,3 +18,4 @@
 202304150700|NahargarhFort|Aerial view of Jaipur from Nahargarh Fort in Rajasthan, India (© Sean3810/iStock/Getty Images Plus)|Info|![](/en-AU/2023/04/202304150700NahargarhFort.jpg)|
 202304160700|KiteDay|Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)|Info|![](/en-AU/2023/04/202304160700KiteDay.jpg)|
 202304170700|MinouLighthouse|Petit Minou Lighthouse, Plouzané, Brittany, France (© RooM the Agency/Alamy)|Info|![](/en-AU/2023/04/202304170700MinouLighthouse.jpg)|
+202304180700|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|Info|![](/en-AU/2023/04/202304180700MPPUnesco.jpg)|
