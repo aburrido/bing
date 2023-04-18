@@ -18,3 +18,4 @@
 202304152200|KiteDay|Drachenfestival von Adelaide, Australien (© Andrey Moisseyev/Alamy)|Lassen Sie Ihren Drachen steigen!|![](/de-DE/2023/04/202304152200KiteDay.jpg)|
 202304162200|OneThousandSprings|Haiku-Kunstinstallation, Kew Royal Botanic Gardens, London (© Guy Bell/Alamy Live News)|Schwebende Lyrik|![](/de-DE/2023/04/202304162200OneThousandSprings.jpg)|
 202304172200|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|Ein architektonisches Weltwunder weit oben auf den Anden|![](/de-DE/2023/04/202304172200MPPUnesco.jpg)|
+202304182200|TaiwanYuhina|Taiwanesische Yuhinas, Singvögel, Alishan Naturschutzgebiet, Taiwan (© Staffan Widstrand/Minden Pictures)|Ein kuschelndes Paar taiwanesischer Yuhinas|![](/de-DE/2023/04/202304182200TaiwanYuhina.jpg)|
