@@ -19,3 +19,4 @@
 202304161500|OneThousandSprings|キュー王立植物園のアートインスタレーション, ロンドン (© Guy Bell/Alamy Live News)|千の春|![](/ja-JP/2023/04/202304161500OneThousandSprings.jpg)|
 202304171500|MPPUnesco|マチュ・ピチュ, ペルー (© Dora Dalton/Getty Images)|今日は世界遺産の日|![](/ja-JP/2023/04/202304171500MPPUnesco.jpg)|
 202304181500|TaiwanYuhina|阿里山, 台湾 (© Staffan Widstrand/Minden Pictures)|寄り添うカンムリチメドリ|![](/ja-JP/2023/04/202304181500TaiwanYuhina.jpg)|
+202304191500|JapanKokuu2023|南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)|水田に映り込む明け方の空|![](/ja-JP/2023/04/202304191500JapanKokuu2023.jpg)|
