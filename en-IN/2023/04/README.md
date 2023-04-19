@@ -19,3 +19,4 @@
 202304161830|OneThousandSprings|Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Beauty all around|![](/en-IN/2023/04/202304161830OneThousandSprings.jpg)|
 202304171830|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|A mountaintop cultural wonder|![](/en-IN/2023/04/202304171830MPPUnesco.jpg)|
 202304181830|TaiwanYuhina|Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|A cuddling pair of Taiwan yuhina|![](/en-IN/2023/04/202304181830TaiwanYuhina.jpg)|
+202304191830|BeltedGalloway|Belted Galloway cows in Scotland (© JohnFScott/Getty Images)|Black-and-white bovines|![](/en-IN/2023/04/202304191830BeltedGalloway.jpg)|
