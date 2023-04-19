@@ -18,3 +18,4 @@
 202304160400|KiteDay|Festival International de Cerfs-Volants d’Adelaïde, Australie (© Andrey Moisseyev/Alamy)|Prêts pour le décollage?|![](/fr-CA/2023/04/202304160400KiteDay.jpg)|
 202304170400|OneThousandSprings|Installation artistique Haïku, Jardins Botaniques Royaux de Kew, Londres (© Guy Bell/Alamy Live News)|Poésie suspendue|![](/fr-CA/2023/04/202304170400OneThousandSprings.jpg)|
 202304180400|MPPUnesco|Machu Picchu, Pérou (© Dora Dalton/Getty Images)|Une merveille dans les montagnes|![](/fr-CA/2023/04/202304180400MPPUnesco.jpg)|
+202304190400|TaiwanYuhina|Yuhina de Taïwan, réserve nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)|Deux yuhinas de Taïwan câlins|![](/fr-CA/2023/04/202304190400TaiwanYuhina.jpg)|
