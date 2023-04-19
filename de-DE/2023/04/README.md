@@ -19,3 +19,4 @@
 202304162200|OneThousandSprings|Haiku-Kunstinstallation, Kew Royal Botanic Gardens, London (© Guy Bell/Alamy Live News)|Schwebende Lyrik|![](/de-DE/2023/04/202304162200OneThousandSprings.jpg)|
 202304172200|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|Ein architektonisches Weltwunder weit oben auf den Anden|![](/de-DE/2023/04/202304172200MPPUnesco.jpg)|
 202304182200|TaiwanYuhina|Taiwanesische Yuhinas, Singvögel, Alishan Naturschutzgebiet, Taiwan (© Staffan Widstrand/Minden Pictures)|Ein kuschelndes Paar taiwanesischer Yuhinas|![](/de-DE/2023/04/202304182200TaiwanYuhina.jpg)|
+202304192200|MossyGrottoFalls|Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)|Ist das ein versteckter Wasserfall?|![](/de-DE/2023/04/202304192200MossyGrottoFalls.jpg)|
