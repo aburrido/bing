@@ -19,3 +19,4 @@
 202304170400|OneThousandSprings|Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Poetry in suspense|![](/en-CA/2023/04/202304170400OneThousandSprings.jpg)|
 202304180400|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|A mountaintop cultural wonder|![](/en-CA/2023/04/202304180400MPPUnesco.jpg)|
 202304190400|TaiwanYuhina|Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|A cuddling pair of Taiwan yuhina|![](/en-CA/2023/04/202304190400TaiwanYuhina.jpg)|
+202304200400|YuanyangChina|Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)|An iridescent view|![](/en-CA/2023/04/202304200400YuanyangChina.jpg)|
