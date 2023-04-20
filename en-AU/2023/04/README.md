@@ -20,3 +20,4 @@
 202304170700|MinouLighthouse|Petit Minou Lighthouse, Plouzané, Brittany, France (© RooM the Agency/Alamy)|Info|![](/en-AU/2023/04/202304170700MinouLighthouse.jpg)|
 202304180700|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|Info|![](/en-AU/2023/04/202304180700MPPUnesco.jpg)|
 202304190700|TaiwanYuhina|Taiwan yuhina, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|Info|![](/en-AU/2023/04/202304190700TaiwanYuhina.jpg)|
+202304200700|AnjunaBeachGoa|Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)|Info|![](/en-AU/2023/04/202304200700AnjunaBeachGoa.jpg)|

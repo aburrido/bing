@@ -20,3 +20,4 @@
 202304170700|OneThousandSprings|'One Thousand Springs' haiku art installation by Chiharu Shiota, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)|Poetry in suspense|![](/en-US/2023/04/202304170700OneThousandSprings.jpg)|
 202304180700|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|A mountaintop marvel|![](/en-US/2023/04/202304180700MPPUnesco.jpg)|
 202304190700|TaiwanYuhina|Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|Two's company|![](/en-US/2023/04/202304190700TaiwanYuhina.jpg)|
+202304200700|OcalaNF|Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)|A subtropical soak|![](/en-US/2023/04/202304200700OcalaNF.jpg)|
