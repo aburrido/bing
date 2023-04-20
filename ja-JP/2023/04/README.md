@@ -20,3 +20,4 @@
 202304171500|MPPUnesco|マチュ・ピチュ, ペルー (© Dora Dalton/Getty Images)|今日は世界遺産の日|![](/ja-JP/2023/04/202304171500MPPUnesco.jpg)|
 202304181500|TaiwanYuhina|阿里山, 台湾 (© Staffan Widstrand/Minden Pictures)|寄り添うカンムリチメドリ|![](/ja-JP/2023/04/202304181500TaiwanYuhina.jpg)|
 202304191500|JapanKokuu2023|南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)|水田に映り込む明け方の空|![](/ja-JP/2023/04/202304191500JapanKokuu2023.jpg)|
+202304201500|ProcidaItaly|プローチダ, イタリア カンパニア州 (© Sean Pavone/Shutterstock)|夕暮れ時のプローチダ島|![](/ja-JP/2023/04/202304201500ProcidaItaly.jpg)|
