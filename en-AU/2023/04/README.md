@@ -21,3 +21,4 @@
 202304180700|MPPUnesco|Machu Picchu, Peru (© Dora Dalton/Getty Images)|Info|![](/en-AU/2023/04/202304180700MPPUnesco.jpg)|
 202304190700|TaiwanYuhina|Taiwan yuhina, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|Info|![](/en-AU/2023/04/202304190700TaiwanYuhina.jpg)|
 202304200700|AnjunaBeachGoa|Anjuna Beach, Goa, India (© Dmitry Rukhlenko/Shutterstock)|Info|![](/en-AU/2023/04/202304200700AnjunaBeachGoa.jpg)|
+202304210700|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|Info|![](/en-AU/2023/04/202304210700ProcidaItaly.jpg)|
