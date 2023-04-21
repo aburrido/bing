@@ -21,3 +21,4 @@
 202304182300|TaiwanYuhina|Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|A cuddling pair of Taiwan yuhina|![](/en-GB/2023/04/202304182300TaiwanYuhina.jpg)|
 202304192300|NIrelandGiants|The Giant's Causeway, County Antrim, Northern Ireland (© Dieter Meyrl/Getty Images)|A legend sprung from the ground|![](/en-GB/2023/04/202304192300NIrelandGiants.jpg)|
 202304202300|DartmoorNationalPark|Meldon Hill, Dartmoor National Park, Devon (© AWL Images/DanitaDelimont.com)|Rugged rocks and ancient history|![](/en-GB/2023/04/202304202300DartmoorNationalPark.jpg)|
+202304212300|EarthDayFox|Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|Where can you find this cute creature?|![](/en-GB/2023/04/202304212300EarthDayFox.jpg)|
