@@ -21,3 +21,4 @@
 202304181600|TaiwanYuhina|褐头凤鹛 (© Staffan Widstrand/Minden Pictures)|一对互相依偎的褐头凤鹛|![](/zh-CN/2023/04/202304181600TaiwanYuhina.jpg)|
 202304191600|CrestedButteEclispe|克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)|宁静的夜空|![](/zh-CN/2023/04/202304191600CrestedButteEclispe.jpg)|
 202304201600|ProcidaItaly|普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)|充满活力、阳光普照的岛屿|![](/zh-CN/2023/04/202304201600ProcidaItaly.jpg)|
+202304211600|EarthDayFox|岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)|国家公园中狡猾的常住居民|![](/zh-CN/2023/04/202304211600EarthDayFox.jpg)|
