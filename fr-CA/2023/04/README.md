@@ -20,3 +20,4 @@
 202304180400|MPPUnesco|Machu Picchu, Pérou (© Dora Dalton/Getty Images)|Une merveille dans les montagnes|![](/fr-CA/2023/04/202304180400MPPUnesco.jpg)|
 202304190400|TaiwanYuhina|Yuhina de Taïwan, réserve nationale d’Alishan, Taïwan (© Staffan Widstrand/Minden Pictures)|Deux yuhinas de Taïwan câlins|![](/fr-CA/2023/04/202304190400TaiwanYuhina.jpg)|
 202304200400|RomanBridge|Pont romain, Cordoue, Espagne (© Jeremy Woodhouse/Getty Images)|Un pont chargé d’histoire|![](/fr-CA/2023/04/202304200400RomanBridge.jpg)|
+202304210400|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|Une vue de rêve|![](/fr-CA/2023/04/202304210400ProcidaItaly.jpg)|
