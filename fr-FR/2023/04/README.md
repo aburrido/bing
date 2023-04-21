@@ -21,3 +21,4 @@
 202304182200|BourgesFestival|Hugh Coltman sur la scène du Printemps de Bourges (© Guillaume Souvant/AFP via Getty Images)|La musique adoucit les cœurs|![](/fr-FR/2023/04/202304182200BourgesFestival.jpg)|
 202304192200|EuropeFromISS|La Terre depuis la Station Spatiale Internationale (© Tim Peake/ESA/NASA via Getty Images)|Une vue d’un autre monde|![](/fr-FR/2023/04/202304192200EuropeFromISS.jpg)|
 202304202200|Gevaudan|Saugues et de sa sculpture en bois de la bête du Gevaudan, Haute-Loire (© Gautier Stephane/Alamy Stock Photo)|La bête veille sur la vallée|![](/fr-FR/2023/04/202304202200Gevaudan.jpg)|
+202304212200|EarthDayFox|Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Rusé, vous avez dit rusé ?|![](/fr-FR/2023/04/202304212200EarthDayFox.jpg)|

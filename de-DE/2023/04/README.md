@@ -21,3 +21,4 @@
 202304182200|TaiwanYuhina|Taiwanesische Yuhinas, Singvögel, Alishan Naturschutzgebiet, Taiwan (© Staffan Widstrand/Minden Pictures)|Ein kuschelndes Paar taiwanesischer Yuhinas|![](/de-DE/2023/04/202304182200TaiwanYuhina.jpg)|
 202304192200|MossyGrottoFalls|Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)|Ist das ein versteckter Wasserfall?|![](/de-DE/2023/04/202304192200MossyGrottoFalls.jpg)|
 202304202200|ProcidaItaly|Procida, Kampanien Italien (© Sean Pavone/Shutterstock)|Eine magische Insel in Süditalien|![](/de-DE/2023/04/202304202200ProcidaItaly.jpg)|
+202304212200|EarthDayFox|Insel-Graufuchs im Channel-Islands Nationalpark, Kalifornien, USA (© Ian Shive/Tandem Stills + Motion)|Einer der schlausten Bewohner unserer Nationalparks|![](/de-DE/2023/04/202304212200EarthDayFox.jpg)|
