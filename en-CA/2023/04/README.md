@@ -21,3 +21,4 @@
 202304190400|TaiwanYuhina|Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)|A cuddling pair of Taiwan yuhina|![](/en-CA/2023/04/202304190400TaiwanYuhina.jpg)|
 202304200400|YuanyangChina|Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)|An iridescent view|![](/en-CA/2023/04/202304200400YuanyangChina.jpg)|
 202304210400|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|A vibrant, sun-drenched island|![](/en-CA/2023/04/202304210400ProcidaItaly.jpg)|
+202304220400|EarthDayFox|Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|Where can you find this cute creature?|![](/en-CA/2023/04/202304220400EarthDayFox.jpg)|
