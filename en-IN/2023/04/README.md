@@ -22,3 +22,4 @@
 202304191830|BeltedGalloway|Belted Galloway cows in Scotland (© JohnFScott/Getty Images)|Black-and-white bovines|![](/en-IN/2023/04/202304191830BeltedGalloway.jpg)|
 202304201830|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|A vibrant, sun-drenched island|![](/en-IN/2023/04/202304201830ProcidaItaly.jpg)|
 202304211830|EarthDayFox|Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|Where can you find this cute creature?|![](/en-IN/2023/04/202304211830EarthDayFox.jpg)|
+202304221830|BandhavgarhNationalPark|Early morning shafts of light through deciduous forest, Bandhavgarh National Park, India (© plainpicture/NPL/Nick Garbutt)|In the spotlight|![](/en-IN/2023/04/202304221830BandhavgarhNationalPark.jpg)|
