@@ -22,3 +22,4 @@
 202304191600|CrestedButteEclispe|克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)|宁静的夜空|![](/zh-CN/2023/04/202304191600CrestedButteEclispe.jpg)|
 202304201600|ProcidaItaly|普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)|充满活力、阳光普照的岛屿|![](/zh-CN/2023/04/202304201600ProcidaItaly.jpg)|
 202304211600|EarthDayFox|岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)|国家公园中狡猾的常住居民|![](/zh-CN/2023/04/202304211600EarthDayFox.jpg)|
+202304221600|Honnavaralavenderfields|日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)|梦幻般的紫色|![](/zh-CN/2023/04/202304221600Honnavaralavenderfields.jpg)|
