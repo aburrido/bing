@@ -22,3 +22,4 @@
 202304191500|JapanKokuu2023|南三ツ谷町の水田, 滋賀県彦根市 (© imagewerks/Getty Images)|水田に映り込む明け方の空|![](/ja-JP/2023/04/202304191500JapanKokuu2023.jpg)|
 202304201500|ProcidaItaly|プローチダ, イタリア カンパニア州 (© Sean Pavone/Shutterstock)|夕暮れ時のプローチダ島|![](/ja-JP/2023/04/202304201500ProcidaItaly.jpg)|
 202304211500|EarthDayFox|チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)|今日はアースデイ|![](/ja-JP/2023/04/202304211500EarthDayFox.jpg)|
+202304221500|StuttgartPublicLibrary|シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)|今日は世界本の日|![](/ja-JP/2023/04/202304221500StuttgartPublicLibrary.jpg)|
