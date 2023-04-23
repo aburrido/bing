@@ -22,3 +22,4 @@
 202304200400|RomanBridge|Pont romain, Cordoue, Espagne (© Jeremy Woodhouse/Getty Images)|Un pont chargé d’histoire|![](/fr-CA/2023/04/202304200400RomanBridge.jpg)|
 202304210400|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|Une vue de rêve|![](/fr-CA/2023/04/202304210400ProcidaItaly.jpg)|
 202304220400|EarthDayFox|Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Vous avez dit rusé?|![](/fr-CA/2023/04/202304220400EarthDayFox.jpg)|
+202304230400|StuttgartPublicLibrary|Bibliothèque municipale de Stuttgart, Allemagne (© Axel Brunst/Tandem Stills + Motion)|Un paradis pour les amoureux des livres|![](/fr-CA/2023/04/202304230400StuttgartPublicLibrary.jpg)|
