@@ -23,3 +23,4 @@
 202304202200|ProcidaItaly|Procida, Kampanien Italien (© Sean Pavone/Shutterstock)|Eine magische Insel in Süditalien|![](/de-DE/2023/04/202304202200ProcidaItaly.jpg)|
 202304212200|EarthDayFox|Insel-Graufuchs im Channel-Islands Nationalpark, Kalifornien, USA (© Ian Shive/Tandem Stills + Motion)|Einer der schlausten Bewohner unserer Nationalparks|![](/de-DE/2023/04/202304212200EarthDayFox.jpg)|
 202304222200|StuttgartPublicLibrary|Stadtbibliothek Stuttgart (© Axel Brunst/Tandem Stills + Motion)|Das Paradies für Bücherliebhaber|![](/de-DE/2023/04/202304222200StuttgartPublicLibrary.jpg)|
+202304232200|FranconianWineCellar|Weinkeller im Bayerischen Wald (© Andreas Zerndl/Getty Images)|Bayerischer Wald, pure Magie|![](/de-DE/2023/04/202304232200FranconianWineCellar.jpg)|
