@@ -24,3 +24,4 @@
 202304212300|EarthDayFox|Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|Where can you find this cute creature?|![](/en-GB/2023/04/202304212300EarthDayFox.jpg)|
 202304222300|CzechRepublic|Monastery, St. George, Prague (© ArTono/Shutterstock)|The beauty of intricate carvings|![](/en-GB/2023/04/202304222300CzechRepublic.jpg)|
 202304232300|FranconianWineCellar|Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)|Hiding in the woods|![](/en-GB/2023/04/202304232300FranconianWineCellar.jpg)|
+202304242300|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on an ice floe|![](/en-GB/2023/04/202304242300AdelieWPD.jpg)|
