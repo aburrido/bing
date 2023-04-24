@@ -24,3 +24,4 @@
 202304211600|EarthDayFox|岛屿灰狐，海峡群岛国家公园，美国加利福尼亚州 (© Ian Shive/Tandem Stills + Motion)|国家公园中狡猾的常住居民|![](/zh-CN/2023/04/202304211600EarthDayFox.jpg)|
 202304221600|Honnavaralavenderfields|日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)|梦幻般的紫色|![](/zh-CN/2023/04/202304221600Honnavaralavenderfields.jpg)|
 202304231600|FranconianWineCellar|巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)|隐藏在树林中|![](/zh-CN/2023/04/202304231600FranconianWineCellar.jpg)|
+202304241600|AdelieWPD|阿德利企鹅 (© David Merron Photography/Getty Images)|在浮冰上休闲放松|![](/zh-CN/2023/04/202304241600AdelieWPD.jpg)|
