@@ -24,3 +24,4 @@
 202304210700|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|Info|![](/en-AU/2023/04/202304210700ProcidaItaly.jpg)|
 202304220700|EarthDayFox|Island fox in Channel Islands National Park, California, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2023/04/202304220700EarthDayFox.jpg)|
 202304230700|Honnavaralavenderfields|Sunrise over misty lavender fields, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2023/04/202304230700Honnavaralavenderfields.jpg)|
+202304240700|FranconianWineCellar|Bavarian Forest wine cellar, Germany (© Andreas_Zerndl/Getty Images)|Info|![](/en-AU/2023/04/202304240700FranconianWineCellar.jpg)|
