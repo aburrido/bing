@@ -23,3 +23,4 @@
 202304210400|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|A vibrant, sun-drenched island|![](/en-CA/2023/04/202304210400ProcidaItaly.jpg)|
 202304220400|EarthDayFox|Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|Where can you find this cute creature?|![](/en-CA/2023/04/202304220400EarthDayFox.jpg)|
 202304230400|StuttgartPublicLibrary|Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)|A book lover’s paradise|![](/en-CA/2023/04/202304230400StuttgartPublicLibrary.jpg)|
+202304240400|FranconianWineCellar|Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)|Hiding in the woods|![](/en-CA/2023/04/202304240400FranconianWineCellar.jpg)|
