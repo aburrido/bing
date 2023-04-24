@@ -24,3 +24,4 @@
 202304211500|EarthDayFox|チャネル諸島国立公園に住むシマハイイロギツネ, 米国 カリフォルニア州 (© Ian Shive/Tandem Stills + Motion)|今日はアースデイ|![](/ja-JP/2023/04/202304211500EarthDayFox.jpg)|
 202304221500|StuttgartPublicLibrary|シュトゥットガルト公共図書館, ドイツ (© Axel Brunst/Tandem Stills + Motion)|今日は世界本の日|![](/ja-JP/2023/04/202304221500StuttgartPublicLibrary.jpg)|
 202304231500|ThreeWildebeest|マサイマラ国立保護区, ケニア (© Matt Polski/Getty Images)|夕暮れのアフリカ大地を歩くヌー|![](/ja-JP/2023/04/202304231500ThreeWildebeest.jpg)|
+202304241500|AdelieWPD|アデリーペンギン, 南極大陸 (© David Merron Photography/Getty Images)|今日は世界ペンギンの日|![](/ja-JP/2023/04/202304241500AdelieWPD.jpg)|
