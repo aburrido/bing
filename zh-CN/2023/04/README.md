@@ -25,3 +25,4 @@
 202304221600|Honnavaralavenderfields|日出时分薄雾笼罩下的薰衣草田，印度 (© Amith Nag Photography/Getty Images)|梦幻般的紫色|![](/zh-CN/2023/04/202304221600Honnavaralavenderfields.jpg)|
 202304231600|FranconianWineCellar|巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)|隐藏在树林中|![](/zh-CN/2023/04/202304231600FranconianWineCellar.jpg)|
 202304241600|AdelieWPD|阿德利企鹅 (© David Merron Photography/Getty Images)|在浮冰上休闲放松|![](/zh-CN/2023/04/202304241600AdelieWPD.jpg)|
+202304251600|GHOAudubonDay|大雕鸮幼崽 (© Michael Morse/Getty Images)|一对大雕鸮|![](/zh-CN/2023/04/202304251600GHOAudubonDay.jpg)|
