@@ -25,3 +25,4 @@
 202304220700|EarthDayFox|Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|Back from the brink|![](/en-US/2023/04/202304220700EarthDayFox.jpg)|
 202304230700|StuttgartPublicLibrary|Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)|A book lover's paradise|![](/en-US/2023/04/202304230700StuttgartPublicLibrary.jpg)|
 202304240700|FranconianWineCellar|Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)|Beneath the woods|![](/en-US/2023/04/202304240700FranconianWineCellar.jpg)|
+202304250700|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on World Penguin Day|![](/en-US/2023/04/202304250700AdelieWPD.jpg)|
