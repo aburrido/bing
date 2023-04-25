@@ -24,3 +24,4 @@
 202304220400|EarthDayFox|Renard gris insulaire, archipel Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Vous avez dit rusé?|![](/fr-CA/2023/04/202304220400EarthDayFox.jpg)|
 202304230400|StuttgartPublicLibrary|Bibliothèque municipale de Stuttgart, Allemagne (© Axel Brunst/Tandem Stills + Motion)|Un paradis pour les amoureux des livres|![](/fr-CA/2023/04/202304230400StuttgartPublicLibrary.jpg)|
 202304240400|FranconianWineCellar|Cave à vin dans la forêt de Bavière, Allemagne (© Andreas Zerndl/Getty Images)|Le toit vert de l’Europe|![](/fr-CA/2023/04/202304240400FranconianWineCellar.jpg)|
+202304250400|AdelieWPD|Manchots Adélie en Antarctique (© David Merron Photography/Getty Images)|Une petite pause sur la banquise|![](/fr-CA/2023/04/202304250400AdelieWPD.jpg)|
