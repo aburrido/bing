@@ -26,3 +26,4 @@
 202304230700|Honnavaralavenderfields|Sunrise over misty lavender fields, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2023/04/202304230700Honnavaralavenderfields.jpg)|
 202304240700|FranconianWineCellar|Bavarian Forest wine cellar, Germany (© Andreas_Zerndl/Getty Images)|Info|![](/en-AU/2023/04/202304240700FranconianWineCellar.jpg)|
 202304250700|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Info|![](/en-AU/2023/04/202304250700AdelieWPD.jpg)|
+202304260700|GHOAudubonDay|Great horned owl fledglings (© Michael Morse/Getty Images)|Info|![](/en-AU/2023/04/202304260700GHOAudubonDay.jpg)|

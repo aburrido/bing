@@ -26,3 +26,4 @@
 202304230700|StuttgartPublicLibrary|Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)|A book lover's paradise|![](/en-US/2023/04/202304230700StuttgartPublicLibrary.jpg)|
 202304240700|FranconianWineCellar|Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)|Beneath the woods|![](/en-US/2023/04/202304240700FranconianWineCellar.jpg)|
 202304250700|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on World Penguin Day|![](/en-US/2023/04/202304250700AdelieWPD.jpg)|
+202304260700|GHOAudubonDay|Great horned owl fledglings (© Michael Morse/Getty Images)|Destined for greatness|![](/en-US/2023/04/202304260700GHOAudubonDay.jpg)|
