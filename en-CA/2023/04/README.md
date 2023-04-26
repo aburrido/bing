@@ -25,3 +25,4 @@
 202304230400|StuttgartPublicLibrary|Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)|A book lover’s paradise|![](/en-CA/2023/04/202304230400StuttgartPublicLibrary.jpg)|
 202304240400|FranconianWineCellar|Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)|Hiding in the woods|![](/en-CA/2023/04/202304240400FranconianWineCellar.jpg)|
 202304250400|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on an ice floe|![](/en-CA/2023/04/202304250400AdelieWPD.jpg)|
+202304260400|SulphurMountain|Cave and Basin National Historic Site, Sulphur Mountain, Banff National Park, Alberta (© Interfoto/DanitaDelimont.com)|The origin of Canada's national parks|![](/en-CA/2023/04/202304260400SulphurMountain.jpg)|

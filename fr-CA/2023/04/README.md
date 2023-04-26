@@ -25,3 +25,4 @@
 202304230400|StuttgartPublicLibrary|Bibliothèque municipale de Stuttgart, Allemagne (© Axel Brunst/Tandem Stills + Motion)|Un paradis pour les amoureux des livres|![](/fr-CA/2023/04/202304230400StuttgartPublicLibrary.jpg)|
 202304240400|FranconianWineCellar|Cave à vin dans la forêt de Bavière, Allemagne (© Andreas Zerndl/Getty Images)|Le toit vert de l’Europe|![](/fr-CA/2023/04/202304240400FranconianWineCellar.jpg)|
 202304250400|AdelieWPD|Manchots Adélie en Antarctique (© David Merron Photography/Getty Images)|Une petite pause sur la banquise|![](/fr-CA/2023/04/202304250400AdelieWPD.jpg)|
+202304260400|SulphurMountain|Lieu Historique National Cave and Basin, Mont Sulphur, Parc National de Banff, Alberta (© Interfoto/DanitaDelimont.com)|L’origine des Parcs Nationaux du Canada|![](/fr-CA/2023/04/202304260400SulphurMountain.jpg)|
