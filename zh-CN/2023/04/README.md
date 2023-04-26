@@ -26,3 +26,4 @@
 202304231600|FranconianWineCellar|巴伐利亚森林酒窖，德国 (© Andreas_Zerndl/Getty Images)|隐藏在树林中|![](/zh-CN/2023/04/202304231600FranconianWineCellar.jpg)|
 202304241600|AdelieWPD|阿德利企鹅 (© David Merron Photography/Getty Images)|在浮冰上休闲放松|![](/zh-CN/2023/04/202304241600AdelieWPD.jpg)|
 202304251600|GHOAudubonDay|大雕鸮幼崽 (© Michael Morse/Getty Images)|一对大雕鸮|![](/zh-CN/2023/04/202304251600GHOAudubonDay.jpg)|
+202304261600|SouthPadre|南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)|一望无际的天空|![](/zh-CN/2023/04/202304261600SouthPadre.jpg)|
