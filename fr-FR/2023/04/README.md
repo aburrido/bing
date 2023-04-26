@@ -26,3 +26,4 @@
 202304232200|FranconianWineCellar|Cave à vin dans la forêt de Bavière, Allemagne (© Andreas Zerndl/Getty Images)|Le toit vert de l’Europe|![](/fr-FR/2023/04/202304232200FranconianWineCellar.jpg)|
 202304242200|AdelieWPD|Manchots Adélie en Antarctique (© David Merron Photography/Getty Images)|Une petite pause sur la banquise|![](/fr-FR/2023/04/202304242200AdelieWPD.jpg)|
 202304252200|GHOAudubonDay|Grand-duc d’Amérique (© Michael Morse/Getty Images)|Chouette, deux hibous !|![](/fr-FR/2023/04/202304252200GHOAudubonDay.jpg)|
+202304262200|SouthPadre|Île de South Padre, Texas, États-Unis (© Jeff R Clow/Getty Images)|Le ciel est la limite…|![](/fr-FR/2023/04/202304262200SouthPadre.jpg)|
