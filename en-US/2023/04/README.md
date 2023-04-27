@@ -27,3 +27,4 @@
 202304240700|FranconianWineCellar|Old underground cellar, Bavaria, Germany (© Andreas Zerndl/Getty Images)|Beneath the woods|![](/en-US/2023/04/202304240700FranconianWineCellar.jpg)|
 202304250700|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on World Penguin Day|![](/en-US/2023/04/202304250700AdelieWPD.jpg)|
 202304260700|GHOAudubonDay|Great horned owl fledglings (© Michael Morse/Getty Images)|Destined for greatness|![](/en-US/2023/04/202304260700GHOAudubonDay.jpg)|
+202304270700|SouthPadre|South Padre Island, Texas (© Jeff R Clow/Getty Images)|An endless stretch of sky|![](/en-US/2023/04/202304270700SouthPadre.jpg)|
