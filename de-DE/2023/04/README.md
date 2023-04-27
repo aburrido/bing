@@ -27,3 +27,4 @@
 202304242200|NaturalHeritageCenter|Baumwipfelpfad Naturerbezentrum Rügen bei Prora, Rügen (© Sabine Lubenow/Huber/eStock Photo)|Wo steht dieser imposante Baum?|![](/de-DE/2023/04/202304242200NaturalHeritageCenter.jpg)|
 202304252200|GHOAudubonDay|Jungvögel des Virginia-Uhus (© Michael Morse/Getty Images)|Witzige Kreaturen|![](/de-DE/2023/04/202304252200GHOAudubonDay.jpg)|
 202304262200|SouthPadre|South Padre Island, Texas, USA (© Jeff R Clow/Getty Images)|Unendlicher Himmel|![](/de-DE/2023/04/202304262200SouthPadre.jpg)|
+202304272200|MariposaGrove|Mariposa Grove im Yosemite-Nationalpark, Kalifornien, USA (© Orbon Alija/Getty Images)|Riesige Bäume, so groß wie Kyklopen|![](/de-DE/2023/04/202304272200MariposaGrove.jpg)|
