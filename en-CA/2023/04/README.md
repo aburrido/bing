@@ -26,3 +26,4 @@
 202304240400|FranconianWineCellar|Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)|Hiding in the woods|![](/en-CA/2023/04/202304240400FranconianWineCellar.jpg)|
 202304250400|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on an ice floe|![](/en-CA/2023/04/202304250400AdelieWPD.jpg)|
 202304260400|SulphurMountain|Cave and Basin National Historic Site, Sulphur Mountain, Banff National Park, Alberta (© Interfoto/DanitaDelimont.com)|The origin of Canada's national parks|![](/en-CA/2023/04/202304260400SulphurMountain.jpg)|
+202304270400|SouthPadre|South Padre Island, Texas (© Jeff R Clow/Getty Images)|An endless stretch of sky|![](/en-CA/2023/04/202304270400SouthPadre.jpg)|
