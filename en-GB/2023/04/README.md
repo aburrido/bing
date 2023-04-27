@@ -27,3 +27,4 @@
 202304242300|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Chilling out on an ice floe|![](/en-GB/2023/04/202304242300AdelieWPD.jpg)|
 202304252300|GHOAudubonDay|Great horned owl fledglings (© Michael Morse/Getty Images)|Just a couple of 'know-it-owls'|![](/en-GB/2023/04/202304252300GHOAudubonDay.jpg)|
 202304262300|SouthPadre|South Padre Island, Texas (© Jeff R Clow/Getty Images)|An endless stretch of sky|![](/en-GB/2023/04/202304262300SouthPadre.jpg)|
+202304272300|MariposaGrove|Mariposa Grove in Yosemite National Park, California (© Orbon Alija/Getty Images)|Warm light through an ancient forest|![](/en-GB/2023/04/202304272300MariposaGrove.jpg)|
