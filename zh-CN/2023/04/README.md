@@ -27,3 +27,4 @@
 202304241600|AdelieWPD|阿德利企鹅 (© David Merron Photography/Getty Images)|在浮冰上休闲放松|![](/zh-CN/2023/04/202304241600AdelieWPD.jpg)|
 202304251600|GHOAudubonDay|大雕鸮幼崽 (© Michael Morse/Getty Images)|一对大雕鸮|![](/zh-CN/2023/04/202304251600GHOAudubonDay.jpg)|
 202304261600|SouthPadre|南帕德里岛，美国得克萨斯州 (© Jeff R Clow/Getty Images)|一望无际的天空|![](/zh-CN/2023/04/202304261600SouthPadre.jpg)|
+202304271600|MariposaGrove|优胜美地国家公园的马里波萨谷巨杉林，美国加利福尼亚州 (© Orbon Alija/Getty Images)|温暖的阳光穿过古老森林|![](/zh-CN/2023/04/202304271600MariposaGrove.jpg)|
