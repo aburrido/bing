@@ -28,3 +28,4 @@
 202304252200|GHOAudubonDay|Grand-duc d’Amérique (© Michael Morse/Getty Images)|Chouette, deux hibous !|![](/fr-FR/2023/04/202304252200GHOAudubonDay.jpg)|
 202304262200|SouthPadre|Île de South Padre, Texas, États-Unis (© Jeff R Clow/Getty Images)|Le ciel est la limite…|![](/fr-FR/2023/04/202304262200SouthPadre.jpg)|
 202304272200|MariposaGrove|Forêt de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)|Des arbres millénaires|![](/fr-FR/2023/04/202304272200MariposaGrove.jpg)|
+202304282200|JTNPMilkyWay|Voie lactée au-dessus du Parc National de Joshua Tree, Californie, États-Unis (© Schroptschop/Getty Images)|Un océan d’étoiles au-dessus du désert|![](/fr-FR/2023/04/202304282200JTNPMilkyWay.jpg)|
