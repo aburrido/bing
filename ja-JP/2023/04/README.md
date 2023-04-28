@@ -28,3 +28,4 @@
 202304251500|GHOAudubonDay|アメリカワシミミズク  (© Michael Morse/Getty Images)|木の枝にとまるフクロウたち|![](/ja-JP/2023/04/202304251500GHOAudubonDay.jpg)|
 202304261500|SouthPadre|サウス・パドレ島, 米国 テキサス州 (© Jeff R Clow/Getty Images)|海につながる木の遊歩道|![](/ja-JP/2023/04/202304261500SouthPadre.jpg)|
 202304271500|MariposaGrove|ヨセミテ国立公園にあるマリポサグローブ, 米国 カリフォルニア州 (© Orbon Alija/Getty Images)|今日は米国の植樹祭|![](/ja-JP/2023/04/202304271500MariposaGrove.jpg)|
+202304281500|JTNPMilkyWay|ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Schroptschop/Getty Images)|今日は世界天文学の日|![](/ja-JP/2023/04/202304281500JTNPMilkyWay.jpg)|
