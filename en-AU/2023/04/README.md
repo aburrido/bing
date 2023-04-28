@@ -28,3 +28,4 @@
 202304250700|AdelieWPD|Adélie penguins in Antarctica (© David Merron Photography/Getty Images)|Info|![](/en-AU/2023/04/202304250700AdelieWPD.jpg)|
 202304260700|GHOAudubonDay|Great horned owl fledglings (© Michael Morse/Getty Images)|Info|![](/en-AU/2023/04/202304260700GHOAudubonDay.jpg)|
 202304270700|SouthPadre|South Padre Island, Texas, USA (© Jeff R Clow/Getty Images)|Info|![](/en-AU/2023/04/202304270700SouthPadre.jpg)|
+202304280700|MariposaGrove|Mariposa Grove in Yosemite National Park, California, USA (© Orbon Alija/Getty Images)|Info|![](/en-AU/2023/04/202304280700MariposaGrove.jpg)|
