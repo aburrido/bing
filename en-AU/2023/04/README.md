@@ -29,3 +29,4 @@
 202304260700|GHOAudubonDay|Great horned owl fledglings (© Michael Morse/Getty Images)|Info|![](/en-AU/2023/04/202304260700GHOAudubonDay.jpg)|
 202304270700|SouthPadre|South Padre Island, Texas, USA (© Jeff R Clow/Getty Images)|Info|![](/en-AU/2023/04/202304270700SouthPadre.jpg)|
 202304280700|MariposaGrove|Mariposa Grove in Yosemite National Park, California, USA (© Orbon Alija/Getty Images)|Info|![](/en-AU/2023/04/202304280700MariposaGrove.jpg)|
+202304290700|JTNPMilkyWay|Milky Way over Joshua Tree National Park, California, USA (© Schroptschop/Getty Images)|Info|![](/en-AU/2023/04/202304290700JTNPMilkyWay.jpg)|
