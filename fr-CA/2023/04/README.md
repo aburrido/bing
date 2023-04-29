@@ -28,3 +28,4 @@
 202304260400|SulphurMountain|Lieu Historique National Cave and Basin, Mont Sulphur, Parc National de Banff, Alberta (© Interfoto/DanitaDelimont.com)|L’origine des Parcs Nationaux du Canada|![](/fr-CA/2023/04/202304260400SulphurMountain.jpg)|
 202304270400|SouthPadre|Île de South Padre, Texas, États-Unis (© Jeff R Clow/Getty Images)|Le ciel est la limite…|![](/fr-CA/2023/04/202304270400SouthPadre.jpg)|
 202304280400|MariposaGrove|Fôret de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)|Douce lumière à travers une forêt millénaire|![](/fr-CA/2023/04/202304280400MariposaGrove.jpg)|
+202304290400|JTNPMilkyWay|Voie lactée sur le Parc National de Joshua Tree, Californie, États-Unis (© Schroptschop/Getty Images)|Un océan d’étoiles au-dessus du désert|![](/fr-CA/2023/04/202304290400JTNPMilkyWay.jpg)|
