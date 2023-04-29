@@ -29,3 +29,4 @@
 202304261830|SouthPadre|South Padre Island, Texas (© Jeff R Clow/Getty Images)|An endless stretch of sky|![](/en-IN/2023/04/202304261830SouthPadre.jpg)|
 202304271830|MariposaGrove|Mariposa Grove in Yosemite National Park, California (© Orbon Alija/Getty Images)|Warm light through an ancient forest|![](/en-IN/2023/04/202304271830MariposaGrove.jpg)|
 202304281830|JTNPMilkyWay|Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)|An ocean of stars above the desert|![](/en-IN/2023/04/202304281830JTNPMilkyWay.jpg)|
+202304291830|TheHawaMahal|Interior of Hawa Mahal or Palace of Winds, India (© Inti St Clair/age fotostock)|A feel of an era bygone|![](/en-IN/2023/04/202304291830TheHawaMahal.jpg)|
