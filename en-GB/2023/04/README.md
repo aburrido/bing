@@ -29,3 +29,4 @@
 202304262300|SouthPadre|South Padre Island, Texas (© Jeff R Clow/Getty Images)|An endless stretch of sky|![](/en-GB/2023/04/202304262300SouthPadre.jpg)|
 202304272300|MariposaGrove|Mariposa Grove in Yosemite National Park, California (© Orbon Alija/Getty Images)|Warm light through an ancient forest|![](/en-GB/2023/04/202304272300MariposaGrove.jpg)|
 202304282300|JTNPMilkyWay|Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)|An ocean of stars above the desert|![](/en-GB/2023/04/202304282300JTNPMilkyWay.jpg)|
+202304292300|ExteriorPreservationHall|Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)|A day of swing and celebration|![](/en-GB/2023/04/202304292300ExteriorPreservationHall.jpg)|
