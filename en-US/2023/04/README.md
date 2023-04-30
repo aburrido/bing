@@ -30,3 +30,4 @@
 202304270700|SouthPadre|South Padre Island, Texas (© Jeff R Clow/Getty Images)|An endless stretch of sky|![](/en-US/2023/04/202304270700SouthPadre.jpg)|
 202304280700|MariposaGrove|Mariposa Grove of Giant Sequoias in Yosemite National Park, California (© Orbon Alija/Getty Images)|The giants of Yosemite|![](/en-US/2023/04/202304280700MariposaGrove.jpg)|
 202304290700|JTNPMilkyWay|Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)|Gazing into infinity|![](/en-US/2023/04/202304290700JTNPMilkyWay.jpg)|
+202304300700|ExteriorPreservationHall|Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)|A day of swing and celebration|![](/en-US/2023/04/202304300700ExteriorPreservationHall.jpg)|

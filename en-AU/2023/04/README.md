@@ -30,3 +30,4 @@
 202304270700|SouthPadre|South Padre Island, Texas, USA (© Jeff R Clow/Getty Images)|Info|![](/en-AU/2023/04/202304270700SouthPadre.jpg)|
 202304280700|MariposaGrove|Mariposa Grove in Yosemite National Park, California, USA (© Orbon Alija/Getty Images)|Info|![](/en-AU/2023/04/202304280700MariposaGrove.jpg)|
 202304290700|JTNPMilkyWay|Milky Way over Joshua Tree National Park, California, USA (© Schroptschop/Getty Images)|Info|![](/en-AU/2023/04/202304290700JTNPMilkyWay.jpg)|
+202304300700|TempleE|Temple E at Selinunte, Sicily, Italy (© Antonino Bartuccio/eStock)|Info|![](/en-AU/2023/04/202304300700TempleE.jpg)|
