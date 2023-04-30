@@ -30,3 +30,4 @@
 202304271830|MariposaGrove|Mariposa Grove in Yosemite National Park, California (© Orbon Alija/Getty Images)|Warm light through an ancient forest|![](/en-IN/2023/04/202304271830MariposaGrove.jpg)|
 202304281830|JTNPMilkyWay|Milky Way over Joshua Tree National Park, California (© Schroptschop/Getty Images)|An ocean of stars above the desert|![](/en-IN/2023/04/202304281830JTNPMilkyWay.jpg)|
 202304291830|TheHawaMahal|Interior of Hawa Mahal or Palace of Winds, India (© Inti St Clair/age fotostock)|A feel of an era bygone|![](/en-IN/2023/04/202304291830TheHawaMahal.jpg)|
+202304301830|QuebecCityBridge|Quebec Bridge across the lower Saint Lawrence River, Canada (© Ronald Santerre/Getty Images)|Spanning the soft sunlight|![](/en-IN/2023/04/202304301830QuebecCityBridge.jpg)|
