@@ -30,3 +30,4 @@
 202304272200|MariposaGrove|Forêt de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)|Des arbres millénaires|![](/fr-FR/2023/04/202304272200MariposaGrove.jpg)|
 202304282200|JTNPMilkyWay|Voie lactée au-dessus du Parc National de Joshua Tree, Californie, États-Unis (© Schroptschop/Getty Images)|Un océan d’étoiles au-dessus du désert|![](/fr-FR/2023/04/202304282200JTNPMilkyWay.jpg)|
 202304292200|ExteriorPreservationHall|Preservation Hall, Nouvelle-Orléans, Louisiane (© Cosmo Condina North America/Alamy)|Du swing et du Jazz !|![](/fr-FR/2023/04/202304292200ExteriorPreservationHall.jpg)|
+202304302200|LilyLaborDay|Muguet de mai en fleurs (© shapencolour/Alamy Stock Photo)|Un petit brin de bonheur !|![](/fr-FR/2023/04/202304302200LilyLaborDay.jpg)|

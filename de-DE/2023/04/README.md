@@ -30,3 +30,4 @@
 202304272200|MariposaGrove|Mariposa Grove im Yosemite-Nationalpark, Kalifornien, USA (© Orbon Alija/Getty Images)|Riesige Bäume, so groß wie Kyklopen|![](/de-DE/2023/04/202304272200MariposaGrove.jpg)|
 202304282200|JTNPMilkyWay|Milchstraße über dem Joshua-Tree-National-Park, Kalifornien, USA (© Schroptschop/Getty Images)|Ein Sternenmeer über der Wüste|![](/de-DE/2023/04/202304282200JTNPMilkyWay.jpg)|
 202304292200|ExteriorPreservationHall|Preservation Hall, New Orleans, Louisiana, USA (© Cosmo Condina North America/Alamy)|Swing Jazz Swing|![](/de-DE/2023/04/202304292200ExteriorPreservationHall.jpg)|
+202304302200|SunflowerBee|Biene im Sonnenblumenfeld bei Fresdorf (© Ralf Hirschberger/dpa-Zentralbild/dpa/Alamy Live News)|Arbeiten Bienen am 1. Mai?|![](/de-DE/2023/04/202304302200SunflowerBee.jpg)|
