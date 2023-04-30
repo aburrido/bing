@@ -29,3 +29,4 @@
 202304270400|SouthPadre|Île de South Padre, Texas, États-Unis (© Jeff R Clow/Getty Images)|Le ciel est la limite…|![](/fr-CA/2023/04/202304270400SouthPadre.jpg)|
 202304280400|MariposaGrove|Fôret de séquoias géants de Mariposa Grove, Yosemite, Californie, États-Unis (© Orbon Alija/Getty Images)|Douce lumière à travers une forêt millénaire|![](/fr-CA/2023/04/202304280400MariposaGrove.jpg)|
 202304290400|JTNPMilkyWay|Voie lactée sur le Parc National de Joshua Tree, Californie, États-Unis (© Schroptschop/Getty Images)|Un océan d’étoiles au-dessus du désert|![](/fr-CA/2023/04/202304290400JTNPMilkyWay.jpg)|
+202304300400|ExteriorPreservationHall|Preservation Hall, Nouvelle-Orléans, Louisiane, États-Unis (© Cosmo Condina North America/Alamy)|Une journée de swing et de fête|![](/fr-CA/2023/04/202304300400ExteriorPreservationHall.jpg)|
