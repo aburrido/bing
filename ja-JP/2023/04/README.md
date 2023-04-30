@@ -30,3 +30,4 @@
 202304271500|MariposaGrove|ヨセミテ国立公園にあるマリポサグローブ, 米国 カリフォルニア州 (© Orbon Alija/Getty Images)|今日は米国の植樹祭|![](/ja-JP/2023/04/202304271500MariposaGrove.jpg)|
 202304281500|JTNPMilkyWay|ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Schroptschop/Getty Images)|今日は世界天文学の日|![](/ja-JP/2023/04/202304281500JTNPMilkyWay.jpg)|
 202304291500|ExteriorPreservationHall|プリザベーション・ホール, 米国 ルイジアナ州 (© Cosmo Condina North America/Alamy)|今日は国際ジャズ・デー|![](/ja-JP/2023/04/202304291500ExteriorPreservationHall.jpg)|
+202304301500|KlostersSerneus|シルブレッタアルプスと湖, スイス (© Florin Baumann/Getty Images)|青く輝く湖と険しい山々|![](/ja-JP/2023/04/202304301500KlostersSerneus.jpg)|
