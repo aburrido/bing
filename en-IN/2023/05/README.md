@@ -5,3 +5,4 @@
 202305021830|ThreeWildebeest|Wildebeests in the Maasai Mara, Kenya (© Matt Polski/Getty Images)|The animal kingdom's great migration|![](/en-IN/2023/05/202305021830ThreeWildebeest.jpg)|
 202305031830|RebelBase|Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)|May the 4th be with you|![](/en-IN/2023/05/202305031830RebelBase.jpg)|
 202305041830|Popocatepetl|Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)|A church atop a hill|![](/en-IN/2023/05/202305041830Popocatepetl.jpg)|
+202305051830|HwangmaesanAzaleas|Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)|Positively purple peaks|![](/en-IN/2023/05/202305051830HwangmaesanAzaleas.jpg)|
