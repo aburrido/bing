@@ -6,3 +6,4 @@
 202305032300|RebelBase|Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)|May the 4th be with you|![](/en-GB/2023/05/202305032300RebelBase.jpg)|
 202305042300|Popocatepetl|Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)|From victory to festivity|![](/en-GB/2023/05/202305042300Popocatepetl.jpg)|
 202305052300|CollegiateChurch|Westminster Abbey Church, England, UK (© IR Stone/Shutterstock)|An architectural masterpiece fit for a king|![](/en-GB/2023/05/202305052300CollegiateChurch.jpg)|
+202305062300|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|What's so funny?|![](/en-GB/2023/05/202305062300SealLaughing.jpg)|
