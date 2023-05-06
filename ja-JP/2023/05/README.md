@@ -6,3 +6,4 @@
 202305031500|RebelBase|ティカル国立公園にあるマヤ遺跡, グアテマラ (© THP Creative/Getty Images)|今日はスター・ウォーズの日|![](/ja-JP/2023/05/202305031500RebelBase.jpg)|
 202305041500|ChildDay2023|風に泳ぐ鯉のぼり (© rai/Adobe Stock)|今日はこどもの日|![](/ja-JP/2023/05/202305041500ChildDay2023.jpg)|
 202305051500|HwangmaesanAzaleas|黄梅山, 韓国 (© Stock for you/Shutterstock)|山肌を紫色に染めるツツジ|![](/ja-JP/2023/05/202305051500HwangmaesanAzaleas.jpg)|
+202305061500|SealLaughing|ランディ島, イギリス イングランド (© Henley Spiers/Minden Pictures)|今日は世界笑いの日|![](/ja-JP/2023/05/202305061500SealLaughing.jpg)|
