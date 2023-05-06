@@ -6,3 +6,4 @@
 202305031830|RebelBase|Mayan ruins in Tikal, Guatemala (© THP Creative/Getty Images)|May the 4th be with you|![](/en-IN/2023/05/202305031830RebelBase.jpg)|
 202305041830|Popocatepetl|Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)|A church atop a hill|![](/en-IN/2023/05/202305041830Popocatepetl.jpg)|
 202305051830|HwangmaesanAzaleas|Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)|Positively purple peaks|![](/en-IN/2023/05/202305051830HwangmaesanAzaleas.jpg)|
+202305061830|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|What's so funny?|![](/en-IN/2023/05/202305061830SealLaughing.jpg)|
