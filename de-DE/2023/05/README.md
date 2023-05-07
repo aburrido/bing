@@ -7,3 +7,4 @@
 202305042200|Popocatepetl|Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)|Vulkane und Liebe?|![](/de-DE/2023/05/202305042200Popocatepetl.jpg)|
 202305052200|RheininFlammen|Feuerwerk in Speyer Rheinland-Pfalz (© Janny2/iStock/Getty Images Plus)|Speyer-Feier|![](/de-DE/2023/05/202305052200RheininFlammen.jpg)|
 202305062200|SealLaughing|Kegelrobbenwelpen, Lundy Island, England (© Henley Spiers/Minden Pictures)|Was gibt's da zu lachen?|![](/de-DE/2023/05/202305062200SealLaughing.jpg)|
+202305072200|TheChaps|Delicate Arch, Arches Nationalpark, Utah, Vereinigte Staaten (© Mark Brodkin Photography/Getty Images)|Jahrhunderte Geschichte allein in diesem Bogen|![](/de-DE/2023/05/202305072200TheChaps.jpg)|

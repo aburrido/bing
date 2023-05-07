@@ -7,3 +7,4 @@
 202305042200|Popocatepetl|Église Nuestra Señora de los Remedios, Puebla, Mexique (© Radius Images/Shutterstock)|Viva Mexico !|![](/fr-FR/2023/05/202305042200Popocatepetl.jpg)|
 202305052200|HwangmaesanAzaleas|Azalées en fleurs, montagne Hwangmaesan, Corée du Sud (© Stock for you/Shutterstock)|Où se trouvent ces fleurs violettes ?|![](/fr-FR/2023/05/202305052200HwangmaesanAzaleas.jpg)|
 202305062200|SealLaughing|Bébé phoque, île de Lundy, Angleterre (© Henley Spiers/Minden Pictures)|C’est la journée de la rigolade !|![](/fr-FR/2023/05/202305062200SealLaughing.jpg)|
+202305072200|Huitmai|Port Vieux-Bassin de Honfleur, Calvados, Normandie (© Francesco Carovillano/SOPA Collection/Shutterstock)|Un port historique|![](/fr-FR/2023/05/202305072200Huitmai.jpg)|
