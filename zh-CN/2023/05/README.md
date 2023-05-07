@@ -7,3 +7,4 @@
 202305041600|Popocatepetl|普埃布拉天主堂和波波卡特佩特火山，普埃布拉，墨西哥 (© Radius Images/Shutterstock)|从胜利到欢庆|![](/zh-CN/2023/05/202305041600Popocatepetl.jpg)|
 202305051600|Kornblume|大麦和矢车菊, 诺德豪森, 德国 (© Mandy Tabatt/Getty Images)|一片花田|![](/zh-CN/2023/05/202305051600Kornblume.jpg)|
 202305061600|SealLaughing|海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)|什么事这么好笑？|![](/zh-CN/2023/05/202305061600SealLaughing.jpg)|
+202305071600|TheChaps|精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images)|藏在精致拱门里的百年时光|![](/zh-CN/2023/05/202305071600TheChaps.jpg)|
