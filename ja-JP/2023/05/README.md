@@ -7,3 +7,4 @@
 202305041500|ChildDay2023|風に泳ぐ鯉のぼり (© rai/Adobe Stock)|今日はこどもの日|![](/ja-JP/2023/05/202305041500ChildDay2023.jpg)|
 202305051500|HwangmaesanAzaleas|黄梅山, 韓国 (© Stock for you/Shutterstock)|山肌を紫色に染めるツツジ|![](/ja-JP/2023/05/202305051500HwangmaesanAzaleas.jpg)|
 202305061500|SealLaughing|ランディ島, イギリス イングランド (© Henley Spiers/Minden Pictures)|今日は世界笑いの日|![](/ja-JP/2023/05/202305061500SealLaughing.jpg)|
+202305071500|TheChaps|アーチーズ国立公園, 米国 ユタ州 (© Mark Brodkin Photography/Getty Images)|夕日に染まるデリケート・アーチ|![](/ja-JP/2023/05/202305071500TheChaps.jpg)|
