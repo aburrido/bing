@@ -7,3 +7,4 @@
 ||||![](/fr-CA/2023/05/.jpg)|
 202305050400|Popocatepetl|Église Nuestra Señora de los Remedios, Puebla, Mexique (© Radius Images/Shutterstock)|Le Mexique est en fête aujourd’hui!|![](/fr-CA/2023/05/202305050400Popocatepetl.jpg)|
 202305060400|HwangmaesanAzaleas|Azalées en fleurs, montagne Hwangmaesan, Corée du Sud (© Stock for you/Shutterstock)|Du pourpre à perte de vue|![](/fr-CA/2023/05/202305060400HwangmaesanAzaleas.jpg)|
+202305070400|SealLaughing|Bébé phoque, île de Lundy, Angleterre (© Henley Spiers/Minden Pictures)|C’est la journée de la rigolade!|![](/fr-CA/2023/05/202305070400SealLaughing.jpg)|
