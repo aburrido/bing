@@ -8,3 +8,4 @@
 202305052300|CollegiateChurch|Westminster Abbey Church, England, UK (© IR Stone/Shutterstock)|An architectural masterpiece fit for a king|![](/en-GB/2023/05/202305052300CollegiateChurch.jpg)|
 202305062300|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|What's so funny?|![](/en-GB/2023/05/202305062300SealLaughing.jpg)|
 202305072300|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Centuries of time in a Delicate Arch|![](/en-GB/2023/05/202305072300TheChaps.jpg)|
+202305082300|TheYorkshireDales|The Yorkshire Dales, UK (© Jeremy Walker/Getty Images)|Rolling hills and charming villages|![](/en-GB/2023/05/202305082300TheYorkshireDales.jpg)|
