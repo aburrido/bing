@@ -8,3 +8,4 @@
 202305050700|BasilicataMatera|Sasso Caveoso, Basilicata, Matera, Italy (© Riccardo Spila/eStock)|Info|![](/en-AU/2023/05/202305050700BasilicataMatera.jpg)|
 202305060700|Kornblume|Barley and cornflowers, Nordhausen, Germany (© Mandy Tabatt/Getty Images)|Info|![](/en-AU/2023/05/202305060700Kornblume.jpg)|
 202305070700|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|Info|![](/en-AU/2023/05/202305070700SealLaughing.jpg)|
+202305080700|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Info|![](/en-AU/2023/05/202305080700TheChaps.jpg)|
