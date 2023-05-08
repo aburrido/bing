@@ -7,3 +7,4 @@
 202305050400|Popocatepetl|Church of Nuestra Señora de los Remedios and Popocatépetl, Puebla, Mexico (© Radius Images/Shutterstock)|From victory to festivity|![](/en-CA/2023/05/202305050400Popocatepetl.jpg)|
 202305060400|HwangmaesanAzaleas|Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)|Positively purple peaks|![](/en-CA/2023/05/202305060400HwangmaesanAzaleas.jpg)|
 202305070400|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|What's so funny?|![](/en-CA/2023/05/202305070400SealLaughing.jpg)|
+202305080400|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Centuries of time in a Delicate Arch|![](/en-CA/2023/05/202305080400TheChaps.jpg)|
