@@ -9,3 +9,4 @@
 202305062200|SealLaughing|Bébé phoque, île de Lundy, Angleterre (© Henley Spiers/Minden Pictures)|C’est la journée de la rigolade !|![](/fr-FR/2023/05/202305062200SealLaughing.jpg)|
 202305072200|Huitmai|Port Vieux-Bassin de Honfleur, Calvados, Normandie (© Francesco Carovillano/SOPA Collection/Shutterstock)|Un port historique|![](/fr-FR/2023/05/202305072200Huitmai.jpg)|
 202305082200|TheChaps|Delicate Arch, Parc National des Arches, Utah, États-Unis (© Mark Brodkin Photography/Getty Images)|Où se trouve cette arche majestueuse ?|![](/fr-FR/2023/05/202305082200TheChaps.jpg)|
+202305092200|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Connaissez-vous le Roi des Phares ?|![](/fr-FR/2023/05/202305092200CordouanLighthouse.jpg)|

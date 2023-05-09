@@ -9,3 +9,4 @@
 202305062200|SealLaughing|Kegelrobbenwelpen, Lundy Island, England (© Henley Spiers/Minden Pictures)|Was gibt's da zu lachen?|![](/de-DE/2023/05/202305062200SealLaughing.jpg)|
 202305072200|TheChaps|Delicate Arch, Arches Nationalpark, Utah, Vereinigte Staaten (© Mark Brodkin Photography/Getty Images)|Jahrhunderte Geschichte allein in diesem Bogen|![](/de-DE/2023/05/202305072200TheChaps.jpg)|
 202305082200|Atoll|Kauehi-Atoll, Tuamotu-Archipel, Französisch-Polynesien (© WaterFrame/Alamy)|Weißer Strand, kristallblaues Meer. Sind wir hier im Paradies?|![](/de-DE/2023/05/202305082200Atoll.jpg)|
+202305092200|CordouanLighthouse|Leuchtturm von Cordouan, Royan, Charente, Frankreich (© FRTimelapse/Getty Images)|Fast wie ein Gemälde der Romantik von Caspar David Friedrich|![](/de-DE/2023/05/202305092200CordouanLighthouse.jpg)|
