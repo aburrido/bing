@@ -9,3 +9,4 @@
 202305061830|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|What's so funny?|![](/en-IN/2023/05/202305061830SealLaughing.jpg)|
 202305071830|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Centuries of time in a Delicate Arch|![](/en-IN/2023/05/202305071830TheChaps.jpg)|
 202305081830|JimCorbettNationalPark|Backlight sunrays at Jim Corbett National Park (© Swapan Banik/Alamy Stock Photo)|A natural spotlight|![](/en-IN/2023/05/202305081830JimCorbettNationalPark.jpg)|
+202305091830|CordouanLighthouse|Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)|A beacon in the golden light|![](/en-IN/2023/05/202305091830CordouanLighthouse.jpg)|
