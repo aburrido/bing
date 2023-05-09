@@ -9,3 +9,4 @@
 202305060700|HwangmaesanAzaleas|Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)|The purple peaks of Hwangmaesan|![](/en-US/2023/05/202305060700HwangmaesanAzaleas.jpg)|
 202305070700|SealLaughing|Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|Happy World Laughter Day!|![](/en-US/2023/05/202305070700SealLaughing.jpg)|
 202305080700|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Delicate but enduring|![](/en-US/2023/05/202305080700TheChaps.jpg)|
+202305090700|MountCetatea|Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)|A castle fit for a count|![](/en-US/2023/05/202305090700MountCetatea.jpg)|
