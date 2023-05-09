@@ -9,3 +9,4 @@
 202305061600|SealLaughing|海豹幼崽，伦迪岛，英国 (© Henley Spiers/Minden Pictures)|什么事这么好笑？|![](/zh-CN/2023/05/202305061600SealLaughing.jpg)|
 202305071600|TheChaps|精致拱门，拱门国家公园，犹他州 (© Mark Brodkin Photography/Getty Images)|藏在精致拱门里的百年时光|![](/zh-CN/2023/05/202305071600TheChaps.jpg)|
 202305081600|Atoll|卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy)|天堂的一角|![](/zh-CN/2023/05/202305081600Atoll.jpg)|
+202305091600|CordouanLighthouse|科尔杜昂灯塔，罗扬市，夏朗德省，法国 (© FRTimelapse/Getty Images)|金光中的灯塔|![](/zh-CN/2023/05/202305091600CordouanLighthouse.jpg)|
