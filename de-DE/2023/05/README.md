@@ -10,3 +10,4 @@
 202305072200|TheChaps|Delicate Arch, Arches Nationalpark, Utah, Vereinigte Staaten (© Mark Brodkin Photography/Getty Images)|Jahrhunderte Geschichte allein in diesem Bogen|![](/de-DE/2023/05/202305072200TheChaps.jpg)|
 202305082200|Atoll|Kauehi-Atoll, Tuamotu-Archipel, Französisch-Polynesien (© WaterFrame/Alamy)|Weißer Strand, kristallblaues Meer. Sind wir hier im Paradies?|![](/de-DE/2023/05/202305082200Atoll.jpg)|
 202305092200|CordouanLighthouse|Leuchtturm von Cordouan, Royan, Charente, Frankreich (© FRTimelapse/Getty Images)|Fast wie ein Gemälde der Romantik von Caspar David Friedrich|![](/de-DE/2023/05/202305092200CordouanLighthouse.jpg)|
+202305102200|FootballField|Henningsvær-Stadion, Norwegen (© Morten Falch Sortland/Getty Images)|Fußball mal ganz (wo) anders|![](/de-DE/2023/05/202305102200FootballField.jpg)|
