@@ -9,3 +9,4 @@
 202305070400|SealLaughing|Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|What's so funny?|![](/en-CA/2023/05/202305070400SealLaughing.jpg)|
 202305080400|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Centuries of time in a Delicate Arch|![](/en-CA/2023/05/202305080400TheChaps.jpg)|
 202305090400|MuttartConservatory|Muttart Conservatory, Alberta, Canada (© Tetra Images Photography/Shutterstock)|Mesmerising glass pyramids|![](/en-CA/2023/05/202305090400MuttartConservatory.jpg)|
+202305100400|CordouanLighthouse|Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)|A beacon in the golden light|![](/en-CA/2023/05/202305100400CordouanLighthouse.jpg)|

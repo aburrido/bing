@@ -10,3 +10,4 @@
 202305070400|SealLaughing|Bébé phoque, île de Lundy, Angleterre (© Henley Spiers/Minden Pictures)|C’est la journée de la rigolade!|![](/fr-CA/2023/05/202305070400SealLaughing.jpg)|
 202305080400|Atoll|Kauehi atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame/Alamy)|Un petit coin de Paradis|![](/fr-CA/2023/05/202305080400Atoll.jpg)|
 202305090400|MuttartConservatory|Jardin d’hiver Muttart, Alberta, Canada (© Tetra Images Photography/Shutterstock)|Pyramides de lumière|![](/fr-CA/2023/05/202305090400MuttartConservatory.jpg)|
+202305100400|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Le Versailles des Mers|![](/fr-CA/2023/05/202305100400CordouanLighthouse.jpg)|
