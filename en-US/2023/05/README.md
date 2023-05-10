@@ -10,3 +10,4 @@
 202305070700|SealLaughing|Gray seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)|Happy World Laughter Day!|![](/en-US/2023/05/202305070700SealLaughing.jpg)|
 202305080700|TheChaps|Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)|Delicate but enduring|![](/en-US/2023/05/202305080700TheChaps.jpg)|
 202305090700|MountCetatea|Poenari Castle on Mount Cetatea, Făgăraș Mountains, Romania (© porojnicu/Getty Images)|A castle fit for a count|![](/en-US/2023/05/202305090700MountCetatea.jpg)|
+202305100700|CordouanLighthouse|Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)|King of lighthouses|![](/en-US/2023/05/202305100700CordouanLighthouse.jpg)|
