@@ -11,3 +11,4 @@
 202305081830|JimCorbettNationalPark|Backlight sunrays at Jim Corbett National Park (© Swapan Banik/Alamy Stock Photo)|A natural spotlight|![](/en-IN/2023/05/202305081830JimCorbettNationalPark.jpg)|
 202305091830|CordouanLighthouse|Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)|A beacon in the golden light|![](/en-IN/2023/05/202305091830CordouanLighthouse.jpg)|
 202305101830|FootballField|Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)|Sport where you least expect it|![](/en-IN/2023/05/202305101830FootballField.jpg)|
+202305111830|WildLupine|Wild lupine in purple and blue (© silverjohn/Getty Images Plus)|Can you name these pretty flowers?|![](/en-IN/2023/05/202305111830WildLupine.jpg)|
