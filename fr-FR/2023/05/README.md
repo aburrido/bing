@@ -11,3 +11,4 @@
 202305082200|TheChaps|Delicate Arch, Parc National des Arches, Utah, États-Unis (© Mark Brodkin Photography/Getty Images)|Où se trouve cette arche majestueuse ?|![](/fr-FR/2023/05/202305082200TheChaps.jpg)|
 202305092200|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Connaissez-vous le Roi des Phares ?|![](/fr-FR/2023/05/202305092200CordouanLighthouse.jpg)|
 202305102200|FootballField|Stade Henningsvær, Norvège (© Morten Falch Sortland/Getty Images)|Où se trouve ce stade unique au monde ?|![](/fr-FR/2023/05/202305102200FootballField.jpg)|
+202305112200|WildLupine|Lupin sauvage violet et bleu (© silverjohn/Getty Images Plus)|Pouvez-vous nommer ces jolies fleurs ?|![](/fr-FR/2023/05/202305112200WildLupine.jpg)|
