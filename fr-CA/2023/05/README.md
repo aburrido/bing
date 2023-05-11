@@ -11,3 +11,4 @@
 202305080400|Atoll|Kauehi atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame/Alamy)|Un petit coin de Paradis|![](/fr-CA/2023/05/202305080400Atoll.jpg)|
 202305090400|MuttartConservatory|Jardin d’hiver Muttart, Alberta, Canada (© Tetra Images Photography/Shutterstock)|Pyramides de lumière|![](/fr-CA/2023/05/202305090400MuttartConservatory.jpg)|
 202305100400|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Le Versailles des Mers|![](/fr-CA/2023/05/202305100400CordouanLighthouse.jpg)|
+202305110400|FootballField|Stade Henningsvær, Norvège (© Morten Falch Sortland/Getty Images)|Du foot dans un cadre magique|![](/fr-CA/2023/05/202305110400FootballField.jpg)|
