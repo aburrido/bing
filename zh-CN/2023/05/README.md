@@ -11,3 +11,4 @@
 202305081600|Atoll|卡韦希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame/Alamy)|天堂的一角|![](/zh-CN/2023/05/202305081600Atoll.jpg)|
 202305091600|CordouanLighthouse|科尔杜昂灯塔，罗扬市，夏朗德省，法国 (© FRTimelapse/Getty Images)|金光中的灯塔|![](/zh-CN/2023/05/202305091600CordouanLighthouse.jpg)|
 202305101600|FootballField|亨宁斯韦尔体育场，挪威 (© Morten Falch Sortland/Getty Images)|这个体育场建在你意想不到的地方|![](/zh-CN/2023/05/202305101600FootballField.jpg)|
+202305111600|WildLupine|紫色和蓝色的野生羽扇豆 (© silverjohn/Getty Images Plus)|蝴蝶最好的朋友|![](/zh-CN/2023/05/202305111600WildLupine.jpg)|
