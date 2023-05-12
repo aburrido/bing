@@ -12,3 +12,4 @@
 202305091500|CordouanLighthouse|コルドゥアン灯台, フランス シャラント (© FRTimelapse/Getty Images)|夕焼けに染まる灯台|![](/ja-JP/2023/05/202305091500CordouanLighthouse.jpg)|
 202305101500|FootballField|ヘニングスヴァール村スタジアム, ノルウェー, ヌールラン県 (© Morten Falch Sortland/Getty Images)|フィヨルドの絶景に溶け込むサッカースタジアム|![](/ja-JP/2023/05/202305101500FootballField.jpg)|
 202305111500|WildLupine|野生のルピナス (© silverjohn/Getty Images Plus)|草原に彩りを添える紫の花穂|![](/ja-JP/2023/05/202305111500WildLupine.jpg)|
+202305121500|SonnyBonoPelicans|ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)|今日は世界渡り鳥の日|![](/ja-JP/2023/05/202305121500SonnyBonoPelicans.jpg)|
