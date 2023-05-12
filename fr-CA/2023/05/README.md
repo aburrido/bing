@@ -12,3 +12,4 @@
 202305090400|MuttartConservatory|Jardin d’hiver Muttart, Alberta, Canada (© Tetra Images Photography/Shutterstock)|Pyramides de lumière|![](/fr-CA/2023/05/202305090400MuttartConservatory.jpg)|
 202305100400|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Le Versailles des Mers|![](/fr-CA/2023/05/202305100400CordouanLighthouse.jpg)|
 202305110400|FootballField|Stade Henningsvær, Norvège (© Morten Falch Sortland/Getty Images)|Du foot dans un cadre magique|![](/fr-CA/2023/05/202305110400FootballField.jpg)|
+202305120400|OttawaTulipFestival|Festival canadien des tulipes, Ottawa, Canada (© Jean-Claude Caprara/iStock/Getty Images Plus)|Les meilleures amies des papillons|![](/fr-CA/2023/05/202305120400OttawaTulipFestival.jpg)|
