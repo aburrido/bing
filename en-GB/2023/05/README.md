@@ -12,3 +12,4 @@
 202305092300|CordouanLighthouse|Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)|A beacon in the golden light|![](/en-GB/2023/05/202305092300CordouanLighthouse.jpg)|
 202305102300|FootballField|Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)|Sport where you least expect it|![](/en-GB/2023/05/202305102300FootballField.jpg)|
 202305112300|WildLupine|Wild lupine in purple and blue (© silverjohn/Getty Images Plus)|A butterfly's best friend|![](/en-GB/2023/05/202305112300WildLupine.jpg)|
+202305122300|SonnyBonoPelicans|Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)|'Tis the season for travel|![](/en-GB/2023/05/202305122300SonnyBonoPelicans.jpg)|
