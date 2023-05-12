@@ -12,3 +12,4 @@
 202305092200|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Connaissez-vous le Roi des Phares ?|![](/fr-FR/2023/05/202305092200CordouanLighthouse.jpg)|
 202305102200|FootballField|Stade Henningsvær, Norvège (© Morten Falch Sortland/Getty Images)|Où se trouve ce stade unique au monde ?|![](/fr-FR/2023/05/202305102200FootballField.jpg)|
 202305112200|WildLupine|Lupin sauvage violet et bleu (© silverjohn/Getty Images Plus)|Pouvez-vous nommer ces jolies fleurs ?|![](/fr-FR/2023/05/202305112200WildLupine.jpg)|
+202305122200|SonnyBonoPelicans|Réserve naturelle nationale de Sonny Bono Salton Sea, Californie (© David McNew/Getty Images)|Où volent ces oiseaux ?|![](/fr-FR/2023/05/202305122200SonnyBonoPelicans.jpg)|
