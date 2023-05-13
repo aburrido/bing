@@ -13,3 +13,4 @@
 202305101830|FootballField|Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)|Sport where you least expect it|![](/en-IN/2023/05/202305101830FootballField.jpg)|
 202305111830|WildLupine|Wild lupine in purple and blue (© silverjohn/Getty Images Plus)|Can you name these pretty flowers?|![](/en-IN/2023/05/202305111830WildLupine.jpg)|
 202305121830|SonnyBonoPelicans|Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)|Where are these birds headed?|![](/en-IN/2023/05/202305121830SonnyBonoPelicans.jpg)|
+202305131830|TheMeghalayaWaterfall|Waterfall in Meghalaya, India (© Indranil Aditya/Alamy Stock Photo)|Beautiful falling waters|![](/en-IN/2023/05/202305131830TheMeghalayaWaterfall.jpg)|
