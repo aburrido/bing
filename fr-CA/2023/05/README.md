@@ -13,3 +13,4 @@
 202305100400|CordouanLighthouse|Phare de Cordouan, Royan, Charente, France (© FRTimelapse/Getty Images)|Le Versailles des Mers|![](/fr-CA/2023/05/202305100400CordouanLighthouse.jpg)|
 202305110400|FootballField|Stade Henningsvær, Norvège (© Morten Falch Sortland/Getty Images)|Du foot dans un cadre magique|![](/fr-CA/2023/05/202305110400FootballField.jpg)|
 202305120400|OttawaTulipFestival|Festival canadien des tulipes, Ottawa, Canada (© Jean-Claude Caprara/iStock/Getty Images Plus)|Les meilleures amies des papillons|![](/fr-CA/2023/05/202305120400OttawaTulipFestival.jpg)|
+202305130400|SonnyBonoPelicans|Sonny Bono Salton Sea National Wildlife Refuge, Californie (© David McNew/Getty Images)|C'est la saison des voyages|![](/fr-CA/2023/05/202305130400SonnyBonoPelicans.jpg)|
