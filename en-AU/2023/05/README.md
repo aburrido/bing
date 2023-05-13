@@ -13,3 +13,4 @@
 202305100700|CordouanLighthouse|Cordouan Lighthouse, Royan, Charente, France (© FRTimelapse/Getty Images)|Info|![](/en-AU/2023/05/202305100700CordouanLighthouse.jpg)|
 202305110700|FootballField|Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)|Info|![](/en-AU/2023/05/202305110700FootballField.jpg)|
 202305120700|WildLupine|Wild lupine in purple and blue (© silverjohn/Getty Images Plus)|Info|![](/en-AU/2023/05/202305120700WildLupine.jpg)|
+202305130700|Mannheim|Mannheim Water Tower, Germany (© tichr/Getty Images)|Info|![](/en-AU/2023/05/202305130700Mannheim.jpg)|
