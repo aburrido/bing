@@ -13,3 +13,4 @@
 202305102200|FootballField|Henningsvær-Stadion, Norwegen (© Morten Falch Sortland/Getty Images)|Fußball mal ganz (wo) anders|![](/de-DE/2023/05/202305102200FootballField.jpg)|
 202305112200|WildLupine|Lupinen in Lila und Blau (© silverjohn/Getty Images Plus)|Die beste Freundin des Schmetterlings|![](/de-DE/2023/05/202305112200WildLupine.jpg)|
 202305122200|SonnyBonoPelicans|Pelikane im Sonny Bono Salton Sea National Wildlife Refuge, Kalifornien (© David McNew/Getty Images)|Zeit zum Aufbruch|![](/de-DE/2023/05/202305122200SonnyBonoPelicans.jpg)|
+202305132200|OdocoileusVirginianus|Weißwedelhirsch-Ricke und neugeborenes Kitz, Montana, USA (© Donald M. Jones/Minden Pictures)|Fröhlichen Muttertag!|![](/de-DE/2023/05/202305132200OdocoileusVirginianus.jpg)|
