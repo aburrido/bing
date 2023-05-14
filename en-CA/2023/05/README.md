@@ -13,3 +13,4 @@
 202305110400|FootballField|Henningsvær Stadium, Norway (© Morten Falch Sortland/Getty Images)|Sports where you least expect it|![](/en-CA/2023/05/202305110400FootballField.jpg)|
 202305120400|OttawaTulipFestival|Tulip festival Ottawa Canada (© Jean-Claude Caprara/iStock/Getty Images Plus)|A butterfly’s best friend|![](/en-CA/2023/05/202305120400OttawaTulipFestival.jpg)|
 202305130400|SonnyBonoPelicans|Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)|'Tis the season for travel|![](/en-CA/2023/05/202305130400SonnyBonoPelicans.jpg)|
+202305140400|OdocoileusVirginianus|White-tailed deer doe and newborn fawn, Montana (© Donald M. Jones/Minden Pictures)|Happy Mother's Day!|![](/en-CA/2023/05/202305140400OdocoileusVirginianus.jpg)|
