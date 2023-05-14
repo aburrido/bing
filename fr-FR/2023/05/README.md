@@ -14,3 +14,4 @@
 202305112200|WildLupine|Lupin sauvage violet et bleu (© silverjohn/Getty Images Plus)|Pouvez-vous nommer ces jolies fleurs ?|![](/fr-FR/2023/05/202305112200WildLupine.jpg)|
 202305122200|SonnyBonoPelicans|Réserve naturelle nationale de Sonny Bono Salton Sea, Californie (© David McNew/Getty Images)|Où volent ces oiseaux ?|![](/fr-FR/2023/05/202305122200SonnyBonoPelicans.jpg)|
 202305132200|ProcidaItaly|Procida, Italie (© Sean Pavone/Shutterstock)|Sous le soleil de l'Italie|![](/fr-FR/2023/05/202305132200ProcidaItaly.jpg)|
+202305142200|MorroJable|Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)|Une île carrefour des cultures|![](/fr-FR/2023/05/202305142200MorroJable.jpg)|

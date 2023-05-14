@@ -14,3 +14,4 @@
 202305112200|WildLupine|Lupinen in Lila und Blau (© silverjohn/Getty Images Plus)|Die beste Freundin des Schmetterlings|![](/de-DE/2023/05/202305112200WildLupine.jpg)|
 202305122200|SonnyBonoPelicans|Pelikane im Sonny Bono Salton Sea National Wildlife Refuge, Kalifornien (© David McNew/Getty Images)|Zeit zum Aufbruch|![](/de-DE/2023/05/202305122200SonnyBonoPelicans.jpg)|
 202305132200|OdocoileusVirginianus|Weißwedelhirsch-Ricke und neugeborenes Kitz, Montana, USA (© Donald M. Jones/Minden Pictures)|Fröhlichen Muttertag!|![](/de-DE/2023/05/202305132200OdocoileusVirginianus.jpg)|
+202305142200|MorroJable|Morro Jable und Playa del Matorral, Fuerteventura, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)|Eine Insel an der sich Kulturen kreuzen|![](/de-DE/2023/05/202305142200MorroJable.jpg)|
