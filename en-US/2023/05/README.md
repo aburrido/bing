@@ -14,3 +14,4 @@
 202305110700|FootballField|Henningsvær Stadion, Norway (© Morten Falch Sortland/Getty Images)|Pitch perfect|![](/en-US/2023/05/202305110700FootballField.jpg)|
 202305120700|WildLupine|Wild lupines in bloom (© silverjohn/Getty Images Plus)|A butterfly's best friend|![](/en-US/2023/05/202305120700WildLupine.jpg)|
 202305130700|SonnyBonoPelicans|Pelicans at Sonny Bono Salton Sea National Wildlife Refuge, California (© David McNew/Getty Images)|'Tis the season for travel|![](/en-US/2023/05/202305130700SonnyBonoPelicans.jpg)|
+202305140700|OdocoileusVirginianus|White-tailed deer doe and newborn fawn, Montana (© Donald M. Jones/Minden Pictures)|Happy Mother's Day!|![](/en-US/2023/05/202305140700OdocoileusVirginianus.jpg)|
