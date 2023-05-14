@@ -14,3 +14,4 @@
 202305111500|WildLupine|野生のルピナス (© silverjohn/Getty Images Plus)|草原に彩りを添える紫の花穂|![](/ja-JP/2023/05/202305111500WildLupine.jpg)|
 202305121500|SonnyBonoPelicans|ソニーボノ・ソルトン湖国立野生生物保護区, 米国 カリフォルニア州 (© David McNew/Getty Images)|今日は世界渡り鳥の日|![](/ja-JP/2023/05/202305121500SonnyBonoPelicans.jpg)|
 202305131500|OdocoileusVirginianus|オジロジカの母子, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)|今日は母の日|![](/ja-JP/2023/05/202305131500OdocoileusVirginianus.jpg)|
+202305141500|AoiMatsuri2023|葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)|今日は葵祭|![](/ja-JP/2023/05/202305141500AoiMatsuri2023.jpg)|
