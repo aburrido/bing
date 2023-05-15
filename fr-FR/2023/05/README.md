@@ -15,3 +15,4 @@
 202305122200|SonnyBonoPelicans|Réserve naturelle nationale de Sonny Bono Salton Sea, Californie (© David McNew/Getty Images)|Où volent ces oiseaux ?|![](/fr-FR/2023/05/202305122200SonnyBonoPelicans.jpg)|
 202305132200|ProcidaItaly|Procida, Italie (© Sean Pavone/Shutterstock)|Sous le soleil de l'Italie|![](/fr-FR/2023/05/202305132200ProcidaItaly.jpg)|
 202305142200|MorroJable|Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)|Une île carrefour des cultures|![](/fr-FR/2023/05/202305142200MorroJable.jpg)|
+202305152200|FestivalCannes|Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)|Qui remportera la palme d’or tant convoitée cette année ?|![](/fr-FR/2023/05/202305152200FestivalCannes.jpg)|

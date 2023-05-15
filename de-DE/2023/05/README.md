@@ -15,3 +15,4 @@
 202305122200|SonnyBonoPelicans|Pelikane im Sonny Bono Salton Sea National Wildlife Refuge, Kalifornien (© David McNew/Getty Images)|Zeit zum Aufbruch|![](/de-DE/2023/05/202305122200SonnyBonoPelicans.jpg)|
 202305132200|OdocoileusVirginianus|Weißwedelhirsch-Ricke und neugeborenes Kitz, Montana, USA (© Donald M. Jones/Minden Pictures)|Fröhlichen Muttertag!|![](/de-DE/2023/05/202305132200OdocoileusVirginianus.jpg)|
 202305142200|MorroJable|Morro Jable und Playa del Matorral, Fuerteventura, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)|Eine Insel an der sich Kulturen kreuzen|![](/de-DE/2023/05/202305142200MorroJable.jpg)|
+202305152200|AmericanWetlands|Kanu-Paddeln im Okefenokee National Wildlife Refuge, Georgia, USA (© Brad Beck/Tandem Stills + Motion)|Spiegelgewässer|![](/de-DE/2023/05/202305152200AmericanWetlands.jpg)|
