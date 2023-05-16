@@ -16,3 +16,4 @@
 202305131500|OdocoileusVirginianus|オジロジカの母子, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)|今日は母の日|![](/ja-JP/2023/05/202305131500OdocoileusVirginianus.jpg)|
 202305141500|AoiMatsuri2023|葵祭, 京都 下鴨神社 (© The Asahi Shimbun/Getty Images)|今日は葵祭|![](/ja-JP/2023/05/202305141500AoiMatsuri2023.jpg)|
 202305151500|AmericanWetlands|オケフェノキー国立野生動物保護区, 米国 ジョージア州 (© Brad Beck/Tandem Stills + Motion)|5 月は米国湿地月間|![](/ja-JP/2023/05/202305151500AmericanWetlands.jpg)|
+202305161500|CormorantBridge|ナチュラル・ブリッジ・ステート・ビーチ, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)|太平洋への窓|![](/ja-JP/2023/05/202305161500CormorantBridge.jpg)|
