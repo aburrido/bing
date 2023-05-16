@@ -16,3 +16,4 @@
 202305132200|ProcidaItaly|Procida, Italie (© Sean Pavone/Shutterstock)|Sous le soleil de l'Italie|![](/fr-FR/2023/05/202305132200ProcidaItaly.jpg)|
 202305142200|MorroJable|Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)|Une île carrefour des cultures|![](/fr-FR/2023/05/202305142200MorroJable.jpg)|
 202305152200|FestivalCannes|Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)|Qui remportera la palme d’or tant convoitée cette année ?|![](/fr-FR/2023/05/202305152200FestivalCannes.jpg)|
+202305162200|CormorantBridge|Plage de Natural Bridges, Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)|Une fenêtre sur le Pacifique|![](/fr-FR/2023/05/202305162200CormorantBridge.jpg)|
