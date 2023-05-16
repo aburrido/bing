@@ -16,3 +16,4 @@
 202305130400|SonnyBonoPelicans|Sonny Bono Salton Sea National Wildlife Refuge, Californie (© David McNew/Getty Images)|C'est la saison des voyages|![](/fr-CA/2023/05/202305130400SonnyBonoPelicans.jpg)|
 202305140400|OdocoileusVirginianus|Cerf à queue blanche et son faon nouveau-né, Montana (© Donald M. Jones/Minden Pictures)|Bonne fête des mères!|![](/fr-CA/2023/05/202305140400OdocoileusVirginianus.jpg)|
 202305150400|MorroJable|Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)|Une île carrefour des cultures|![](/fr-CA/2023/05/202305150400MorroJable.jpg)|
+202305160400|AmericanWetlands|Canoë dans le refuge national de faune sauvage d'Okefenokee (© Brad Beck/Tandem Stills + Motion)|Des eaux sereines sur une "terre tremblante”|![](/fr-CA/2023/05/202305160400AmericanWetlands.jpg)|
