@@ -17,3 +17,4 @@
 202305141600|MorroJable|莫罗哈夫莱海滩和科罗拉达斯海滩，富埃特文图拉岛，西班牙加那利群岛 (© Gavin Hellier/Getty Images)|文化交汇的岛屿|![](/zh-CN/2023/05/202305141600MorroJable.jpg)|
 ||||![](/zh-CN/2023/05/.jpg)|
 202305151600|AmericanWetlands|在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion)|一片平静的水域|![](/zh-CN/2023/05/202305151600AmericanWetlands.jpg)|
+202305161600|CormorantBridge|加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)|通往太平洋之窗|![](/zh-CN/2023/05/202305161600CormorantBridge.jpg)|
