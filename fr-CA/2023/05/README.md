@@ -17,3 +17,4 @@
 202305140400|OdocoileusVirginianus|Cerf à queue blanche et son faon nouveau-né, Montana (© Donald M. Jones/Minden Pictures)|Bonne fête des mères!|![](/fr-CA/2023/05/202305140400OdocoileusVirginianus.jpg)|
 202305150400|MorroJable|Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)|Une île carrefour des cultures|![](/fr-CA/2023/05/202305150400MorroJable.jpg)|
 202305160400|AmericanWetlands|Canoë dans le refuge national de faune sauvage d'Okefenokee (© Brad Beck/Tandem Stills + Motion)|Des eaux sereines sur une "terre tremblante”|![](/fr-CA/2023/05/202305160400AmericanWetlands.jpg)|
+202305170400|CormorantBridge|Natural Bridges State Park à Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)|Une fenêtre sur le Pacifique|![](/fr-CA/2023/05/202305170400CormorantBridge.jpg)|

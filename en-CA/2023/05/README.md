@@ -16,3 +16,4 @@
 202305140400|OdocoileusVirginianus|White-tailed deer doe and newborn fawn, Montana (© Donald M. Jones/Minden Pictures)|Happy Mother's Day!|![](/en-CA/2023/05/202305140400OdocoileusVirginianus.jpg)|
 202305150400|MorroJable|Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)|An island crossroad of culture|![](/en-CA/2023/05/202305150400MorroJable.jpg)|
 202305160400|AmericanWetlands|Canoe paddling in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)|Serene waters on a 'trembling earth'|![](/en-CA/2023/05/202305160400AmericanWetlands.jpg)|
+202305170400|CormorantBridge|Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)|A window to the Pacific|![](/en-CA/2023/05/202305170400CormorantBridge.jpg)|
