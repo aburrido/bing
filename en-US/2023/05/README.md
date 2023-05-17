@@ -18,3 +18,4 @@
 202305150700|MorroJable|Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Aglow in the Atlantic|![](/en-US/2023/05/202305150700MorroJable.jpg)|
 ||||![](/en-US/2023/05/.jpg)|
 202305160700|AmericanWetlands|Canoeing in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)|Serene waters on a 'trembling earth'|![](/en-US/2023/05/202305160700AmericanWetlands.jpg)|
+202305170700|CormorantBridge|Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)|Getting a bird's-eye view|![](/en-US/2023/05/202305170700CormorantBridge.jpg)|

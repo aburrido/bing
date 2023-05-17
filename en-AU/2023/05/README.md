@@ -17,3 +17,4 @@
 202305140700|OdocoileusVirginianus|White-tailed deer doe and newborn fawn, Montana, USA (© Donald M. Jones/Minden Pictures)|Info|![](/en-AU/2023/05/202305140700OdocoileusVirginianus.jpg)|
 202305150700|MorroJable|Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2023/05/202305150700MorroJable.jpg)|
 202305160700|AmericanWetlands|Canoe paddling in Okefenokee National Wildlife Refuge, Florida, USA (© Brad Beck/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305160700AmericanWetlands.jpg)|
+202305170700|CormorantBridge|Natural Bridges State Park in Santa Cruz, California, USA (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305170700CormorantBridge.jpg)|
