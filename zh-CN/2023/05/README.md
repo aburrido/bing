@@ -18,3 +18,4 @@
 ||||![](/zh-CN/2023/05/.jpg)|
 202305151600|AmericanWetlands|在奥克弗诺基国家野生动物保护区划独木舟 (© Brad Beck/Tandem Stills + Motion)|一片平静的水域|![](/zh-CN/2023/05/202305151600AmericanWetlands.jpg)|
 202305161600|CormorantBridge|加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)|通往太平洋之窗|![](/zh-CN/2023/05/202305161600CormorantBridge.jpg)|
+202305171600|SardineBurial|拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)|准备好欢庆吧！|![](/zh-CN/2023/05/202305171600SardineBurial.jpg)|
