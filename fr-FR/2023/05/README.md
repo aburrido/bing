@@ -18,3 +18,4 @@
 202305152200|FestivalCannes|Îles de Lerins, Cannes, Côtes d’Azur (© Hemis/Alamy Stock Photo)|Qui remportera la palme d’or tant convoitée cette année ?|![](/fr-FR/2023/05/202305152200FestivalCannes.jpg)|
 202305162200|CormorantBridge|Plage de Natural Bridges, Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)|Une fenêtre sur le Pacifique|![](/fr-FR/2023/05/202305162200CormorantBridge.jpg)|
 202305172200|MuseoSoumaya|Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)|La lumière du soleil transforme l'argent en or|![](/fr-FR/2023/05/202305172200MuseoSoumaya.jpg)|
+202305182200|SumatranRhino|Rhinocéros de Sumatra, parc national de Way Kambas, Indonésie (© Cyril Ruoso/Minden Pictures)|Comment aider les animaux en danger ?|![](/fr-FR/2023/05/202305182200SumatranRhino.jpg)|
