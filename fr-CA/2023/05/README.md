@@ -18,3 +18,4 @@
 202305150400|MorroJable|Morro Jable et Playa del Matorral, Fuerteventura, Îles Canaries, Espagne (© Gavin Hellier/Getty Images)|Une île carrefour des cultures|![](/fr-CA/2023/05/202305150400MorroJable.jpg)|
 202305160400|AmericanWetlands|Canoë dans le refuge national de faune sauvage d'Okefenokee (© Brad Beck/Tandem Stills + Motion)|Des eaux sereines sur une "terre tremblante”|![](/fr-CA/2023/05/202305160400AmericanWetlands.jpg)|
 202305170400|CormorantBridge|Natural Bridges State Park à Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)|Une fenêtre sur le Pacifique|![](/fr-CA/2023/05/202305170400CormorantBridge.jpg)|
+202305180400|MuseoSoumaya|Bâtiment Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)|La lumière du soleil transforme l'argent en or|![](/fr-CA/2023/05/202305180400MuseoSoumaya.jpg)|
