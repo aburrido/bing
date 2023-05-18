@@ -18,3 +18,4 @@
 202305151830|AmericanWetlands|Canoe paddling in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)|Serene waters on a 'trembling earth'|![](/en-IN/2023/05/202305151830AmericanWetlands.jpg)|
 202305161830|CormorantBridge|Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)|A window to the Pacific|![](/en-IN/2023/05/202305161830CormorantBridge.jpg)|
 202305171830|MuseoSoumaya|Museo Soumaya, Plaza Carso building, Mexico City, Mexico (© Juan Romero/Alamy)|Sunlight turning silver to gold|![](/en-IN/2023/05/202305171830MuseoSoumaya.jpg)|
+202305181830|SumatranRhino|Sumatran rhinoceros, Way Kambas National Park, Indonesia (© Cyril Ruoso/Minden Pictures)|How can we help at-risk animals?|![](/en-IN/2023/05/202305181830SumatranRhino.jpg)|
