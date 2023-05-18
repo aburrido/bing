@@ -18,3 +18,4 @@
 202305150700|MorroJable|Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2023/05/202305150700MorroJable.jpg)|
 202305160700|AmericanWetlands|Canoe paddling in Okefenokee National Wildlife Refuge, Florida, USA (© Brad Beck/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305160700AmericanWetlands.jpg)|
 202305170700|CormorantBridge|Natural Bridges State Park in Santa Cruz, California, USA (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305170700CormorantBridge.jpg)|
+202305180700|SardineBurial|La Manga, Murcia, Spain (© SOMATUSCANI/Getty Images)|Info|![](/en-AU/2023/05/202305180700SardineBurial.jpg)|
