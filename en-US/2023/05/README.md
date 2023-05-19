@@ -20,3 +20,4 @@
 202305160700|AmericanWetlands|Canoeing in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)|Serene waters on a 'trembling earth'|![](/en-US/2023/05/202305160700AmericanWetlands.jpg)|
 202305170700|CormorantBridge|Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)|Getting a bird's-eye view|![](/en-US/2023/05/202305170700CormorantBridge.jpg)|
 202305180700|MuseoSoumaya|Museo Soumaya, Plaza Carso, Mexico City, Mexico (© Juan Romero/Alamy)|International Museum Day|![](/en-US/2023/05/202305180700MuseoSoumaya.jpg)|
+202305190700|SumatranRhino|Sumatran rhinoceros female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)|On the edge of extinction|![](/en-US/2023/05/202305190700SumatranRhino.jpg)|

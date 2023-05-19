@@ -19,3 +19,4 @@
 202305160700|AmericanWetlands|Canoe paddling in Okefenokee National Wildlife Refuge, Florida, USA (© Brad Beck/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305160700AmericanWetlands.jpg)|
 202305170700|CormorantBridge|Natural Bridges State Park in Santa Cruz, California, USA (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305170700CormorantBridge.jpg)|
 202305180700|SardineBurial|La Manga, Murcia, Spain (© SOMATUSCANI/Getty Images)|Info|![](/en-AU/2023/05/202305180700SardineBurial.jpg)|
+202305190700|SumatranRhino|Sumatran rhinoceros, Way Kambas National Park, Indonesia (© Cyril Ruoso/Minden Pictures)|Info|![](/en-AU/2023/05/202305190700SumatranRhino.jpg)|
