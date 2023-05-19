@@ -19,3 +19,4 @@
 202305162200|CormorantBridge|Natural Bridges State Park in Santa Cruz, Kalifornien (© Jim Patterson/Tandem Stills + Motion)|Das Fenster zum Ozean?|![](/de-DE/2023/05/202305162200CormorantBridge.jpg)|
 202305172200|HoopoeFathersday|Wiedehopf füttert seine Jungen nach der Exkursion, Biosphärenreservat Mittelelbe, Sachsen-Anhalt (© imageBROKER/Martin Demmel/GettyImages)|Vater und Sohn|![](/de-DE/2023/05/202305172200HoopoeFathersday.jpg)|
 202305182200|SumatranRhino|Sumatra-Nashorn, Nationalpark Way Kambas, Indonesien (© Cyril Ruoso/Minden Pictures)|Wie können wir gefährdeten Tieren helfen?|![](/de-DE/2023/05/202305182200SumatranRhino.jpg)|
+202305192200|EuropeanHoneybee|Europäische Honigbienen in Sheffield, England (© Deborah Vernon/Alamy)|Summ Summ Summ|![](/de-DE/2023/05/202305192200EuropeanHoneybee.jpg)|
