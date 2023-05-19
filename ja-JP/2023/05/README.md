@@ -19,3 +19,4 @@
 202305161500|CormorantBridge|ナチュラル・ブリッジ・ステート・ビーチ, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)|太平洋への窓|![](/ja-JP/2023/05/202305161500CormorantBridge.jpg)|
 202305171500|MuseoSoumaya|ソウマヤ美術館プラザカルソ館, メキシコ メキシコシティ (© Juan Romero/Alamy)|今日は国際博物館の日|![](/ja-JP/2023/05/202305171500MuseoSoumaya.jpg)|
 202305181500|SumatranRhino|ウェイカンバス国立公園, インドネシア (© Cyril Ruoso/Minden Pictures)|今日は絶滅危惧種の日|![](/ja-JP/2023/05/202305181500SumatranRhino.jpg)|
+202305191500|EuropeanHoneybee|セイヨウミツバチ, イギリス シェフィールド (© Deborah Vernon/Alamy)|今日は世界ミツバチの日|![](/ja-JP/2023/05/202305191500EuropeanHoneybee.jpg)|
