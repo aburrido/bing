@@ -20,3 +20,4 @@
 202305161600|CormorantBridge|加利福尼亚州圣克鲁斯的天然桥州立公园 (© Jim Patterson/Tandem Stills + Motion)|通往太平洋之窗|![](/zh-CN/2023/05/202305161600CormorantBridge.jpg)|
 202305171600|SardineBurial|拉曼加，穆尔西亚，西班牙 (© SOMATUSCANI/Getty Images)|准备好欢庆吧！|![](/zh-CN/2023/05/202305171600SardineBurial.jpg)|
 202305181600|SumatranRhino|苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚 (© Cyril Ruoso/Minden Pictures)|我们怎么才能帮助濒危动物？|![](/zh-CN/2023/05/202305181600SumatranRhino.jpg)|
+202305191600|EuropeanHoneybee|谢菲尔德的欧洲蜜蜂, 英格兰 (© Deborah Vernon/Alamy)|一片蜂群|![](/zh-CN/2023/05/202305191600EuropeanHoneybee.jpg)|
