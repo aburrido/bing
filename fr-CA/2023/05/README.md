@@ -20,3 +20,4 @@
 202305170400|CormorantBridge|Natural Bridges State Park à Santa Cruz, Californie (© Jim Patterson/Tandem Stills + Motion)|Une fenêtre sur le Pacifique|![](/fr-CA/2023/05/202305170400CormorantBridge.jpg)|
 202305180400|MuseoSoumaya|Bâtiment Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)|La lumière du soleil transforme l'argent en or|![](/fr-CA/2023/05/202305180400MuseoSoumaya.jpg)|
 202305190400|SumatranRhino|Rhinocéros de Sumatra, parc national de Way Kambas, Indonésie (© Cyril Ruoso/Minden Pictures)|Comment aider les animaux en danger?|![](/fr-CA/2023/05/202305190400SumatranRhino.jpg)|
+202305200400|EuropeanHoneybee|Abeilles mellifères européennes à Sheffield, Angleterre (© Deborah Vernon/Alamy)|Nos meilleures alliées de la nature|![](/fr-CA/2023/05/202305200400EuropeanHoneybee.jpg)|

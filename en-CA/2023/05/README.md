@@ -19,3 +19,4 @@
 202305170400|CormorantBridge|Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)|A window to the Pacific|![](/en-CA/2023/05/202305170400CormorantBridge.jpg)|
 202305180400|MuseoSoumaya|Museo Soumaya, Plaza Carso building, Mexico City, Mexico (© Juan Romero/Alamy)|Sunlight turning silver to gold|![](/en-CA/2023/05/202305180400MuseoSoumaya.jpg)|
 202305190400|SumatranRhino|Sumatran rhinoceros (Dicerorhinus sumatrensis) female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)|How can we help at-risk animals?|![](/en-CA/2023/05/202305190400SumatranRhino.jpg)|
+202305200400|EuropeanHoneybee|European honeybees in Sheffield, England (© Deborah Vernon/Alamy)|A bevy of buzzers|![](/en-CA/2023/05/202305200400EuropeanHoneybee.jpg)|
