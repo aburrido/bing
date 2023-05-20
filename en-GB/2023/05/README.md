@@ -20,3 +20,4 @@
 202305172300|MuseoSoumaya|Museo Soumaya, Plaza Carso building, Mexico City, Mexico (© Juan Romero/Alamy)|Sunlight turning silver to gold|![](/en-GB/2023/05/202305172300MuseoSoumaya.jpg)|
 202305182300|SumatranRhino|Sumatran rhinoceros (Dicerorhinus sumatrensis) female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)|How can we help at-risk animals?|![](/en-GB/2023/05/202305182300SumatranRhino.jpg)|
 202305192300|EuropeanHoneybee|European honeybees in Sheffield, England (© Deborah Vernon/Alamy)|A bevy of buzzers|![](/en-GB/2023/05/202305192300EuropeanHoneybee.jpg)|
+202305202300|PontdArcole|River Seine, Paris, France (© StockByM/Getty Images)|A bridge that holds up history|![](/en-GB/2023/05/202305202300PontdArcole.jpg)|
