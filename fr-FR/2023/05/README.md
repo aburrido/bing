@@ -20,3 +20,4 @@
 202305172200|MuseoSoumaya|Plaza Carso, musée Soumay, ville de Mexico, Mexique (© Juan Romero/Alamy)|La lumière du soleil transforme l'argent en or|![](/fr-FR/2023/05/202305172200MuseoSoumaya.jpg)|
 202305182200|SumatranRhino|Rhinocéros de Sumatra, parc national de Way Kambas, Indonésie (© Cyril Ruoso/Minden Pictures)|Comment aider les animaux en danger ?|![](/fr-FR/2023/05/202305182200SumatranRhino.jpg)|
 202305192200|EuropeanHoneybee|Abeilles européennes à Sheffield, Angleterre  (© Deborah Vernon/Alamy)|Nos alliées pour une nature en forme|![](/fr-FR/2023/05/202305192200EuropeanHoneybee.jpg)|
+202305202200|PontdArcole|Pont d’Arcole sur la Seine, Paris, France (© StockByM/Getty Images)|Dans le sillage de la Seine, laissez-vous emporter par l'histoire de Paris !|![](/fr-FR/2023/05/202305202200PontdArcole.jpg)|
