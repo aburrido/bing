@@ -20,3 +20,4 @@
 202305170700|CormorantBridge|Natural Bridges State Park in Santa Cruz, California, USA (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/05/202305170700CormorantBridge.jpg)|
 202305180700|SardineBurial|La Manga, Murcia, Spain (© SOMATUSCANI/Getty Images)|Info|![](/en-AU/2023/05/202305180700SardineBurial.jpg)|
 202305190700|SumatranRhino|Sumatran rhinoceros, Way Kambas National Park, Indonesia (© Cyril Ruoso/Minden Pictures)|Info|![](/en-AU/2023/05/202305190700SumatranRhino.jpg)|
+202305200700|EuropeanHoneybee|European honey bees in Sheffield, England (© Deborah Vernon/Alamy)|Info|![](/en-AU/2023/05/202305200700EuropeanHoneybee.jpg)|
