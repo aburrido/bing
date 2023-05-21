@@ -22,3 +22,4 @@
 202305181600|SumatranRhino|苏门答腊犀牛，韦卡巴斯国家公园，印度尼西亚 (© Cyril Ruoso/Minden Pictures)|我们怎么才能帮助濒危动物？|![](/zh-CN/2023/05/202305181600SumatranRhino.jpg)|
 202305191600|EuropeanHoneybee|谢菲尔德的欧洲蜜蜂, 英格兰 (© Deborah Vernon/Alamy)|一片蜂群|![](/zh-CN/2023/05/202305191600EuropeanHoneybee.jpg)|
 202305201600|PontdArcole|塞纳河，巴黎，法国 (© StockByM/Getty Images)|一座承载历史的桥|![](/zh-CN/2023/05/202305201600PontdArcole.jpg)|
+202305211600|BiodiverseCostaRica|阿雷纳尔火山，蒙泰韦尔德，哥斯达黎加 (© Kevin Wells/Getty Images)|为了每个人，保护地球的生物多样性|![](/zh-CN/2023/05/202305211600BiodiverseCostaRica.jpg)|
