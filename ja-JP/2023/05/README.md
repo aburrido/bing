@@ -21,3 +21,4 @@
 202305181500|SumatranRhino|ウェイカンバス国立公園, インドネシア (© Cyril Ruoso/Minden Pictures)|今日は絶滅危惧種の日|![](/ja-JP/2023/05/202305181500SumatranRhino.jpg)|
 202305191500|EuropeanHoneybee|セイヨウミツバチ, イギリス シェフィールド (© Deborah Vernon/Alamy)|今日は世界ミツバチの日|![](/ja-JP/2023/05/202305191500EuropeanHoneybee.jpg)|
 202305201500|wheat2023|露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)|今日は小満|![](/ja-JP/2023/05/202305201500wheat2023.jpg)|
+202305211500|BiodiverseCostaRica|アレナル火山, コスタリカ (© Kevin Wells/Getty Images)|今日は国際生物多様性の日|![](/ja-JP/2023/05/202305211500BiodiverseCostaRica.jpg)|
