@@ -21,3 +21,4 @@
 202305182200|SumatranRhino|Sumatra-Nashorn, Nationalpark Way Kambas, Indonesien (© Cyril Ruoso/Minden Pictures)|Wie können wir gefährdeten Tieren helfen?|![](/de-DE/2023/05/202305182200SumatranRhino.jpg)|
 202305192200|EuropeanHoneybee|Europäische Honigbienen in Sheffield, England (© Deborah Vernon/Alamy)|Summ Summ Summ|![](/de-DE/2023/05/202305192200EuropeanHoneybee.jpg)|
 202305202200|BremenScienceMuseum|Universum Bremen, Science Center (© imageBROKER/Alamy Stock Photo)|Die Zukunft ist heute|![](/de-DE/2023/05/202305202200BremenScienceMuseum.jpg)|
+202305212200|BiodiverseCostaRica|Arenal Vulkan, Monteverde, Costa Rica (© Kevin Wells/Getty Images)|Schützen wir die biologische Vielfalt unserer Heimat|![](/de-DE/2023/05/202305212200BiodiverseCostaRica.jpg)|
