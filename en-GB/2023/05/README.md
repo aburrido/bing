@@ -22,3 +22,4 @@
 202305192300|EuropeanHoneybee|European honeybees in Sheffield, England (© Deborah Vernon/Alamy)|A bevy of buzzers|![](/en-GB/2023/05/202305192300EuropeanHoneybee.jpg)|
 202305202300|PontdArcole|River Seine, Paris, France (© StockByM/Getty Images)|A bridge that holds up history|![](/en-GB/2023/05/202305202300PontdArcole.jpg)|
 202305212300|BiodiverseCostaRica|Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)|Protecting Earth's biodiversity for everyone|![](/en-GB/2023/05/202305212300BiodiverseCostaRica.jpg)|
+202305222300|WesternBoxTurtle|Western box turtle (© Tim Fitzharris/Minden Pictures)|Let’s protect our turtles|![](/en-GB/2023/05/202305222300WesternBoxTurtle.jpg)|
