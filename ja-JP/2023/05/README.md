@@ -22,3 +22,4 @@
 202305191500|EuropeanHoneybee|セイヨウミツバチ, イギリス シェフィールド (© Deborah Vernon/Alamy)|今日は世界ミツバチの日|![](/ja-JP/2023/05/202305191500EuropeanHoneybee.jpg)|
 202305201500|wheat2023|露が輝く麦の穂 (© mariko satou/iStock/Getty Images Plus)|今日は小満|![](/ja-JP/2023/05/202305201500wheat2023.jpg)|
 202305211500|BiodiverseCostaRica|アレナル火山, コスタリカ (© Kevin Wells/Getty Images)|今日は国際生物多様性の日|![](/ja-JP/2023/05/202305211500BiodiverseCostaRica.jpg)|
+202305221500|WesternBoxTurtle|ニシキハコガメ (© Tim Fitzharris/Minden Pictures)|今日は世界カメの日|![](/ja-JP/2023/05/202305221500WesternBoxTurtle.jpg)|
