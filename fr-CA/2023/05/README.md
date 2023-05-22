@@ -22,3 +22,4 @@
 202305190400|SumatranRhino|Rhinocéros de Sumatra, parc national de Way Kambas, Indonésie (© Cyril Ruoso/Minden Pictures)|Comment aider les animaux en danger?|![](/fr-CA/2023/05/202305190400SumatranRhino.jpg)|
 202305200400|EuropeanHoneybee|Abeilles mellifères européennes à Sheffield, Angleterre (© Deborah Vernon/Alamy)|Nos meilleures alliées de la nature|![](/fr-CA/2023/05/202305200400EuropeanHoneybee.jpg)|
 202305210400|PontdArcole|Pont d’Arcole sur la Seine, Paris, France (© StockByM/Getty Images)|Un fleuve majestueux et emblématique|![](/fr-CA/2023/05/202305210400PontdArcole.jpg)|
+202305220400|OttawaParliamentBuildings|Édifices du Parlement, Ottawa, Canada (© Serega/Getty Images)|Un jour pour fêter le lien avec l’Angleterre|![](/fr-CA/2023/05/202305220400OttawaParliamentBuildings.jpg)|
