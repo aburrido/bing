@@ -22,3 +22,4 @@
 202305192200|EuropeanHoneybee|Europäische Honigbienen in Sheffield, England (© Deborah Vernon/Alamy)|Summ Summ Summ|![](/de-DE/2023/05/202305192200EuropeanHoneybee.jpg)|
 202305202200|BremenScienceMuseum|Universum Bremen, Science Center (© imageBROKER/Alamy Stock Photo)|Die Zukunft ist heute|![](/de-DE/2023/05/202305202200BremenScienceMuseum.jpg)|
 202305212200|BiodiverseCostaRica|Arenal Vulkan, Monteverde, Costa Rica (© Kevin Wells/Getty Images)|Schützen wir die biologische Vielfalt unserer Heimat|![](/de-DE/2023/05/202305212200BiodiverseCostaRica.jpg)|
+202305222200|WesternBoxTurtle|Schildkröte (© Tim Fitzharris/Minden Pictures)|Schützen wir die Schildkröten!|![](/de-DE/2023/05/202305222200WesternBoxTurtle.jpg)|
