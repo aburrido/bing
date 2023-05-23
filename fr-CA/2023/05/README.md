@@ -23,3 +23,4 @@
 202305200400|EuropeanHoneybee|Abeilles mellifères européennes à Sheffield, Angleterre (© Deborah Vernon/Alamy)|Nos meilleures alliées de la nature|![](/fr-CA/2023/05/202305200400EuropeanHoneybee.jpg)|
 202305210400|PontdArcole|Pont d’Arcole sur la Seine, Paris, France (© StockByM/Getty Images)|Un fleuve majestueux et emblématique|![](/fr-CA/2023/05/202305210400PontdArcole.jpg)|
 202305220400|OttawaParliamentBuildings|Édifices du Parlement, Ottawa, Canada (© Serega/Getty Images)|Un jour pour fêter le lien avec l’Angleterre|![](/fr-CA/2023/05/202305220400OttawaParliamentBuildings.jpg)|
+202305230400|WesternBoxTurtle|Tortue à boîte ornée (© Tim Fitzharris/Minden Pictures)|Protégeons nos tortues|![](/fr-CA/2023/05/202305230400WesternBoxTurtle.jpg)|
