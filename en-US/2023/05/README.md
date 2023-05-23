@@ -24,3 +24,4 @@
 202305200700|EuropeanHoneybee|European honeybees in Sheffield, England (© Deborah Vernon/Alamy)|The buzz about World Bee Day|![](/en-US/2023/05/202305200700EuropeanHoneybee.jpg)|
 202305210700|PontdArcole|Pont d’Arcole on the Seine river, Paris, France (© StockByM/Getty Images)|Spanning the Seine|![](/en-US/2023/05/202305210700PontdArcole.jpg)|
 202305220700|BiodiverseCostaRica|Arenal Volcano seen from Monteverde, Costa Rica (© Kevin Wells/Getty Images)|Life in the clouds|![](/en-US/2023/05/202305220700BiodiverseCostaRica.jpg)|
+202305230700|WesternBoxTurtle|Western box turtle (© Tim Fitzharris/Minden Pictures)|Turtle power!|![](/en-US/2023/05/202305230700WesternBoxTurtle.jpg)|
