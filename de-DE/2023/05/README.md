@@ -24,3 +24,4 @@
 202305212200|BiodiverseCostaRica|Arenal Vulkan, Monteverde, Costa Rica (© Kevin Wells/Getty Images)|Schützen wir die biologische Vielfalt unserer Heimat|![](/de-DE/2023/05/202305212200BiodiverseCostaRica.jpg)|
 202305222200|WesternBoxTurtle|Schildkröte (© Tim Fitzharris/Minden Pictures)|Schützen wir die Schildkröten!|![](/de-DE/2023/05/202305222200WesternBoxTurtle.jpg)|
 ||||![](/de-DE/2023/05/.jpg)|
+202305232200|OldFortress|Alte Festung auf der Insel Korfu, Griechenland (© Netfalls Remy Musser/Shutterstock)|Wo Geschichte zum Leben erwacht|![](/de-DE/2023/05/202305232200OldFortress.jpg)|
