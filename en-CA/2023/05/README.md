@@ -23,3 +23,4 @@
 202305210400|PontdArcole|River Seine, Paris, France (© StockByM/Getty Images)|A bridge that holds up history|![](/en-CA/2023/05/202305210400PontdArcole.jpg)|
 202305220400|OttawaParliamentBuildings|Ottawa Parliament Buildings Sunset View, Canada (© Serega/Getty Images)|Celebrating Canada and England's common bond|![](/en-CA/2023/05/202305220400OttawaParliamentBuildings.jpg)|
 202305230400|WesternBoxTurtle|Western box turtle (© Tim Fitzharris/Minden Pictures)|Let's protect our turtles|![](/en-CA/2023/05/202305230400WesternBoxTurtle.jpg)|
+202305240400|OldFortress|The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)|Where history comes alive|![](/en-CA/2023/05/202305240400OldFortress.jpg)|

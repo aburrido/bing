@@ -24,3 +24,4 @@
 202305210400|PontdArcole|Pont d’Arcole sur la Seine, Paris, France (© StockByM/Getty Images)|Un fleuve majestueux et emblématique|![](/fr-CA/2023/05/202305210400PontdArcole.jpg)|
 202305220400|OttawaParliamentBuildings|Édifices du Parlement, Ottawa, Canada (© Serega/Getty Images)|Un jour pour fêter le lien avec l’Angleterre|![](/fr-CA/2023/05/202305220400OttawaParliamentBuildings.jpg)|
 202305230400|WesternBoxTurtle|Tortue à boîte ornée (© Tim Fitzharris/Minden Pictures)|Protégeons nos tortues|![](/fr-CA/2023/05/202305230400WesternBoxTurtle.jpg)|
+202305240400|OldFortress|Le Vieux Fort de Corfou (© Netfalls Remy Musser/Shutterstock)|Où l'histoire prend vie|![](/fr-CA/2023/05/202305240400OldFortress.jpg)|
