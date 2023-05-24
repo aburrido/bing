@@ -25,3 +25,4 @@
 202305221500|WesternBoxTurtle|ニシキハコガメ (© Tim Fitzharris/Minden Pictures)|今日は世界カメの日|![](/ja-JP/2023/05/202305221500WesternBoxTurtle.jpg)|
 202305231500|OldFortress|コルフ島の旧要塞, ギリシャ (© Netfalls Remy Musser/Shutterstock)|夕日に染まる旧要塞|![](/ja-JP/2023/05/202305231500OldFortress.jpg)|
 ||||![](/ja-JP/2023/05/.jpg)|
+202305241500|SaksunFaroe|フェロー諸島のサクスン村, デンマーク (© miroslav_1/Getty Images)|まるで童話の世界|![](/ja-JP/2023/05/202305241500SaksunFaroe.jpg)|
