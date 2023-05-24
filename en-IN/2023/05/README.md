@@ -25,3 +25,4 @@
 202305221830|KeralaCoffee|Coffee plantations, Kerala, India (© Hari Mahidhar/Shutterstock)|Nature's boost fruit|![](/en-IN/2023/05/202305221830KeralaCoffee.jpg)|
 202305231830|OldFortress|The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)|Where history comes alive|![](/en-IN/2023/05/202305231830OldFortress.jpg)|
 ||||![](/en-IN/2023/05/.jpg)|
+202305241830|SaksunFaroe|The North Atlantic island village of Saksun (© miroslav_1/Getty Images)|Straight out of a fairytale|![](/en-IN/2023/05/202305241830SaksunFaroe.jpg)|
