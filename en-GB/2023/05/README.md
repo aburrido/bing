@@ -26,3 +26,4 @@
 202305232300|OldFortress|The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)|Where history comes alive|![](/en-GB/2023/05/202305232300OldFortress.jpg)|
 ||||![](/en-GB/2023/05/.jpg)|
 202305242300|TheHayFestival|Hay Festival, UK (© Yunus Kaymaz/Anadolu Agency/Getty Images)|Portable portals into our imagination|![](/en-GB/2023/05/202305242300TheHayFestival.jpg)|
+202305252300|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|Finding beauty in ruins|![](/en-GB/2023/05/202305252300WatSriSawai.jpg)|
