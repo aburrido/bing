@@ -26,3 +26,4 @@
 202305232200|OldFortress|Le Vieux Fort de Corfou (© Netfalls Remy Musser/Shutterstock)|Là où l'histoire prend vie|![](/fr-FR/2023/05/202305232200OldFortress.jpg)|
 ||||![](/fr-FR/2023/05/.jpg)|
 202305242200|SaksunFaroe|Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)|Quel est ce lieu magique ?|![](/fr-FR/2023/05/202305242200SaksunFaroe.jpg)|
+202305252200|WatSriSawai|Wat Sri Sawai, Parc historique de Sukhothai, Thaïlande (© Casper1774 Studio/Shutterstock)|Où se trouve ce site historique ?|![](/fr-FR/2023/05/202305252200WatSriSawai.jpg)|

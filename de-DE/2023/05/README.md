@@ -26,3 +26,4 @@
 ||||![](/de-DE/2023/05/.jpg)|
 202305232200|OldFortress|Alte Festung auf der Insel Korfu, Griechenland (© Netfalls Remy Musser/Shutterstock)|Wo Geschichte zum Leben erwacht|![](/de-DE/2023/05/202305232200OldFortress.jpg)|
 202305242200|SaksunFaroe|Das nordatlantische Inseldorf Saksun, Färöer (© miroslav_1/Getty Images)|Wirklichkeit oder Märchen?|![](/de-DE/2023/05/202305242200SaksunFaroe.jpg)|
+202305252200|WatSriSawai|Wat Sri Sawai im historischen Park von Sukhothai, Thailand (© Casper1774 Studio/Shutterstock)|Weisheit, Geschichte und Ruinen|![](/de-DE/2023/05/202305252200WatSriSawai.jpg)|
