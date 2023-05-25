@@ -26,3 +26,4 @@
 202305221600|WesternBoxTurtle|西部箱龟 (© Tim Fitzharris/Minden Pictures)|保护我们的乌龟|![](/zh-CN/2023/05/202305221600WesternBoxTurtle.jpg)|
 202305231600|OldFortress|科孚岛旧城堡 (© Netfalls Remy Musser/Shutterstock)|历史在这里复活|![](/zh-CN/2023/05/202305231600OldFortress.jpg)|
 202305241600|SaksunFaroe|法罗群岛，丹麦 (© miroslav_1/Getty Images)|童话照进现实|![](/zh-CN/2023/05/202305241600SaksunFaroe.jpg)|
+202305251600|WatSriSawai|西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)|在废墟中寻找美|![](/zh-CN/2023/05/202305251600WatSriSawai.jpg)|
