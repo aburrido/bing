@@ -25,3 +25,4 @@
 202305230400|WesternBoxTurtle|Western box turtle (© Tim Fitzharris/Minden Pictures)|Let's protect our turtles|![](/en-CA/2023/05/202305230400WesternBoxTurtle.jpg)|
 202305240400|OldFortress|The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)|Where history comes alive|![](/en-CA/2023/05/202305240400OldFortress.jpg)|
 ||||![](/en-CA/2023/05/.jpg)|
+202305250400|SaksunFaroe|Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)|Straight out of a fairytale|![](/en-CA/2023/05/202305250400SaksunFaroe.jpg)|

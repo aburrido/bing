@@ -25,3 +25,4 @@
 202305220400|OttawaParliamentBuildings|Édifices du Parlement, Ottawa, Canada (© Serega/Getty Images)|Un jour pour fêter le lien avec l’Angleterre|![](/fr-CA/2023/05/202305220400OttawaParliamentBuildings.jpg)|
 202305230400|WesternBoxTurtle|Tortue à boîte ornée (© Tim Fitzharris/Minden Pictures)|Protégeons nos tortues|![](/fr-CA/2023/05/202305230400WesternBoxTurtle.jpg)|
 202305240400|OldFortress|Le Vieux Fort de Corfou (© Netfalls Remy Musser/Shutterstock)|Où l'histoire prend vie|![](/fr-CA/2023/05/202305240400OldFortress.jpg)|
+202305250400|SaksunFaroe|Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)|Tout droit sorti d'un conte de fées|![](/fr-CA/2023/05/202305250400SaksunFaroe.jpg)|
