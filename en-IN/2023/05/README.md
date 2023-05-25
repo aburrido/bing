@@ -26,3 +26,4 @@
 202305231830|OldFortress|The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)|Where history comes alive|![](/en-IN/2023/05/202305231830OldFortress.jpg)|
 ||||![](/en-IN/2023/05/.jpg)|
 202305241830|SaksunFaroe|The North Atlantic island village of Saksun (© miroslav_1/Getty Images)|Straight out of a fairytale|![](/en-IN/2023/05/202305241830SaksunFaroe.jpg)|
+202305251830|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|Finding beauty in ruins|![](/en-IN/2023/05/202305251830WatSriSawai.jpg)|
