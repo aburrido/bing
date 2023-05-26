@@ -27,3 +27,4 @@
 ||||![](/en-AU/2023/05/.jpg)|
 202305240700|OldFortress|The Old Fortress of Corfu (© Netfalls Remy Musser/Shutterstock)|Info|![](/en-AU/2023/05/202305240700OldFortress.jpg)|
 202305250700|SaksunFaroe|The North Atlantic island village of Saksun (© miroslav_1/Getty Images)|Info|![](/en-AU/2023/05/202305250700SaksunFaroe.jpg)|
+202305260700|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park (© Casper1774 Studio/Shutterstock)|Info|![](/en-AU/2023/05/202305260700WatSriSawai.jpg)|
