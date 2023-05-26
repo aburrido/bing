@@ -27,3 +27,4 @@
 ||||![](/ja-JP/2023/05/.jpg)|
 202305241500|SaksunFaroe|フェロー諸島のサクスン村, デンマーク (© miroslav_1/Getty Images)|まるで童話の世界|![](/ja-JP/2023/05/202305241500SaksunFaroe.jpg)|
 202305251500|WatSriSawai|ワット・シー・サワイ, タイ (© Casper1774 Studio/Shutterstock)|タイの栄光を語るスコータイ歴史公園|![](/ja-JP/2023/05/202305251500WatSriSawai.jpg)|
+202305261500|AloeDichotomum|クイバー・ツリー, ナミビア (© Fotofeeling/DEEPOL by plainpicture)|不思議なシルエットの植物|![](/ja-JP/2023/05/202305261500AloeDichotomum.jpg)|
