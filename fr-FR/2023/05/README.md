@@ -27,3 +27,4 @@
 ||||![](/fr-FR/2023/05/.jpg)|
 202305242200|SaksunFaroe|Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)|Quel est ce lieu magique ?|![](/fr-FR/2023/05/202305242200SaksunFaroe.jpg)|
 202305252200|WatSriSawai|Wat Sri Sawai, Parc historique de Sukhothai, Thaïlande (© Casper1774 Studio/Shutterstock)|Où se trouve ce site historique ?|![](/fr-FR/2023/05/202305252200WatSriSawai.jpg)|
+202305262200|AloeDichotomum|La flore de Namibie (© Fotofeeling/DEEPOL by plainpicture)|Toucher le ciel…|![](/fr-FR/2023/05/202305262200AloeDichotomum.jpg)|
