@@ -28,3 +28,4 @@
 202305241830|SaksunFaroe|The North Atlantic island village of Saksun (© miroslav_1/Getty Images)|Straight out of a fairytale|![](/en-IN/2023/05/202305241830SaksunFaroe.jpg)|
 202305251830|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|Finding beauty in ruins|![](/en-IN/2023/05/202305251830WatSriSawai.jpg)|
 202305261830|AloeDichotomum|Plant life in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-IN/2023/05/202305261830AloeDichotomum.jpg)|
+202305271830|TegallalangTerrace|Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)|Hovering over harmonious horticulture|![](/en-IN/2023/05/202305271830TegallalangTerrace.jpg)|
