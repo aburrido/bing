@@ -27,3 +27,4 @@
 202305240400|OldFortress|Le Vieux Fort de Corfou (© Netfalls Remy Musser/Shutterstock)|Où l'histoire prend vie|![](/fr-CA/2023/05/202305240400OldFortress.jpg)|
 202305250400|SaksunFaroe|Le village insulaire de Saksun dans l'Atlantique Nord (© miroslav_1/Getty Images)|Tout droit sorti d'un conte de fées|![](/fr-CA/2023/05/202305250400SaksunFaroe.jpg)|
 202305260400|WatSriSawai|Wat Sri Sawai, Parc historique de Sukhothai, Thaïlande (© Casper1774 Studio/Shutterstock)|La beauté dans les ruines|![](/fr-CA/2023/05/202305260400WatSriSawai.jpg)|
+202305270400|AloeDichotomum|La flore en Namibie (© Fotofeeling/DEEPOL by plainpicture)|S'étirer vers le ciel…|![](/fr-CA/2023/05/202305270400AloeDichotomum.jpg)|

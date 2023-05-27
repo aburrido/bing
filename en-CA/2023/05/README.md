@@ -27,3 +27,4 @@
 ||||![](/en-CA/2023/05/.jpg)|
 202305250400|SaksunFaroe|Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)|Straight out of a fairytale|![](/en-CA/2023/05/202305250400SaksunFaroe.jpg)|
 202305260400|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|Finding beauty in ruins|![](/en-CA/2023/05/202305260400WatSriSawai.jpg)|
+202305270400|AloeDichotomum|Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-CA/2023/05/202305270400AloeDichotomum.jpg)|
