@@ -28,3 +28,4 @@
 202305241600|SaksunFaroe|法罗群岛，丹麦 (© miroslav_1/Getty Images)|童话照进现实|![](/zh-CN/2023/05/202305241600SaksunFaroe.jpg)|
 202305251600|WatSriSawai|西沙瓦寺，素可泰历史公园，泰国 (© Casper1774 Studio/Shutterstock)|在废墟中寻找美|![](/zh-CN/2023/05/202305251600WatSriSawai.jpg)|
 202305261600|AloeDichotomum|纳米比亚的植物 (© Fotofeeling/DEEPOL by plainpicture)|伸向天空|![](/zh-CN/2023/05/202305261600AloeDichotomum.jpg)|
+202305271600|TegallalangTerrace|乌布的德格拉朗梯田，印度尼西亚 (© Cavan Images/Adobe Stock)|俯瞰层叠的梯田|![](/zh-CN/2023/05/202305271600TegallalangTerrace.jpg)|
