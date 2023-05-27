@@ -28,3 +28,4 @@
 202305242300|TheHayFestival|Hay Festival, UK (© Yunus Kaymaz/Anadolu Agency/Getty Images)|Portable portals into our imagination|![](/en-GB/2023/05/202305242300TheHayFestival.jpg)|
 202305252300|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|Finding beauty in ruins|![](/en-GB/2023/05/202305252300WatSriSawai.jpg)|
 202305262300|AloeDichotomum|Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-GB/2023/05/202305262300AloeDichotomum.jpg)|
+202305272300|TegallalangTerrace|Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)|Hovering over harmonious horticulture|![](/en-GB/2023/05/202305272300TegallalangTerrace.jpg)|
