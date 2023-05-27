@@ -28,3 +28,4 @@
 202305240700|OldFortress|The Old Fortress of Corfu, Greece (© Netfalls Remy Musser/Shutterstock)|Standing firm|![](/en-US/2023/05/202305240700OldFortress.jpg)|
 202305250700|SaksunFaroe|Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)|Where the grass is greener|![](/en-US/2023/05/202305250700SaksunFaroe.jpg)|
 202305260700|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|The splendors of Sukhothai|![](/en-US/2023/05/202305260700WatSriSawai.jpg)|
+202305270700|AloeDichotomum|Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-US/2023/05/202305270700AloeDichotomum.jpg)|
