@@ -29,3 +29,4 @@
 202305251500|WatSriSawai|ワット・シー・サワイ, タイ (© Casper1774 Studio/Shutterstock)|タイの栄光を語るスコータイ歴史公園|![](/ja-JP/2023/05/202305251500WatSriSawai.jpg)|
 202305261500|AloeDichotomum|クイバー・ツリー, ナミビア (© Fotofeeling/DEEPOL by plainpicture)|不思議なシルエットの植物|![](/ja-JP/2023/05/202305261500AloeDichotomum.jpg)|
 202305271500|TegallalangTerrace|テガララン・ライステラス, インドネシア (© Cavan Images/Adobe Stock)|美しいカーブを描く棚田|![](/ja-JP/2023/05/202305271500TegallalangTerrace.jpg)|
+202305281500|PontdArcole|セーヌ川, フランス パリ (© StockByM/Getty Images)|歴史を繋ぐ架け橋|![](/ja-JP/2023/05/202305281500PontdArcole.jpg)|
