@@ -29,3 +29,4 @@
 202305250700|SaksunFaroe|The North Atlantic island village of Saksun (© miroslav_1/Getty Images)|Info|![](/en-AU/2023/05/202305250700SaksunFaroe.jpg)|
 202305260700|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park (© Casper1774 Studio/Shutterstock)|Info|![](/en-AU/2023/05/202305260700WatSriSawai.jpg)|
 202305270700|AloeDichotomum|Plant life in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Info|![](/en-AU/2023/05/202305270700AloeDichotomum.jpg)|
+202305280700|TegallalangTerrace|Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)|Info|![](/en-AU/2023/05/202305280700TegallalangTerrace.jpg)|
