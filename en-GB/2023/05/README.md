@@ -30,3 +30,4 @@
 202305262300|AloeDichotomum|Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-GB/2023/05/202305262300AloeDichotomum.jpg)|
 202305272300|TegallalangTerrace|Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)|Hovering over harmonious horticulture|![](/en-GB/2023/05/202305272300TegallalangTerrace.jpg)|
 202305282300|FitzwilliamMuseum|Art Gallery Hall, Fitzwilliam Museum, UK (© Pompaem Gogh/Shutterstock)|A stunning chamber for beautiful art|![](/en-GB/2023/05/202305282300FitzwilliamMuseum.jpg)|
+202305292300|HiddenBeach|Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Secluded sands in Mexico|![](/en-GB/2023/05/202305292300HiddenBeach.jpg)|
