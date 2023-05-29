@@ -30,3 +30,4 @@
 202305262200|AloeDichotomum|Pflanzenwelt in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Zum Himmel streckend|![](/de-DE/2023/05/202305262200AloeDichotomum.jpg)|
 202305272200|TegallalangTerrace|Tegalalang-Terrassenbetriebe in Ubud, Indonesien (© Cavan Images/Adobe Stock)|Über Reisterrassen schweben|![](/de-DE/2023/05/202305272200TegallalangTerrace.jpg)|
 202305282200|HistoricWindmill|Historische Windmühlen (© larskuse/Shutterstock)|Gegen Windmühlen kämpfen?|![](/de-DE/2023/05/202305282200HistoricWindmill.jpg)|
+202305292200|HiddenBeach|Playa del Amor, Marietas-Inseln, Mexiko (© ferrantraite/Getty Images)|Abgelegene Strände in Mexiko|![](/de-DE/2023/05/202305292200HiddenBeach.jpg)|
