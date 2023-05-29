@@ -29,3 +29,4 @@
 202305260400|WatSriSawai|Wat Sri Sawai, Parc historique de Sukhothai, Thaïlande (© Casper1774 Studio/Shutterstock)|La beauté dans les ruines|![](/fr-CA/2023/05/202305260400WatSriSawai.jpg)|
 202305270400|AloeDichotomum|La flore en Namibie (© Fotofeeling/DEEPOL by plainpicture)|S'étirer vers le ciel…|![](/fr-CA/2023/05/202305270400AloeDichotomum.jpg)|
 202305280400|Antilles|Grand Cul-de-Sac Marin, Guadeloupe National Park, Lesser Antilles (© Hemis/Alamy)|La beauté sauvage des Caraïbes|![](/fr-CA/2023/05/202305280400Antilles.jpg)|
+202305290400|WesternBrookPond|Passerelle dans le Parc National du Gros-Morne (© Cavan Images - Offset/Shutterstock)|Sous un ciel étoilé|![](/fr-CA/2023/05/202305290400WesternBrookPond.jpg)|
