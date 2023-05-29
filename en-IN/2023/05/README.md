@@ -30,3 +30,4 @@
 202305261830|AloeDichotomum|Plant life in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-IN/2023/05/202305261830AloeDichotomum.jpg)|
 202305271830|TegallalangTerrace|Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)|Hovering over harmonious horticulture|![](/en-IN/2023/05/202305271830TegallalangTerrace.jpg)|
 202305281830|Silhouetteofmangoes|Ripening mangoes on a tree, India (© Tim Gainey/Alamy Stock Photo)|A herald of summer|![](/en-IN/2023/05/202305281830Silhouetteofmangoes.jpg)|
+202305291830|HiddenBeach|Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Secluded sands in Mexico|![](/en-IN/2023/05/202305291830HiddenBeach.jpg)|
