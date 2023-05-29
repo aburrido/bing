@@ -30,3 +30,4 @@
 202305260700|WatSriSawai|Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)|The splendors of Sukhothai|![](/en-US/2023/05/202305260700WatSriSawai.jpg)|
 202305270700|AloeDichotomum|Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Stretching to the sky|![](/en-US/2023/05/202305270700AloeDichotomum.jpg)|
 202305280700|TegallalangTerrace|Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)|Farming in harmony with nature|![](/en-US/2023/05/202305280700TegallalangTerrace.jpg)|
+202305290700|LanternFloating|Lantern floating ceremony, Ala Moana Beach Park, Honolulu, Hawaii (© Naomi Hayes of Island Memories Photography/Getty Images)|Honoring the fallen|![](/en-US/2023/05/202305290700LanternFloating.jpg)|
