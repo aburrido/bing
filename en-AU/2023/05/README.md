@@ -31,3 +31,4 @@
 202305270700|AloeDichotomum|Plant life in Namibia (© Fotofeeling/DEEPOL by plainpicture)|Info|![](/en-AU/2023/05/202305270700AloeDichotomum.jpg)|
 202305280700|TegallalangTerrace|Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)|Info|![](/en-AU/2023/05/202305280700TegallalangTerrace.jpg)|
 202305290700|Antilles|Grand Cul-de-Sac Marin, Guadeloupe National Park, Lesser Antilles (© Hemis/Alamy)|Info|![](/en-AU/2023/05/202305290700Antilles.jpg)|
+202305300700|HiddenBeach|Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Info|![](/en-AU/2023/05/202305300700HiddenBeach.jpg)|
