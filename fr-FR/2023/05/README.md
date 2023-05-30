@@ -31,3 +31,4 @@
 202305272200|FrenchTennis|Coucher de soleil sur le court Philippe Chatrier, Roland-Garros, Paris (© Juergen Hasenkopf/Alamy Stock Photo)|À vos raquettes !|![](/fr-FR/2023/05/202305272200FrenchTennis.jpg)|
 202305282200|Antilles|Grand Cul-de-Sac Marin, Parc National de Guadeloupe, Antilles  (© Hemis/Alamy)|La beauté sauvage des Caraïbes|![](/fr-FR/2023/05/202305282200Antilles.jpg)|
 202305292200|HiddenBeach|Playa del Amor, Îles Marietas, Puerto Vallarta, Mexique (© ferrantraite/Getty Images)|Une crique extraordinaire|![](/fr-FR/2023/05/202305292200HiddenBeach.jpg)|
+202305302200|WorldOtterDay|Petit de loutre de mer, Baie du Prince William, Alaska (© Donald M. Jones/Minden Pictures)|Une petite loutre très curieuse|![](/fr-FR/2023/05/202305302200WorldOtterDay.jpg)|

@@ -31,3 +31,4 @@
 202305272200|TegallalangTerrace|Tegalalang-Terrassenbetriebe in Ubud, Indonesien (© Cavan Images/Adobe Stock)|Über Reisterrassen schweben|![](/de-DE/2023/05/202305272200TegallalangTerrace.jpg)|
 202305282200|HistoricWindmill|Historische Windmühlen (© larskuse/Shutterstock)|Gegen Windmühlen kämpfen?|![](/de-DE/2023/05/202305282200HistoricWindmill.jpg)|
 202305292200|HiddenBeach|Playa del Amor, Marietas-Inseln, Mexiko (© ferrantraite/Getty Images)|Abgelegene Strände in Mexiko|![](/de-DE/2023/05/202305292200HiddenBeach.jpg)|
+202305302200|WorldOtterDay|Seeotterwelpe, Prince-William-Sund, Alaska (© Donald M. Jones/Minden Pictures)|Süße Neugierde|![](/de-DE/2023/05/202305302200WorldOtterDay.jpg)|
