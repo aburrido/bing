@@ -31,3 +31,4 @@
 202305271830|TegallalangTerrace|Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)|Hovering over harmonious horticulture|![](/en-IN/2023/05/202305271830TegallalangTerrace.jpg)|
 202305281830|Silhouetteofmangoes|Ripening mangoes on a tree, India (© Tim Gainey/Alamy Stock Photo)|A herald of summer|![](/en-IN/2023/05/202305281830Silhouetteofmangoes.jpg)|
 202305291830|HiddenBeach|Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Secluded sands in Mexico|![](/en-IN/2023/05/202305291830HiddenBeach.jpg)|
+202305301830|WorldOtterDay|Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)|A curious little otter pup|![](/en-IN/2023/05/202305301830WorldOtterDay.jpg)|
