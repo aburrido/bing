@@ -32,3 +32,4 @@
 202305281830|Silhouetteofmangoes|Ripening mangoes on a tree, India (© Tim Gainey/Alamy Stock Photo)|A herald of summer|![](/en-IN/2023/05/202305281830Silhouetteofmangoes.jpg)|
 202305291830|HiddenBeach|Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Secluded sands in Mexico|![](/en-IN/2023/05/202305291830HiddenBeach.jpg)|
 202305301830|WorldOtterDay|Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)|A curious little otter pup|![](/en-IN/2023/05/202305301830WorldOtterDay.jpg)|
+202305311830|ReefAwareness|Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)|Blue as far as the eye can see|![](/en-IN/2023/05/202305311830ReefAwareness.jpg)|
