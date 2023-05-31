@@ -31,3 +31,4 @@
 202305280400|Antilles|Grand Cul-de-Sac Marin, Guadeloupe National Park, Lesser Antilles (© Hemis/Alamy)|La beauté sauvage des Caraïbes|![](/fr-CA/2023/05/202305280400Antilles.jpg)|
 202305290400|WesternBrookPond|Passerelle dans le Parc National du Gros-Morne (© Cavan Images - Offset/Shutterstock)|Sous un ciel étoilé|![](/fr-CA/2023/05/202305290400WesternBrookPond.jpg)|
 202305300400|HiddenBeach|Playa del Amor, Îles Marietas, Puerto Vallarta, Mexique (© ferrantraite/Getty Images)|Découvrez cette crique isolée au Mexique|![](/fr-CA/2023/05/202305300400HiddenBeach.jpg)|
+202305310400|WorldOtterDay|Petit de loutre de mer, Baie du Prince William, Alaska (© Donald M. Jones/Minden Pictures)|Une petite loutre très curieuse|![](/fr-CA/2023/05/202305310400WorldOtterDay.jpg)|

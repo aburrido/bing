@@ -31,3 +31,4 @@
 202305280400|TegallalangTerrace|Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)|Hovering over harmonious horticulture|![](/en-CA/2023/05/202305280400TegallalangTerrace.jpg)|
 202305290400|WesternBrookPond|Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)|A starry night!|![](/en-CA/2023/05/202305290400WesternBrookPond.jpg)|
 202305300400|HiddenBeach|Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Secluded sands in Mexico|![](/en-CA/2023/05/202305300400HiddenBeach.jpg)|
+202305310400|WorldOtterDay|Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)|A curious little otter pup|![](/en-CA/2023/05/202305310400WorldOtterDay.jpg)|
