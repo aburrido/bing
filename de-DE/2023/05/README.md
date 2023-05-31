@@ -32,3 +32,4 @@
 202305282200|HistoricWindmill|Historische Windmühlen (© larskuse/Shutterstock)|Gegen Windmühlen kämpfen?|![](/de-DE/2023/05/202305282200HistoricWindmill.jpg)|
 202305292200|HiddenBeach|Playa del Amor, Marietas-Inseln, Mexiko (© ferrantraite/Getty Images)|Abgelegene Strände in Mexiko|![](/de-DE/2023/05/202305292200HiddenBeach.jpg)|
 202305302200|WorldOtterDay|Seeotterwelpe, Prince-William-Sund, Alaska (© Donald M. Jones/Minden Pictures)|Süße Neugierde|![](/de-DE/2023/05/202305302200WorldOtterDay.jpg)|
+202305312200|ReefAwareness|Luftaufnahme vom Great Barrier Reef, Australien (© AirPano LLC/Amazing Aerial Agency)|Blau, soweit das Auge reicht|![](/de-DE/2023/05/202305312200ReefAwareness.jpg)|
