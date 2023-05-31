@@ -32,3 +32,4 @@
 202305281500|PontdArcole|セーヌ川, フランス パリ (© StockByM/Getty Images)|歴史を繋ぐ架け橋|![](/ja-JP/2023/05/202305281500PontdArcole.jpg)|
 202305291500|HiddenBeach|マリエタス諸島のプラヤ・デル・アモール, メキシコ (© ferrantraite/Getty Images)|メキシコの秘境の砂浜|![](/ja-JP/2023/05/202305291500HiddenBeach.jpg)|
 202305301500|WorldOtterDay|ラッコの赤ちゃん, 米国 アラスカ州 (© Donald M. Jones/Minden Pictures)|今日は世界カワウソの日|![](/ja-JP/2023/05/202305301500WorldOtterDay.jpg)|
+202305311500|ReefAwareness|グレートバリアリーフ, オーストラリア (© AirPano LLC/Amazing Aerial Agency)|今日はワールドリーフデー|![](/ja-JP/2023/05/202305311500ReefAwareness.jpg)|
