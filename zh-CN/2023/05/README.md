@@ -32,3 +32,4 @@
 202305281600|Antilles|萨克马兰大湾，瓜德罗普岛国家公园，小安的列斯群岛 (© Hemis/Alamy)|人间天堂|![](/zh-CN/2023/05/202305281600Antilles.jpg)|
 202305291600|HiddenBeach|埃莫海滩，玛丽埃塔斯群岛，巴亚尔塔港，墨西哥 (© ferrantraite/Getty Images)|墨西哥的隐秘海滩|![](/zh-CN/2023/05/202305291600HiddenBeach.jpg)|
 202305301600|WorldOtterDay|海獭宝宝，威廉王子湾，美国阿拉斯加州 (© Donald M. Jones/Minden Pictures)|一脸好奇的海獭宝宝|![](/zh-CN/2023/05/202305301600WorldOtterDay.jpg)|
+202305311600|ReefAwareness|大堡礁的航拍图，澳大利亚 (© AirPano LLC/Amazing Aerial Agency)|一望无际的湛蓝|![](/zh-CN/2023/05/202305311600ReefAwareness.jpg)|
