@@ -32,3 +32,4 @@
 202305280700|TegallalangTerrace|Tegalalang terrace farms in Ubud, Indonesia (© Cavan Images/Adobe Stock)|Info|![](/en-AU/2023/05/202305280700TegallalangTerrace.jpg)|
 202305290700|Antilles|Grand Cul-de-Sac Marin, Guadeloupe National Park, Lesser Antilles (© Hemis/Alamy)|Info|![](/en-AU/2023/05/202305290700Antilles.jpg)|
 202305300700|HiddenBeach|Playa del Amor, Marietas Islands, Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Info|![](/en-AU/2023/05/202305300700HiddenBeach.jpg)|
+202305310700|WorldOtterDay|Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)|Info|![](/en-AU/2023/05/202305310700WorldOtterDay.jpg)|

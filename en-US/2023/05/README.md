@@ -32,3 +32,4 @@
 202305280700|TegallalangTerrace|Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)|Farming in harmony with nature|![](/en-US/2023/05/202305280700TegallalangTerrace.jpg)|
 202305290700|LanternFloating|Lantern floating ceremony, Ala Moana Beach Park, Honolulu, Hawaii (© Naomi Hayes of Island Memories Photography/Getty Images)|Honoring the fallen|![](/en-US/2023/05/202305290700LanternFloating.jpg)|
 202305300700|HiddenBeach|Playa del Amor in the Marietas Islands, off the coast of Puerto Vallarta, Mexico (© ferrantraite/Getty Images)|Secluded sands in Mexico|![](/en-US/2023/05/202305300700HiddenBeach.jpg)|
+202305310700|WorldOtterDay|Sea otter pup, Prince William Sound, Alaska (© Donald M. Jones/Minden Pictures)|Otterly adorable|![](/en-US/2023/05/202305310700WorldOtterDay.jpg)|
