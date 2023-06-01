@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202305311500|ReefAwareness|グレートバリアリーフ, オーストラリア (© AirPano LLC/Amazing Aerial Agency)|今日はワールドリーフデー|![](/ja-JP/2023/06/202305311500ReefAwareness.jpg)|
+202306011500|GemsbokNamibia|砂丘にたたずむオリックス, ナミビア (© Sergey Gorshkov/Minden)|砂漠地帯で生き抜く不思議な動物|![](/ja-JP/2023/06/202306011500GemsbokNamibia.jpg)|
