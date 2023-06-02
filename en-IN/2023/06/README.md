@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202305311830|ReefAwareness|Aerial image of the Great Barrier Reef, Australia (© AirPano LLC/Amazing Aerial Agency)|Blue as far as the eye can see|![](/en-IN/2023/06/202305311830ReefAwareness.jpg)|
 202306011830|TelenganaDay|Charminar during Eid celebrations, Hyderabad, India (© Prudhvi Chowdary/iStock/Getty Images Plus)|A proud symbol of the City of Nizams|![](/en-IN/2023/06/202306011830TelenganaDay.jpg)|
+202306021830|SouthKaibabTrail|South Kaibab Trail in Grand Canyon National Park, Arizona (© Roman Khomlyak/Getty Images)|A glimpse of the grandest of canyons|![](/en-IN/2023/06/202306021830SouthKaibabTrail.jpg)|
