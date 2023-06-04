@@ -4,3 +4,4 @@
 202306012200|GemsbokNamibia|Spießbock (Oryx gazella) in den Sanddünen, Namibia (© Sergey Gorshkov/Minden)|Umgeben von einem Meer aus Sand|![](/de-DE/2023/06/202306012200GemsbokNamibia.jpg)|
 202306022200|SouthKaibabTrail|South Kaibab Trail im Grand-Canyon-Nationalpark, Arizona, USA (© Roman Khomlyak/Getty Images)|Wo ist diese herrliche Aussicht?|![](/de-DE/2023/06/202306022200SouthKaibabTrail.jpg)|
 202306032200|MauiBeach|Schwarzer Sandstrand, Wai'anapanapa State Park, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)|Schwarzer Sand im tropischen Paradies|![](/de-DE/2023/06/202306032200MauiBeach.jpg)|
+202306042200|PlasticParrotfish|Priscilla the Parrotfish, Como Park, St. Paul, Minnesota, USA (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Schaffen wir eine bessere Zukunft!|![](/de-DE/2023/06/202306042200PlasticParrotfish.jpg)|
