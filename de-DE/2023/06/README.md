@@ -6,3 +6,4 @@
 202306032200|MauiBeach|Schwarzer Sandstrand, Wai'anapanapa State Park, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)|Schwarzer Sand im tropischen Paradies|![](/de-DE/2023/06/202306032200MauiBeach.jpg)|
 202306042200|PlasticParrotfish|Priscilla the Parrotfish, Como Park, St. Paul, Minnesota, USA (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Schaffen wir eine bessere Zukunft!|![](/de-DE/2023/06/202306042200PlasticParrotfish.jpg)|
 ||||![](/de-DE/2023/06/.jpg)|
+202306052200|CliffsEtretat|Küste von Étretat, Normandie, Frankreich (© MarcelloLand/Getty Images)|Erinnerung an den D-Day|![](/de-DE/2023/06/202306052200CliffsEtretat.jpg)|

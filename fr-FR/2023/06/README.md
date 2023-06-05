@@ -5,3 +5,4 @@
 202306022200|SouthKaibabTrail|Sentier Kaibab Sud dans le Parc National du Grand Canyon, Arizona, États-Unis (© Roman Khomlyak/Getty Images)|Un canyon mythique|![](/fr-FR/2023/06/202306022200SouthKaibabTrail.jpg)|
 202306032200|OdocoileusVirginianus|Biche de Virginie et son faon, Montana  (© Donald M. Jones/Minden Pictures)|Bonne fête à toutes les mamans !|![](/fr-FR/2023/06/202306032200OdocoileusVirginianus.jpg)|
 202306042200|PlasticParrotfish|Œuvre d’art” Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, États-Unis (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Devinez avec quel matériel a été construite cette œuvre colorée ?|![](/fr-FR/2023/06/202306042200PlasticParrotfish.jpg)|
+202306052200|CliffsEtretat|Les falaises d'Étretat, Normandie (© MarcelloLand/Getty Images)|Commémorer pour ne pas oublier|![](/fr-FR/2023/06/202306052200CliffsEtretat.jpg)|
