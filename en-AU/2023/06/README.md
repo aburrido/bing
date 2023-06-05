@@ -6,3 +6,4 @@
 202306030700|SouthKaibabTrail|South Kaibab Trail in Grand Canyon National Park, Arizona, USA (© Roman Khomlyak/Getty Images)|Info|![](/en-AU/2023/06/202306030700SouthKaibabTrail.jpg)|
 ||||![](/en-AU/2023/06/.jpg)|
 202306040700|MauiBeach|Wai'anapanapa State Park black sand beach, Maui, Hawaii, USA (© Matt Anderson Photography/Getty Images)|Info|![](/en-AU/2023/06/202306040700MauiBeach.jpg)|
+202306050700|WaterfallsSunwaptaValley|Waterfalls in Sunwapta Valley, Jasper National Park, Canada (© Delpixart/Getty Images)|Info|![](/en-AU/2023/06/202306050700WaterfallsSunwaptaValley.jpg)|
