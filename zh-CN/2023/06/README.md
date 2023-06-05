@@ -5,3 +5,4 @@
 202306021600|SouthKaibabTrail|大峡谷国家公园的南凯巴布步道，亚利桑那州，美国 (© Roman Khomlyak/Getty Images)|一睹最壮观的峡谷|![](/zh-CN/2023/06/202306021600SouthKaibabTrail.jpg)|
 202306031600|MauiBeach|怀阿纳帕纳帕州立公园的黑沙滩，茂宜岛，夏威夷，美国 (© Matt Anderson Photography/Getty Images)|热带天堂的黑沙滩|![](/zh-CN/2023/06/202306031600MauiBeach.jpg)|
 202306041600|WaterfallsSunwaptaValley|辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)|风景如画的瀑布|![](/zh-CN/2023/06/202306041600WaterfallsSunwaptaValley.jpg)|
+202306051600|CliffsEtretat|The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)|诺曼底登陆日|![](/zh-CN/2023/06/202306051600CliffsEtretat.jpg)|
