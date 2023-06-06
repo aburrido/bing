@@ -5,3 +5,4 @@
 202306030400|SouthKaibabTrail|Sentier Kaibab Sud dans le Parc National du Grand Canyon, Arizona, États-Unis (© Roman Khomlyak/Getty Images)|Un canyon mythique|![](/fr-CA/2023/06/202306030400SouthKaibabTrail.jpg)|
 202306040400|MauiBeach|Plage de sable noir du parc national Wai'anapanapa, Maui, Hawaii, États-Unis (© Matt Anderson Photography/Getty Images)|Sable noir et paradis tropical|![](/fr-CA/2023/06/202306040400MauiBeach.jpg)|
 202306050400|PlasticParrotfish|Œuvre d'art ”Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, États-Unis (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Construire ensemble un avenir meilleur|![](/fr-CA/2023/06/202306050400PlasticParrotfish.jpg)|
+202306060400|CliffsEtretat|Les falaises d'Étretat, Normandie, France (© MarcelloLand/Getty Images)|Commémorer pour ne pas oublier|![](/fr-CA/2023/06/202306060400CliffsEtretat.jpg)|
