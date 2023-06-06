@@ -7,3 +7,4 @@
 202306042200|PlasticParrotfish|Priscilla the Parrotfish, Como Park, St. Paul, Minnesota, USA (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Schaffen wir eine bessere Zukunft!|![](/de-DE/2023/06/202306042200PlasticParrotfish.jpg)|
 ||||![](/de-DE/2023/06/.jpg)|
 202306052200|CliffsEtretat|Küste von Étretat, Normandie, Frankreich (© MarcelloLand/Getty Images)|Erinnerung an den D-Day|![](/de-DE/2023/06/202306052200CliffsEtretat.jpg)|
+202306062200|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Wenn diese Wände sprechen könnten...|![](/de-DE/2023/06/202306062200ChacoCulture.jpg)|
