@@ -8,3 +8,4 @@
 202306052200|CliffsEtretat|Les falaises d'Étretat, Normandie (© MarcelloLand/Getty Images)|Commémorer pour ne pas oublier|![](/fr-FR/2023/06/202306052200CliffsEtretat.jpg)|
 202306062200|ChacoCulture|Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)|Des vestiges hors du temps|![](/fr-FR/2023/06/202306062200ChacoCulture.jpg)|
 ||||![](/fr-FR/2023/06/.jpg)|
+202306072200|PlayfulHumpback|Baleine à bosse (© Philip Thurston/Getty Images)|Le doux chant des baleines|![](/fr-FR/2023/06/202306072200PlayfulHumpback.jpg)|
