@@ -7,3 +7,4 @@
 202306042200|PlasticParrotfish|Œuvre d’art” Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, États-Unis (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Devinez avec quel matériel a été construite cette œuvre colorée ?|![](/fr-FR/2023/06/202306042200PlasticParrotfish.jpg)|
 202306052200|CliffsEtretat|Les falaises d'Étretat, Normandie (© MarcelloLand/Getty Images)|Commémorer pour ne pas oublier|![](/fr-FR/2023/06/202306052200CliffsEtretat.jpg)|
 202306062200|ChacoCulture|Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)|Des vestiges hors du temps|![](/fr-FR/2023/06/202306062200ChacoCulture.jpg)|
+||||![](/fr-FR/2023/06/.jpg)|

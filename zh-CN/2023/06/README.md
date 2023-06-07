@@ -7,3 +7,4 @@
 202306041600|WaterfallsSunwaptaValley|辛华达峡谷的瀑布，贾斯珀国家公园，加拿大 (© Delpixart/Getty Images)|风景如画的瀑布|![](/zh-CN/2023/06/202306041600WaterfallsSunwaptaValley.jpg)|
 202306051600|CliffsEtretat|The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)|诺曼底登陆日|![](/zh-CN/2023/06/202306051600CliffsEtretat.jpg)|
 202306061600|ChacoCulture|普韦布洛·博尼托镇，查科文化国家历史公园，美国新墨西哥州 (© Ian Shive/Tandem Stills + Motion)|如果这些墙会说话······|![](/zh-CN/2023/06/202306061600ChacoCulture.jpg)|
+||||![](/zh-CN/2023/06/.jpg)|

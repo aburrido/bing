@@ -7,3 +7,4 @@
 202306050400|PlasticParrotfish|Œuvre d'art ”Priscilla the Parrotfish", Como Park, St. Paul, Minnesota, États-Unis (© Michael Siluk/UCG/Universal Images Group via Getty Images)|Construire ensemble un avenir meilleur|![](/fr-CA/2023/06/202306050400PlasticParrotfish.jpg)|
 202306060400|CliffsEtretat|Les falaises d'Étretat, Normandie, France (© MarcelloLand/Getty Images)|Commémorer pour ne pas oublier|![](/fr-CA/2023/06/202306060400CliffsEtretat.jpg)|
 202306070400|ChacoCulture|Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)|Si ces murs pouvaient parler...|![](/fr-CA/2023/06/202306070400ChacoCulture.jpg)|
+||||![](/fr-CA/2023/06/.jpg)|
