@@ -9,3 +9,4 @@
 202306062200|ChacoCulture|Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)|Des vestiges hors du temps|![](/fr-FR/2023/06/202306062200ChacoCulture.jpg)|
 ||||![](/fr-FR/2023/06/.jpg)|
 202306072200|PlayfulHumpback|Baleine à bosse (© Philip Thurston/Getty Images)|Le doux chant des baleines|![](/fr-FR/2023/06/202306072200PlayfulHumpback.jpg)|
+202306082200|BalloonsTurkey|Montgolfières en Cappadoce, Turquie (© Anton Petrus/Getty Images)|Où se trouve ce paysage idyllique ?|![](/fr-FR/2023/06/202306082200BalloonsTurkey.jpg)|

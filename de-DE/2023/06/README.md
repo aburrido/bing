@@ -9,3 +9,4 @@
 202306052200|CliffsEtretat|Küste von Étretat, Normandie, Frankreich (© MarcelloLand/Getty Images)|Erinnerung an den D-Day|![](/de-DE/2023/06/202306052200CliffsEtretat.jpg)|
 202306062200|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Wenn diese Wände sprechen könnten...|![](/de-DE/2023/06/202306062200ChacoCulture.jpg)|
 202306072200|PlayfulHumpback|Buckelwal (© Philip Thurston/Getty Images)|Dort, wo der Buckelwal singt|![](/de-DE/2023/06/202306072200PlayfulHumpback.jpg)|
+202306082200|BalloonsTurkey|Kappadokien, Türkei (© Anton Petrus/Getty Images)|99 (Heiß-) Luftballons|![](/de-DE/2023/06/202306082200BalloonsTurkey.jpg)|
