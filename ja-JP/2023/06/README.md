@@ -9,3 +9,4 @@
 202306061500|ChacoCulture|チャコ文化国立歴史公園, 米国 ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)|砂漠にある神秘的な遺跡|![](/ja-JP/2023/06/202306061500ChacoCulture.jpg)|
 ||||![](/ja-JP/2023/06/.jpg)|
 202306071500|PlayfulHumpback|青い海で泳ぐザトウクジラ (© Philip Thurston/Getty Images)|今日は世界海洋デー|![](/ja-JP/2023/06/202306071500PlayfulHumpback.jpg)|
+202306081500|BalloonsTurkey|カッパドキア, トルコ (© Anton Petrus/Getty Images)|カッパドキアの上空を飛行する気球|![](/ja-JP/2023/06/202306081500BalloonsTurkey.jpg)|
