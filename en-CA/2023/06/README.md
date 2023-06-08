@@ -8,3 +8,4 @@
 202306060400|CliffsEtretat|The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)|Remembering D-Day|![](/en-CA/2023/06/202306060400CliffsEtretat.jpg)|
 202306070400|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)|If these walls could talk...|![](/en-CA/2023/06/202306070400ChacoCulture.jpg)|
 ||||![](/en-CA/2023/06/.jpg)|
+202306080400|PlayfulHumpback|Humpback whale (© Philip Thurston/Getty Images)|Where the humpback whale sings|![](/en-CA/2023/06/202306080400PlayfulHumpback.jpg)|
