@@ -9,3 +9,4 @@
 202306050700|WaterfallsSunwaptaValley|Waterfalls in Sunwapta Valley, Jasper National Park, Canada (© Delpixart/Getty Images)|Info|![](/en-AU/2023/06/202306050700WaterfallsSunwaptaValley.jpg)|
 202306060700|CliffsEtretat|The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)|Info|![](/en-AU/2023/06/202306060700CliffsEtretat.jpg)|
 202306070700|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2023/06/202306070700ChacoCulture.jpg)|
+202306080700|PlayfulHumpback|Humpback whale (© Philip Thurston/Getty Images)|Info|![](/en-AU/2023/06/202306080700PlayfulHumpback.jpg)|
