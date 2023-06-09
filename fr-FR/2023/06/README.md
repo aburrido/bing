@@ -10,3 +10,4 @@
 ||||![](/fr-FR/2023/06/.jpg)|
 202306072200|PlayfulHumpback|Baleine à bosse (© Philip Thurston/Getty Images)|Le doux chant des baleines|![](/fr-FR/2023/06/202306072200PlayfulHumpback.jpg)|
 202306082200|BalloonsTurkey|Montgolfières en Cappadoce, Turquie (© Anton Petrus/Getty Images)|Où se trouve ce paysage idyllique ?|![](/fr-FR/2023/06/202306082200BalloonsTurkey.jpg)|
+202306092200|LeMansCentenary|Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)|Devinez où nous sommes, une petite idée ?|![](/fr-FR/2023/06/202306092200LeMansCentenary.jpg)|

@@ -10,3 +10,4 @@
 202306062200|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Wenn diese Wände sprechen könnten...|![](/de-DE/2023/06/202306062200ChacoCulture.jpg)|
 202306072200|PlayfulHumpback|Buckelwal (© Philip Thurston/Getty Images)|Dort, wo der Buckelwal singt|![](/de-DE/2023/06/202306072200PlayfulHumpback.jpg)|
 202306082200|BalloonsTurkey|Kappadokien, Türkei (© Anton Petrus/Getty Images)|99 (Heiß-) Luftballons|![](/de-DE/2023/06/202306082200BalloonsTurkey.jpg)|
+202306092200|PortugalDay|Kathedrale von Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Blaue Farbtöne und Keramik aus Porto|![](/de-DE/2023/06/202306092200PortugalDay.jpg)|
