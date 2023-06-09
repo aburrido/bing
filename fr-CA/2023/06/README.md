@@ -9,3 +9,4 @@
 202306070400|ChacoCulture|Pueblo Bonito, parc du Chaco Culture, Nouveau Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)|Si ces murs pouvaient parler...|![](/fr-CA/2023/06/202306070400ChacoCulture.jpg)|
 ||||![](/fr-CA/2023/06/.jpg)|
 202306080400|PlayfulHumpback|Baleine à bosse (© Philip Thurston/Getty Images)|Le doux chant des baleines|![](/fr-CA/2023/06/202306080400PlayfulHumpback.jpg)|
+202306090400|BalloonsTurkey|Cappadoce, Turquie (© Anton Petrus/Getty Images)|Monter dans le ciel avec le soleil|![](/fr-CA/2023/06/202306090400BalloonsTurkey.jpg)|

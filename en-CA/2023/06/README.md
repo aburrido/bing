@@ -9,3 +9,4 @@
 202306070400|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico (© Ian Shive/Tandem Stills + Motion)|If these walls could talk...|![](/en-CA/2023/06/202306070400ChacoCulture.jpg)|
 ||||![](/en-CA/2023/06/.jpg)|
 202306080400|PlayfulHumpback|Humpback whale (© Philip Thurston/Getty Images)|Where the humpback whale sings|![](/en-CA/2023/06/202306080400PlayfulHumpback.jpg)|
+202306090400|BalloonsTurkey|Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Rising with the sun|![](/en-CA/2023/06/202306090400BalloonsTurkey.jpg)|
