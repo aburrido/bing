@@ -10,3 +10,4 @@
 ||||![](/zh-CN/2023/06/.jpg)|
 202306071600|PlayfulHumpback|座头鲸 (© Philip Thurston/Getty Images)|座头鲸唱歌的地方|![](/zh-CN/2023/06/202306071600PlayfulHumpback.jpg)|
 202306081600|BalloonsTurkey|卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images)|与太阳一同升起|![](/zh-CN/2023/06/202306081600BalloonsTurkey.jpg)|
+202306091600|PortugalDay|波尔图大教堂, 葡萄牙 (© Reinhard Schmid/Huber/eStock Photo)|波尔图的青花瓷美景|![](/zh-CN/2023/06/202306091600PortugalDay.jpg)|
