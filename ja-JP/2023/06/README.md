@@ -11,3 +11,4 @@
 202306071500|PlayfulHumpback|青い海で泳ぐザトウクジラ (© Philip Thurston/Getty Images)|今日は世界海洋デー|![](/ja-JP/2023/06/202306071500PlayfulHumpback.jpg)|
 202306081500|BalloonsTurkey|カッパドキア, トルコ (© Anton Petrus/Getty Images)|カッパドキアの上空を飛行する気球|![](/ja-JP/2023/06/202306081500BalloonsTurkey.jpg)|
 202306091500|PortugalDay|ポルト大聖堂, ポルトガル (© Reinhard Schmid/Huber/eStock Photo)|美しいタイルで装飾された回廊|![](/ja-JP/2023/06/202306091500PortugalDay.jpg)|
+202306101500|Ajisai2023|美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)|今日は入梅|![](/ja-JP/2023/06/202306101500Ajisai2023.jpg)|
