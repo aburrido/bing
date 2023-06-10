@@ -11,3 +11,4 @@
 202306070700|ChacoCulture|Pueblo Bonito, Chaco Culture National Historical Park, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2023/06/202306070700ChacoCulture.jpg)|
 202306080700|PlayfulHumpback|Humpback whale (© Philip Thurston/Getty Images)|Info|![](/en-AU/2023/06/202306080700PlayfulHumpback.jpg)|
 202306090700|BalloonsTurkey|Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Info|![](/en-AU/2023/06/202306090700BalloonsTurkey.jpg)|
+202306100700|PortugalDay|Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Info|![](/en-AU/2023/06/202306100700PortugalDay.jpg)|
