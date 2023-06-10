@@ -11,3 +11,4 @@
 202306072200|PlayfulHumpback|Buckelwal (© Philip Thurston/Getty Images)|Dort, wo der Buckelwal singt|![](/de-DE/2023/06/202306072200PlayfulHumpback.jpg)|
 202306082200|BalloonsTurkey|Kappadokien, Türkei (© Anton Petrus/Getty Images)|99 (Heiß-) Luftballons|![](/de-DE/2023/06/202306082200BalloonsTurkey.jpg)|
 202306092200|PortugalDay|Kathedrale von Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Blaue Farbtöne und Keramik aus Porto|![](/de-DE/2023/06/202306092200PortugalDay.jpg)|
+202306102200|GartenTagTulpen|Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)|Ein farbenprächtiger Blumenteppich|![](/de-DE/2023/06/202306102200GartenTagTulpen.jpg)|
