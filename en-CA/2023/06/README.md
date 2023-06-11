@@ -11,3 +11,4 @@
 202306080400|PlayfulHumpback|Humpback whale (© Philip Thurston/Getty Images)|Where the humpback whale sings|![](/en-CA/2023/06/202306080400PlayfulHumpback.jpg)|
 202306090400|BalloonsTurkey|Hot air balloons in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Rising with the sun|![](/en-CA/2023/06/202306090400BalloonsTurkey.jpg)|
 202306100400|PortugalDay|Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Blue hues and ceramic scenes of Porto|![](/en-CA/2023/06/202306100400PortugalDay.jpg)|
+202306110400|GoliathHeron|Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)|Huddled and hunting|![](/en-CA/2023/06/202306110400GoliathHeron.jpg)|

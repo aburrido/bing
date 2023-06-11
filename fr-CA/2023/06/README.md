@@ -11,3 +11,4 @@
 202306080400|PlayfulHumpback|Baleine à bosse (© Philip Thurston/Getty Images)|Le doux chant des baleines|![](/fr-CA/2023/06/202306080400PlayfulHumpback.jpg)|
 202306090400|BalloonsTurkey|Cappadoce, Turquie (© Anton Petrus/Getty Images)|Monter dans le ciel avec le soleil|![](/fr-CA/2023/06/202306090400BalloonsTurkey.jpg)|
 202306100400|PortugalDay|Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Teintes bleues et scènes sur céramique de Porto|![](/fr-CA/2023/06/202306100400PortugalDay.jpg)|
+202306110400|GoliathHeron|Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)|Prêt à chasser!|![](/fr-CA/2023/06/202306110400GoliathHeron.jpg)|
