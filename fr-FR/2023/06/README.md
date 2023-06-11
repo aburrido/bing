@@ -12,3 +12,4 @@
 202306082200|BalloonsTurkey|Montgolfières en Cappadoce, Turquie (© Anton Petrus/Getty Images)|Où se trouve ce paysage idyllique ?|![](/fr-FR/2023/06/202306082200BalloonsTurkey.jpg)|
 202306092200|LeMansCentenary|Vue aérienne du circuit Bugatti, Le Mans (© Lou Benoist/AFP via Getty Images)|Devinez où nous sommes, une petite idée ?|![](/fr-FR/2023/06/202306092200LeMansCentenary.jpg)|
 202306102200|GoliathHeron|Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)|Prêt à chasser !|![](/fr-FR/2023/06/202306102200GoliathHeron.jpg)|
+202306112200|BigBendAnniv|Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)|C’est l’anniversaire de Big Bend !|![](/fr-FR/2023/06/202306112200BigBendAnniv.jpg)|
