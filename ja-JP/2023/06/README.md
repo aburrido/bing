@@ -12,3 +12,4 @@
 202306081500|BalloonsTurkey|カッパドキア, トルコ (© Anton Petrus/Getty Images)|カッパドキアの上空を飛行する気球|![](/ja-JP/2023/06/202306081500BalloonsTurkey.jpg)|
 202306091500|PortugalDay|ポルト大聖堂, ポルトガル (© Reinhard Schmid/Huber/eStock Photo)|美しいタイルで装飾された回廊|![](/ja-JP/2023/06/202306091500PortugalDay.jpg)|
 202306101500|Ajisai2023|美の山公園, 埼玉県 秩父市 (© SOURCENEXT/Alamy Stock Photo)|今日は入梅|![](/ja-JP/2023/06/202306101500Ajisai2023.jpg)|
+202306111500|BigBendAnniv|ビッグ・ベンド国立公園のサボテン, 米国 テキサス州 (© Tim Fitzharris/Minden Pictures)|今日はビッグ・ベンド国立公園の設立記念日|![](/ja-JP/2023/06/202306111500BigBendAnniv.jpg)|
