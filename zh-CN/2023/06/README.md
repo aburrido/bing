@@ -12,3 +12,4 @@
 202306081600|BalloonsTurkey|卡帕多西亚, 土耳其 (© Anton Petrus/Getty Images)|与太阳一同升起|![](/zh-CN/2023/06/202306081600BalloonsTurkey.jpg)|
 202306091600|PortugalDay|波尔图大教堂, 葡萄牙 (© Reinhard Schmid/Huber/eStock Photo)|波尔图的青花瓷美景|![](/zh-CN/2023/06/202306091600PortugalDay.jpg)|
 202306101600|GoliathHeron|巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy)|伺机而动|![](/zh-CN/2023/06/202306101600GoliathHeron.jpg)|
+202306111600|BigBendAnniv|仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)|大弯的生日|![](/zh-CN/2023/06/202306111600BigBendAnniv.jpg)|
