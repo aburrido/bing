@@ -13,3 +13,4 @@
 202306092200|PortugalDay|Kathedrale von Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Blaue Farbtöne und Keramik aus Porto|![](/de-DE/2023/06/202306092200PortugalDay.jpg)|
 202306102200|GartenTagTulpen|Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)|Ein farbenprächtiger Blumenteppich|![](/de-DE/2023/06/202306102200GartenTagTulpen.jpg)|
 202306112200|BigBendAnniv|Feigenkaktus, Big-Bend Nationalpark, Texas, USA (© Tim Fitzharris/Minden Pictures)|Kaktusparadies mit wilden Yuccas|![](/de-DE/2023/06/202306112200BigBendAnniv.jpg)|
+202306122200|OkefenokeeSwamp|Bäume mit Spanischem Moos über der Uferpromenade im Okefenokee-Sumpf, Georgia, USA  (© Emmer Photo/Alamy)|Wagen Sie es, in diesen dichten Sumpf einzutauchen?|![](/de-DE/2023/06/202306122200OkefenokeeSwamp.jpg)|
