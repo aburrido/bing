@@ -13,3 +13,4 @@
 202306100400|PortugalDay|Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Teintes bleues et scènes sur céramique de Porto|![](/fr-CA/2023/06/202306100400PortugalDay.jpg)|
 202306110400|GoliathHeron|Héron goliath, Parc national Kruger, Afrique du Sud (© Johan Swanepoel/Alamy)|Prêt à chasser!|![](/fr-CA/2023/06/202306110400GoliathHeron.jpg)|
 202306120400|BigBendAnniv|Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)|C’est l’anniversaire de Big Bend!|![](/fr-CA/2023/06/202306120400BigBendAnniv.jpg)|
+202306130400|OkefenokeeSwamp|Mousse espagnole le long de la promenade dans le marais d'Okefenokee, Géorgie, États-Unis (© Emmer Photo/Alamy)|Osez vous aventurer dans ce marais|![](/fr-CA/2023/06/202306130400OkefenokeeSwamp.jpg)|

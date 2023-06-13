@@ -13,3 +13,4 @@
 202306100400|PortugalDay|Porto Cathedral, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Blue hues and ceramic scenes of Porto|![](/en-CA/2023/06/202306100400PortugalDay.jpg)|
 202306110400|GoliathHeron|Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)|Huddled and hunting|![](/en-CA/2023/06/202306110400GoliathHeron.jpg)|
 202306120400|BigBendAnniv|Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|Big Bend's birthday bash|![](/en-CA/2023/06/202306120400BigBendAnniv.jpg)|
+202306130400|OkefenokeeSwamp|Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Dare to delve into this dense swamp|![](/en-CA/2023/06/202306130400OkefenokeeSwamp.jpg)|
