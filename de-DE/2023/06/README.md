@@ -14,3 +14,4 @@
 202306102200|GartenTagTulpen|Tulpenblüten auf der Insel Mainau, Bodensee (© Reinhard Schmid/Huber/eStock Photo)|Ein farbenprächtiger Blumenteppich|![](/de-DE/2023/06/202306102200GartenTagTulpen.jpg)|
 202306112200|BigBendAnniv|Feigenkaktus, Big-Bend Nationalpark, Texas, USA (© Tim Fitzharris/Minden Pictures)|Kaktusparadies mit wilden Yuccas|![](/de-DE/2023/06/202306112200BigBendAnniv.jpg)|
 202306122200|OkefenokeeSwamp|Bäume mit Spanischem Moos über der Uferpromenade im Okefenokee-Sumpf, Georgia, USA  (© Emmer Photo/Alamy)|Wagen Sie es, in diesen dichten Sumpf einzutauchen?|![](/de-DE/2023/06/202306122200OkefenokeeSwamp.jpg)|
+202306132200|PassauSunsetJune|Die Stadt Passau, die sich in der Donau spiegelt (© Scott Wilson/Alamy)|Die Dreiflüssestadt|![](/de-DE/2023/06/202306132200PassauSunsetJune.jpg)|
