@@ -14,3 +14,4 @@
 202306101600|GoliathHeron|巨鹭，克鲁格国家公园，南非 (© Johan Swanepoel/Alamy)|伺机而动|![](/zh-CN/2023/06/202306101600GoliathHeron.jpg)|
 202306111600|BigBendAnniv|仙人掌植物，得克萨斯州大弯国家公园，美国 (© Tim Fitzharris/Minden Pictures)|大弯的生日|![](/zh-CN/2023/06/202306111600BigBendAnniv.jpg)|
 202306121600|OkefenokeeSwamp|奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)|你是否有勇气进入这片茂密的沼泽|![](/zh-CN/2023/06/202306121600OkefenokeeSwamp.jpg)|
+202306131600|PassauSunsetJune|多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)|巴洛克风盛宴|![](/zh-CN/2023/06/202306131600PassauSunsetJune.jpg)|
