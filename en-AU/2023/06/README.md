@@ -15,3 +15,4 @@
 202306110700|GoliathHeron|Goliath heron, Kruger National Park, South Africa (© Johan Swanepoel/Alamy)|Info|![](/en-AU/2023/06/202306110700GoliathHeron.jpg)|
 202306120700|BigBendAnniv|Prickly pear plant, Big Bend National Park, Texas, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2023/06/202306120700BigBendAnniv.jpg)|
 202306130700|OkefenokeeSwamp|Spanish moss trees over boardwalk in Okefenokee Swamp, Georgia, USA (© Emmer Photo/Alamy)|Info|![](/en-AU/2023/06/202306130700OkefenokeeSwamp.jpg)|
+202306140700|PassauSunsetJune|The city of Passau reflecting in the Danube River, Bavaria, Germany (© Scott Wilson/Alamy)|Info|![](/en-AU/2023/06/202306140700PassauSunsetJune.jpg)|
