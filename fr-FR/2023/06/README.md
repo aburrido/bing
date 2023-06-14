@@ -15,3 +15,4 @@
 202306112200|BigBendAnniv|Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)|C’est l’anniversaire de Big Bend !|![](/fr-FR/2023/06/202306112200BigBendAnniv.jpg)|
 202306122200|OkefenokeeSwamp|Mousse espagnole le long de la promenade dans le marais d'Okefenokee, Géorgie, États-Unis (© Emmer Photo/Alamy)|Osez vous aventurer dans ce marais !|![](/fr-FR/2023/06/202306122200OkefenokeeSwamp.jpg)|
 202306132200|PortugalDay|Cathédrale de Porto, Portugal (© Reinhard Schmid/Huber/eStock Photo)|Teintes bleues et scènes sur céramique de Porto|![](/fr-FR/2023/06/202306132200PortugalDay.jpg)|
+202306142200|SmokyFireflies|Lucioles synchrones, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Floris Van Bruegel/Minden Pictures)|Brillez, petites fées !|![](/fr-FR/2023/06/202306142200SmokyFireflies.jpg)|
