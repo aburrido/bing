@@ -15,3 +15,4 @@
 202306112300|BigBendAnniv|Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|Big Bend's birthday bash|![](/en-GB/2023/06/202306112300BigBendAnniv.jpg)|
 202306122300|OkefenokeeSwamp|Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Dare to delve into this dense swamp|![](/en-GB/2023/06/202306122300OkefenokeeSwamp.jpg)|
 202306132300|BrightonPalacePier|Brighton Pier at sunset, England, UK (© Peppy Graphics/Shutterstock)|Rides above the tide|![](/en-GB/2023/06/202306132300BrightonPalacePier.jpg)|
+202306142300|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle twinkle, little bugs|![](/en-GB/2023/06/202306142300SmokyFireflies.jpg)|
