@@ -15,3 +15,4 @@
 202306111830|BigBendAnniv|Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|Where are these prickly pears?|![](/en-IN/2023/06/202306111830BigBendAnniv.jpg)|
 202306121830|OkefenokeeSwamp|Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Dare to delve into this dense swamp|![](/en-IN/2023/06/202306121830OkefenokeeSwamp.jpg)|
 202306131830|RuralPunjab|A field with thatched-roof huts, Punjab, India (© Jatin Malhotra/500px/Getty Images)|The harmony between land and sun|![](/en-IN/2023/06/202306131830RuralPunjab.jpg)|
+202306141830|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle twinkle, little bugs|![](/en-IN/2023/06/202306141830SmokyFireflies.jpg)|
