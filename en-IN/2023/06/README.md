@@ -16,3 +16,4 @@
 202306121830|OkefenokeeSwamp|Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Dare to delve into this dense swamp|![](/en-IN/2023/06/202306121830OkefenokeeSwamp.jpg)|
 202306131830|RuralPunjab|A field with thatched-roof huts, Punjab, India (© Jatin Malhotra/500px/Getty Images)|The harmony between land and sun|![](/en-IN/2023/06/202306131830RuralPunjab.jpg)|
 202306141830|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle twinkle, little bugs|![](/en-IN/2023/06/202306141830SmokyFireflies.jpg)|
+202306151830|HawksbillTurtle|Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Shell-ebrating sea turtles|![](/en-IN/2023/06/202306151830HawksbillTurtle.jpg)|
