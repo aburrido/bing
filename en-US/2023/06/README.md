@@ -16,3 +16,4 @@
 202306120700|BigBendAnniv|Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|Happy birthday, Big Bend National Park!|![](/en-US/2023/06/202306120700BigBendAnniv.jpg)|
 202306130700|OkefenokeeSwamp|Trees with Spanish moss over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Into the swamp|![](/en-US/2023/06/202306130700OkefenokeeSwamp.jpg)|
 202306140700|FlagDayCapitol|US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)|Saluting the Stars and Stripes|![](/en-US/2023/06/202306140700FlagDayCapitol.jpg)|
+202306150700|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle, twinkle, little bugs|![](/en-US/2023/06/202306150700SmokyFireflies.jpg)|
