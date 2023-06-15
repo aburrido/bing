@@ -16,3 +16,4 @@
 202306121600|OkefenokeeSwamp|奥克弗诺基沼泽木板路上的西班牙苔藓，佐治亚州，美国 (© Emmer Photo/Alamy)|你是否有勇气进入这片茂密的沼泽|![](/zh-CN/2023/06/202306121600OkefenokeeSwamp.jpg)|
 202306131600|PassauSunsetJune|多瑙河畔的帕绍市，巴伐利亚，德国 (© Scott Wilson/Alamy)|巴洛克风盛宴|![](/zh-CN/2023/06/202306131600PassauSunsetJune.jpg)|
 202306141600|SmokyFireflies|同步萤火虫，大烟山国家公园，田纳西州，美国 (© Floris Van Bruegel/Minden Pictures)|一闪一闪亮晶晶（的小虫子）|![](/zh-CN/2023/06/202306141600SmokyFireflies.jpg)|
+202306151600|HawksbillTurtle|游泳的鹰嘴海龟， 冲绳，日本 (© Robert Mallon/Getty Images)|鹰嘴海龟|![](/zh-CN/2023/06/202306151600HawksbillTurtle.jpg)|
