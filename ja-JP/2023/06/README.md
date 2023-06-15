@@ -16,3 +16,4 @@
 202306121500|OkefenokeeSwamp|オケフェノキー湿原の遊歩道, 米国 ジョージア州 (© Emmer Photo/Alamy)|緑に囲まれた遊歩道|![](/ja-JP/2023/06/202306121500OkefenokeeSwamp.jpg)|
 202306131500|GoliathHeron|クルーガー国立公園のオニアオサギ, 南アフリカ共和国 (© Johan Swanepoel/Alamy)|世界最大のサギ|![](/ja-JP/2023/06/202306131500GoliathHeron.jpg)|
 202306141500|SmokyFireflies|グレート・スモーキー山脈国立公園の森に舞う蛍, 米国 テネシー州 (© Floris Van Bruegel/Minden Pictures)|今日はネイチャー・フォトグラフィー・デー|![](/ja-JP/2023/06/202306141500SmokyFireflies.jpg)|
+202306151500|HawksbillTurtle|阿嘉島のウミガメ, 沖縄県 (© Robert Mallon/Getty Images)|今日は世界ウミガメの日|![](/ja-JP/2023/06/202306151500HawksbillTurtle.jpg)|
