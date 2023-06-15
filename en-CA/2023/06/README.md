@@ -15,3 +15,4 @@
 202306120400|BigBendAnniv|Prickly pear cactus, Big Bend National Park, Texas (© Tim Fitzharris/Minden Pictures)|Big Bend's birthday bash|![](/en-CA/2023/06/202306120400BigBendAnniv.jpg)|
 202306130400|OkefenokeeSwamp|Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Dare to delve into this dense swamp|![](/en-CA/2023/06/202306130400OkefenokeeSwamp.jpg)|
 202306140400|WaterfallsSunwaptaValley|Waterfalls in Sunwapta Valley, Jasper National Park, Canada (© Delpixart/Getty Images)|Like a waterfall, free and wild|![](/en-CA/2023/06/202306140400WaterfallsSunwaptaValley.jpg)|
+202306150400|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle twinkle, little bugs|![](/en-CA/2023/06/202306150400SmokyFireflies.jpg)|

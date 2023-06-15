@@ -15,3 +15,4 @@
 202306120400|BigBendAnniv|Figuier de barbarie, Parc National de Big Bend, Texas, États-Unis (© Tim Fitzharris/Minden Pictures)|C’est l’anniversaire de Big Bend!|![](/fr-CA/2023/06/202306120400BigBendAnniv.jpg)|
 202306130400|OkefenokeeSwamp|Mousse espagnole le long de la promenade dans le marais d'Okefenokee, Géorgie, États-Unis (© Emmer Photo/Alamy)|Osez vous aventurer dans ce marais|![](/fr-CA/2023/06/202306130400OkefenokeeSwamp.jpg)|
 202306140400|WaterfallsSunwaptaValley|Chutes Sunwapta, Parc National de Jasper, Canada (© Delpixart/Getty Images)|Libre et sauvage comme une chute d’eau|![](/fr-CA/2023/06/202306140400WaterfallsSunwaptaValley.jpg)|
+202306150400|SmokyFireflies|Lucioles synchrones, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Floris Van Bruegel/Minden Pictures)|Brillez, petites fées!|![](/fr-CA/2023/06/202306150400SmokyFireflies.jpg)|
