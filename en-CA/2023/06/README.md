@@ -16,3 +16,4 @@
 202306130400|OkefenokeeSwamp|Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)|Dare to delve into this dense swamp|![](/en-CA/2023/06/202306130400OkefenokeeSwamp.jpg)|
 202306140400|WaterfallsSunwaptaValley|Waterfalls in Sunwapta Valley, Jasper National Park, Canada (© Delpixart/Getty Images)|Like a waterfall, free and wild|![](/en-CA/2023/06/202306140400WaterfallsSunwaptaValley.jpg)|
 202306150400|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle twinkle, little bugs|![](/en-CA/2023/06/202306150400SmokyFireflies.jpg)|
+202306160400|HawksbillTurtle|Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Shell-ebrating sea turtles|![](/en-CA/2023/06/202306160400HawksbillTurtle.jpg)|
