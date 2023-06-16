@@ -17,3 +17,4 @@
 202306132200|PassauSunsetJune|Die Stadt Passau, die sich in der Donau spiegelt (© Scott Wilson/Alamy)|Die Dreiflüssestadt|![](/de-DE/2023/06/202306132200PassauSunsetJune.jpg)|
 202306142200|SmokyFireflies|Synchrone Leuchtkäfer, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© Floris Van Bruegel/Minden Pictures)|Magische Nacht der Glühwürmchen|![](/de-DE/2023/06/202306142200SmokyFireflies.jpg)|
 202306152200|HawksbillTurtle|Echte Karettschildkröte schwimmt in der Nähe von Aka-jima, Okinawa, Japan (© Robert Mallon/Getty Images)|Gelassen im azurblauen Wasser schwimmen|![](/de-DE/2023/06/202306152200HawksbillTurtle.jpg)|
+202306162200|SurfSanDiego|San Diego, Kalifornien, USA (© Brandon Colbert Photography/Getty Images)|Wellenreiten|![](/de-DE/2023/06/202306162200SurfSanDiego.jpg)|
