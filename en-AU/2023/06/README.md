@@ -17,3 +17,4 @@
 202306130700|OkefenokeeSwamp|Spanish moss trees over boardwalk in Okefenokee Swamp, Georgia, USA (© Emmer Photo/Alamy)|Info|![](/en-AU/2023/06/202306130700OkefenokeeSwamp.jpg)|
 202306140700|PassauSunsetJune|The city of Passau reflecting in the Danube River, Bavaria, Germany (© Scott Wilson/Alamy)|Info|![](/en-AU/2023/06/202306140700PassauSunsetJune.jpg)|
 202306150700|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee, USA (© Floris Van Bruegel/Minden Pictures)|Info|![](/en-AU/2023/06/202306150700SmokyFireflies.jpg)|
+202306160700|HawksbillTurtle|Hawksbill sea turtle swims near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Info|![](/en-AU/2023/06/202306160700HawksbillTurtle.jpg)|
