@@ -18,3 +18,4 @@
 202306142200|SmokyFireflies|Lucioles synchrones, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Floris Van Bruegel/Minden Pictures)|Brillez, petites fées !|![](/fr-FR/2023/06/202306142200SmokyFireflies.jpg)|
 202306152200|HawksbillTurtle|Tortue imbriquée près d'Akajima, Okinawa, Japon (© Robert Mallon/Getty Images)|La tortue marine, doyenne des océans|![](/fr-FR/2023/06/202306152200HawksbillTurtle.jpg)|
 202306162200|SurfSanDiego|« Pagaie pour la solidarité » à San Diego, Californie, États-Unis (© Brandon Colbert Photography/Getty Images)|Surf power !|![](/fr-FR/2023/06/202306162200SurfSanDiego.jpg)|
+202306172200|TernFather|Sterne pierregarin mâle et son oisillon, plage de Nickerson, Long Island, New York, États-Unis (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bonne fête à tous les papas !|![](/fr-FR/2023/06/202306172200TernFather.jpg)|
