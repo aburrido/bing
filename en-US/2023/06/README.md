@@ -18,3 +18,4 @@
 202306140700|FlagDayCapitol|US Capitol building and US flags, Washington, DC (© Orhan Cam/Shutterstock)|Saluting the Stars and Stripes|![](/en-US/2023/06/202306140700FlagDayCapitol.jpg)|
 202306150700|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle, twinkle, little bugs|![](/en-US/2023/06/202306150700SmokyFireflies.jpg)|
 202306160700|HawksbillTurtle|Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Shell-ebrating sea turtles|![](/en-US/2023/06/202306160700HawksbillTurtle.jpg)|
+202306170700|SurfSanDiego|'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)|Paddle power|![](/en-US/2023/06/202306170700SurfSanDiego.jpg)|
