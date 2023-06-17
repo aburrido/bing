@@ -18,3 +18,4 @@
 202306141500|SmokyFireflies|グレート・スモーキー山脈国立公園の森に舞う蛍, 米国 テネシー州 (© Floris Van Bruegel/Minden Pictures)|今日はネイチャー・フォトグラフィー・デー|![](/ja-JP/2023/06/202306141500SmokyFireflies.jpg)|
 202306151500|HawksbillTurtle|阿嘉島のウミガメ, 沖縄県 (© Robert Mallon/Getty Images)|今日は世界ウミガメの日|![](/ja-JP/2023/06/202306151500HawksbillTurtle.jpg)|
 202306161500|SurfSanDiego|サンディエゴで行われたパドルアウト, 米国 カリフォルニア州 (© Brandon Colbert Photography/Getty Images)|今日は国際サーフィンデー|![](/ja-JP/2023/06/202306161500SurfSanDiego.jpg)|
+202306171500|TernFather|ニッカーソン・ビーチ・パークの仲睦まじいアジサシの親子, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日は父の日|![](/ja-JP/2023/06/202306171500TernFather.jpg)|
