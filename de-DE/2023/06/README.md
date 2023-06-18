@@ -19,3 +19,4 @@
 202306152200|HawksbillTurtle|Echte Karettschildkröte schwimmt in der Nähe von Aka-jima, Okinawa, Japan (© Robert Mallon/Getty Images)|Gelassen im azurblauen Wasser schwimmen|![](/de-DE/2023/06/202306152200HawksbillTurtle.jpg)|
 202306162200|SurfSanDiego|San Diego, Kalifornien, USA (© Brandon Colbert Photography/Getty Images)|Wellenreiten|![](/de-DE/2023/06/202306162200SurfSanDiego.jpg)|
 202306172200|TernFather|Flussseeschwalbenvater mit Küken, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Kennen Sie diese Vogelart?|![](/de-DE/2023/06/202306172200TernFather.jpg)|
+202306182200|Fawn|Rehkitz im Gras in der Normandie, Frankreich (© Gerard Lacz/Minden)|Renn Reh renn!|![](/de-DE/2023/06/202306182200Fawn.jpg)|
