@@ -19,3 +19,4 @@
 202306151830|HawksbillTurtle|Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Shell-ebrating sea turtles|![](/en-IN/2023/06/202306151830HawksbillTurtle.jpg)|
 202306161830|HampiTemple|Aerial View of Achyutaraya temple, Hampi, India (© ImagesofIndia/Shutterstock)|Revered ruins|![](/en-IN/2023/06/202306161830HampiTemple.jpg)|
 202306171830|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Dad on duty|![](/en-IN/2023/06/202306171830TernFather.jpg)|
+202306181830|Fawn|Roe deer fawn running on grass in Normandy, France (© Gerard Lacz/Minden)|Here we go!|![](/en-IN/2023/06/202306181830Fawn.jpg)|
