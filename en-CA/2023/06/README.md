@@ -18,3 +18,4 @@
 202306150400|SmokyFireflies|Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)|Twinkle twinkle, little bugs|![](/en-CA/2023/06/202306150400SmokyFireflies.jpg)|
 202306160400|HawksbillTurtle|Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Shell-ebrating sea turtles|![](/en-CA/2023/06/202306160400HawksbillTurtle.jpg)|
 202306170400|SurfSanDiego|'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)|Paddle power|![](/en-CA/2023/06/202306170400SurfSanDiego.jpg)|
+202306180400|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Dad on duty|![](/en-CA/2023/06/202306180400TernFather.jpg)|
