@@ -19,3 +19,4 @@
 202306151600|HawksbillTurtle|游泳的鹰嘴海龟， 冲绳，日本 (© Robert Mallon/Getty Images)|鹰嘴海龟|![](/zh-CN/2023/06/202306151600HawksbillTurtle.jpg)|
 202306161600|SurfSanDiego|在加利福尼亚州圣地亚哥举行的“为团结划桨”活动 (© Brandon Colbert Photography/Getty Images)|桨叶动力|![](/zh-CN/2023/06/202306161600SurfSanDiego.jpg)|
 202306171600|TernFather|普通燕鸥父亲和宝宝，长岛，纽约州，美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|值班爸爸|![](/zh-CN/2023/06/202306171600TernFather.jpg)|
+202306181600|Fawn|奔跑在诺曼底草地上的小狍，法国 (© Gerard Lacz/Minden)|这只小可爱在哪里?|![](/zh-CN/2023/06/202306181600Fawn.jpg)|
