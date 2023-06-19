@@ -20,3 +20,4 @@
 202306162300|TroopingtheColour|Red Arrows (© Wayland Standing/500px/Getty Images)|A high-flying royal tradition|![](/en-GB/2023/06/202306162300TroopingtheColour.jpg)|
 202306172300|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Dad on duty|![](/en-GB/2023/06/202306172300TernFather.jpg)|
 202306182300|Fawn|Roe deer fawn running on grass in Normandy, France (© Gerard Lacz/Minden)|Here we go!|![](/en-GB/2023/06/202306182300Fawn.jpg)|
+202306192300|EagleTree|Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)|Celebrating an American Icon|![](/en-GB/2023/06/202306192300EagleTree.jpg)|
