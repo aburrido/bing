@@ -20,3 +20,4 @@
 202306161500|SurfSanDiego|サンディエゴで行われたパドルアウト, 米国 カリフォルニア州 (© Brandon Colbert Photography/Getty Images)|今日は国際サーフィンデー|![](/ja-JP/2023/06/202306161500SurfSanDiego.jpg)|
 202306171500|TernFather|ニッカーソン・ビーチ・パークの仲睦まじいアジサシの親子, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日は父の日|![](/ja-JP/2023/06/202306171500TernFather.jpg)|
 202306181500|QuebecCityBridge|ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)|柔らかい日差しを浴びる巨大な橋|![](/ja-JP/2023/06/202306181500QuebecCityBridge.jpg)|
+202306191500|EagleTree|トンガス国立森林公園のハクトウワシ, 米国 アラスカ州 (© Jaynes Gallery/Shutterstock)|今日は米国のイーグルデー|![](/ja-JP/2023/06/202306191500EagleTree.jpg)|
