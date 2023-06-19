@@ -19,3 +19,4 @@
 202306160400|HawksbillTurtle|Nage d’une tortue imbriquée près d'Akajima, Okinawa, Japon (© Robert Mallon/Getty Images)|La tortue, doyenne des océans|![](/fr-CA/2023/06/202306160400HawksbillTurtle.jpg)|
 202306170400|SurfSanDiego|« Pagaie pour la solidarité » à San Diego, Californie, États-Unis (© Brandon Colbert Photography/Getty Images)|Surf power!|![](/fr-CA/2023/06/202306170400SurfSanDiego.jpg)|
 202306180400|TernFather|Sterne pierregarin père avec son oisillon sur la plage de Nickerson, Long Island, New York, États-Unis (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bonne fête à tous les papas!|![](/fr-CA/2023/06/202306180400TernFather.jpg)|
+202306190400|Fawn|Faon dans une prairie de Normandie, France (© Gerard Lacz/Minden)|Et hop, un petit bond!|![](/fr-CA/2023/06/202306190400Fawn.jpg)|
