@@ -20,3 +20,4 @@
 202306160700|HawksbillTurtle|Hawksbill sea turtle swimming near Akajima, Okinawa, Japan (© Robert Mallon/Getty Images)|Shell-ebrating sea turtles|![](/en-US/2023/06/202306160700HawksbillTurtle.jpg)|
 202306170700|SurfSanDiego|'Paddle Out for Unity' event in San Diego, California (© Brandon Colbert Photography/Getty Images)|Paddle power|![](/en-US/2023/06/202306170700SurfSanDiego.jpg)|
 202306180700|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Happy Father's Day!|![](/en-US/2023/06/202306180700TernFather.jpg)|
+202306190700|SanFranHall|City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)|Happy Juneteenth!|![](/en-US/2023/06/202306190700SanFranHall.jpg)|
