@@ -22,3 +22,4 @@
 202306181500|QuebecCityBridge|ケベック橋, カナダ ケベック州 (© Ronald Santerre/Getty Images)|柔らかい日差しを浴びる巨大な橋|![](/ja-JP/2023/06/202306181500QuebecCityBridge.jpg)|
 202306191500|EagleTree|トンガス国立森林公園のハクトウワシ, 米国 アラスカ州 (© Jaynes Gallery/Shutterstock)|今日は米国のイーグルデー|![](/ja-JP/2023/06/202306191500EagleTree.jpg)|
 202306201500|Summersolstice2023|奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)|今日は夏至|![](/ja-JP/2023/06/202306201500Summersolstice2023.jpg)|
+202306211500|PeruAmazon|アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)|今日は世界熱帯雨林の日|![](/ja-JP/2023/06/202306211500PeruAmazon.jpg)|
