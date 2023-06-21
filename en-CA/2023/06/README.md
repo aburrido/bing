@@ -21,3 +21,4 @@
 202306180400|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Dad on duty|![](/en-CA/2023/06/202306180400TernFather.jpg)|
 202306190400|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|The mystery of Stonehenge|![](/en-CA/2023/06/202306190400StonehengeSalisbury.jpg)|
 202306200400|EagleTree|Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)|Majestic lord of the skies|![](/en-CA/2023/06/202306200400EagleTree.jpg)|
+202306210400|NationalIndigenousPeoplesDay|Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)|Past below, future ahead|![](/en-CA/2023/06/202306210400NationalIndigenousPeoplesDay.jpg)|
