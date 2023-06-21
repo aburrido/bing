@@ -22,3 +22,4 @@
 202306180700|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2023/06/202306180700TernFather.jpg)|
 202306190700|Fawn|Roe deer fawn running on grass in Normandy, France (© Gerard Lacz/Minden)|Info|![](/en-AU/2023/06/202306190700Fawn.jpg)|
 202306200700|EagleTree|Bald eagle, Tongass National Forest, Alaska, USA (© Jaynes Gallery/Shutterstock)|Info|![](/en-AU/2023/06/202306200700EagleTree.jpg)|
+202306210700|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|Info|![](/en-AU/2023/06/202306210700StonehengeSalisbury.jpg)|

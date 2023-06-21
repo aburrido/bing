@@ -22,3 +22,4 @@
 202306180700|TernFather|Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Happy Father's Day!|![](/en-US/2023/06/202306180700TernFather.jpg)|
 202306190700|SanFranHall|City Hall lit up for Juneteenth in San Francisco, California (© yhelfman/Shutterstock)|Happy Juneteenth!|![](/en-US/2023/06/202306190700SanFranHall.jpg)|
 202306200700|EagleTree|Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)|Celebrating an American icon|![](/en-US/2023/06/202306200700EagleTree.jpg)|
+202306210700|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|The mystery of Stonehenge|![](/en-US/2023/06/202306210700StonehengeSalisbury.jpg)|
