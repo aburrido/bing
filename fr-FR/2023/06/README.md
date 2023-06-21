@@ -22,3 +22,4 @@
 202306182200|Fawn|Faon dans une prairie de Normandie (© Gerard Lacz/Minden)|Et hop, un petit bond !|![](/fr-FR/2023/06/202306182200Fawn.jpg)|
 202306192200|EagleTree|Pygargue à tête blanche, forêt nationale de Tongass, Alaska, États-Unis (© Jaynes Gallery/Shutterstock)|Une icône de la nature américaine|![](/fr-FR/2023/06/202306192200EagleTree.jpg)|
 202306202200|StonehengeSalisbury|Stonehenge, plateau de Salisbury, Wiltshire, Angleterre (© Captain Skyhigh/Getty Images)|Le mystère de Stonehenge|![](/fr-FR/2023/06/202306202200StonehengeSalisbury.jpg)|
+202306212200|PeruAmazon|Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)|Un monde extraordinaire se cache ici|![](/fr-FR/2023/06/202306212200PeruAmazon.jpg)|
