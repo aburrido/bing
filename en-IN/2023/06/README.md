@@ -22,3 +22,4 @@
 202306181830|Fawn|Roe deer fawn running on grass in Normandy, France (© Gerard Lacz/Minden)|Here we go!|![](/en-IN/2023/06/202306181830Fawn.jpg)|
 202306191830|EagleTree|Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)|An apex predator|![](/en-IN/2023/06/202306191830EagleTree.jpg)|
 202306201830|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|The mystery of Stonehenge|![](/en-IN/2023/06/202306201830StonehengeSalisbury.jpg)|
+202306211830|PeruAmazon|Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)|A world within a world|![](/en-IN/2023/06/202306211830PeruAmazon.jpg)|
