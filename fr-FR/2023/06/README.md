@@ -23,3 +23,4 @@
 202306192200|EagleTree|Pygargue à tête blanche, forêt nationale de Tongass, Alaska, États-Unis (© Jaynes Gallery/Shutterstock)|Une icône de la nature américaine|![](/fr-FR/2023/06/202306192200EagleTree.jpg)|
 202306202200|StonehengeSalisbury|Stonehenge, plateau de Salisbury, Wiltshire, Angleterre (© Captain Skyhigh/Getty Images)|Le mystère de Stonehenge|![](/fr-FR/2023/06/202306202200StonehengeSalisbury.jpg)|
 202306212200|PeruAmazon|Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)|Un monde extraordinaire se cache ici|![](/fr-FR/2023/06/202306212200PeruAmazon.jpg)|
+202306222200|SaintMichel|Abbaye et baie du Mont Saint-Michel, Normandie (© Mathieu Rivrin/Getty Images)|Une merveille entre ciel et mer|![](/fr-FR/2023/06/202306222200SaintMichel.jpg)|

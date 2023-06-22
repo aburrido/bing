@@ -23,3 +23,4 @@
 202306192200|EagleTree|Weißkopfseeadler, Tongass National Forest, Alaska, USA (© Jaynes Gallery/Shutterstock)|Der Herr der Lüfte!|![](/de-DE/2023/06/202306192200EagleTree.jpg)|
 202306202200|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|Das Mysterium von Stonehenge|![](/de-DE/2023/06/202306202200StonehengeSalisbury.jpg)|
 202306212200|PeruAmazon|Amazonas-Regenwald, Peru (© Rhett Ayers Butler/Getty Images)|Die grüne Lunge unserer Welt|![](/de-DE/2023/06/202306212200PeruAmazon.jpg)|
+202306222200|PollinatorMonarch|Monarchfalter bei der Nahrungssuche an Blaustern-Wildblumen (© bookguy/Getty Images)|Bunte Blumen, bunte Schmetterlinge|![](/de-DE/2023/06/202306222200PollinatorMonarch.jpg)|
