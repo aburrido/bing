@@ -23,3 +23,4 @@
 202306191600|EagleTree|秃鹰，通加斯国家森林，阿拉斯加，美国 (© Jaynes Gallery/Shutterstock)|这只顶级掠食者是什么?|![](/zh-CN/2023/06/202306191600EagleTree.jpg)|
 202306201600|SummerSolstice2023|夏日盛开的荷花 (© pandemin/Getty Images)|夏日仙境|![](/zh-CN/2023/06/202306201600SummerSolstice2023.jpg)|
 202306211600|DragonBoatFestival2023|中国传统节日端午节 (© timekeep/Shutterstock)|仲夏端午|![](/zh-CN/2023/06/202306211600DragonBoatFestival2023.jpg)|
+202306221600|PollinatorMonarch|帝王蝶在野花中取食 (© bookguy/Getty Images)|蝴蝶翩跹|![](/zh-CN/2023/06/202306221600PollinatorMonarch.jpg)|
