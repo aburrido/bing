@@ -22,3 +22,4 @@
 202306190400|Fawn|Faon dans une prairie de Normandie, France (© Gerard Lacz/Minden)|Et hop, un petit bond!|![](/fr-CA/2023/06/202306190400Fawn.jpg)|
 202306200400|EagleTree|Pygargue à tête blanche, forêt nationale de Tongass, Alaska, États-Unis (© Jaynes Gallery/Shutterstock)|Une icône de la nature américaine|![](/fr-CA/2023/06/202306200400EagleTree.jpg)|
 202306210400|NationalIndigenousPeoplesDay|Gravures rupestres anciennes dans le parc provincial de Petroglyph à Nanaimo, Canada (© Chase Clausen/Shutterstock)|Relier le passé à l’avenir|![](/fr-CA/2023/06/202306210400NationalIndigenousPeoplesDay.jpg)|
+202306220400|PeruAmazon|Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)|Un monde extraordinaire se cache ici|![](/fr-CA/2023/06/202306220400PeruAmazon.jpg)|
