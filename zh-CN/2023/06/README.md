@@ -24,3 +24,4 @@
 202306201600|SummerSolstice2023|夏日盛开的荷花 (© pandemin/Getty Images)|夏日仙境|![](/zh-CN/2023/06/202306201600SummerSolstice2023.jpg)|
 202306211600|DragonBoatFestival2023|中国传统节日端午节 (© timekeep/Shutterstock)|仲夏端午|![](/zh-CN/2023/06/202306211600DragonBoatFestival2023.jpg)|
 202306221600|PollinatorMonarch|帝王蝶在野花中取食 (© bookguy/Getty Images)|蝴蝶翩跹|![](/zh-CN/2023/06/202306221600PollinatorMonarch.jpg)|
+202306231600|NhaTrang|芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)|海湾之美|![](/zh-CN/2023/06/202306231600NhaTrang.jpg)|
