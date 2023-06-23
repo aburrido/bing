@@ -24,3 +24,4 @@
 202306202300|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|The mystery of Stonehenge|![](/en-GB/2023/06/202306202300StonehengeSalisbury.jpg)|
 202306212300|PeruAmazon|Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)|A world within a world|![](/en-GB/2023/06/202306212300PeruAmazon.jpg)|
 202306222300|PollinatorMonarch|Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)|Butterfly, fly away|![](/en-GB/2023/06/202306222300PollinatorMonarch.jpg)|
+202306232300|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Beauty by the bay|![](/en-GB/2023/06/202306232300NhaTrang.jpg)|
