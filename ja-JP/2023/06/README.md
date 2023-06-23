@@ -24,3 +24,4 @@
 202306201500|Summersolstice2023|奥入瀬渓流, 青森県 (© yspbqh14/Shutterstock)|今日は夏至|![](/ja-JP/2023/06/202306201500Summersolstice2023.jpg)|
 202306211500|PeruAmazon|アマゾン熱帯雨林, ペルー (© Rhett Ayers Butler/Getty Images)|今日は世界熱帯雨林の日|![](/ja-JP/2023/06/202306211500PeruAmazon.jpg)|
 202306221500|PollinatorMonarch|リアトリスにとまるオオカバマダラ (© bookguy/Getty Images)|今週は米国の花粉媒介者週間|![](/ja-JP/2023/06/202306221500PollinatorMonarch.jpg)|
+202306231500|NhaTrang|ニャフー湾, ベトナム ニャチャン (© Thang Tat Nguyen/Getty Images)|金色の光が降り注ぐ海岸|![](/ja-JP/2023/06/202306231500NhaTrang.jpg)|
