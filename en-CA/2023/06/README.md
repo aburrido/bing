@@ -23,3 +23,4 @@
 202306200400|EagleTree|Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)|Majestic lord of the skies|![](/en-CA/2023/06/202306200400EagleTree.jpg)|
 202306210400|NationalIndigenousPeoplesDay|Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)|Past below, future ahead|![](/en-CA/2023/06/202306210400NationalIndigenousPeoplesDay.jpg)|
 202306220400|PeruAmazon|Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)|A world within a world|![](/en-CA/2023/06/202306220400PeruAmazon.jpg)|
+202306230400|PollinatorMonarch|Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)|Butterfly, fly away|![](/en-CA/2023/06/202306230400PollinatorMonarch.jpg)|
