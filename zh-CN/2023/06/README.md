@@ -25,3 +25,4 @@
 202306211600|DragonBoatFestival2023|中国传统节日端午节 (© timekeep/Shutterstock)|仲夏端午|![](/zh-CN/2023/06/202306211600DragonBoatFestival2023.jpg)|
 202306221600|PollinatorMonarch|帝王蝶在野花中取食 (© bookguy/Getty Images)|蝴蝶翩跹|![](/zh-CN/2023/06/202306221600PollinatorMonarch.jpg)|
 202306231600|NhaTrang|芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)|海湾之美|![](/zh-CN/2023/06/202306231600NhaTrang.jpg)|
+202306241600|PetraTreasury|佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)|一座宝库|![](/zh-CN/2023/06/202306241600PetraTreasury.jpg)|
