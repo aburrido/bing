@@ -25,3 +25,4 @@
 202306210700|StonehengeSalisbury|Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)|Info|![](/en-AU/2023/06/202306210700StonehengeSalisbury.jpg)|
 202306220700|PeruAmazon|Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)|Info|![](/en-AU/2023/06/202306220700PeruAmazon.jpg)|
 202306230700|PollinatorMonarch|Monarch butterflies feeding from blazing star wildflowers (© bookguy/Getty Images)|Info|![](/en-AU/2023/06/202306230700PollinatorMonarch.jpg)|
+202306240700|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Info|![](/en-AU/2023/06/202306240700NhaTrang.jpg)|
