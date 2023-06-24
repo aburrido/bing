@@ -24,3 +24,4 @@
 202306210400|NationalIndigenousPeoplesDay|Gravures rupestres anciennes dans le parc provincial de Petroglyph à Nanaimo, Canada (© Chase Clausen/Shutterstock)|Relier le passé à l’avenir|![](/fr-CA/2023/06/202306210400NationalIndigenousPeoplesDay.jpg)|
 202306220400|PeruAmazon|Forêt amazonienne, Pérou (© Rhett Ayers Butler/Getty Images)|Un monde extraordinaire se cache ici|![](/fr-CA/2023/06/202306220400PeruAmazon.jpg)|
 202306230400|PollinatorMonarch|Papillons monarques butinant des fleurs sauvages (© bookguy/Getty Images)|La symphonie chromatique des papillons|![](/fr-CA/2023/06/202306230400PollinatorMonarch.jpg)|
+202306240400|NhaTrang|Baie de Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|La beauté à l’état pur|![](/fr-CA/2023/06/202306240400NhaTrang.jpg)|

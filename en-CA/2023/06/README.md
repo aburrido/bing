@@ -24,3 +24,4 @@
 202306210400|NationalIndigenousPeoplesDay|Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)|Past below, future ahead|![](/en-CA/2023/06/202306210400NationalIndigenousPeoplesDay.jpg)|
 202306220400|PeruAmazon|Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)|A world within a world|![](/en-CA/2023/06/202306220400PeruAmazon.jpg)|
 202306230400|PollinatorMonarch|Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)|Butterfly, fly away|![](/en-CA/2023/06/202306230400PollinatorMonarch.jpg)|
+202306240400|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Beauty by the bay|![](/en-CA/2023/06/202306240400NhaTrang.jpg)|
