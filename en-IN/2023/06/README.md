@@ -26,3 +26,4 @@
 202306221830|PollinatorMonarch|Monarch butterflies feeding from blazing star wildflowers (© bookguy/Getty Images)|Butterfly, fly away|![](/en-IN/2023/06/202306221830PollinatorMonarch.jpg)|
 202306231830|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Beauty by the bay|![](/en-IN/2023/06/202306231830NhaTrang.jpg)|
 202306241830|PetraTreasury|The Treasury of Petra, Jordan (© WitthayaP/Shutterstock)|A temple to treasure|![](/en-IN/2023/06/202306241830PetraTreasury.jpg)|
+202306251830|VillandryGarden|Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)|A labyrinth of luxury|![](/en-IN/2023/06/202306251830VillandryGarden.jpg)|
