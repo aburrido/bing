@@ -26,3 +26,4 @@
 202306222200|PollinatorMonarch|Monarchfalter bei der Nahrungssuche an Blaustern-Wildblumen (© bookguy/Getty Images)|Bunte Blumen, bunte Schmetterlinge|![](/de-DE/2023/06/202306222200PollinatorMonarch.jpg)|
 202306232200|SonyCenterDome|Beleuchteter Innenraum, Sony Center, Berlin (© travelstock44/Alamy Stock Photo)|Architektonische Perfektion|![](/de-DE/2023/06/202306232200SonyCenterDome.jpg)|
 202306242200|PetraTreasury|Khazne al-Firaun, Petra, Jordanien (© WitthayaP/Shutterstock)|Geschichte vom Feinsten|![](/de-DE/2023/06/202306242200PetraTreasury.jpg)|
+202306252200|VillandryGarden|Schloss Villandry und sein Garten, Loire-Tal, Frankreich (© VLADJ55/Shutterstock)|Luxuslabyrinth|![](/de-DE/2023/06/202306252200VillandryGarden.jpg)|
