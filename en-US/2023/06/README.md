@@ -26,3 +26,4 @@
 202306220700|PeruAmazon|Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)|A world within a world|![](/en-US/2023/06/202306220700PeruAmazon.jpg)|
 202306230700|PollinatorMonarch|Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)|Butterfly, fly away|![](/en-US/2023/06/202306230700PollinatorMonarch.jpg)|
 202306240700|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Beauty by the bay|![](/en-US/2023/06/202306240700NhaTrang.jpg)|
+202306250700|PetraTreasury|Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)|A temple to treasure|![](/en-US/2023/06/202306250700PetraTreasury.jpg)|
