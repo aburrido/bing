@@ -26,3 +26,4 @@
 202306230400|PollinatorMonarch|Papillons monarques butinant des fleurs sauvages (© bookguy/Getty Images)|La symphonie chromatique des papillons|![](/fr-CA/2023/06/202306230400PollinatorMonarch.jpg)|
 202306240400|NhaTrang|Baie de Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|La beauté à l’état pur|![](/fr-CA/2023/06/202306240400NhaTrang.jpg)|
 202306250400|PetraTreasury|Khazneh, Pétra, Jordanie (© WitthayaP/Shutterstock)|Pétra, la belle endormie du désert|![](/fr-CA/2023/06/202306250400PetraTreasury.jpg)|
+202306260400|VillandryGarden|Château de Villandry et son jardin, Vallée de la Loire, France (© VLADJ55/Shutterstock)|C’est un jardin extraordinaire!|![](/fr-CA/2023/06/202306260400VillandryGarden.jpg)|
