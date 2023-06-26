@@ -27,3 +27,4 @@
 202306232300|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Beauty by the bay|![](/en-GB/2023/06/202306232300NhaTrang.jpg)|
 202306242300|PetraTreasury|Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)|A temple to treasure|![](/en-GB/2023/06/202306242300PetraTreasury.jpg)|
 202306252300|VillandryGarden|Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)|A labyrinth of luxury|![](/en-GB/2023/06/202306252300VillandryGarden.jpg)|
+202306262300|SedonaSunset|Sedona, Arizona (© Jonathan Ross/Getty Images)|Red rock country|![](/en-GB/2023/06/202306262300SedonaSunset.jpg)|
