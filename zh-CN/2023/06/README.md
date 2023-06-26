@@ -27,3 +27,4 @@
 202306231600|NhaTrang|芽富湾，芽庄，越南 (© Thang Tat Nguyen/Getty Images)|海湾之美|![](/zh-CN/2023/06/202306231600NhaTrang.jpg)|
 202306241600|PetraTreasury|佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)|一座宝库|![](/zh-CN/2023/06/202306241600PetraTreasury.jpg)|
 202306251600|VillandryGarden|维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)|奢华的迷宫|![](/zh-CN/2023/06/202306251600VillandryGarden.jpg)|
+202306261600|SedonaSunset|塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)|红石的土地|![](/zh-CN/2023/06/202306261600SedonaSunset.jpg)|
