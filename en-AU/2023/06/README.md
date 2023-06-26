@@ -27,3 +27,4 @@
 202306230700|PollinatorMonarch|Monarch butterflies feeding from blazing star wildflowers (© bookguy/Getty Images)|Info|![](/en-AU/2023/06/202306230700PollinatorMonarch.jpg)|
 202306240700|NhaTrang|Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|Info|![](/en-AU/2023/06/202306240700NhaTrang.jpg)|
 202306250700|PetraTreasury|The Treasury of Petra, Jordan (© WitthayaP/Shutterstock)|Info|![](/en-AU/2023/06/202306250700PetraTreasury.jpg)|
+202306260700|VillandryGarden|Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)|Info|![](/en-AU/2023/06/202306260700VillandryGarden.jpg)|
