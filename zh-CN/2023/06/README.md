@@ -28,3 +28,4 @@
 202306241600|PetraTreasury|佩特拉的宝库，约旦 (© WitthayaP/Shutterstock)|一座宝库|![](/zh-CN/2023/06/202306241600PetraTreasury.jpg)|
 202306251600|VillandryGarden|维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)|奢华的迷宫|![](/zh-CN/2023/06/202306251600VillandryGarden.jpg)|
 202306261600|SedonaSunset|塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)|红石的土地|![](/zh-CN/2023/06/202306261600SedonaSunset.jpg)|
+202306271600|ItalyCinqueTerre|韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)|天堂之景！|![](/zh-CN/2023/06/202306271600ItalyCinqueTerre.jpg)|
