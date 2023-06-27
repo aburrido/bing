@@ -28,3 +28,4 @@
 202306242200|PetraTreasury|Khazne al-Firaun, Petra, Jordanien (© WitthayaP/Shutterstock)|Geschichte vom Feinsten|![](/de-DE/2023/06/202306242200PetraTreasury.jpg)|
 202306252200|VillandryGarden|Schloss Villandry und sein Garten, Loire-Tal, Frankreich (© VLADJ55/Shutterstock)|Luxuslabyrinth|![](/de-DE/2023/06/202306252200VillandryGarden.jpg)|
 202306262200|SedonaSunset|Sedona, Arizona, USA (© Jonathan Ross/Getty Images)|Das Land der roten Felsen|![](/de-DE/2023/06/202306262200SedonaSunset.jpg)|
+202306272200|PrideMunich|Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)|Pride in Minga|![](/de-DE/2023/06/202306272200PrideMunich.jpg)|
