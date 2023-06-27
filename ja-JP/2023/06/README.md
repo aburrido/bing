@@ -28,3 +28,4 @@
 202306241500|PetraTreasury|エル・カズネ, ヨルダン ペトラ (© WitthayaP/Shutterstock)|ペトラの隠された宝物殿|![](/ja-JP/2023/06/202306241500PetraTreasury.jpg)|
 202306251500|VillandryGarden|ロワール渓谷内のヴィランドリー城, フランス ロワール県 (© VLADJ55/Shutterstock)|絢爛たる迷宮庭園|![](/ja-JP/2023/06/202306251500VillandryGarden.jpg)|
 202306261500|SedonaSunset|セドナ, 米国 アリゾナ州 (© Jonathan Ross/Getty Images)|夕焼けに染まるセドナ|![](/ja-JP/2023/06/202306261500SedonaSunset.jpg)|
+202306271500|PrideIceland|レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)|今月はプライド月間|![](/ja-JP/2023/06/202306271500PrideIceland.jpg)|
