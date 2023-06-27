@@ -27,3 +27,4 @@
 202306240400|NhaTrang|Baie de Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)|La beauté à l’état pur|![](/fr-CA/2023/06/202306240400NhaTrang.jpg)|
 202306250400|PetraTreasury|Khazneh, Pétra, Jordanie (© WitthayaP/Shutterstock)|Pétra, la belle endormie du désert|![](/fr-CA/2023/06/202306250400PetraTreasury.jpg)|
 202306260400|VillandryGarden|Château de Villandry et son jardin, Vallée de la Loire, France (© VLADJ55/Shutterstock)|C’est un jardin extraordinaire!|![](/fr-CA/2023/06/202306260400VillandryGarden.jpg)|
+202306270400|SedonaSunset|Sedona, Arizona, États-Unis (© Jonathan Ross/Getty Images)|Le pays de la roche rouge|![](/fr-CA/2023/06/202306270400SedonaSunset.jpg)|
