@@ -28,3 +28,4 @@
 202306250400|PetraTreasury|Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)|A temple to treasure|![](/en-CA/2023/06/202306250400PetraTreasury.jpg)|
 202306260400|VillandryGarden|Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)|A labyrinth of luxury|![](/en-CA/2023/06/202306260400VillandryGarden.jpg)|
 202306270400|SedonaSunset|Sedona, Arizona (© Jonathan Ross/Getty Images)|Red rock country|![](/en-CA/2023/06/202306270400SedonaSunset.jpg)|
+202306280400|PrideIceland|Rainbow flags and confetti (© Arctic-Images/Getty Images)|Pride and Joy|![](/en-CA/2023/06/202306280400PrideIceland.jpg)|

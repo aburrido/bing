@@ -28,3 +28,4 @@
 202306250400|PetraTreasury|Khazneh, Pétra, Jordanie (© WitthayaP/Shutterstock)|Pétra, la belle endormie du désert|![](/fr-CA/2023/06/202306250400PetraTreasury.jpg)|
 202306260400|VillandryGarden|Château de Villandry et son jardin, Vallée de la Loire, France (© VLADJ55/Shutterstock)|C’est un jardin extraordinaire!|![](/fr-CA/2023/06/202306260400VillandryGarden.jpg)|
 202306270400|SedonaSunset|Sedona, Arizona, États-Unis (© Jonathan Ross/Getty Images)|Le pays de la roche rouge|![](/fr-CA/2023/06/202306270400SedonaSunset.jpg)|
+202306280400|PrideIceland|Drapeaux arc-en-ciel et confettis (© Arctic-Images/Getty Images)|Joie et fierté!|![](/fr-CA/2023/06/202306280400PrideIceland.jpg)|
