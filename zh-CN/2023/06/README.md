@@ -29,3 +29,4 @@
 202306251600|VillandryGarden|维朗德里城堡及花园，卢瓦尔河谷，法国 (© VLADJ55/Shutterstock)|奢华的迷宫|![](/zh-CN/2023/06/202306251600VillandryGarden.jpg)|
 202306261600|SedonaSunset|塞多纳，亚利桑那州，美国 (© Jonathan Ross/Getty Images)|红石的土地|![](/zh-CN/2023/06/202306261600SedonaSunset.jpg)|
 202306271600|ItalyCinqueTerre|韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)|天堂之景！|![](/zh-CN/2023/06/202306271600ItalyCinqueTerre.jpg)|
+202306281600|BanyakIslands|巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)|赞美热带|![](/zh-CN/2023/06/202306281600BanyakIslands.jpg)|
