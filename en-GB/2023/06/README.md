@@ -30,3 +30,4 @@
 202306262300|SedonaSunset|Sedona, Arizona (© Jonathan Ross/Getty Images)|Red rock country|![](/en-GB/2023/06/202306262300SedonaSunset.jpg)|
 202306272300|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|A vibrant, sun-drenched island|![](/en-GB/2023/06/202306272300ProcidaItaly.jpg)|
 202306282300|BanyakIslands|Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)|Celebrating the tropics|![](/en-GB/2023/06/202306282300BanyakIslands.jpg)|
+202306292300|ClamBears|Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)|Where did you drop the fish, son?|![](/en-GB/2023/06/202306292300ClamBears.jpg)|
