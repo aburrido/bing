@@ -29,3 +29,4 @@
 202306260400|VillandryGarden|Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)|A labyrinth of luxury|![](/en-CA/2023/06/202306260400VillandryGarden.jpg)|
 202306270400|SedonaSunset|Sedona, Arizona (© Jonathan Ross/Getty Images)|Red rock country|![](/en-CA/2023/06/202306270400SedonaSunset.jpg)|
 202306280400|PrideIceland|Rainbow flags and confetti (© Arctic-Images/Getty Images)|Pride and Joy|![](/en-CA/2023/06/202306280400PrideIceland.jpg)|
+202306290400|BanyakIslands|Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)|Celebrating the tropics|![](/en-CA/2023/06/202306290400BanyakIslands.jpg)|
