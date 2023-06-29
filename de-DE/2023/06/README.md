@@ -30,3 +30,4 @@
 202306262200|SedonaSunset|Sedona, Arizona, USA (© Jonathan Ross/Getty Images)|Das Land der roten Felsen|![](/de-DE/2023/06/202306262200SedonaSunset.jpg)|
 202306272200|PrideMunich|Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)|Pride in Minga|![](/de-DE/2023/06/202306272200PrideMunich.jpg)|
 202306282200|BanyakIslands|Banyak-Inseln, Sumatra, Indonesien (© fbxx/Getty Imagesz)|Das Fest der Tropen|![](/de-DE/2023/06/202306282200BanyakIslands.jpg)|
+202306292200|Footbridge|Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)|Sport, Natur und Kultur|![](/de-DE/2023/06/202306292200Footbridge.jpg)|

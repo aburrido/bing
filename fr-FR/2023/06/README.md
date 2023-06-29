@@ -30,3 +30,4 @@
 202306262200|SedonaSunset|Sedona, Arizona, États-Unis (© Jonathan Ross/Getty Images)|Le pays de la roche rouge|![](/fr-FR/2023/06/202306262200SedonaSunset.jpg)|
 202306272200|PrideIceland|Juin, mois des fiertés (© Arctic-Images/Getty Images)|La fierté sur le toit du monde !|![](/fr-FR/2023/06/202306272200PrideIceland.jpg)|
 202306282200|BanyakIslands|Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)|Les tropiques sont en fête !|![](/fr-FR/2023/06/202306282200BanyakIslands.jpg)|
+202306292200|ClamBears|Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)|À la recherche du poisson perdu !|![](/fr-FR/2023/06/202306292200ClamBears.jpg)|
