@@ -31,3 +31,4 @@
 202306271600|ItalyCinqueTerre|韦尔纳扎，五渔村，意大利 (© Rubin Versigny/Getty Images)|天堂之景！|![](/zh-CN/2023/06/202306271600ItalyCinqueTerre.jpg)|
 202306281600|BanyakIslands|巴尼亚群岛，苏门答腊，印度尼西亚 (© fbxx/Getty Imagesz)|赞美热带|![](/zh-CN/2023/06/202306281600BanyakIslands.jpg)|
 202306291600|ClamBears|棕熊妈妈和幼崽，克拉克湖国家公园和自然保护区，美国阿拉斯加州 (© Carlos Carreno/Getty Images)|孩子，你把鱼扔哪儿了？|![](/zh-CN/2023/06/202306291600ClamBears.jpg)|
+202306301600|RomeView|从意大利圣天使城堡俯瞰罗马 (© sborisov/Getty Images)|超凡脱俗的风景|![](/zh-CN/2023/06/202306301600RomeView.jpg)|
