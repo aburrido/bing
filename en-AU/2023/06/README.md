@@ -31,3 +31,4 @@
 202306270700|SedonaSunset|Sedona, Arizona, USA (© Jonathan Ross/Getty Images)|Info|![](/en-AU/2023/06/202306270700SedonaSunset.jpg)|
 202306280700|ItalyCinqueTerre|Vernazza in the Cinque Terre region of Italy (© Rubin Versigny/Getty Images)|Info|![](/en-AU/2023/06/202306280700ItalyCinqueTerre.jpg)|
 202306290700|BanyakIslands|Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Imagesz)|Info|![](/en-AU/2023/06/202306290700BanyakIslands.jpg)|
+202306300700|ClamBears|Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska, USA (© Carlos Carreno/Getty Images)|Info|![](/en-AU/2023/06/202306300700ClamBears.jpg)|

@@ -31,3 +31,4 @@
 202306270700|SedonaSunset|Sedona, Arizona (© Jonathan Ross/Getty Images)|Red Rock Country|![](/en-US/2023/06/202306270700SedonaSunset.jpg)|
 202306280700|PrideIceland|Rainbow flags and confetti, Reykjavík, Iceland (© Arctic-Images/Getty Images)|The colors of Pride|![](/en-US/2023/06/202306280700PrideIceland.jpg)|
 202306290700|BanyakIslands|Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)|Celebrating the tropics|![](/en-US/2023/06/202306290700BanyakIslands.jpg)|
+202306300700|ClamBears|Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)|Where did you drop the fish, son?|![](/en-US/2023/06/202306300700ClamBears.jpg)|
