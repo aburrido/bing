@@ -30,3 +30,4 @@
 202306270400|SedonaSunset|Sedona, Arizona, États-Unis (© Jonathan Ross/Getty Images)|Le pays de la roche rouge|![](/fr-CA/2023/06/202306270400SedonaSunset.jpg)|
 202306280400|PrideIceland|Drapeaux arc-en-ciel et confettis (© Arctic-Images/Getty Images)|Joie et fierté!|![](/fr-CA/2023/06/202306280400PrideIceland.jpg)|
 202306290400|BanyakIslands|Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)|Les tropiques sont en fête!|![](/fr-CA/2023/06/202306290400BanyakIslands.jpg)|
+202306300400|ClamBears|Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)|À la recherche du poisson perdu|![](/fr-CA/2023/06/202306300400ClamBears.jpg)|
