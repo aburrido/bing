@@ -31,3 +31,4 @@
 202306272200|PrideIceland|Juin, mois des fiertés (© Arctic-Images/Getty Images)|La fierté sur le toit du monde !|![](/fr-FR/2023/06/202306272200PrideIceland.jpg)|
 202306282200|BanyakIslands|Îles Banyak, Sumatra, Indonésie (© fbxx/Getty Images)|Les tropiques sont en fête !|![](/fr-FR/2023/06/202306282200BanyakIslands.jpg)|
 202306292200|ClamBears|Grizzlis, parc national et réserve du Lake Clark, Alaska, États-Unis (© Carlos Carreno/Getty Images)|À la recherche du poisson perdu !|![](/fr-FR/2023/06/202306292200ClamBears.jpg)|
+202306302200|PelotonPont|Cyclistes du Tour de France traversant le Pont du Gard, Occitanie (© Gonzalo Fuentes/Reuters)|Prêt pour la course ?|![](/fr-FR/2023/06/202306302200PelotonPont.jpg)|

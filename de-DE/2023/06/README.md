@@ -31,3 +31,4 @@
 202306272200|PrideMunich|Regenbogenfahnen am Münchner Rathaus (© FooTToo/iStock/Getty Images Plus)|Pride in Minga|![](/de-DE/2023/06/202306272200PrideMunich.jpg)|
 202306282200|BanyakIslands|Banyak-Inseln, Sumatra, Indonesien (© fbxx/Getty Imagesz)|Das Fest der Tropen|![](/de-DE/2023/06/202306282200BanyakIslands.jpg)|
 202306292200|Footbridge|Fußgängerbrücke über den See zu den Stelzenhäusern, Unteruhldingen, Baden-Württemberg (© Harald Nachtmann/Getty Images)|Sport, Natur und Kultur|![](/de-DE/2023/06/202306292200Footbridge.jpg)|
+202306302200|PelotonPont|Radfahrer der Tour de France überqueren den Pont du Gard, Frankreich (© Gonzalo Fuentes/Reuters)|Bereit für den Grand Départ?|![](/de-DE/2023/06/202306302200PelotonPont.jpg)|
