@@ -31,3 +31,4 @@
 202306271830|PrideIceland|Rainbow flags and confetti (© Arctic-Images/Getty Images)|Pride and Joy|![](/en-IN/2023/06/202306271830PrideIceland.jpg)|
 202306281830|BanyakIslands|Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)|Celebrating the tropics|![](/en-IN/2023/06/202306281830BanyakIslands.jpg)|
 202306291830|ClamBears|Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska, USA (© Carlos Carreno/Getty Images)|Where did you drop the fish, son?|![](/en-IN/2023/06/202306291830ClamBears.jpg)|
+202306301830|PelotonPont|Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Getty Images)|What is this grand structure?|![](/en-IN/2023/06/202306301830PelotonPont.jpg)|
