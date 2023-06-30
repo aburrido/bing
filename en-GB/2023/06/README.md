@@ -31,3 +31,4 @@
 202306272300|ProcidaItaly|Procida, Italy (© Sean Pavone/Shutterstock)|A vibrant, sun-drenched island|![](/en-GB/2023/06/202306272300ProcidaItaly.jpg)|
 202306282300|BanyakIslands|Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)|Celebrating the tropics|![](/en-GB/2023/06/202306282300BanyakIslands.jpg)|
 202306292300|ClamBears|Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)|Where did you drop the fish, son?|![](/en-GB/2023/06/202306292300ClamBears.jpg)|
+202306302300|LondonPride|London Eye illuminated at dawn, England (© Pajor Pawel/Shutterstock)|Rainbow reflection|![](/en-GB/2023/06/202306302300LondonPride.jpg)|
