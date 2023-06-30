@@ -31,3 +31,4 @@
 202306271500|PrideIceland|レインボーフラッグと紙吹雪, アイスランド レイキャヴィーク (© Arctic-Images/Getty Images)|今月はプライド月間|![](/ja-JP/2023/06/202306271500PrideIceland.jpg)|
 202306281500|BanyakIslands|バニャック諸島, インドネシア (© fbxx/Getty Images)|今日は国際熱帯デー|![](/ja-JP/2023/06/202306281500BanyakIslands.jpg)|
 202306291500|ClamBears|レイク・クラーク国立公園, 米国 アラスカ州 (© Carlos Carreno/Getty Images)|水辺で捕食中のヒグマの親子|![](/ja-JP/2023/06/202306291500ClamBears.jpg)|
+202306301500|PelotonPont|ポン・デュ・ガールを横断するサイクリストたち, フランス (© Gonzalo Fuentes/Getty Images)|今日はツール・ド・フランスの開催日|![](/ja-JP/2023/06/202306301500PelotonPont.jpg)|
