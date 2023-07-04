@@ -4,3 +4,4 @@
 202307012300|HalfwayBoats|Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)|We're halfway there|![](/en-GB/2023/07/202307012300HalfwayBoats.jpg)|
 202307022300|Wimbledon|Ground View of Centre Court, Wimbledon Tennis Championships, A.E.L.T.C, London, Britain (© Mark Greenwood/Ips/Shutterstock)|Grand slam tournament|![](/en-GB/2023/07/202307022300Wimbledon.jpg)|
 202307032300|GrasslandsNationalParkSaskachewan|Grasslands National Park, Saskatchewan, Canada (© Robert Postma/Getty Images)|The grass looks greener on this side|![](/en-GB/2023/07/202307032300GrasslandsNationalParkSaskachewan.jpg)|
+202307042300|CorfuBeach|Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)|Pick your paradise|![](/en-GB/2023/07/202307042300CorfuBeach.jpg)|
