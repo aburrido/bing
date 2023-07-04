@@ -4,3 +4,4 @@
 202307010700|PelotonPont|Tour de France cyclists crossing the Pont du Gard, France (© Gonzalo Fuentes/Reuters)|Ready for the Grand Départ?|![](/en-US/2023/07/202307010700PelotonPont.jpg)|
 202307020700|HalfwayBoats|Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)|We're halfway there|![](/en-US/2023/07/202307020700HalfwayBoats.jpg)|
 202307030700|CoyoteBanff|A coyote in Banff, Alberta, Canada (© Harry Collins/Getty Images)|Hot enough to howl|![](/en-US/2023/07/202307030700CoyoteBanff.jpg)|
+202307040700|EmpireFourth|Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)|Happy Independence Day!|![](/en-US/2023/07/202307040700EmpireFourth.jpg)|
