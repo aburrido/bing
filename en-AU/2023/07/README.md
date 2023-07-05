@@ -5,3 +5,4 @@
 202307020700|HalfwayBoats|Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Shutterstock)|Info|![](/en-AU/2023/07/202307020700HalfwayBoats.jpg)|
 202307030700|CoyoteBanff|A coyote in Banff, Canada (© Harry Collins/Getty Images)|Info|![](/en-AU/2023/07/202307030700CoyoteBanff.jpg)|
 202307040700|GrasslandsNationalParkSaskachewan|Grasslands National Park, Saskatchewan, Canada (© Robert Postma/Getty Images)|Info|![](/en-AU/2023/07/202307040700GrasslandsNationalParkSaskachewan.jpg)|
+202307050700|HinterseeBavaria|Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)|Info|![](/en-AU/2023/07/202307050700HinterseeBavaria.jpg)|
