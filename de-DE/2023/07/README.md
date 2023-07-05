@@ -5,3 +5,4 @@
 202307022200|CoyoteBanff|Ein Kojote in Banff, Alberta, Kanada  (© Harry Collins/Getty Images)|Hundstage des Sommers|![](/de-DE/2023/07/202307022200CoyoteBanff.jpg)|
 202307032200|GrasslandsNationalParkSaskachewan|Grassland-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)|Das Gras ist auf der anderen Seite viel grüner|![](/de-DE/2023/07/202307032200GrasslandsNationalParkSaskachewan.jpg)|
 202307042200|CorfuBeach|Strand von Porto Timoni, Korfu, Griechenland (© nantonov/Getty Images)|Wählen Sie Ihr Paradies|![](/de-DE/2023/07/202307042200CorfuBeach.jpg)|
+202307052200|KissingPenguins|Südliche Felsenpinguine, Falklandinseln (© Tony Beck/Getty Images)|Küssende Pinguine|![](/de-DE/2023/07/202307052200KissingPenguins.jpg)|
