@@ -6,3 +6,4 @@
 202307031830|GrasslandsNationalParkSaskachewan|Grasslands National Park, Saskatchewan, Canada (© Robert Postma/Getty Images)|Nature’s art installation|![](/en-IN/2023/07/202307031830GrasslandsNationalParkSaskachewan.jpg)|
 202307041830|CorfuBeach|Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)|Pick your paradise|![](/en-IN/2023/07/202307041830CorfuBeach.jpg)|
 202307051830|KissingPenguins|Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)|A peck between penguins|![](/en-IN/2023/07/202307051830KissingPenguins.jpg)|
+202307061830|CocoaPods|Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)|A chocolate lover's favorite fruit|![](/en-IN/2023/07/202307061830CocoaPods.jpg)|
