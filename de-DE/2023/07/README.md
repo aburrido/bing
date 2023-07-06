@@ -6,3 +6,4 @@
 202307032200|GrasslandsNationalParkSaskachewan|Grassland-Nationalpark, Saskatchewan, Kanada (© Robert Postma/Getty Images)|Das Gras ist auf der anderen Seite viel grüner|![](/de-DE/2023/07/202307032200GrasslandsNationalParkSaskachewan.jpg)|
 202307042200|CorfuBeach|Strand von Porto Timoni, Korfu, Griechenland (© nantonov/Getty Images)|Wählen Sie Ihr Paradies|![](/de-DE/2023/07/202307042200CorfuBeach.jpg)|
 202307052200|KissingPenguins|Südliche Felsenpinguine, Falklandinseln (© Tony Beck/Getty Images)|Küssende Pinguine|![](/de-DE/2023/07/202307052200KissingPenguins.jpg)|
+202307062200|CocoaPods|Kakaobohnen aus Ambanja, Madagaskar (© pierivb/Getty Images)|Die Lieblingsfrucht eines Schokoladenliebhabers|![](/de-DE/2023/07/202307062200CocoaPods.jpg)|
