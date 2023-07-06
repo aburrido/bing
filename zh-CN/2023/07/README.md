@@ -6,3 +6,4 @@
 202307031600|GrasslandsNationalParkSaskachewan|草原国家公园，萨斯喀彻温省，加拿大 (© Robert Postma/Getty Images)|体验孤独与奇迹|![](/zh-CN/2023/07/202307031600GrasslandsNationalParkSaskachewan.jpg)|
 202307041600|CorfuBeach|蒂莫尼港海滩，科孚岛，希腊 (© nantonov/Getty Images)|挑选你的乐园|![](/zh-CN/2023/07/202307041600CorfuBeach.jpg)|
 202307051600|KissingPenguins|南跳岩企鹅，福克兰群岛 (© Tony Beck/Getty Images)|接吻的企鹅|![](/zh-CN/2023/07/202307051600KissingPenguins.jpg)|
+202307061600|CocoaPods|安班加的可可豆荚，马达加斯加 (© pierivb/Getty Images)|巧克力爱好者最爱的水果|![](/zh-CN/2023/07/202307061600CocoaPods.jpg)|
