@@ -7,3 +7,4 @@
 202307040700|GrasslandsNationalParkSaskachewan|Grasslands National Park, Saskatchewan, Canada (© Robert Postma/Getty Images)|Info|![](/en-AU/2023/07/202307040700GrasslandsNationalParkSaskachewan.jpg)|
 202307050700|HinterseeBavaria|Row of boats at Hintersee lake, Bavaria, Germany (© Achim Thomae/Getty Images)|Info|![](/en-AU/2023/07/202307050700HinterseeBavaria.jpg)|
 202307060700|KissingPenguins|Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)|Info|![](/en-AU/2023/07/202307060700KissingPenguins.jpg)|
+202307070700|CocoaPods|Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)|Info|![](/en-AU/2023/07/202307070700CocoaPods.jpg)|

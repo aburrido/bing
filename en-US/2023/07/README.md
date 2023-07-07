@@ -7,3 +7,4 @@
 202307040700|EmpireFourth|Empire State Building on the Fourth of July, New York City (© Tetra Images/Getty Images)|Happy Independence Day!|![](/en-US/2023/07/202307040700EmpireFourth.jpg)|
 202307050700|CorfuBeach|Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)|Pick your paradise|![](/en-US/2023/07/202307050700CorfuBeach.jpg)|
 202307060700|KissingPenguins|Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)|A peck between penguins|![](/en-US/2023/07/202307060700KissingPenguins.jpg)|
+202307070700|CocoaPods|Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)|A chocolate lover's favorite fruit|![](/en-US/2023/07/202307070700CocoaPods.jpg)|
