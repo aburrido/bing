@@ -7,3 +7,4 @@
 202307042200|CorfuBeach|Strand von Porto Timoni, Korfu, Griechenland (© nantonov/Getty Images)|Wählen Sie Ihr Paradies|![](/de-DE/2023/07/202307042200CorfuBeach.jpg)|
 202307052200|KissingPenguins|Südliche Felsenpinguine, Falklandinseln (© Tony Beck/Getty Images)|Küssende Pinguine|![](/de-DE/2023/07/202307052200KissingPenguins.jpg)|
 202307062200|CocoaPods|Kakaobohnen aus Ambanja, Madagaskar (© pierivb/Getty Images)|Die Lieblingsfrucht eines Schokoladenliebhabers|![](/de-DE/2023/07/202307062200CocoaPods.jpg)|
+202307072200|CooperChapel|Mildred B. Cooper Gedächtniskapelle, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)|Heiligtum unter den Bäumen|![](/de-DE/2023/07/202307072200CooperChapel.jpg)|
