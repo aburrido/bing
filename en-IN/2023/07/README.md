@@ -7,3 +7,4 @@
 202307041830|CorfuBeach|Porto Timoni beach, Corfu, Greece (© nantonov/Getty Images)|Pick your paradise|![](/en-IN/2023/07/202307041830CorfuBeach.jpg)|
 202307051830|KissingPenguins|Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)|A peck between penguins|![](/en-IN/2023/07/202307051830KissingPenguins.jpg)|
 202307061830|CocoaPods|Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)|A chocolate lover's favorite fruit|![](/en-IN/2023/07/202307061830CocoaPods.jpg)|
+202307071830|CooperChapel|Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)|Sanctuary among the trees|![](/en-IN/2023/07/202307071830CooperChapel.jpg)|
