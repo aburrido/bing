@@ -7,3 +7,4 @@
 202307041500|CorfuBeach|コルフ島のポルトティモニビーチ, ギリシャ (© nantonov/Getty Images)|青い宝石の秘境|![](/ja-JP/2023/07/202307041500CorfuBeach.jpg)|
 202307051500|KissingPenguins|優しいキスをするイワトビペンギン, イギリス (© Tony Beck/Getty Images)|今日は国際キスの日|![](/ja-JP/2023/07/202307051500KissingPenguins.jpg)|
 202307061500|Tanabata2023|燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)|今日は七夕|![](/ja-JP/2023/07/202307061500Tanabata2023.jpg)|
+202307071500|CooperChapel|ミルドレッド B. クーパー メモリアル チャペル, 米国 アーカンソー州 (© Eddie Brady/Getty Images)|光と影が絡み合うチャペル|![](/ja-JP/2023/07/202307071500CooperChapel.jpg)|
