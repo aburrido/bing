@@ -8,3 +8,4 @@
 202307052300|KissingPenguins|Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)|A peck between penguins|![](/en-GB/2023/07/202307052300KissingPenguins.jpg)|
 202307062300|CocoaPods|Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)|A chocolate lover's favourite fruit|![](/en-GB/2023/07/202307062300CocoaPods.jpg)|
 202307072300|CooperChapel|Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)|Sanctuary among the trees|![](/en-GB/2023/07/202307072300CooperChapel.jpg)|
+202307082300|MoselleRiver|Moselle River loop near Kröv, Germany (© Jorg Greuel/Getty Images)|Staying in the loop|![](/en-GB/2023/07/202307082300MoselleRiver.jpg)|
