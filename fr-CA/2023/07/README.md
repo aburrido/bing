@@ -7,3 +7,4 @@
 202307050400|CorfuBeach|Plage de Porto Timoni, Corfou, Grèce (© nantonov/Getty Images)|Deux plages en une!|![](/fr-CA/2023/07/202307050400CorfuBeach.jpg)|
 202307060400|KissingPenguins|Gorfous sauteurs, îles Falkland (© Tony Beck/Getty Images)|Un baiser pingou!|![](/fr-CA/2023/07/202307060400KissingPenguins.jpg)|
 202307070400|CocoaPods|Fèves de cacao d'Ambanja, Madagascar (© pierivb/Getty Images)|Le fruit préféré des amoureux du chocolat|![](/fr-CA/2023/07/202307070400CocoaPods.jpg)|
+202307080400|CooperChapel|Chapelle commémorative Mildred B. Cooper, Bella Vista, Arkansas, États-Unis (© Eddie Brady/Getty Images)|Un sanctuaire au milieu des arbres|![](/fr-CA/2023/07/202307080400CooperChapel.jpg)|
