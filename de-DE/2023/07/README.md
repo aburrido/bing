@@ -8,3 +8,4 @@
 202307052200|KissingPenguins|Südliche Felsenpinguine, Falklandinseln (© Tony Beck/Getty Images)|Küssende Pinguine|![](/de-DE/2023/07/202307052200KissingPenguins.jpg)|
 202307062200|CocoaPods|Kakaobohnen aus Ambanja, Madagaskar (© pierivb/Getty Images)|Die Lieblingsfrucht eines Schokoladenliebhabers|![](/de-DE/2023/07/202307062200CocoaPods.jpg)|
 202307072200|CooperChapel|Mildred B. Cooper Gedächtniskapelle, Bella Vista, Arkansas, USA (© Eddie Brady/Getty Images)|Heiligtum unter den Bäumen|![](/de-DE/2023/07/202307072200CooperChapel.jpg)|
+202307082200|MoselleRiver|Moselmäander bei Kröv, Deutschland (© Jorg Greuel/Getty Images)|Wie in einem Märchen|![](/de-DE/2023/07/202307082200MoselleRiver.jpg)|

@@ -8,3 +8,4 @@
 202307052200|KissingPenguins|Gorfous sauteurs, îles Falkland  (© Tony Beck/Getty Images)|Un baiser pingou !|![](/fr-FR/2023/07/202307052200KissingPenguins.jpg)|
 202307062200|CocoaPods|Fèves de cacao d'Ambanja, Madagascar (© pierivb/Getty Images)|Le fruit préféré des amoureux du chocolat|![](/fr-FR/2023/07/202307062200CocoaPods.jpg)|
 202307072200|Holidays|Les célèbres parasols multicolores de la plage de Deauville, Normandie (© Kiszon Pascal/Getty Images)|Vive les vacances d’été !|![](/fr-FR/2023/07/202307072200Holidays.jpg)|
+202307082200|MoselleRiver|Boucle de la Moselle près de Kröv, Allemagne (© Jorg Greuel/Getty Images)|Le joyau de la Moselle|![](/fr-FR/2023/07/202307082200MoselleRiver.jpg)|
