@@ -8,3 +8,4 @@
 202307051500|KissingPenguins|優しいキスをするイワトビペンギン, イギリス (© Tony Beck/Getty Images)|今日は国際キスの日|![](/ja-JP/2023/07/202307051500KissingPenguins.jpg)|
 202307061500|Tanabata2023|燕岳の星空, 長野県 (© Nuttapoom Amornpashara/Getty Images)|今日は七夕|![](/ja-JP/2023/07/202307061500Tanabata2023.jpg)|
 202307071500|CooperChapel|ミルドレッド B. クーパー メモリアル チャペル, 米国 アーカンソー州 (© Eddie Brady/Getty Images)|光と影が絡み合うチャペル|![](/ja-JP/2023/07/202307071500CooperChapel.jpg)|
+202307081500|MoselleRiver|クレフ近郊のモーゼル川, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)|美味しいワインの生産地|![](/ja-JP/2023/07/202307081500MoselleRiver.jpg)|
