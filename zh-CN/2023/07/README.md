@@ -10,3 +10,4 @@
 202307071600|CooperChapel|米尔德里德-B-库珀纪念教堂，贝拉维斯塔，阿肯色州 (© Eddie Brady/Getty Images)|树林中的避难所|![](/zh-CN/2023/07/202307071600CooperChapel.jpg)|
 202307081600|MoselleRiver|克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)|河湾|![](/zh-CN/2023/07/202307081600MoselleRiver.jpg)|
 ||||![](/zh-CN/2023/07/.jpg)|
+202307091600|SomersetLavender|萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)|飘着香气的紫色海洋|![](/zh-CN/2023/07/202307091600SomersetLavender.jpg)|
