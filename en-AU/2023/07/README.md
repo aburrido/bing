@@ -9,3 +9,4 @@
 202307060700|KissingPenguins|Southern rockhopper penguins, Falkland Islands (© Tony Beck/Getty Images)|Info|![](/en-AU/2023/07/202307060700KissingPenguins.jpg)|
 202307070700|CocoaPods|Cocoa pods from Ambanja, Madagascar (© pierivb/Getty Images)|Info|![](/en-AU/2023/07/202307070700CocoaPods.jpg)|
 202307080700|BrightonPalacePier|Brighton Pier, England (© Peppy Graphics/Shutterstock)|Info|![](/en-AU/2023/07/202307080700BrightonPalacePier.jpg)|
+202307090700|MoselleRiver|Moselle River loop near Kröv, Germany (© Jorg Greuel/Getty Images)|Info|![](/en-AU/2023/07/202307090700MoselleRiver.jpg)|
