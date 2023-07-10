@@ -9,3 +9,4 @@
 202307070400|CocoaPods|Fèves de cacao d'Ambanja, Madagascar (© pierivb/Getty Images)|Le fruit préféré des amoureux du chocolat|![](/fr-CA/2023/07/202307070400CocoaPods.jpg)|
 202307080400|CooperChapel|Chapelle commémorative Mildred B. Cooper, Bella Vista, Arkansas, États-Unis (© Eddie Brady/Getty Images)|Un sanctuaire au milieu des arbres|![](/fr-CA/2023/07/202307080400CooperChapel.jpg)|
 202307090400|MoselleRiver|Boucle de la Moselle près de Kröv, Allemagne (© Jorg Greuel/Getty Images)|Le joyau de la Moselle|![](/fr-CA/2023/07/202307090400MoselleRiver.jpg)|
+202307100400|SomersetLavender|Champ de lavande, Somerset, Angleterre (© Doug Chinnery/Getty Images)|Un air de Provence en Angleterre|![](/fr-CA/2023/07/202307100400SomersetLavender.jpg)|
