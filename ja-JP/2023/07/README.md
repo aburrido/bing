@@ -10,3 +10,4 @@
 202307071500|CooperChapel|ミルドレッド B. クーパー メモリアル チャペル, 米国 アーカンソー州 (© Eddie Brady/Getty Images)|光と影が絡み合うチャペル|![](/ja-JP/2023/07/202307071500CooperChapel.jpg)|
 202307081500|MoselleRiver|クレフ近郊のモーゼル川, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)|美味しいワインの生産地|![](/ja-JP/2023/07/202307081500MoselleRiver.jpg)|
 202307091500|HozukiIchi2023|浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)|今日は四万六千日|![](/ja-JP/2023/07/202307091500HozukiIchi2023.jpg)|
+202307101500|WorldPopDay|香港特別行政区, 中国 (© leungchopan/Getty Images)|今日は世界人口デー|![](/ja-JP/2023/07/202307101500WorldPopDay.jpg)|
