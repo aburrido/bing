@@ -10,3 +10,4 @@
 202307072300|CooperChapel|Mildred B. Cooper Memorial Chapel, Bella Vista, Arkansas (© Eddie Brady/Getty Images)|Sanctuary among the trees|![](/en-GB/2023/07/202307072300CooperChapel.jpg)|
 202307082300|MoselleRiver|Moselle River loop near Kröv, Germany (© Jorg Greuel/Getty Images)|Staying in the loop|![](/en-GB/2023/07/202307082300MoselleRiver.jpg)|
 202307092300|SomersetLavender|Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)|A scented sea of purple|![](/en-GB/2023/07/202307092300SomersetLavender.jpg)|
+202307102300|WorldPopDay|Hong Kong SAR (© leungchopan/Getty Images)|A sea of humanity|![](/en-GB/2023/07/202307102300WorldPopDay.jpg)|
