@@ -11,3 +11,4 @@
 202307081600|MoselleRiver|克罗夫附近的摩泽尔河，德国 (© Jorg Greuel/Getty Images)|河湾|![](/zh-CN/2023/07/202307081600MoselleRiver.jpg)|
 ||||![](/zh-CN/2023/07/.jpg)|
 202307091600|SomersetLavender|萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)|飘着香气的紫色海洋|![](/zh-CN/2023/07/202307091600SomersetLavender.jpg)|
+202307101600|WorldPopDay|Hong Kong SAR (© leungchopan/Getty Images)|万家灯火|![](/zh-CN/2023/07/202307101600WorldPopDay.jpg)|
