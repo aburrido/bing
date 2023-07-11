@@ -11,3 +11,4 @@
 202307082200|MoselleRiver|Moselmäander bei Kröv, Deutschland (© Jorg Greuel/Getty Images)|Wie in einem Märchen|![](/de-DE/2023/07/202307082200MoselleRiver.jpg)|
 202307092200|SomersetLavender|Lavendelfeld, Somerset, England (© Doug Chinnery/Getty Images)|Lavendelfelder|![](/de-DE/2023/07/202307092200SomersetLavender.jpg)|
 202307102200|WorldPopDay|Hongkong SAR (© leungchopan/Getty Images)|Menschenmeer|![](/de-DE/2023/07/202307102200WorldPopDay.jpg)|
+202307112200|HinterseeBavaria|Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)|Boote, Berge und Bäume|![](/de-DE/2023/07/202307112200HinterseeBavaria.jpg)|
