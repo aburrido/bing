@@ -11,3 +11,4 @@
 202307082300|MoselleRiver|Moselle River loop near Kröv, Germany (© Jorg Greuel/Getty Images)|Staying in the loop|![](/en-GB/2023/07/202307082300MoselleRiver.jpg)|
 202307092300|SomersetLavender|Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)|A scented sea of purple|![](/en-GB/2023/07/202307092300SomersetLavender.jpg)|
 202307102300|WorldPopDay|Hong Kong SAR (© leungchopan/Getty Images)|A sea of humanity|![](/en-GB/2023/07/202307102300WorldPopDay.jpg)|
+202307112300|NakupendaBeach|Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)|The world's most exclusive beach?|![](/en-GB/2023/07/202307112300NakupendaBeach.jpg)|
