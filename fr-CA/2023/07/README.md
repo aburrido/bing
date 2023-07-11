@@ -10,3 +10,4 @@
 202307080400|CooperChapel|Chapelle commémorative Mildred B. Cooper, Bella Vista, Arkansas, États-Unis (© Eddie Brady/Getty Images)|Un sanctuaire au milieu des arbres|![](/fr-CA/2023/07/202307080400CooperChapel.jpg)|
 202307090400|MoselleRiver|Boucle de la Moselle près de Kröv, Allemagne (© Jorg Greuel/Getty Images)|Le joyau de la Moselle|![](/fr-CA/2023/07/202307090400MoselleRiver.jpg)|
 202307100400|SomersetLavender|Champ de lavande, Somerset, Angleterre (© Doug Chinnery/Getty Images)|Un air de Provence en Angleterre|![](/fr-CA/2023/07/202307100400SomersetLavender.jpg)|
+202307110400|WorldPopDay|Panorama de la ville de Hong Kong (© leungchopan/Getty Images)|Un océan de buildings|![](/fr-CA/2023/07/202307110400WorldPopDay.jpg)|
