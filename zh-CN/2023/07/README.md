@@ -13,3 +13,4 @@
 202307091600|SomersetLavender|萨默塞特郡的薰衣草田，英国 (© Doug Chinnery/Getty Images)|飘着香气的紫色海洋|![](/zh-CN/2023/07/202307091600SomersetLavender.jpg)|
 202307101600|WorldPopDay|Hong Kong SAR (© leungchopan/Getty Images)|万家灯火|![](/zh-CN/2023/07/202307101600WorldPopDay.jpg)|
 202307111600|NakupendaBeach|“我爱你”海滩自然保护区的沙洲，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy)|世界上最独特的海滩？|![](/zh-CN/2023/07/202307111600NakupendaBeach.jpg)|
+202307121600|ZhangyeGeopark|张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)|行走在彩虹岩石上|![](/zh-CN/2023/07/202307121600ZhangyeGeopark.jpg)|
