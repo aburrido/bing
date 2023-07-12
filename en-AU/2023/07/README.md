@@ -12,3 +12,4 @@
 202307090700|MoselleRiver|Moselle River loop near Kröv, Germany (© Jorg Greuel/Getty Images)|Info|![](/en-AU/2023/07/202307090700MoselleRiver.jpg)|
 202307100700|SomersetLavender|Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)|Info|![](/en-AU/2023/07/202307100700SomersetLavender.jpg)|
 202307110700|WorldPopDay|Hong Kong at night (© leungchopan/Getty Images)|Info|![](/en-AU/2023/07/202307110700WorldPopDay.jpg)|
+202307120700|AlgheroCapoCaccia|Capo Caccia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2023/07/202307120700AlgheroCapoCaccia.jpg)|
