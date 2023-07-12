@@ -12,3 +12,4 @@
 202307091500|HozukiIchi2023|浅草寺のほおずき市, 東京 (© y-studio/iStock/Getty Images Plus)|今日は四万六千日|![](/ja-JP/2023/07/202307091500HozukiIchi2023.jpg)|
 202307101500|WorldPopDay|香港特別行政区, 中国 (© leungchopan/Getty Images)|今日は世界人口デー|![](/ja-JP/2023/07/202307101500WorldPopDay.jpg)|
 202307111500|NakupendaBeach|ナクペンダビーチ自然保護区, タンザニア (© Lubos Paukeje/Alamy)|瑠璃色に包まれた白い砂州|![](/ja-JP/2023/07/202307111500NakupendaBeach.jpg)|
+202307121500|ZhangyeGeopark|甘粛張掖国家地質公園, 中国 甘粛省 (© TONNAJA/Getty Images)|今日は国際ロックの日|![](/ja-JP/2023/07/202307121500ZhangyeGeopark.jpg)|
