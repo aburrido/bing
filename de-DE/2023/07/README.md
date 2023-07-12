@@ -12,3 +12,4 @@
 202307092200|SomersetLavender|Lavendelfeld, Somerset, England (© Doug Chinnery/Getty Images)|Lavendelfelder|![](/de-DE/2023/07/202307092200SomersetLavender.jpg)|
 202307102200|WorldPopDay|Hongkong SAR (© leungchopan/Getty Images)|Menschenmeer|![](/de-DE/2023/07/202307102200WorldPopDay.jpg)|
 202307112200|HinterseeBavaria|Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)|Boote, Berge und Bäume|![](/de-DE/2023/07/202307112200HinterseeBavaria.jpg)|
+202307122200|ZhangyeGeopark|Zhangye Danxia-National-Geopark, Gansu, China (© TONNAJA/Getty Images)|Über einen felsigen Regenbogen laufen|![](/de-DE/2023/07/202307122200ZhangyeGeopark.jpg)|
