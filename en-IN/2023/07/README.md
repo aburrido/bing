@@ -13,3 +13,4 @@
 202307101830|WorldPopDay|Hong Kong SAR (© leungchopan/Getty Images)|A sea of humanity|![](/en-IN/2023/07/202307101830WorldPopDay.jpg)|
 202307111830|NakupendaBeach|Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)|The world's most exclusive beach?|![](/en-IN/2023/07/202307111830NakupendaBeach.jpg)|
 202307121830|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)|Walking a rocky rainbow|![](/en-IN/2023/07/202307121830ZhangyeGeopark.jpg)|
+202307131830|PassauSunsetJune|The city of Passau reflected in the Danube, Bavaria, Germany (© Scott Wilson/Alamy)|Blue Skies in Beautiful Bavaria|![](/en-IN/2023/07/202307131830PassauSunsetJune.jpg)|
