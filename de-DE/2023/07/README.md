@@ -13,3 +13,4 @@
 202307102200|WorldPopDay|Hongkong SAR (© leungchopan/Getty Images)|Menschenmeer|![](/de-DE/2023/07/202307102200WorldPopDay.jpg)|
 202307112200|HinterseeBavaria|Hintersee bei Ramsau, Bayern (© Achim Thomae/Getty Images)|Boote, Berge und Bäume|![](/de-DE/2023/07/202307112200HinterseeBavaria.jpg)|
 202307122200|ZhangyeGeopark|Zhangye Danxia-National-Geopark, Gansu, China (© TONNAJA/Getty Images)|Über einen felsigen Regenbogen laufen|![](/de-DE/2023/07/202307122200ZhangyeGeopark.jpg)|
+202307132200|BerlinBotanicGarden|Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)|Botanischer Palast|![](/de-DE/2023/07/202307132200BerlinBotanicGarden.jpg)|
