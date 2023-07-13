@@ -13,3 +13,4 @@
 202307100700|SomersetLavender|Field of lavender, Somerset, England (© Doug Chinnery/Getty Images)|A scented sea of purple|![](/en-US/2023/07/202307100700SomersetLavender.jpg)|
 202307110700|WorldPopDay|Hong Kong SAR (© leungchopan/Getty Images)|A sea of humanity|![](/en-US/2023/07/202307110700WorldPopDay.jpg)|
 202307120700|NakupendaBeach|Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)|The world's most exclusive beach?|![](/en-US/2023/07/202307120700NakupendaBeach.jpg)|
+202307130700|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu province, China (© TONNAJA/Getty Images)|Walking a rocky rainbow|![](/en-US/2023/07/202307130700ZhangyeGeopark.jpg)|
