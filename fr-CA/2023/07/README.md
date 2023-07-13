@@ -12,3 +12,4 @@
 202307100400|SomersetLavender|Champ de lavande, Somerset, Angleterre (© Doug Chinnery/Getty Images)|Un air de Provence en Angleterre|![](/fr-CA/2023/07/202307100400SomersetLavender.jpg)|
 202307110400|WorldPopDay|Panorama de la ville de Hong Kong (© leungchopan/Getty Images)|Un océan de buildings|![](/fr-CA/2023/07/202307110400WorldPopDay.jpg)|
 202307120400|NakupendaBeach|Banc de sable dans la réserve naturelle de Nakupenda Beach, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|La plage la plus chic du monde?|![](/fr-CA/2023/07/202307120400NakupendaBeach.jpg)|
+202307130400|ZhangyeGeopark|Parc géologique national de Zhangye Danxia, Gansu, Chine (© TONNAJA/Getty Images)|Un arc-en-ciel rocheux|![](/fr-CA/2023/07/202307130400ZhangyeGeopark.jpg)|
