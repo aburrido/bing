@@ -14,3 +14,4 @@
 202307111500|NakupendaBeach|ナクペンダビーチ自然保護区, タンザニア (© Lubos Paukeje/Alamy)|瑠璃色に包まれた白い砂州|![](/ja-JP/2023/07/202307111500NakupendaBeach.jpg)|
 202307121500|ZhangyeGeopark|甘粛張掖国家地質公園, 中国 甘粛省 (© TONNAJA/Getty Images)|今日は国際ロックの日|![](/ja-JP/2023/07/202307121500ZhangyeGeopark.jpg)|
 202307131500|BlacktipSharks|魚群の中に乱舞しているツマグロ, モルディブ (© Filippo Bacci/Getty Images)|今日はサメ啓発の日|![](/ja-JP/2023/07/202307131500BlacktipSharks.jpg)|
+202307141500|CastelmazzanoSunrise|カステルメッツァーノ, イタリア (© Rudy Balasko/Shutterstock)|岩山に張り付く美しい村|![](/ja-JP/2023/07/202307141500CastelmazzanoSunrise.jpg)|
