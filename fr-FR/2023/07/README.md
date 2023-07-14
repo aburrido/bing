@@ -14,3 +14,4 @@
 202307112200|NakupendaBeach|Banc de sable dans la réserve naturelle de Nakupenda Beach, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|La plage la plus chic du monde ?|![](/fr-FR/2023/07/202307112200NakupendaBeach.jpg)|
 202307122200|ZhangyeGeopark|Parc géologique national de Zhangye Danxia, Gansu, Chine (© TONNAJA/Getty Images)|Un arc-en-ciel rocheux|![](/fr-FR/2023/07/202307122200ZhangyeGeopark.jpg)|
 202307132200|BastilleDay|Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)|Allons enfants !|![](/fr-FR/2023/07/202307132200BastilleDay.jpg)|
+202307142200|AvignonPope|Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)|Sous le pont d’Avignon…|![](/fr-FR/2023/07/202307142200AvignonPope.jpg)|
