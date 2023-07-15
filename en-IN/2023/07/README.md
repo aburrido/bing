@@ -15,3 +15,4 @@
 202307121830|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)|Walking a rocky rainbow|![](/en-IN/2023/07/202307121830ZhangyeGeopark.jpg)|
 202307131830|PassauSunsetJune|The city of Passau reflected in the Danube, Bavaria, Germany (© Scott Wilson/Alamy)|Blue Skies in Beautiful Bavaria|![](/en-IN/2023/07/202307131830PassauSunsetJune.jpg)|
 202307141830|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|A postcard-perfect landscape|![](/en-IN/2023/07/202307141830CastelmazzanoSunrise.jpg)|
+202307151830|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)|Babbling on and on|![](/en-IN/2023/07/202307151830BearHoleBrook.jpg)|
