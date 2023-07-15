@@ -15,3 +15,4 @@
 202307122300|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)|Walking a rocky rainbow|![](/en-GB/2023/07/202307122300ZhangyeGeopark.jpg)|
 202307132300|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|A shiver of sharks on the hunt|![](/en-GB/2023/07/202307132300BlacktipSharks.jpg)|
 202307142300|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|A postcard-perfect landscape|![](/en-GB/2023/07/202307142300CastelmazzanoSunrise.jpg)|
+202307152300|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)|Babbling on and on|![](/en-GB/2023/07/202307152300BearHoleBrook.jpg)|
