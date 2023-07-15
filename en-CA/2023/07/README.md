@@ -14,3 +14,4 @@
 202307120400|NakupendaBeach|Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)|The world's most exclusive beach?|![](/en-CA/2023/07/202307120400NakupendaBeach.jpg)|
 202307130400|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)|Walking a rocky rainbow|![](/en-CA/2023/07/202307130400ZhangyeGeopark.jpg)|
 202307140400|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|A shiver of sharks on the hunt|![](/en-CA/2023/07/202307140400BlacktipSharks.jpg)|
+202307150400|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|A postcard-perfect landscape|![](/en-CA/2023/07/202307150400CastelmazzanoSunrise.jpg)|
