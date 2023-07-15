@@ -15,3 +15,4 @@
 202307120700|AlgheroCapoCaccia|Capo Caccia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2023/07/202307120700AlgheroCapoCaccia.jpg)|
 202307130700|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)|Info|![](/en-AU/2023/07/202307130700ZhangyeGeopark.jpg)|
 202307140700|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|Info|![](/en-AU/2023/07/202307140700BlacktipSharks.jpg)|
+202307150700|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|Info|![](/en-AU/2023/07/202307150700CastelmazzanoSunrise.jpg)|
