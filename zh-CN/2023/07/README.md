@@ -16,3 +16,4 @@
 202307121600|ZhangyeGeopark|张掖国家地质公园，甘肃，中国 (© TONNAJA/Getty Images)|行走在彩虹岩石上|![](/zh-CN/2023/07/202307121600ZhangyeGeopark.jpg)|
 202307131600|BlacktipSharks|乌翅真鲨，马尔代夫 (© Filippo Bacci/Getty Images)|一群鲨鱼正在狩猎|![](/zh-CN/2023/07/202307131600BlacktipSharks.jpg)|
 202307141600|CastelmazzanoSunrise|卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)|明信片般完美的风景|![](/zh-CN/2023/07/202307141600CastelmazzanoSunrise.jpg)|
+202307151600|BearHoleBrook|熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)|溪水潺潺|![](/zh-CN/2023/07/202307151600BearHoleBrook.jpg)|
