@@ -16,3 +16,4 @@
 202307132300|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|A shiver of sharks on the hunt|![](/en-GB/2023/07/202307132300BlacktipSharks.jpg)|
 202307142300|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|A postcard-perfect landscape|![](/en-GB/2023/07/202307142300CastelmazzanoSunrise.jpg)|
 202307152300|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)|Babbling on and on|![](/en-GB/2023/07/202307152300BearHoleBrook.jpg)|
+202307162300|CavanCastle|Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)|A time-worn mediaeval marvel|![](/en-GB/2023/07/202307162300CavanCastle.jpg)|
