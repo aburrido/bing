@@ -16,3 +16,4 @@
 202307131830|PassauSunsetJune|The city of Passau reflected in the Danube, Bavaria, Germany (© Scott Wilson/Alamy)|Blue Skies in Beautiful Bavaria|![](/en-IN/2023/07/202307131830PassauSunsetJune.jpg)|
 202307141830|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|A postcard-perfect landscape|![](/en-IN/2023/07/202307141830CastelmazzanoSunrise.jpg)|
 202307151830|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)|Babbling on and on|![](/en-IN/2023/07/202307151830BearHoleBrook.jpg)|
+202307161830|CavanCastle|Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)|A time-worn medieval marvel|![](/en-IN/2023/07/202307161830CavanCastle.jpg)|
