@@ -16,3 +16,4 @@
 202307132200|BastilleDay|Feu d'artifice du 14 juillet à Carcassonne, Occitanie (© Buena Vista Images/Getty Images)|Allons enfants !|![](/fr-FR/2023/07/202307132200BastilleDay.jpg)|
 202307142200|AvignonPope|Le pont d’Avignon et le palais des Papes, Provence Alpes Côte d’Azur (© travelstock44/Alamy Stock Photo)|Sous le pont d’Avignon…|![](/fr-FR/2023/07/202307142200AvignonPope.jpg)|
 202307152200|BearHoleBrook|Ruisseau Bear Hole, montagnes Catskill, New York, États-Unis (© GummyBone/Getty Images)|L'écho mélodieux du ruisseau|![](/fr-FR/2023/07/202307152200BearHoleBrook.jpg)|
+202307162200|CavanCastle|Château de Cloughoughter à Lough Oughter, Irlande (© 4H4 PH/Shutterstock)|Une merveille médiévale hors du temps|![](/fr-FR/2023/07/202307162200CavanCastle.jpg)|

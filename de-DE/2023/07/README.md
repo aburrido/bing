@@ -16,3 +16,4 @@
 202307132200|BerlinBotanicGarden|Botanische Nacht im Botanischen Garten, Berlin (© Felipe Trueba/EPA-EFE/Shutterstock)|Botanischer Palast|![](/de-DE/2023/07/202307132200BerlinBotanicGarden.jpg)|
 202307142200|CastelmazzanoSunrise|Castelmezzano, Basilikata, Italien (© Rudy Balasko/Shutterstock)|Italienische Postkartenidylle|![](/de-DE/2023/07/202307142200CastelmazzanoSunrise.jpg)|
 202307152200|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)|Ein Spaziergang im Wald gefällig?|![](/de-DE/2023/07/202307152200BearHoleBrook.jpg)|
+202307162200|CavanCastle|Cloughoughter Castle in Lough Oughter, Grafschaft Cavan, Irland (© 4H4 PH/Shutterstock)|Eine Burg mitten in einem See|![](/de-DE/2023/07/202307162200CavanCastle.jpg)|
