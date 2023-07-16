@@ -16,3 +16,4 @@
 202307131500|BlacktipSharks|魚群の中に乱舞しているツマグロ, モルディブ (© Filippo Bacci/Getty Images)|今日はサメ啓発の日|![](/ja-JP/2023/07/202307131500BlacktipSharks.jpg)|
 202307141500|CastelmazzanoSunrise|カステルメッツァーノ, イタリア (© Rudy Balasko/Shutterstock)|岩山に張り付く美しい村|![](/ja-JP/2023/07/202307141500CastelmazzanoSunrise.jpg)|
 202307151500|BearHoleBrook|キャッツキル山地, 米国 ニューヨーク州 (© GummyBone/Getty Images)|岩々の間を流れる清らかな小川|![](/ja-JP/2023/07/202307151500BearHoleBrook.jpg)|
+202307161500|MarineDay2023|座間味島のウミガメ, 沖縄 (© petesphotography/iStock/Getty Images Plus)|今日は海の日|![](/ja-JP/2023/07/202307161500MarineDay2023.jpg)|
