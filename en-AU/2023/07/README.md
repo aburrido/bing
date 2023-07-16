@@ -16,3 +16,4 @@
 202307130700|ZhangyeGeopark|Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)|Info|![](/en-AU/2023/07/202307130700ZhangyeGeopark.jpg)|
 202307140700|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|Info|![](/en-AU/2023/07/202307140700BlacktipSharks.jpg)|
 202307150700|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|Info|![](/en-AU/2023/07/202307150700CastelmazzanoSunrise.jpg)|
+202307160700|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York, USA (© GummyBone/Getty Images)|Info|![](/en-AU/2023/07/202307160700BearHoleBrook.jpg)|
