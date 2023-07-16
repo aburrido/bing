@@ -15,3 +15,4 @@
 202307130400|ZhangyeGeopark|Parc géologique national de Zhangye Danxia, Gansu, Chine (© TONNAJA/Getty Images)|Un arc-en-ciel rocheux|![](/fr-CA/2023/07/202307130400ZhangyeGeopark.jpg)|
 202307140400|BlacktipSharks|Requins à pointe noire, Maldives (© Filippo Bacci/Getty Images)|Une meute de requins en chasse|![](/fr-CA/2023/07/202307140400BlacktipSharks.jpg)|
 202307150400|CastelmazzanoSunrise|Castelmezzano, Italie (© Rudy Balasko/Shutterstock)|Un paysage de carte postale|![](/fr-CA/2023/07/202307150400CastelmazzanoSunrise.jpg)|
+202307160400|BearHoleBrook|Ruisseau Bear Hole, montagnes Catskill, New York, États-Unis (© GummyBone/Getty Images)|L'écho mélodieux du ruisseau|![](/fr-CA/2023/07/202307160400BearHoleBrook.jpg)|
