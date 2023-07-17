@@ -18,3 +18,4 @@
 202307141600|CastelmazzanoSunrise|卡斯泰尔梅扎诺，意大利 (© Rudy Balasko/Shutterstock)|明信片般完美的风景|![](/zh-CN/2023/07/202307141600CastelmazzanoSunrise.jpg)|
 202307151600|BearHoleBrook|熊洞溪，卡茨基尔山脉，纽约，美国 (© GummyBone/Getty Images)|溪水潺潺|![](/zh-CN/2023/07/202307151600BearHoleBrook.jpg)|
 202307161600|CavanCastle|乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)|古老的中世纪奇迹|![](/zh-CN/2023/07/202307161600CavanCastle.jpg)|
+202307171600|BucerosBicornis|双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)|这只鸟长着尖尖的嘴|![](/zh-CN/2023/07/202307171600BucerosBicornis.jpg)|
