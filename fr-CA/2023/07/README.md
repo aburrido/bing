@@ -17,3 +17,4 @@
 202307150400|CastelmazzanoSunrise|Castelmezzano, Italie (© Rudy Balasko/Shutterstock)|Un paysage de carte postale|![](/fr-CA/2023/07/202307150400CastelmazzanoSunrise.jpg)|
 202307160400|BearHoleBrook|Ruisseau Bear Hole, montagnes Catskill, New York, États-Unis (© GummyBone/Getty Images)|L'écho mélodieux du ruisseau|![](/fr-CA/2023/07/202307160400BearHoleBrook.jpg)|
 202307170400|CavanCastle|Château de Cloughoughter à Lough Oughter, Irlande  (© 4H4 PH/Shutterstock)|Une merveille médiévale hors du temps|![](/fr-CA/2023/07/202307170400CavanCastle.jpg)|
+202307180400|BucerosBicornis|Calao bicorne, parc national de Khao Yai, Thaïlande (© kajornyot wildlife photography/Shutterstock)|L'animal légendaire au casque d’or|![](/fr-CA/2023/07/202307180400BucerosBicornis.jpg)|

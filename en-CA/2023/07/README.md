@@ -17,3 +17,4 @@
 202307150400|CastelmazzanoSunrise|Castelmezzano, Italy (© Rudy Balasko/Shutterstock)|A postcard-perfect landscape|![](/en-CA/2023/07/202307150400CastelmazzanoSunrise.jpg)|
 202307160400|BearHoleBrook|Bear Hole Brook, Catskill Mountains, New York (© GummyBone/Getty Images)|Babbling on and on|![](/en-CA/2023/07/202307160400BearHoleBrook.jpg)|
 202307170400|CavanCastle|Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)|A time-worn medieval marvel|![](/en-CA/2023/07/202307170400CavanCastle.jpg)|
+202307180400|BucerosBicornis|Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)|This bird is peak beak|![](/en-CA/2023/07/202307180400BucerosBicornis.jpg)|
