@@ -19,3 +19,4 @@
 202307162200|CavanCastle|Cloughoughter Castle in Lough Oughter, Grafschaft Cavan, Irland (© 4H4 PH/Shutterstock)|Eine Burg mitten in einem See|![](/de-DE/2023/07/202307162200CavanCastle.jpg)|
 202307172200|HinterseeLake|Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)|Die magische Kunst der Natur|![](/de-DE/2023/07/202307172200HinterseeLake.jpg)|
 202307182200|CrescentLake|Mondsichel-See bei Dunhuang, Provinz Gansu, China (© R7 Photo/Shutterstock)|Dieser See ist keine Fata Morgana|![](/de-DE/2023/07/202307182200CrescentLake.jpg)|
+202307192200|MoonDayArtemis|Der Mond vom Orion-Raumschiff der Artemis-Mission der NASA aus gesehen (© NASA)|Wir feiern unseren nahen Mondnachbarn|![](/de-DE/2023/07/202307192200MoonDayArtemis.jpg)|
