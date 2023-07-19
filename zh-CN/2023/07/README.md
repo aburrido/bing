@@ -20,3 +20,4 @@
 202307161600|CavanCastle|乌特湖的克拉夫特城堡，卡文郡，爱尔兰 (© 4H4 PH/Shutterstock)|古老的中世纪奇迹|![](/zh-CN/2023/07/202307161600CavanCastle.jpg)|
 202307171600|BucerosBicornis|双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)|这只鸟长着尖尖的嘴|![](/zh-CN/2023/07/202307171600BucerosBicornis.jpg)|
 202307181600|CrescentLake|敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)|这片湖泊可不是海市蜃楼|![](/zh-CN/2023/07/202307181600CrescentLake.jpg)|
+202307191600|MoonDayArtemis|从美国宇航局猎户座飞船上看到的月球 (© NASA)|为我们的近邻月球而庆祝|![](/zh-CN/2023/07/202307191600MoonDayArtemis.jpg)|
