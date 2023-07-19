@@ -19,3 +19,4 @@
 202307162300|CavanCastle|Cloughoughter Castle in Lough Oughter, County Cavan, Ireland (© 4H4 PH/Shutterstock)|A time-worn mediaeval marvel|![](/en-GB/2023/07/202307162300CavanCastle.jpg)|
 202307172300|BucerosBicornis|Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)|This bird is peak beak|![](/en-GB/2023/07/202307172300BucerosBicornis.jpg)|
 202307182300|CrescentLake|Crescent Lake near Dunhuang, Gansu Province, China (© R7 Photo/Shutterstock)|This lake is no mirage|![](/en-GB/2023/07/202307182300CrescentLake.jpg)|
+202307192300|MoonDayArtemis|The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)|Celebrating our looming lunar neighbour|![](/en-GB/2023/07/202307192300MoonDayArtemis.jpg)|
