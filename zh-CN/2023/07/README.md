@@ -21,3 +21,4 @@
 202307171600|BucerosBicornis|双角犀鸟，考艾国家公园，泰国 (© kajornyot wildlife photography/Shutterstock)|这只鸟长着尖尖的嘴|![](/zh-CN/2023/07/202307171600BucerosBicornis.jpg)|
 202307181600|CrescentLake|敦煌月牙泉，甘肃省，中国 (© R7 Photo/Shutterstock)|这片湖泊可不是海市蜃楼|![](/zh-CN/2023/07/202307181600CrescentLake.jpg)|
 202307191600|MoonDayArtemis|从美国宇航局猎户座飞船上看到的月球 (© NASA)|为我们的近邻月球而庆祝|![](/zh-CN/2023/07/202307191600MoonDayArtemis.jpg)|
+202307201600|BridgeNorway|斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)|将散落的岛屿连接在一起|![](/zh-CN/2023/07/202307201600BridgeNorway.jpg)|
