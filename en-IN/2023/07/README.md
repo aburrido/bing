@@ -20,3 +20,4 @@
 202307171830|BucerosBicornis|Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)|This bird is peak beak|![](/en-IN/2023/07/202307171830BucerosBicornis.jpg)|
 202307181830|CrescentLake|Crescent Lake near Dunhuang, Gansu Province, China (© R7 Photo/Shutterstock)|This lake is no mirage|![](/en-IN/2023/07/202307181830CrescentLake.jpg)|
 202307191830|MoonDayArtemis|The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)|Celebrating our looming lunar neighbour|![](/en-IN/2023/07/202307191830MoonDayArtemis.jpg)|
+202307201830|BridgeNorway|Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)|Connecting the dots|![](/en-IN/2023/07/202307201830BridgeNorway.jpg)|
