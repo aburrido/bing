@@ -20,3 +20,4 @@
 202307172200|HinterseeLake|Hintersee, Ramsau, Bayern (© boule13/iStock/Getty Images Plus)|Die magische Kunst der Natur|![](/de-DE/2023/07/202307172200HinterseeLake.jpg)|
 202307182200|CrescentLake|Mondsichel-See bei Dunhuang, Provinz Gansu, China (© R7 Photo/Shutterstock)|Dieser See ist keine Fata Morgana|![](/de-DE/2023/07/202307182200CrescentLake.jpg)|
 202307192200|MoonDayArtemis|Der Mond vom Orion-Raumschiff der Artemis-Mission der NASA aus gesehen (© NASA)|Wir feiern unseren nahen Mondnachbarn|![](/de-DE/2023/07/202307192200MoonDayArtemis.jpg)|
+202307202200|BridgeNorway|Storseisund-Brücke, Atlantikstraße, Norwegen (© Morten Falch Sortland/Getty Images)|Eine Straße über den Atlantik?|![](/de-DE/2023/07/202307202200BridgeNorway.jpg)|
