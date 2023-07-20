@@ -20,3 +20,4 @@
 202307171500|BucerosBicornis|カオヤイ国立公園, タイ (© kajornyot wildlife photography/Shutterstock)|空を舞う鮮やかなオオサイチョウ|![](/ja-JP/2023/07/202307171500BucerosBicornis.jpg)|
 202307181500|CrescentLake|月牙泉, 中国 甘粛省 (© R7 Photo/Shutterstock)|砂漠にある「月」|![](/ja-JP/2023/07/202307181500CrescentLake.jpg)|
 202307191500|MoonDayArtemis|NASA のオリオン宇宙船から見た月 (© NASA)|今日は国際月の日|![](/ja-JP/2023/07/202307191500MoonDayArtemis.jpg)|
+202307201500|BridgeNorway|大西洋道路のストルセイスンデット橋, ノルウェー ムーレ・オ・ロムスダール県 (© Morten Falch Sortland/Getty Images)|小さな島々を飛び越える橋|![](/ja-JP/2023/07/202307201500BridgeNorway.jpg)|
