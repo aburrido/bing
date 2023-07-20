@@ -19,3 +19,4 @@
 202307170400|CavanCastle|Château de Cloughoughter à Lough Oughter, Irlande  (© 4H4 PH/Shutterstock)|Une merveille médiévale hors du temps|![](/fr-CA/2023/07/202307170400CavanCastle.jpg)|
 202307180400|BucerosBicornis|Calao bicorne, parc national de Khao Yai, Thaïlande (© kajornyot wildlife photography/Shutterstock)|L'animal légendaire au casque d’or|![](/fr-CA/2023/07/202307180400BucerosBicornis.jpg)|
 202307190400|CrescentLake|Lac Yueyaquan près de Dunhuang, province de Gansu, Chine (© R7 Photo/Shutterstock)|Un lac lunaire au milieu du Gobi|![](/fr-CA/2023/07/202307190400CrescentLake.jpg)|
+202307200400|MoonDayArtemis|La lune vue depuis le vaisseau spatial Orion de la mission Artemis de la NASA (© NASA)|La lumière de nos nuits|![](/fr-CA/2023/07/202307200400MoonDayArtemis.jpg)|
