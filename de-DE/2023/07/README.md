@@ -21,3 +21,4 @@
 202307182200|CrescentLake|Mondsichel-See bei Dunhuang, Provinz Gansu, China (© R7 Photo/Shutterstock)|Dieser See ist keine Fata Morgana|![](/de-DE/2023/07/202307182200CrescentLake.jpg)|
 202307192200|MoonDayArtemis|Der Mond vom Orion-Raumschiff der Artemis-Mission der NASA aus gesehen (© NASA)|Wir feiern unseren nahen Mondnachbarn|![](/de-DE/2023/07/202307192200MoonDayArtemis.jpg)|
 202307202200|BridgeNorway|Storseisund-Brücke, Atlantikstraße, Norwegen (© Morten Falch Sortland/Getty Images)|Eine Straße über den Atlantik?|![](/de-DE/2023/07/202307202200BridgeNorway.jpg)|
+202307212200|HammockDay|Hängematten-Camping in einer Sumpfzypresse, Florida, USA (© Mac Stone/Tandem Stills + Motion)|Mal abhängen?|![](/de-DE/2023/07/202307212200HammockDay.jpg)|

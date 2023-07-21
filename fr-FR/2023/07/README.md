@@ -21,3 +21,4 @@
 202307182200|CrescentLake|Lac Yueyaquan près de Dunhuang, province de Gansu, Chine (© R7 Photo/Shutterstock)|Un lac lunaire au milieu du Gobi|![](/fr-FR/2023/07/202307182200CrescentLake.jpg)|
 202307192200|MoonDayArtemis|La lune vue depuis le vaisseau spatial Orion de la mission Artemis de la NASA (© NASA)|La lumière de nos nuits|![](/fr-FR/2023/07/202307192200MoonDayArtemis.jpg)|
 202307202200|BridgeNorway|Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)|Un pont au-dessus de l’Atlantique|![](/fr-FR/2023/07/202307202200BridgeNorway.jpg)|
+202307212200|HammockDay|Hamac campé dans un cyprès chauve, Floride, USA (© Mac Stone/Tandem Stills + Motion)|En suspens au-dessus de l’eau|![](/fr-FR/2023/07/202307212200HammockDay.jpg)|
