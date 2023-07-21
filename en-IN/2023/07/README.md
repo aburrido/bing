@@ -21,3 +21,4 @@
 202307181830|CrescentLake|Crescent Lake near Dunhuang, Gansu Province, China (© R7 Photo/Shutterstock)|This lake is no mirage|![](/en-IN/2023/07/202307181830CrescentLake.jpg)|
 202307191830|MoonDayArtemis|The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)|Celebrating our looming lunar neighbour|![](/en-IN/2023/07/202307191830MoonDayArtemis.jpg)|
 202307201830|BridgeNorway|Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)|Connecting the dots|![](/en-IN/2023/07/202307201830BridgeNorway.jpg)|
+202307211830|HammockDay|Hammock camping in a bald cypress tree, Florida, USA (© Mac Stone/Tandem Stills + Motion)|Want to hang about?|![](/en-IN/2023/07/202307211830HammockDay.jpg)|
