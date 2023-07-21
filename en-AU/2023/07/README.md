@@ -21,3 +21,4 @@
 202307180700|BucerosBicornis|Great hornbill, Khao Yai National Park, Thailand (© kajornyot wildlife photography/Shutterstock)|Info|![](/en-AU/2023/07/202307180700BucerosBicornis.jpg)|
 202307190700|CrescentLake|Crescent Lake near Dunhuang, Gansu Province, China (© R7 Photo/Shutterstock)|Info|![](/en-AU/2023/07/202307190700CrescentLake.jpg)|
 202307200700|MoonDayArtemis|The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)|Info|![](/en-AU/2023/07/202307200700MoonDayArtemis.jpg)|
+202307210700|BridgeNorway|Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)|Info|![](/en-AU/2023/07/202307210700BridgeNorway.jpg)|
