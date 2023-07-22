@@ -22,3 +22,4 @@
 202307192200|MoonDayArtemis|Der Mond vom Orion-Raumschiff der Artemis-Mission der NASA aus gesehen (© NASA)|Wir feiern unseren nahen Mondnachbarn|![](/de-DE/2023/07/202307192200MoonDayArtemis.jpg)|
 202307202200|BridgeNorway|Storseisund-Brücke, Atlantikstraße, Norwegen (© Morten Falch Sortland/Getty Images)|Eine Straße über den Atlantik?|![](/de-DE/2023/07/202307202200BridgeNorway.jpg)|
 202307212200|HammockDay|Hängematten-Camping in einer Sumpfzypresse, Florida, USA (© Mac Stone/Tandem Stills + Motion)|Mal abhängen?|![](/de-DE/2023/07/202307212200HammockDay.jpg)|
+202307222200|TeaEstate|Edinburgh Teeplantage, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Der Tee ist das Ziel|![](/de-DE/2023/07/202307222200TeaEstate.jpg)|
