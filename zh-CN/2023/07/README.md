@@ -23,3 +23,4 @@
 202307191600|MoonDayArtemis|从美国宇航局猎户座飞船上看到的月球 (© NASA)|为我们的近邻月球而庆祝|![](/zh-CN/2023/07/202307191600MoonDayArtemis.jpg)|
 202307201600|BridgeNorway|斯托尔桑德特大桥，挪威 (© Morten Falch Sortland/Getty Images)|将散落的岛屿连接在一起|![](/zh-CN/2023/07/202307201600BridgeNorway.jpg)|
 202307211600|HammockDay|在一棵秃柏树上吊床露营，佛罗里达州，美国 (© Mac Stone/Tandem Stills + Motion)|想出去玩吗？|![](/zh-CN/2023/07/202307211600HammockDay.jpg)|
+202307221600|TeaEstate|爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images)|你好，你在找“茶”吗?|![](/zh-CN/2023/07/202307221600TeaEstate.jpg)|
