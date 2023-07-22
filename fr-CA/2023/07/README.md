@@ -21,3 +21,4 @@
 202307190400|CrescentLake|Lac Yueyaquan près de Dunhuang, province de Gansu, Chine (© R7 Photo/Shutterstock)|Un lac lunaire au milieu du Gobi|![](/fr-CA/2023/07/202307190400CrescentLake.jpg)|
 202307200400|MoonDayArtemis|La lune vue depuis le vaisseau spatial Orion de la mission Artemis de la NASA (© NASA)|La lumière de nos nuits|![](/fr-CA/2023/07/202307200400MoonDayArtemis.jpg)|
 202307210400|BridgeNorway|Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)|Un pont au-dessus de l’Atlantique|![](/fr-CA/2023/07/202307210400BridgeNorway.jpg)|
+202307220400|CalgaryCentralLibrary|Nouvelle bibliothèque centrale de Calgary, Calgary, Canada (© Rick Rudnicki/Alamy Stock Photo)|La bibliothèque du futur|![](/fr-CA/2023/07/202307220400CalgaryCentralLibrary.jpg)|
