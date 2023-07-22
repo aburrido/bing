@@ -22,3 +22,4 @@
 202307191830|MoonDayArtemis|The moon seen from the Orion spacecraft of NASA's Artemis mission (© NASA)|Celebrating our looming lunar neighbour|![](/en-IN/2023/07/202307191830MoonDayArtemis.jpg)|
 202307201830|BridgeNorway|Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)|Connecting the dots|![](/en-IN/2023/07/202307201830BridgeNorway.jpg)|
 202307211830|HammockDay|Hammock camping in a bald cypress tree, Florida, USA (© Mac Stone/Tandem Stills + Motion)|Want to hang about?|![](/en-IN/2023/07/202307211830HammockDay.jpg)|
+202307221830|TeaEstate|Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Hello, is it 'tea' you’re looking for?|![](/en-IN/2023/07/202307221830TeaEstate.jpg)|
