@@ -22,3 +22,4 @@
 202307200400|MoonDayArtemis|La lune vue depuis le vaisseau spatial Orion de la mission Artemis de la NASA (© NASA)|La lumière de nos nuits|![](/fr-CA/2023/07/202307200400MoonDayArtemis.jpg)|
 202307210400|BridgeNorway|Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)|Un pont au-dessus de l’Atlantique|![](/fr-CA/2023/07/202307210400BridgeNorway.jpg)|
 202307220400|CalgaryCentralLibrary|Nouvelle bibliothèque centrale de Calgary, Calgary, Canada (© Rick Rudnicki/Alamy Stock Photo)|La bibliothèque du futur|![](/fr-CA/2023/07/202307220400CalgaryCentralLibrary.jpg)|
+202307230400|TeaEstate|Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Vous reprendrez bien une petite mon(thé)e?|![](/fr-CA/2023/07/202307230400TeaEstate.jpg)|
