@@ -23,3 +23,4 @@
 202307202300|BridgeNorway|Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)|Connecting the dots|![](/en-GB/2023/07/202307202300BridgeNorway.jpg)|
 202307212300|HammockDay|Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)|Want to hang about?|![](/en-GB/2023/07/202307212300HammockDay.jpg)|
 202307222300|TeaEstate|Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Hello, is it 'tea' you’re looking for?|![](/en-GB/2023/07/202307222300TeaEstate.jpg)|
+202307232300|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|A day for cousins of every stripe|![](/en-GB/2023/07/202307232300ZebraCousins.jpg)|
