@@ -23,3 +23,4 @@
 202307201500|BridgeNorway|大西洋道路のストルセイスンデット橋, ノルウェー ムーレ・オ・ロムスダール県 (© Morten Falch Sortland/Getty Images)|小さな島々を飛び越える橋|![](/ja-JP/2023/07/202307201500BridgeNorway.jpg)|
 202307211500|CavanCastle|クラフオウター城, アイルランド キャバン県 (© 4H4 PH/Shutterstock)|時を経た中世の驚異|![](/ja-JP/2023/07/202307211500CavanCastle.jpg)|
 202307221500|TeaEstate|エディンバラ茶畑, スリランカ ヌワラ・エリヤ (© Jeremy Woodhouse/Getty Images)|広大な丘陵に広がる茶畑|![](/ja-JP/2023/07/202307221500TeaEstate.jpg)|
+202307231500|ZebraCousins|タランギレ国立公園のシマウマたち, タンザニア (© cinoby/Getty Images)|今日は米国いとこの日|![](/ja-JP/2023/07/202307231500ZebraCousins.jpg)|
