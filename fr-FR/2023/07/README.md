@@ -23,3 +23,4 @@
 202307202200|BridgeNorway|Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)|Un pont au-dessus de l’Atlantique|![](/fr-FR/2023/07/202307202200BridgeNorway.jpg)|
 202307212200|HammockDay|Hamac campé dans un cyprès chauve, Floride, USA (© Mac Stone/Tandem Stills + Motion)|En suspens au-dessus de l’eau|![](/fr-FR/2023/07/202307212200HammockDay.jpg)|
 202307222200|TeaEstate|Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Vous reprendrez bien une petite mon(thé)e ?|![](/fr-FR/2023/07/202307222200TeaEstate.jpg)|
+202307232200|ZebraCousins|Zèbres dans le parc national de Tarangire, Tanzanie (© cinoby/Getty Images)|Une journée pour les cousins de tout poil|![](/fr-FR/2023/07/202307232200ZebraCousins.jpg)|
