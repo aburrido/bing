@@ -23,3 +23,4 @@
 202307210400|BridgeNorway|Pont Storseisundet, route de l'océan Atlantique, Norvège (© Morten Falch Sortland/Getty Images)|Un pont au-dessus de l’Atlantique|![](/fr-CA/2023/07/202307210400BridgeNorway.jpg)|
 202307220400|CalgaryCentralLibrary|Nouvelle bibliothèque centrale de Calgary, Calgary, Canada (© Rick Rudnicki/Alamy Stock Photo)|La bibliothèque du futur|![](/fr-CA/2023/07/202307220400CalgaryCentralLibrary.jpg)|
 202307230400|TeaEstate|Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Vous reprendrez bien une petite mon(thé)e?|![](/fr-CA/2023/07/202307230400TeaEstate.jpg)|
+202307240400|ZebraCousins|Zèbres dans le parc national de Tarangire, Tanzanie (© cinoby/Getty Images)|Une journée pour les cousins de tout poil|![](/fr-CA/2023/07/202307240400ZebraCousins.jpg)|

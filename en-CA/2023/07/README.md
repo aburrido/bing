@@ -23,3 +23,4 @@
 202307210400|BridgeNorway|Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)|Connecting the dots|![](/en-CA/2023/07/202307210400BridgeNorway.jpg)|
 202307220400|HammockDay|Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)|Want to hang out?|![](/en-CA/2023/07/202307220400HammockDay.jpg)|
 202307230400|CalgaryCentralLibrary|The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)|Books are man's best friend|![](/en-CA/2023/07/202307230400CalgaryCentralLibrary.jpg)|
+202307240400|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|A day for cousins of every stripe|![](/en-CA/2023/07/202307240400ZebraCousins.jpg)|
