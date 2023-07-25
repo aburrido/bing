@@ -25,3 +25,4 @@
 202307221500|TeaEstate|エディンバラ茶畑, スリランカ ヌワラ・エリヤ (© Jeremy Woodhouse/Getty Images)|広大な丘陵に広がる茶畑|![](/ja-JP/2023/07/202307221500TeaEstate.jpg)|
 202307231500|ZebraCousins|タランギレ国立公園のシマウマたち, タンザニア (© cinoby/Getty Images)|今日は米国いとこの日|![](/ja-JP/2023/07/202307231500ZebraCousins.jpg)|
 202307241500|LasLagunas|サラダ・デ・トレビエハ湖, スペイン アリカンテ県 (© Juan Maria Coy Vergara/Getty Images)|ピンクに輝く湖水|![](/ja-JP/2023/07/202307241500LasLagunas.jpg)|
+202307251500|MangrovePark|ジュベイル・マングローブ・パーク, アラブ首長国連邦 アブダビ市 (© Amazing Aerial Premium/Shutterstock)|今日はマングローブ生態系保護の国際デー|![](/ja-JP/2023/07/202307251500MangrovePark.jpg)|
