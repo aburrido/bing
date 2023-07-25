@@ -25,3 +25,4 @@
 202307222200|TeaEstate|Edinburgh Teeplantage, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Der Tee ist das Ziel|![](/de-DE/2023/07/202307222200TeaEstate.jpg)|
 202307232200|ZebraCousins|Zebras im Tarangire-Nationalpark, Tansania (© cinoby/Getty Images)|Ein Tag für Cousins und Cousinen aller Art|![](/de-DE/2023/07/202307232200ZebraCousins.jpg)|
 202307242200|LasLagunas|Lagune von Torrevieja, Alicante, Spanien (© Juan Maria Coy Vergara/Getty Images)|Rosa, rosa, rosa ist alles, was ich sehe|![](/de-DE/2023/07/202307242200LasLagunas.jpg)|
+202307252200|MangrovePark|Jubail Mangrovenpark in Abu Dhabi, Vereinigte Arabische Emirate  (© Amazing Aerial Premium/Shutterstock)|Halophyten, soweit das Auge reicht|![](/de-DE/2023/07/202307252200MangrovePark.jpg)|
