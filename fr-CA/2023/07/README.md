@@ -24,3 +24,4 @@
 202307220400|CalgaryCentralLibrary|Nouvelle bibliothèque centrale de Calgary, Calgary, Canada (© Rick Rudnicki/Alamy Stock Photo)|La bibliothèque du futur|![](/fr-CA/2023/07/202307220400CalgaryCentralLibrary.jpg)|
 202307230400|TeaEstate|Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Vous reprendrez bien une petite mon(thé)e?|![](/fr-CA/2023/07/202307230400TeaEstate.jpg)|
 202307240400|ZebraCousins|Zèbres dans le parc national de Tarangire, Tanzanie (© cinoby/Getty Images)|Une journée pour les cousins de tout poil|![](/fr-CA/2023/07/202307240400ZebraCousins.jpg)|
+202307250400|LasLagunas|Lagune de Torrevieja, Alicante, Espagne (© Juan Maria Coy Vergara/Getty Images)|La vie en rose|![](/fr-CA/2023/07/202307250400LasLagunas.jpg)|
