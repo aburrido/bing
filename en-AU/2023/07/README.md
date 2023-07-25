@@ -25,3 +25,4 @@
 202307220700|HammockDay|Hammock camping in a bald cypress tree, Florida, USA (© Mac Stone/Tandem Stills + Motion)|Info|![](/en-AU/2023/07/202307220700HammockDay.jpg)|
 202307230700|TeaEstate|Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2023/07/202307230700TeaEstate.jpg)|
 202307240700|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|Info|![](/en-AU/2023/07/202307240700ZebraCousins.jpg)|
+202307250700|LasLagunas|Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)|Info|![](/en-AU/2023/07/202307250700LasLagunas.jpg)|
