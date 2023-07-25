@@ -26,3 +26,4 @@
 202307221600|TeaEstate|爱丁堡茶园, 努沃勒埃利耶, 斯里兰卡 (© Jeremy Woodhouse/Getty Images)|你好，你在找“茶”吗?|![](/zh-CN/2023/07/202307221600TeaEstate.jpg)|
 202307231600|ZebraCousins|斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)|堂/表兄弟姐妹日|![](/zh-CN/2023/07/202307231600ZebraCousins.jpg)|
 202307241600|LasLagunas|托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)|粉红色，很好看|![](/zh-CN/2023/07/202307241600LasLagunas.jpg)|
+202307251600|MangrovePark|朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)|和这些耐盐植物问好！|![](/zh-CN/2023/07/202307251600MangrovePark.jpg)|
