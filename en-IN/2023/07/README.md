@@ -25,3 +25,4 @@
 202307221830|TeaEstate|Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Hello, is it 'tea' you’re looking for?|![](/en-IN/2023/07/202307221830TeaEstate.jpg)|
 202307231830|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|A day for cousins of every stripe|![](/en-IN/2023/07/202307231830ZebraCousins.jpg)|
 202307241830|LasLagunas|Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)|Pretty in pink|![](/en-IN/2023/07/202307241830LasLagunas.jpg)|
+202307251830|MangrovePark|Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Say hello to these halophytes!|![](/en-IN/2023/07/202307251830MangrovePark.jpg)|
