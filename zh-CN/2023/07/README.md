@@ -27,3 +27,4 @@
 202307231600|ZebraCousins|斑马，塔兰吉雷国家公园，坦桑尼亚 (© cinoby/Getty Images)|堂/表兄弟姐妹日|![](/zh-CN/2023/07/202307231600ZebraCousins.jpg)|
 202307241600|LasLagunas|托雷维耶哈潟湖，阿利坎特，西班牙 (© Juan Maria Coy Vergara/Getty Images)|粉红色，很好看|![](/zh-CN/2023/07/202307241600LasLagunas.jpg)|
 202307251600|MangrovePark|朱拜勒红树林公园，阿布扎比，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)|和这些耐盐植物问好！|![](/zh-CN/2023/07/202307251600MangrovePark.jpg)|
+202307261600|ParisLouvre|卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)|凯旋的姿态|![](/zh-CN/2023/07/202307261600ParisLouvre.jpg)|
