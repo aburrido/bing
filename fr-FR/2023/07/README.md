@@ -26,3 +26,4 @@
 202307232200|ZebraCousins|Zèbres dans le parc national de Tarangire, Tanzanie (© cinoby/Getty Images)|Une journée pour les cousins de tout poil|![](/fr-FR/2023/07/202307232200ZebraCousins.jpg)|
 202307242200|LasLagunas|Lagune de Torrevieja, Alicante, Espagne (© Juan Maria Coy Vergara/Getty Images)|La vie en rose|![](/fr-FR/2023/07/202307242200LasLagunas.jpg)|
 202307252200|MangrovePark|Parc de mangrove de l’île Jubail à Abou Dabi, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)|Faites coucou aux halophytes !|![](/fr-FR/2023/07/202307252200MangrovePark.jpg)|
+202307262200|ParisLouvre|Arc de Triomphe du Carrousel et Pyramide du Louvre, Paris (© Jon Hicks/Getty Images)|La pose du triomphe|![](/fr-FR/2023/07/202307262200ParisLouvre.jpg)|
