@@ -26,3 +26,4 @@
 202307230700|TeaEstate|Edinburgh Tea Estate, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2023/07/202307230700TeaEstate.jpg)|
 202307240700|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|Info|![](/en-AU/2023/07/202307240700ZebraCousins.jpg)|
 202307250700|LasLagunas|Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)|Info|![](/en-AU/2023/07/202307250700LasLagunas.jpg)|
+202307260700|MangrovePark|Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Info|![](/en-AU/2023/07/202307260700MangrovePark.jpg)|
