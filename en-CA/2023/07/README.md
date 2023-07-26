@@ -25,3 +25,4 @@
 202307230400|CalgaryCentralLibrary|The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)|Books are man's best friend|![](/en-CA/2023/07/202307230400CalgaryCentralLibrary.jpg)|
 202307240400|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|A day for cousins of every stripe|![](/en-CA/2023/07/202307240400ZebraCousins.jpg)|
 202307250400|LasLagunas|Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)|Pretty in pink|![](/en-CA/2023/07/202307250400LasLagunas.jpg)|
+202307260400|MangrovePark|Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Say hello to these halophytes!|![](/en-CA/2023/07/202307260400MangrovePark.jpg)|

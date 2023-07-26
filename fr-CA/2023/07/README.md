@@ -25,3 +25,4 @@
 202307230400|TeaEstate|Plantation de thé, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)|Vous reprendrez bien une petite mon(thé)e?|![](/fr-CA/2023/07/202307230400TeaEstate.jpg)|
 202307240400|ZebraCousins|Zèbres dans le parc national de Tarangire, Tanzanie (© cinoby/Getty Images)|Une journée pour les cousins de tout poil|![](/fr-CA/2023/07/202307240400ZebraCousins.jpg)|
 202307250400|LasLagunas|Lagune de Torrevieja, Alicante, Espagne (© Juan Maria Coy Vergara/Getty Images)|La vie en rose|![](/fr-CA/2023/07/202307250400LasLagunas.jpg)|
+202307260400|MangrovePark|Parc de mangrove de l’île Jubail à Abou Dabi, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)|Faites coucou aux halophytes!|![](/fr-CA/2023/07/202307260400MangrovePark.jpg)|
