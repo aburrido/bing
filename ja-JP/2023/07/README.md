@@ -27,3 +27,4 @@
 202307241500|LasLagunas|サラダ・デ・トレビエハ湖, スペイン アリカンテ県 (© Juan Maria Coy Vergara/Getty Images)|ピンクに輝く湖水|![](/ja-JP/2023/07/202307241500LasLagunas.jpg)|
 202307251500|MangrovePark|ジュベイル・マングローブ・パーク, アラブ首長国連邦 アブダビ市 (© Amazing Aerial Premium/Shutterstock)|今日はマングローブ生態系保護の国際デー|![](/ja-JP/2023/07/202307251500MangrovePark.jpg)|
 202307261500|ParisLouvre|カルーゼル凱旋門とルーヴル・ピラミッド, フランス パリ (© Jon Hicks/Getty Images)|夕焼けを浴びるカルーゼル凱旋門|![](/ja-JP/2023/07/202307261500ParisLouvre.jpg)|
+202307271500|SanBlasIslands|サンブラス諸島, パナマ (© bgremler/Shutterstock)|カリブ海の隠された宝石|![](/ja-JP/2023/07/202307271500SanBlasIslands.jpg)|
