@@ -27,3 +27,4 @@
 202307240700|ZebraCousins|Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)|A day for cousins of every stripe|![](/en-US/2023/07/202307240700ZebraCousins.jpg)|
 202307250700|LasLagunas|Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)|Pretty in pink|![](/en-US/2023/07/202307250700LasLagunas.jpg)|
 202307260700|MangrovePark|Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Say hello to these halophytes!|![](/en-US/2023/07/202307260700MangrovePark.jpg)|
+202307270700|ParisLouvre|Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)|Another Arc de Triomphe?|![](/en-US/2023/07/202307270700ParisLouvre.jpg)|
