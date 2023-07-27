@@ -27,3 +27,4 @@
 202307242300|LasLagunas|Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)|Pretty in pink|![](/en-GB/2023/07/202307242300LasLagunas.jpg)|
 202307252300|OlympicPark|ondon Aquatics Centre at the Queen Elizabeth Olympic Park in Stratford (© Stefano Ravera/Alamy Stock Photo)|Go with the flow|![](/en-GB/2023/07/202307252300OlympicPark.jpg)|
 202307262300|ParisLouvre|Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)|A triumphant pose|![](/en-GB/2023/07/202307262300ParisLouvre.jpg)|
+202307272300|SanBlasIslands|San Blas Islands, Panama (© bgremler/Shutterstock)|A blue-tiful island|![](/en-GB/2023/07/202307272300SanBlasIslands.jpg)|
