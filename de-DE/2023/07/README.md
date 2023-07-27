@@ -27,3 +27,4 @@
 202307242200|LasLagunas|Lagune von Torrevieja, Alicante, Spanien (© Juan Maria Coy Vergara/Getty Images)|Rosa, rosa, rosa ist alles, was ich sehe|![](/de-DE/2023/07/202307242200LasLagunas.jpg)|
 202307252200|MangrovePark|Jubail Mangrovenpark in Abu Dhabi, Vereinigte Arabische Emirate  (© Amazing Aerial Premium/Shutterstock)|Halophyten, soweit das Auge reicht|![](/de-DE/2023/07/202307252200MangrovePark.jpg)|
 202307262200|ParisLouvre|Arc de Triomphe du Carrousel und Louvre-Pyramide, Paris, Frankreich (© Jon Hicks/Getty Images)|Triumphierende Pose|![](/de-DE/2023/07/202307262200ParisLouvre.jpg)|
+202307272200|SanBlasIslands|San-Blas-Inseln, Panama (© bgremler/Shutterstock)|Meer, Meer und mehr?|![](/de-DE/2023/07/202307272200SanBlasIslands.jpg)|
