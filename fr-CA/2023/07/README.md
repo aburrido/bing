@@ -27,3 +27,4 @@
 202307250400|LasLagunas|Lagune de Torrevieja, Alicante, Espagne (© Juan Maria Coy Vergara/Getty Images)|La vie en rose|![](/fr-CA/2023/07/202307250400LasLagunas.jpg)|
 202307260400|MangrovePark|Parc de mangrove de l’île Jubail à Abou Dabi, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)|Faites coucou aux halophytes!|![](/fr-CA/2023/07/202307260400MangrovePark.jpg)|
 202307270400|ParisLouvre|Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)|La pose du triomphe|![](/fr-CA/2023/07/202307270400ParisLouvre.jpg)|
+202307280400|SanBlasIslands|Îles San Blas, Panama (© bgremler/Shutterstock)|Une île d'un bleu magnifique|![](/fr-CA/2023/07/202307280400SanBlasIslands.jpg)|
