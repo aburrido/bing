@@ -30,3 +30,4 @@
 202307261600|ParisLouvre|卡鲁塞尔凯旋门和卢浮宫金字塔，巴黎，法国 (© Jon Hicks/Getty Images)|凯旋的姿态|![](/zh-CN/2023/07/202307261600ParisLouvre.jpg)|
 202307271600|SanBlasIslands|圣布拉斯群岛，巴拿马 (© bgremler/Shutterstock)|美丽的蓝色岛屿|![](/zh-CN/2023/07/202307271600SanBlasIslands.jpg)|
 202307281600|TigerIndia|孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)|国际老虎日|![](/zh-CN/2023/07/202307281600TigerIndia.jpg)|
+202307291600|PalouseHills|帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)|宛若仙境的帕卢斯田园|![](/zh-CN/2023/07/202307291600PalouseHills.jpg)|
