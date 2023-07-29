@@ -29,3 +29,4 @@
 202307262200|ParisLouvre|Arc de Triomphe du Carrousel et Pyramide du Louvre, Paris (© Jon Hicks/Getty Images)|La pose du triomphe|![](/fr-FR/2023/07/202307262200ParisLouvre.jpg)|
 202307272200|SanBlasIslands|Îles San Blas, Panama (© bgremler/Shutterstock)|Une île d'un bleu magnifique|![](/fr-FR/2023/07/202307272200SanBlasIslands.jpg)|
 202307282200|TigerIndia|Tigre du Bengale, Parc national de Ranthambore, Inde (© Andy Rouse/Minden Pictures)|Le roi de la Jungle dans toute sa splendeur|![](/fr-FR/2023/07/202307282200TigerIndia.jpg)|
+202307292200|PalouseHills|Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)|La région bucolique de la Palouse|![](/fr-FR/2023/07/202307292200PalouseHills.jpg)|

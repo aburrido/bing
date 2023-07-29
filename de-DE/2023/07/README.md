@@ -29,3 +29,4 @@
 202307262200|ParisLouvre|Arc de Triomphe du Carrousel und Louvre-Pyramide, Paris, Frankreich (© Jon Hicks/Getty Images)|Triumphierende Pose|![](/de-DE/2023/07/202307262200ParisLouvre.jpg)|
 202307272200|SanBlasIslands|San-Blas-Inseln, Panama (© bgremler/Shutterstock)|Meer, Meer und mehr?|![](/de-DE/2023/07/202307272200SanBlasIslands.jpg)|
 202307282200|TigerIndia|Königstiger, Ranthambore-Nationalpark, Indien (© Andy Rouse/Minden Pictures)|Streifen in Sicht|![](/de-DE/2023/07/202307282200TigerIndia.jpg)|
+202307292200|FoxCubs|Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)|Lebenskraft durch Freundschaft und Leidenschaft|![](/de-DE/2023/07/202307292200FoxCubs.jpg)|
