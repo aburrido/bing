@@ -29,3 +29,4 @@
 202307270400|ParisLouvre|Arc de Triomphe du Carrousel and Louvre Pyramid, Paris, France (© Jon Hicks/Getty Images)|A triumphant pose|![](/en-CA/2023/07/202307270400ParisLouvre.jpg)|
 202307280400|SanBlasIslands|San Blas Islands, Panama (© bgremler/Shutterstock)|A blue-tiful island|![](/en-CA/2023/07/202307280400SanBlasIslands.jpg)|
 202307290400|TigerIndia|Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)|Stripes in sight|![](/en-CA/2023/07/202307290400TigerIndia.jpg)|
+202307300400|PalouseHills|Farmland in the Palouse, Washington (© EJ-J/Getty Images)|Perfect, pastoral Palouse|![](/en-CA/2023/07/202307300400PalouseHills.jpg)|
