@@ -30,3 +30,4 @@
 202307272300|SanBlasIslands|San Blas Islands, Panama (© bgremler/Shutterstock)|A blue-tiful island|![](/en-GB/2023/07/202307272300SanBlasIslands.jpg)|
 202307282300|TigerIndia|Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)|Stripes in sight|![](/en-GB/2023/07/202307282300TigerIndia.jpg)|
 202307292300|PalouseHills|Farmland in the Palouse, Washington (© EJ-J/Getty Images)|Perfect, pastoral Palouse|![](/en-GB/2023/07/202307292300PalouseHills.jpg)|
+202307302300|RockHouse|Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)|Rock House in Hocking Hills State Park, Ohio|![](/en-GB/2023/07/202307302300RockHouse.jpg)|
