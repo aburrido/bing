@@ -30,3 +30,4 @@
 202307272200|SanBlasIslands|San-Blas-Inseln, Panama (© bgremler/Shutterstock)|Meer, Meer und mehr?|![](/de-DE/2023/07/202307272200SanBlasIslands.jpg)|
 202307282200|TigerIndia|Königstiger, Ranthambore-Nationalpark, Indien (© Andy Rouse/Minden Pictures)|Streifen in Sicht|![](/de-DE/2023/07/202307282200TigerIndia.jpg)|
 202307292200|FoxCubs|Zwei Jungfüchse spielen auf einer Wiese, Deutschland (© Reibertb/Getty Images)|Lebenskraft durch Freundschaft und Leidenschaft|![](/de-DE/2023/07/202307292200FoxCubs.jpg)|
+202307302200|RockHouse|Felsenhaus, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)|Ist jemand zuhause?|![](/de-DE/2023/07/202307302200RockHouse.jpg)|
