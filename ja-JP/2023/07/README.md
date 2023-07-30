@@ -30,3 +30,4 @@
 202307271500|SanBlasIslands|サンブラス諸島, パナマ (© bgremler/Shutterstock)|カリブ海の隠された宝石|![](/ja-JP/2023/07/202307271500SanBlasIslands.jpg)|
 202307281500|TigerIndia|ランタンボール国立公園で水浴びするベンガルトラ, インド (© Andy Rouse/Minden Pictures)|今日は国際トラの日|![](/ja-JP/2023/07/202307281500TigerIndia.jpg)|
 202307291500|PalouseHills|パルース丘陵, 米国 ワシントン州 (© EJ-J/Getty Images)|金色の畑に覆われた丘陵|![](/ja-JP/2023/07/202307291500PalouseHills.jpg)|
+202307301500|RockHouse|ホッキングヒルズ州立公園にある洞窟, 米国 オハイオ州 (© Kenneth Keifer/Getty Images)|自然が創り出した「部屋」|![](/ja-JP/2023/07/202307301500RockHouse.jpg)|
