@@ -31,3 +31,4 @@
 202307280700|SanBlasIslands|San Blas Islands, Panama (© bgremler/Shutterstock)|Info|![](/en-AU/2023/07/202307280700SanBlasIslands.jpg)|
 202307290700|TigerIndia|Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)|Info|![](/en-AU/2023/07/202307290700TigerIndia.jpg)|
 202307300700|PalouseHills|Farmland in the Palouse, Washington, USA (© EJ-J/Getty Images)|Info|![](/en-AU/2023/07/202307300700PalouseHills.jpg)|
+202307310700|RockHouse|Rock House, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)|Info|![](/en-AU/2023/07/202307310700RockHouse.jpg)|
