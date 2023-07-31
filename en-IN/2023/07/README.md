@@ -31,3 +31,4 @@
 202307281830|TigerIndia|Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)|Stripes in sight|![](/en-IN/2023/07/202307281830TigerIndia.jpg)|
 202307291830|PalouseHills|Farmland in the Palouse, Washington, USA (© EJ-J/Getty Images)|Perfect, pastoral Palouse|![](/en-IN/2023/07/202307291830PalouseHills.jpg)|
 202307301830|RockHouse|Rock House, Hocking Hills State Park, Ohio, USA (© Kenneth Keifer/Getty Images)|Is anybody home?|![](/en-IN/2023/07/202307301830RockHouse.jpg)|
+202307311830|DenaliClimber|Mount Foraker viewed from Denali, Denali National Park, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)|There's no denying the power of Denali|![](/en-IN/2023/07/202307311830DenaliClimber.jpg)|
