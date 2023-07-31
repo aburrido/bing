@@ -30,3 +30,4 @@
 202307280400|SanBlasIslands|Îles San Blas, Panama (© bgremler/Shutterstock)|Une île d'un bleu magnifique|![](/fr-CA/2023/07/202307280400SanBlasIslands.jpg)|
 202307290400|TigerIndia|Tigre du Bengale, Parc national de Ranthambore, Inde (© Andy Rouse/Minden Pictures)|Le roi de la Jungle dans toute sa splendeur|![](/fr-CA/2023/07/202307290400TigerIndia.jpg)|
 202307300400|PalouseHills|Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)|La région bucolique de la Palouse|![](/fr-CA/2023/07/202307300400PalouseHills.jpg)|
+202307310400|RockHouse|Rock House, Parc d’État de Hocking Hills, Ohio, États-Unis (© Kenneth Keifer/Getty Images)|Des falaises gorgées d’histoire|![](/fr-CA/2023/07/202307310400RockHouse.jpg)|
