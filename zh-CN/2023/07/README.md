@@ -32,3 +32,4 @@
 202307281600|TigerIndia|孟加拉虎，兰坦波尔国家公园，印度 (© Andy Rouse/Minden Pictures)|国际老虎日|![](/zh-CN/2023/07/202307281600TigerIndia.jpg)|
 202307291600|PalouseHills|帕卢斯的农田，华盛顿州，美国 (© EJ-J/Getty Images)|宛若仙境的帕卢斯田园|![](/zh-CN/2023/07/202307291600PalouseHills.jpg)|
 202307301600|RockHouse|霍金山州立公园的岩石屋，俄亥俄州，美国 (© Kenneth Keifer/Getty Images)|有人在家吗?|![](/zh-CN/2023/07/202307301600RockHouse.jpg)|
+202307311600|DenaliClimber|从德纳里山看福克拉山，德纳里国家公园，美国阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)|德纳里山的力量无可否认|![](/zh-CN/2023/07/202307311600DenaliClimber.jpg)|
