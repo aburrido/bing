@@ -31,3 +31,4 @@
 202307282200|TigerIndia|Tigre du Bengale, Parc national de Ranthambore, Inde (© Andy Rouse/Minden Pictures)|Le roi de la Jungle dans toute sa splendeur|![](/fr-FR/2023/07/202307282200TigerIndia.jpg)|
 202307292200|PalouseHills|Terres agricoles dans la région de Palouse, Washington, États-Unis (© EJ-J/Getty Images)|La région bucolique de la Palouse|![](/fr-FR/2023/07/202307292200PalouseHills.jpg)|
 202307302200|RockHouse|Rock House, Parc d’État de Hocking Hills, Ohio, États-Unis (© Kenneth Keifer/Getty Images)|Des falaises gorgées d’histoire|![](/fr-FR/2023/07/202307302200RockHouse.jpg)|
+202307312200|Corse|Plage de Rondinara et sa réserve naturelle, Bonifacio, Corse (© Hemis/Alamy Stock Photo)|Le paradis Corse|![](/fr-FR/2023/07/202307312200Corse.jpg)|
