@@ -5,3 +5,4 @@
 ||||![](/en-US/2023/08/.jpg)|
 202308020700|CapitolButte|Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)|Sandstone butte-iful|![](/en-US/2023/08/202308020700CapitolButte.jpg)|
 202308030700|ZelenciSprings|Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)|A lake that never freezes|![](/en-US/2023/08/202308030700ZelenciSprings.jpg)|
+202308040700|GothicRuins|Tintern Abbey, Wales (© matthibcn/Getty Images)|A window on the past|![](/en-US/2023/08/202308040700GothicRuins.jpg)|
