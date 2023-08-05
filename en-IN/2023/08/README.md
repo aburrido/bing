@@ -5,3 +5,4 @@
 202308021830|ZelenciSprings|Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)|Revealing nature's turquoise gem|![](/en-IN/2023/08/202308021830ZelenciSprings.jpg)|
 202308031830|GothicRuins|Tintern Abbey, Wales (© matthibcn/Getty Images)|A cantilevered window to the past|![](/en-IN/2023/08/202308031830GothicRuins.jpg)|
 202308041830|AtlanticPuffin|Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)|It’s puffling season!|![](/en-IN/2023/08/202308041830AtlanticPuffin.jpg)|
+202308051830|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|A mirror reflecting nature's beauty|![](/en-IN/2023/08/202308051830NaganoPond.jpg)|
