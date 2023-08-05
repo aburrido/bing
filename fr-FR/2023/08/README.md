@@ -5,3 +5,4 @@
 202308022200|ZelenciSprings|Réserve Naturelle de Zelenci, Slovénie (© Andrey Danilovich/Getty Images)|Un joyau couleur turquoise|![](/fr-FR/2023/08/202308022200ZelenciSprings.jpg)|
 202308032200|GothicRuins|Abbaye de Tintern, Pays de Galles (© matthibcn/Getty Images)|Une fenêtre en porte-à-faux sur le passé|![](/fr-FR/2023/08/202308032200GothicRuins.jpg)|
 202308042200|AtlanticPuffin|Macareux moine, Islande (© Peter Hering/Minden Pictures)|Quel drôle de nom d’oiseau|![](/fr-FR/2023/08/202308042200AtlanticPuffin.jpg)|
+202308052200|NaganoPond|Kagami-ike (étang miroir), Nagano, Japon (© Shoji Fujita/Getty Images)|Un miroir qui reflète la beauté de la nature|![](/fr-FR/2023/08/202308052200NaganoPond.jpg)|
