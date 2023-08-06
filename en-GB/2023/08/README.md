@@ -6,3 +6,4 @@
 202308032300|GothicRuins|Tintern Abbey, Wales (© matthibcn/Getty Images)|A cantilevered window to the past|![](/en-GB/2023/08/202308032300GothicRuins.jpg)|
 202308042300|AtlanticPuffin|Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)|It's puffling season!|![](/en-GB/2023/08/202308042300AtlanticPuffin.jpg)|
 202308052300|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|A mirror reflecting nature's beauty|![](/en-GB/2023/08/202308052300NaganoPond.jpg)|
+202308062300|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)|One on land, a million in space|![](/en-GB/2023/08/202308062300BodieNC.jpg)|
