@@ -7,3 +7,4 @@
 202308030700|ZelenciSprings|Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)|A lake that never freezes|![](/en-US/2023/08/202308030700ZelenciSprings.jpg)|
 202308040700|GothicRuins|Tintern Abbey, Wales (© matthibcn/Getty Images)|A window on the past|![](/en-US/2023/08/202308040700GothicRuins.jpg)|
 202308050700|AtlanticPuffin|Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)|It's puffling season!|![](/en-US/2023/08/202308050700AtlanticPuffin.jpg)|
+202308060700|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|A peaceful place for self-reflection|![](/en-US/2023/08/202308060700NaganoPond.jpg)|

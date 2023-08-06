@@ -6,3 +6,4 @@
 202308030700|ZelenciSprings|Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)|Info|![](/en-AU/2023/08/202308030700ZelenciSprings.jpg)|
 202308040700|GothicRuins|Tintern Abbey, Wales (© matthibcn/Getty Images)|Info|![](/en-AU/2023/08/202308040700GothicRuins.jpg)|
 202308050700|AtlanticPuffin|Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)|Info|![](/en-AU/2023/08/202308050700AtlanticPuffin.jpg)|
+202308060700|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|Info|![](/en-AU/2023/08/202308060700NaganoPond.jpg)|
