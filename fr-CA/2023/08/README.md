@@ -5,3 +5,4 @@
 202308030400|HelmckenWaterfall|Chutes Helmcken dans le parc provincial de Wells Gray, Colombie-Britannique, Canada (© Laurens Verhoeven/iStock/Getty Images)|Écoutez ce rugissement!|![](/fr-CA/2023/08/202308030400HelmckenWaterfall.jpg)|
 202308040400|GothicRuins|Abbaye de Tintern, Pays de Galles (© matthibcn/Getty Images)|Une fenêtre en porte-à-faux sur le passé|![](/fr-CA/2023/08/202308040400GothicRuins.jpg)|
 202308050400|AtlanticPuffin|Macareux moine, Islande (© Peter Hering/Minden Pictures)|Quel drôle de nom d’oiseau|![](/fr-CA/2023/08/202308050400AtlanticPuffin.jpg)|
+202308060400|NaganoPond|Kagami-ike (étang miroir), Nagano, Japon (© Shoji Fujita/Getty Images)|Un miroir qui reflète la beauté de la nature|![](/fr-CA/2023/08/202308060400NaganoPond.jpg)|
