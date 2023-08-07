@@ -7,3 +7,4 @@
 202308042200|Bogenbruecke|Rakotzbrücke in Kromlau, Landkreis Görlitz, Sachsen (© DieterMeyrl/Getty Images)|Der See und seine Brücke uns entzücke!|![](/de-DE/2023/08/202308042200Bogenbruecke.jpg)|
 202308052200|NaganoPond|Kagami-ike (Spiegelteich), Nagano, Japan (© Shoji Fujita/Getty Images)|Spiegelteich und Meditation|![](/de-DE/2023/08/202308052200NaganoPond.jpg)|
 202308062200|BodieNC|Bodie Island Leuchtturm, Nags Head, North Carolina, USA (© Michael Ver Sprill/Getty Images)|Leuchtturm bei Nacht|![](/de-DE/2023/08/202308062200BodieNC.jpg)|
+202308072200|InfinityTaipei|Autobahnen in Taipeh, Taiwan (© Tavarius/Shutterstock)|Ins Unendliche und zurück|![](/de-DE/2023/08/202308072200InfinityTaipei.jpg)|
