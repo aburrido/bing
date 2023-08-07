@@ -7,3 +7,4 @@
 202308041830|AtlanticPuffin|Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)|It’s puffling season!|![](/en-IN/2023/08/202308041830AtlanticPuffin.jpg)|
 202308051830|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|A mirror reflecting nature's beauty|![](/en-IN/2023/08/202308051830NaganoPond.jpg)|
 202308061830|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina, USA (© Michael Ver Sprill/Getty Images)|One on land, a million in space|![](/en-IN/2023/08/202308061830BodieNC.jpg)|
+202308071830|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|A shiver of sharks on the hunt|![](/en-IN/2023/08/202308071830BlacktipSharks.jpg)|
