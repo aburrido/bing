@@ -8,3 +8,4 @@
 202308051500|HiroshimaPeace2023|原爆ドーム前元安川のとうろう流し, 広島県 広島市 (© Anadolu Agency/Getty Images)|今日は広島平和記念日|![](/ja-JP/2023/08/202308051500HiroshimaPeace2023.jpg)|
 202308061500|BodieNC|ボディー・アイランド灯台, 米国 ノースカロライナ州 (© Michael Ver Sprill/Getty Images)|今日は米国灯台の日|![](/ja-JP/2023/08/202308061500BodieNC.jpg)|
 202308071500|InfinityTaipei|「無限」の高速道路, 台湾 台北市 (© Tavarius/Shutterstock)|今日は無限大の日|![](/ja-JP/2023/08/202308071500InfinityTaipei.jpg)|
+202308081500|BathurstArt|ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)|今日は世界の先住民の国際デー|![](/ja-JP/2023/08/202308081500BathurstArt.jpg)|
