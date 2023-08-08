@@ -9,3 +9,4 @@
 202308050700|AtlanticPuffin|Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)|It's puffling season!|![](/en-US/2023/08/202308050700AtlanticPuffin.jpg)|
 202308060700|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|A peaceful place for self-reflection|![](/en-US/2023/08/202308060700NaganoPond.jpg)|
 202308070700|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)|Sentinels of the sea|![](/en-US/2023/08/202308070700BodieNC.jpg)|
+202308080700|InfinityTaipei|Highways in Taipei, Taiwan (© Tavarius/Shutterstock)|To the infinite and back|![](/en-US/2023/08/202308080700InfinityTaipei.jpg)|
