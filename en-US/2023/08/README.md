@@ -10,3 +10,4 @@
 202308060700|NaganoPond|Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)|A peaceful place for self-reflection|![](/en-US/2023/08/202308060700NaganoPond.jpg)|
 202308070700|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)|Sentinels of the sea|![](/en-US/2023/08/202308070700BodieNC.jpg)|
 202308080700|InfinityTaipei|Highways in Taipei, Taiwan (© Tavarius/Shutterstock)|To the infinite and back|![](/en-US/2023/08/202308080700InfinityTaipei.jpg)|
+202308090700|BathurstArt|Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)|Celebrating Indigenous peoples|![](/en-US/2023/08/202308090700BathurstArt.jpg)|
