@@ -9,3 +9,4 @@
 202308062300|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)|One on land, a million in space|![](/en-GB/2023/08/202308062300BodieNC.jpg)|
 202308072300|MichaelsMountCornwall|View of St Michael's Mount in Cornwall at sunset, Penzance, Cornwall, United Kingdom (© Valerie2000/Shutterstock)|Cheerful colours of a Cornwall classic|![](/en-GB/2023/08/202308072300MichaelsMountCornwall.jpg)|
 202308082300|BathurstArt|Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)|A day for the world's Indigenous populations|![](/en-GB/2023/08/202308082300BathurstArt.jpg)|
+202308092300|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'? Nope|![](/en-GB/2023/08/202308092300WorldLionDay.jpg)|
