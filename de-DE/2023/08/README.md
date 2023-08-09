@@ -9,3 +9,4 @@
 202308062200|BodieNC|Bodie Island Leuchtturm, Nags Head, North Carolina, USA (© Michael Ver Sprill/Getty Images)|Leuchtturm bei Nacht|![](/de-DE/2023/08/202308062200BodieNC.jpg)|
 202308072200|InfinityTaipei|Autobahnen in Taipeh, Taiwan (© Tavarius/Shutterstock)|Ins Unendliche und zurück|![](/de-DE/2023/08/202308072200InfinityTaipei.jpg)|
 202308082200|BathurstArt|Indigenes Kunstwerk, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australien (© Robert Wyatt/Alamy)|Ein Tag für die indigenen Bevölkerungsgruppen der Welt|![](/de-DE/2023/08/202308082200BathurstArt.jpg)|
+202308092200|WorldLionDay|Ein Löwe in der Masai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)|Könige der Savanne|![](/de-DE/2023/08/202308092200WorldLionDay.jpg)|

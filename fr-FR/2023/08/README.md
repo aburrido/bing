@@ -9,3 +9,4 @@
 202308062200|BodieNC|Phare de Bodie Island, Nags Head, Caroline du Nord, États-Unis (© Michael Ver Sprill/Getty Images)|Une lumière parmi les étoiles|![](/fr-FR/2023/08/202308062200BodieNC.jpg)|
 202308072200|LavenderFrance|Champ de lavande sur le plateau de Valensole au lever du jour, Alpes-de-Haute-Provence (© Francesco Riccardo Iacomino/Getty Images)|Un petit coin de paradis provençal|![](/fr-FR/2023/08/202308072200LavenderFrance.jpg)|
 202308082200|BathurstArt|Œuvres d'art aborigènes, Centre d'art Ngaruwanajirri, Wurrumiyanga, île Bathurst, Australie (© Robert Wyatt/Alamy)|Une journée pour les peuples autochtones du monde entier|![](/fr-FR/2023/08/202308082200BathurstArt.jpg)|
+202308092200|WorldLionDay|Lion au Masaï Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|"Roi de la jungle" ? En fait, non !|![](/fr-FR/2023/08/202308092200WorldLionDay.jpg)|
