@@ -9,3 +9,4 @@
 202308061830|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina, USA (© Michael Ver Sprill/Getty Images)|One on land, a million in space|![](/en-IN/2023/08/202308061830BodieNC.jpg)|
 202308071830|BlacktipSharks|Blacktip reef sharks, Maldives (© Filippo Bacci/Getty Images)|A shiver of sharks on the hunt|![](/en-IN/2023/08/202308071830BlacktipSharks.jpg)|
 202308081830|BathurstArt|Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)|A day for the world's Indigenous populations|![](/en-IN/2023/08/202308081830BathurstArt.jpg)|
+202308091830|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'? Nope|![](/en-IN/2023/08/202308091830WorldLionDay.jpg)|
