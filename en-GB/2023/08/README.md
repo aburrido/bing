@@ -10,3 +10,4 @@
 202308072300|MichaelsMountCornwall|View of St Michael's Mount in Cornwall at sunset, Penzance, Cornwall, United Kingdom (© Valerie2000/Shutterstock)|Cheerful colours of a Cornwall classic|![](/en-GB/2023/08/202308072300MichaelsMountCornwall.jpg)|
 202308082300|BathurstArt|Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)|A day for the world's Indigenous populations|![](/en-GB/2023/08/202308082300BathurstArt.jpg)|
 202308092300|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'? Nope|![](/en-GB/2023/08/202308092300WorldLionDay.jpg)|
+202308102300|JupiterArtland|'Gateway' pool at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)|A one-of-a-kind splash|![](/en-GB/2023/08/202308102300JupiterArtland.jpg)|
