@@ -9,3 +9,4 @@
 202308070400|BodieNC|Phare de Bodie Island, Nags Head, Caroline du Nord, États-Unis (© Michael Ver Sprill/Getty Images)|Une lumière parmi les étoiles|![](/fr-CA/2023/08/202308070400BodieNC.jpg)|
 202308080400|InfinityTaipei|Autoroutes à Taipei, Taïwan (© Tavarius/Shutterstock)|Jusqu’à l’infini et au-delà!|![](/fr-CA/2023/08/202308080400InfinityTaipei.jpg)|
 202308090400|BathurstArt|Œuvres d'art aborigènes, Centre d'art Ngaruwanajirri, Wurrumiyanga, île Bathurst, Australie (© Robert Wyatt/Alamy)|Une journée pour les peuples autochtones du monde entier|![](/fr-CA/2023/08/202308090400BathurstArt.jpg)|
+202308100400|WorldLionDay|Lion au Masai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|"Roi de la jungle"? En fait, non!|![](/fr-CA/2023/08/202308100400WorldLionDay.jpg)|
