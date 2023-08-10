@@ -11,3 +11,4 @@
 202308070700|BodieNC|Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)|Sentinels of the sea|![](/en-US/2023/08/202308070700BodieNC.jpg)|
 202308080700|InfinityTaipei|Highways in Taipei, Taiwan (© Tavarius/Shutterstock)|To the infinite and back|![](/en-US/2023/08/202308080700InfinityTaipei.jpg)|
 202308090700|BathurstArt|Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)|Celebrating Indigenous peoples|![](/en-US/2023/08/202308090700BathurstArt.jpg)|
+202308100700|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'?|![](/en-US/2023/08/202308100700WorldLionDay.jpg)|
