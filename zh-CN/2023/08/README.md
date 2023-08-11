@@ -11,3 +11,4 @@
 202308081600|PandiZucchero|马苏阿的甜面包海蚀柱，撒丁岛，意大利 (© DaLiu/Getty Images)|壮观的自然古迹|![](/zh-CN/2023/08/202308081600PandiZucchero.jpg)|
 202308091600|WorldLionDay|马赛马拉的一头狮子，肯尼亚 (© Federico Veronesi/Minden Pictures)|丛林之王？还真不是|![](/zh-CN/2023/08/202308091600WorldLionDay.jpg)|
 202308101600|JupiterArtland|'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy)|独一无二的一朵“水花”|![](/zh-CN/2023/08/202308101600JupiterArtland.jpg)|
+202308111600|ThreeElephants|大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)|保护温柔的巨人|![](/zh-CN/2023/08/202308111600ThreeElephants.jpg)|
