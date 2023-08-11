@@ -11,3 +11,4 @@
 202308081500|BathurstArt|ティウィ人の芸術作品, オーストラリア ウルミヤンガ (© Robert Wyatt/Alamy)|今日は世界の先住民の国際デー|![](/ja-JP/2023/08/202308081500BathurstArt.jpg)|
 202308091500|WorldLionDay|マサイマラ国立保護区のライオン, ケニア (© Scott Davis/Tandem Stills + Motion)|今日は世界ライオンの日|![](/ja-JP/2023/08/202308091500WorldLionDay.jpg)|
 202308101500|MountainDay2023|夏の立山, 富山県 (© yasuki/Adobe Stock)|今日は山の日|![](/ja-JP/2023/08/202308101500MountainDay2023.jpg)|
+202308111500|ThreeElephants|アンボセリ国立公園のゾウ家族, ケニア (© Ibrahim Suha Derbent/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2023/08/202308111500ThreeElephants.jpg)|
