@@ -11,3 +11,4 @@
 202308082200|BathurstArt|Indigenes Kunstwerk, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australien (© Robert Wyatt/Alamy)|Ein Tag für die indigenen Bevölkerungsgruppen der Welt|![](/de-DE/2023/08/202308082200BathurstArt.jpg)|
 202308092200|WorldLionDay|Ein Löwe in der Masai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)|Könige der Savanne|![](/de-DE/2023/08/202308092200WorldLionDay.jpg)|
 202308102200|JupiterArtland|Schwimmbad „Gateway“ im Jupiter Artland Skulpturenpark, Edinburgh, Schottland (© Owen Humphreys/PA Images/Alamy)|Ein Schwimmbad voller Kunst|![](/de-DE/2023/08/202308102200JupiterArtland.jpg)|
+202308112200|ThreeElephants|Elefantenfamilie im Amboseli-Nationalpark, Kenia (© Ibrahim Suha Derbent/Getty Images)|Schützen wir die sanften Riesen|![](/de-DE/2023/08/202308112200ThreeElephants.jpg)|

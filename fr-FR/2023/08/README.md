@@ -11,3 +11,4 @@
 202308082200|BathurstArt|Œuvres d'art aborigènes, Centre d'art Ngaruwanajirri, Wurrumiyanga, île Bathurst, Australie (© Robert Wyatt/Alamy)|Une journée pour les peuples autochtones du monde entier|![](/fr-FR/2023/08/202308082200BathurstArt.jpg)|
 202308092200|WorldLionDay|Lion au Masaï Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|"Roi de la jungle" ? En fait, non !|![](/fr-FR/2023/08/202308092200WorldLionDay.jpg)|
 202308102200|JupiterArtland|Piscine "Gateway" du parc d’Art Jupiter Artland, Édimbourg, Écosse (© Owen Humphreys/PA Images/Alamy)|Un grand bain d’art contemporain !|![](/fr-FR/2023/08/202308102200JupiterArtland.jpg)|
+202308112200|ThreeElephants|Famille d'éléphants dans le parc national d'Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)|Si grands et pourtant si gentils !|![](/fr-FR/2023/08/202308112200ThreeElephants.jpg)|
