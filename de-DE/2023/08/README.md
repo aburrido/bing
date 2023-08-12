@@ -12,3 +12,4 @@
 202308092200|WorldLionDay|Ein Löwe in der Masai Mara, Kenia (© Scott Davis/Tandem Stills + Motion)|Könige der Savanne|![](/de-DE/2023/08/202308092200WorldLionDay.jpg)|
 202308102200|JupiterArtland|Schwimmbad „Gateway“ im Jupiter Artland Skulpturenpark, Edinburgh, Schottland (© Owen Humphreys/PA Images/Alamy)|Ein Schwimmbad voller Kunst|![](/de-DE/2023/08/202308102200JupiterArtland.jpg)|
 202308112200|ThreeElephants|Elefantenfamilie im Amboseli-Nationalpark, Kenia (© Ibrahim Suha Derbent/Getty Images)|Schützen wir die sanften Riesen|![](/de-DE/2023/08/202308112200ThreeElephants.jpg)|
+202308122200|PerseidsOregon|Perseiden-Meteorstrom, Cottonwood Canyon State Park, Oregon, USA (© Joshua Meador/Tandem Stills + Motion)|Sobald Sie eine Sternschnuppe sehen, wünschen Sie sich etwas|![](/de-DE/2023/08/202308122200PerseidsOregon.jpg)|
