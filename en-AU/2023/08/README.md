@@ -12,3 +12,4 @@
 202308090700|PandiZucchero|Pan di Zucchero sea stack in Masua, Sardinia, Italy (© DaLiu/Getty Images)|Info|![](/en-AU/2023/08/202308090700PandiZucchero.jpg)|
 202308100700|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|Info|![](/en-AU/2023/08/202308100700WorldLionDay.jpg)|
 202308110700|HelmckenWaterfall|Helmcken Falls, Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/Getty Images)|Info|![](/en-AU/2023/08/202308110700HelmckenWaterfall.jpg)|
+202308120700|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Info|![](/en-AU/2023/08/202308120700ThreeElephants.jpg)|

@@ -13,3 +13,4 @@
 202308090700|BathurstArt|Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)|Celebrating Indigenous peoples|![](/en-US/2023/08/202308090700BathurstArt.jpg)|
 202308100700|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'?|![](/en-US/2023/08/202308100700WorldLionDay.jpg)|
 202308110700|JupiterArtland|'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)|A splash of color|![](/en-US/2023/08/202308110700JupiterArtland.jpg)|
+202308120700|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Protecting the gentle giants|![](/en-US/2023/08/202308120700ThreeElephants.jpg)|
