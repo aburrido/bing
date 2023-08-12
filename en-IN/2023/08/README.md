@@ -12,3 +12,4 @@
 202308091830|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'? Nope|![](/en-IN/2023/08/202308091830WorldLionDay.jpg)|
 202308101830|JupiterArtland|'Gateway' pool at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)|A one-of-a-kind splash|![](/en-IN/2023/08/202308101830JupiterArtland.jpg)|
 202308111830|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Protecting the gentle giants|![](/en-IN/2023/08/202308111830ThreeElephants.jpg)|
+202308121830|PerseidsOregon|Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)|Look up, incoming…|![](/en-IN/2023/08/202308121830PerseidsOregon.jpg)|
