@@ -13,3 +13,4 @@
 202308101600|JupiterArtland|'朱庇特艺术园的“入口”水池，爱丁堡，苏格兰 (© Owen Humphreys/PA Images/Alamy)|独一无二的一朵“水花”|![](/zh-CN/2023/08/202308101600JupiterArtland.jpg)|
 202308111600|ThreeElephants|大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)|保护温柔的巨人|![](/zh-CN/2023/08/202308111600ThreeElephants.jpg)|
 202308121600|PerseidsOregon|英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国 (© Joshua Meador/Tandem Stills + Motion)|抬头看，它来了|![](/zh-CN/2023/08/202308121600PerseidsOregon.jpg)|
+202308131600|GeckoLeaf|叶片上的小壁虎 (© Darren Greenwood/Alamy)|躲猫猫，我看见你了!|![](/zh-CN/2023/08/202308131600GeckoLeaf.jpg)|
