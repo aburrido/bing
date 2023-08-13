@@ -13,3 +13,4 @@
 202308101500|MountainDay2023|夏の立山, 富山県 (© yasuki/Adobe Stock)|今日は山の日|![](/ja-JP/2023/08/202308101500MountainDay2023.jpg)|
 202308111500|ThreeElephants|アンボセリ国立公園のゾウ家族, ケニア (© Ibrahim Suha Derbent/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2023/08/202308111500ThreeElephants.jpg)|
 202308121500|PerseidsOregon|コットンウッド・キャニオン州立公園, 米国 オレゴン州 (© Joshua Meador/Tandem Stills + Motion)|幻想的なペルセウス座流星群|![](/ja-JP/2023/08/202308121500PerseidsOregon.jpg)|
+202308131500|KeyWestBridge|セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)|海を越える美しいハイウェイ|![](/ja-JP/2023/08/202308131500KeyWestBridge.jpg)|
