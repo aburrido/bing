@@ -12,3 +12,4 @@
 202308100400|WorldLionDay|Lion au Masai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|"Roi de la jungle"? En fait, non!|![](/fr-CA/2023/08/202308100400WorldLionDay.jpg)|
 202308110400|GwaiiHaanasNP|Réserve de parc national et site du patrimoine haïda Gwaii Haanas, Colombie-Britannique, Canada (© Don Johnston_WC/Alamy Stock Photo)|Entre cèdres et épicéas|![](/fr-CA/2023/08/202308110400GwaiiHaanasNP.jpg)|
 202308120400|ThreeElephants|Famille d'éléphants dans le parc national d'Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)|Si grands et pourtant si gentils!|![](/fr-CA/2023/08/202308120400ThreeElephants.jpg)|
+202308130400|PerseidsOregon|Pluie d´étoiles filantes des Perséides, Cottonwood Canyon State Park, Oregon, États-Unis (© Joshua Meador/Tandem Stills + Motion)|Des météores en cascade|![](/fr-CA/2023/08/202308130400PerseidsOregon.jpg)|

@@ -12,3 +12,4 @@
 202308100400|WorldLionDay|A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)|'King of the jungle'? Nope|![](/en-CA/2023/08/202308100400WorldLionDay.jpg)|
 202308110400|GwaiiHaanasNP|Gwaii Haanas National Park Reserve and Haida Heritage Site, British Columbia, Canada (© Don Johnston_WC/Alamy Stock Photo)|Among the cedar and spruce|![](/en-CA/2023/08/202308110400GwaiiHaanasNP.jpg)|
 202308120400|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Protecting the gentle giants|![](/en-CA/2023/08/202308120400ThreeElephants.jpg)|
+202308130400|PerseidsOregon|Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)|Look up, incoming…|![](/en-CA/2023/08/202308130400PerseidsOregon.jpg)|
