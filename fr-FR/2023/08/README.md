@@ -13,3 +13,4 @@
 202308102200|JupiterArtland|Piscine "Gateway" du parc d’Art Jupiter Artland, Édimbourg, Écosse (© Owen Humphreys/PA Images/Alamy)|Un grand bain d’art contemporain !|![](/fr-FR/2023/08/202308102200JupiterArtland.jpg)|
 202308112200|ThreeElephants|Famille d'éléphants dans le parc national d'Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)|Si grands et pourtant si gentils !|![](/fr-FR/2023/08/202308112200ThreeElephants.jpg)|
 202308122200|PerseidsOregon|Pluie d´étoiles filantes des Perséides, Cottonwood Canyon State Park, Oregon, États-Unis (© Joshua Meador/Tandem Stills + Motion)|Des météores en cascade|![](/fr-FR/2023/08/202308122200PerseidsOregon.jpg)|
+202308132200|VerdonCanyon|Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)|Le Grand Canyon de la Provence|![](/fr-FR/2023/08/202308132200VerdonCanyon.jpg)|
