@@ -14,3 +14,4 @@
 202308111830|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Protecting the gentle giants|![](/en-IN/2023/08/202308111830ThreeElephants.jpg)|
 202308121830|PerseidsOregon|Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)|Look up, incoming…|![](/en-IN/2023/08/202308121830PerseidsOregon.jpg)|
 202308131830|GeckoLeaf|Tiny gecko on leaf (© Darren Greenwood/Alamy)|Peek-a-boo, I see you!|![](/en-IN/2023/08/202308131830GeckoLeaf.jpg)|
+202308141830|IndependenceDay|Indian flags selling on Independence Day (© yogesh more/Alamy Stock Photo)|76 glorious years of independence|![](/en-IN/2023/08/202308141830IndependenceDay.jpg)|
