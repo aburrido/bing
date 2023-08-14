@@ -14,3 +14,4 @@
 202308111500|ThreeElephants|アンボセリ国立公園のゾウ家族, ケニア (© Ibrahim Suha Derbent/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2023/08/202308111500ThreeElephants.jpg)|
 202308121500|PerseidsOregon|コットンウッド・キャニオン州立公園, 米国 オレゴン州 (© Joshua Meador/Tandem Stills + Motion)|幻想的なペルセウス座流星群|![](/ja-JP/2023/08/202308121500PerseidsOregon.jpg)|
 202308131500|KeyWestBridge|セブンマイル・ブリッジ, 米国 フロリダ州 (© Evgeny Vasenev/Cavan Images)|海を越える美しいハイウェイ|![](/ja-JP/2023/08/202308131500KeyWestBridge.jpg)|
+202308141500|TaorminaSquare|4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)|歴史的な建造物が集まる広場|![](/ja-JP/2023/08/202308141500TaorminaSquare.jpg)|
