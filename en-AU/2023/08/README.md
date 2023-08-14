@@ -14,3 +14,4 @@
 202308110700|HelmckenWaterfall|Helmcken Falls, Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/Getty Images)|Info|![](/en-AU/2023/08/202308110700HelmckenWaterfall.jpg)|
 202308120700|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Info|![](/en-AU/2023/08/202308120700ThreeElephants.jpg)|
 202308130700|PerseidsOregon|Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)|Info|![](/en-AU/2023/08/202308130700PerseidsOregon.jpg)|
+202308140700|GeckoLeaf|Tiny gecko on leaf spear (© Darren Greenwood/Alamy)|Info|![](/en-AU/2023/08/202308140700GeckoLeaf.jpg)|

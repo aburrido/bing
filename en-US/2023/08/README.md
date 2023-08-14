@@ -15,3 +15,4 @@
 202308110700|JupiterArtland|'Gateway Pool' art installation at Jupiter Artland sculpture park, Edinburgh, Scotland (© Owen Humphreys/PA Images/Alamy)|A splash of color|![](/en-US/2023/08/202308110700JupiterArtland.jpg)|
 202308120700|ThreeElephants|Elephant family in Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Protecting the gentle giants|![](/en-US/2023/08/202308120700ThreeElephants.jpg)|
 202308130700|PerseidsOregon|Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)|Look up, incoming…|![](/en-US/2023/08/202308130700PerseidsOregon.jpg)|
+202308140700|GeckoLeaf|Tiny gecko on a leaf (© Darren Greenwood/Alamy)|Peek-a-boo, I see you!|![](/en-US/2023/08/202308140700GeckoLeaf.jpg)|
