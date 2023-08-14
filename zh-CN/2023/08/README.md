@@ -14,3 +14,4 @@
 202308111600|ThreeElephants|大象家族，安波塞利国家公园，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)|保护温柔的巨人|![](/zh-CN/2023/08/202308111600ThreeElephants.jpg)|
 202308121600|PerseidsOregon|英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国 (© Joshua Meador/Tandem Stills + Motion)|抬头看，它来了|![](/zh-CN/2023/08/202308121600PerseidsOregon.jpg)|
 202308131600|GeckoLeaf|叶片上的小壁虎 (© Darren Greenwood/Alamy)|躲猫猫，我看见你了!|![](/zh-CN/2023/08/202308131600GeckoLeaf.jpg)|
+202308141600|TaorminaSquare|四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)|发光的矩形广场|![](/zh-CN/2023/08/202308141600TaorminaSquare.jpg)|
