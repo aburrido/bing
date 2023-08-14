@@ -14,3 +14,4 @@
 202308112200|ThreeElephants|Elefantenfamilie im Amboseli-Nationalpark, Kenia (© Ibrahim Suha Derbent/Getty Images)|Schützen wir die sanften Riesen|![](/de-DE/2023/08/202308112200ThreeElephants.jpg)|
 202308122200|PerseidsOregon|Perseiden-Meteorstrom, Cottonwood Canyon State Park, Oregon, USA (© Joshua Meador/Tandem Stills + Motion)|Sobald Sie eine Sternschnuppe sehen, wünschen Sie sich etwas|![](/de-DE/2023/08/202308122200PerseidsOregon.jpg)|
 202308132200|GeckoLeaf|Winziger Gecko auf einem Blatt (© Darren Greenwood/Alamy)|Welt der Echsen|![](/de-DE/2023/08/202308132200GeckoLeaf.jpg)|
+202308142200|TaorminaSquare|Piazza IX Aprile, Taormina, Sizilien, Italien (© rudi1976/Alamy)|Bella Italia|![](/de-DE/2023/08/202308142200TaorminaSquare.jpg)|
