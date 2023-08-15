@@ -15,3 +15,4 @@
 202308122300|PerseidsOregon|Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)|Look up, incoming…|![](/en-GB/2023/08/202308122300PerseidsOregon.jpg)|
 202308132300|GeckoLeaf|Tiny gecko on leaf (© Darren Greenwood/Alamy)|Peek-a-boo, I see you!|![](/en-GB/2023/08/202308132300GeckoLeaf.jpg)|
 202308142300|TaorminaSquare|Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)|A glowing square of squares|![](/en-GB/2023/08/202308142300TaorminaSquare.jpg)|
+202308152300|KeyWestBridge|Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)|On the open ocean road|![](/en-GB/2023/08/202308152300KeyWestBridge.jpg)|
