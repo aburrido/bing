@@ -16,3 +16,4 @@
 202308132200|VerdonCanyon|Canyon des gorges du Verdon, Provence-Alpes-Côte d’Azur (© luisapuccini/iStock/Getty Images Plus)|Le Grand Canyon de la Provence|![](/fr-FR/2023/08/202308132200VerdonCanyon.jpg)|
 202308142200|TaorminaSquare|Place du IX Avril, Taormina, Sicile, Italie (© rudi1976/Alamy)|Une place en échiquier|![](/fr-FR/2023/08/202308142200TaorminaSquare.jpg)|
 202308152200|KeyWestBridge|Pont Seven Mile à Key West, Floride, États-Unis (© Evgeny Vasenev/Cavan Images)|La clé des îles Keys|![](/fr-FR/2023/08/202308152200KeyWestBridge.jpg)|
+202308162200|GeckoLeaf|Petit gecko sur une feuille (© Darren Greenwood/Alamy)|Un drôle de lézard !|![](/fr-FR/2023/08/202308162200GeckoLeaf.jpg)|
