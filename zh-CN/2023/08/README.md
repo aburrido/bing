@@ -16,3 +16,4 @@
 202308131600|GeckoLeaf|叶片上的小壁虎 (© Darren Greenwood/Alamy)|躲猫猫，我看见你了!|![](/zh-CN/2023/08/202308131600GeckoLeaf.jpg)|
 202308141600|TaorminaSquare|四月九日广场，陶尔米纳，西西里岛，意大利 (© rudi1976/Alamy)|发光的矩形广场|![](/zh-CN/2023/08/202308141600TaorminaSquare.jpg)|
 202308151600|KeyWestBridge|基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)|一把通向岛屿的钥匙|![](/zh-CN/2023/08/202308151600KeyWestBridge.jpg)|
+202308161600|HelmckenWaterfall|罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)|听它咆哮！|![](/zh-CN/2023/08/202308161600HelmckenWaterfall.jpg)|
