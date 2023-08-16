@@ -15,3 +15,4 @@
 202308130400|PerseidsOregon|Pluie d´étoiles filantes des Perséides, Cottonwood Canyon State Park, Oregon, États-Unis (© Joshua Meador/Tandem Stills + Motion)|Des météores en cascade|![](/fr-CA/2023/08/202308130400PerseidsOregon.jpg)|
 202308140400|AvatarMountain|Montagnes du film “Avatar”, Parc national forestier de Zhangjiajie, Chine (© Amazing Aerial Premium/Shutterstock)|Un trésor naturel défiant la gravité|![](/fr-CA/2023/08/202308140400AvatarMountain.jpg)|
 202308150400|TaorminaSquare|Place du IX Avril, Taormina, Sicile, Italie (© rudi1976/Alamy)|Une place en échiquier|![](/fr-CA/2023/08/202308150400TaorminaSquare.jpg)|
+202308160400|KeyWestBridge|L’Overseas Highway des Keys de Floride (© Evgeny Vasenev/Cavan Images)|La route du grand large|![](/fr-CA/2023/08/202308160400KeyWestBridge.jpg)|
