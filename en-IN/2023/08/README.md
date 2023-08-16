@@ -16,3 +16,4 @@
 202308131830|GeckoLeaf|Tiny gecko on leaf (© Darren Greenwood/Alamy)|Peek-a-boo, I see you!|![](/en-IN/2023/08/202308131830GeckoLeaf.jpg)|
 202308141830|IndependenceDay|Indian flags selling on Independence Day (© yogesh more/Alamy Stock Photo)|76 glorious years of independence|![](/en-IN/2023/08/202308141830IndependenceDay.jpg)|
 202308151830|KeyWestBridge|Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)|On the open ocean road|![](/en-IN/2023/08/202308151830KeyWestBridge.jpg)|
+202308161830|TaorminaSquare|Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)|A glowing square of squares|![](/en-IN/2023/08/202308161830TaorminaSquare.jpg)|
