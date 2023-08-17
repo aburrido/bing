@@ -17,3 +17,4 @@
 202308141500|TaorminaSquare|4 月 9 日広場, イタリア シチリア自治州 (© rudi1976/Alamy)|歴史的な建造物が集まる広場|![](/ja-JP/2023/08/202308141500TaorminaSquare.jpg)|
 202308151500|GozanOkuribi2023|東山・大文字山の送り火, 京都 (© gyro/Getty Images)|今日は五山送り火|![](/ja-JP/2023/08/202308151500GozanOkuribi2023.jpg)|
 202308161500|GrasslandsNationalParkSaskachewan|グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)|遮るものがない広大な草原|![](/ja-JP/2023/08/202308161500GrasslandsNationalParkSaskachewan.jpg)|
+202308171500|AvatarMountain|張家界国家森林公園, 中国 湖南省 (© Amazing Aerial Premium/Shutterstock)|石柱が林立するアバターの世界|![](/ja-JP/2023/08/202308171500AvatarMountain.jpg)|
