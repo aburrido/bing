@@ -17,3 +17,4 @@
 202308142300|TaorminaSquare|Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)|A glowing square of squares|![](/en-GB/2023/08/202308142300TaorminaSquare.jpg)|
 202308152300|KeyWestBridge|Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)|On the open ocean road|![](/en-GB/2023/08/202308152300KeyWestBridge.jpg)|
 202308162300|InfinityTaipei|Highways in Taipei, Taiwan (© Tavarius/Shutterstock)|To the infinite and back|![](/en-GB/2023/08/202308162300InfinityTaipei.jpg)|
+202308172300|AvatarMountain|'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Gravity-defying wonders of the world|![](/en-GB/2023/08/202308172300AvatarMountain.jpg)|
