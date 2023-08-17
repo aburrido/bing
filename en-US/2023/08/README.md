@@ -18,3 +18,4 @@
 202308140700|GeckoLeaf|Tiny gecko on a leaf (© Darren Greenwood/Alamy)|Peek-a-boo, I see you!|![](/en-US/2023/08/202308140700GeckoLeaf.jpg)|
 202308150700|TaorminaSquare|Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)|The Pearl of the Ionian Sea|![](/en-US/2023/08/202308150700TaorminaSquare.jpg)|
 202308160700|KeyWestBridge|Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)|On the open ocean road|![](/en-US/2023/08/202308160700KeyWestBridge.jpg)|
+202308170700|SequoiaSunlight|Giant sequoia trees in Sequoia and Kings Canyon National Parks, California (© lucky-photographer/Getty Images)|Things are looking up|![](/en-US/2023/08/202308170700SequoiaSunlight.jpg)|
