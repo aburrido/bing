@@ -18,3 +18,4 @@
 202308152200|KeyWestBridge|Der Overseas Highway, Florida, USA (© Evgeny Vasenev/Cavan Images)|Auf dem Weg zu Hemingways Haus|![](/de-DE/2023/08/202308152200KeyWestBridge.jpg)|
 202308162200|BucerosBicornis|Doppelhornvogel, Nationalpark Khao Yai, Thailand (© kajornyot wildlife photography/Shutterstock)|Majestätischer Vogel|![](/de-DE/2023/08/202308162200BucerosBicornis.jpg)|
 202308172200|LuebeckRiverTrave|Altstadt und die Trave, Lübeck, Schleswig-Holstein (© Harald Nachtmann/Getty Images)|Die Stadt eines Nobelpreisträgers|![](/de-DE/2023/08/202308172200LuebeckRiverTrave.jpg)|
+202308182200|CameraSquirrel|Ein Eichhörnchen schaut in das Objektiv einer Kamera (© Alfredo Piedrafita/Getty Images)|Bitte lächeln!|![](/de-DE/2023/08/202308182200CameraSquirrel.jpg)|

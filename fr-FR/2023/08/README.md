@@ -18,3 +18,4 @@
 202308152200|KeyWestBridge|Pont Seven Mile à Key West, Floride, États-Unis (© Evgeny Vasenev/Cavan Images)|La clé des îles Keys|![](/fr-FR/2023/08/202308152200KeyWestBridge.jpg)|
 202308162200|GeckoLeaf|Petit gecko sur une feuille (© Darren Greenwood/Alamy)|Un drôle de lézard !|![](/fr-FR/2023/08/202308162200GeckoLeaf.jpg)|
 202308172200|AvatarMountain|Montagnes du film “Avatar”, Parc national forestier de Zhangjiajie, Chine (© Amazing Aerial Premium/Shutterstock)|Un trésor naturel défiant la gravité|![](/fr-FR/2023/08/202308172200AvatarMountain.jpg)|
+202308182200|Morbihan|Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)|Des menhirs à perte de vue|![](/fr-FR/2023/08/202308182200Morbihan.jpg)|
