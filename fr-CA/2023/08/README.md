@@ -17,3 +17,4 @@
 202308150400|TaorminaSquare|Place du IX Avril, Taormina, Sicile, Italie (© rudi1976/Alamy)|Une place en échiquier|![](/fr-CA/2023/08/202308150400TaorminaSquare.jpg)|
 202308160400|KeyWestBridge|L’Overseas Highway des Keys de Floride (© Evgeny Vasenev/Cavan Images)|La route du grand large|![](/fr-CA/2023/08/202308160400KeyWestBridge.jpg)|
 202308170400|GeckoLeaf|Petit gecko sur une feuille  (© Darren Greenwood/Alamy)|Un drôle de lézard!|![](/fr-CA/2023/08/202308170400GeckoLeaf.jpg)|
+202308180400|CanadianNationalExhibition|Spectacle International aérien du Canada, Toronto, Canada (© Melissa Renwick/Contributor/Getty Images)|En avant toute!|![](/fr-CA/2023/08/202308180400CanadianNationalExhibition.jpg)|
