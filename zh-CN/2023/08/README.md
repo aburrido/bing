@@ -18,3 +18,4 @@
 202308151600|KeyWestBridge|基韦斯特的七英里大桥，佛罗里达州，美国 (© Evgeny Vasenev/Cavan Images)|一把通向岛屿的钥匙|![](/zh-CN/2023/08/202308151600KeyWestBridge.jpg)|
 202308161600|HelmckenWaterfall|罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省 (© Laurens Verhoeven/Getty Images)|听它咆哮！|![](/zh-CN/2023/08/202308161600HelmckenWaterfall.jpg)|
 202308171600|AvatarMountain|哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock)|挑战地心引力的世界奇观|![](/zh-CN/2023/08/202308171600AvatarMountain.jpg)|
+202308181600|CameraSquirrel|看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)|我准备好拍特写了，松鼠先生|![](/zh-CN/2023/08/202308181600CameraSquirrel.jpg)|
