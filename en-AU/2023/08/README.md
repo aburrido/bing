@@ -19,3 +19,4 @@
 202308160700|KeyWestBridge|Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)|Info|![](/en-AU/2023/08/202308160700KeyWestBridge.jpg)|
 202308170700|Rothenburg|Rothenburg ob der Tauber, Bavaria, Germany (© RudyBalasko/Getty Images)|Info|![](/en-AU/2023/08/202308170700Rothenburg.jpg)|
 202308180700|AvatarMountain|'Avatar Mountains', Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Info|![](/en-AU/2023/08/202308180700AvatarMountain.jpg)|
+202308190700|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|Info|![](/en-AU/2023/08/202308190700CameraSquirrel.jpg)|
