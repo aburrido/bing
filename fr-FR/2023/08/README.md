@@ -19,3 +19,4 @@
 202308162200|GeckoLeaf|Petit gecko sur une feuille (© Darren Greenwood/Alamy)|Un drôle de lézard !|![](/fr-FR/2023/08/202308162200GeckoLeaf.jpg)|
 202308172200|AvatarMountain|Montagnes du film “Avatar”, Parc national forestier de Zhangjiajie, Chine (© Amazing Aerial Premium/Shutterstock)|Un trésor naturel défiant la gravité|![](/fr-FR/2023/08/202308172200AvatarMountain.jpg)|
 202308182200|Morbihan|Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)|Des menhirs à perte de vue|![](/fr-FR/2023/08/202308182200Morbihan.jpg)|
+202308192200|StartPointLight|Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)|La sentinelle des mers|![](/fr-FR/2023/08/202308192200StartPointLight.jpg)|
