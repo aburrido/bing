@@ -19,3 +19,4 @@
 202308162300|InfinityTaipei|Highways in Taipei, Taiwan (© Tavarius/Shutterstock)|To the infinite and back|![](/en-GB/2023/08/202308162300InfinityTaipei.jpg)|
 202308172300|AvatarMountain|'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Gravity-defying wonders of the world|![](/en-GB/2023/08/202308172300AvatarMountain.jpg)|
 202308182300|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|I'm ready for my close-up, Mr. DeSquirrel|![](/en-GB/2023/08/202308182300CameraSquirrel.jpg)|
+202308192300|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-GB/2023/08/202308192300StartPointLight.jpg)|
