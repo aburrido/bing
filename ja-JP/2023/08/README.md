@@ -19,3 +19,4 @@
 202308161500|GrasslandsNationalParkSaskachewan|グラスランズ国立公園, カナダ サスカチュワン州 (© Robert Postma/Getty Images)|遮るものがない広大な草原|![](/ja-JP/2023/08/202308161500GrasslandsNationalParkSaskachewan.jpg)|
 202308171500|AvatarMountain|張家界国家森林公園, 中国 湖南省 (© Amazing Aerial Premium/Shutterstock)|石柱が林立するアバターの世界|![](/ja-JP/2023/08/202308171500AvatarMountain.jpg)|
 202308181500|CameraSquirrel|カメラを覗き込んでいるリス (© Alfredo Piedrafita/Getty Images)|今日は世界写真の日|![](/ja-JP/2023/08/202308181500CameraSquirrel.jpg)|
+202308191500|StartPointLight|スタートポイント灯台, イングランド デヴォン州 (© Guy Edwardes/Minden Pictures)|今日は国際灯台ウィークエンド|![](/ja-JP/2023/08/202308191500StartPointLight.jpg)|
