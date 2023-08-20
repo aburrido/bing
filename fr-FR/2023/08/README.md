@@ -20,3 +20,4 @@
 202308172200|AvatarMountain|Montagnes du film “Avatar”, Parc national forestier de Zhangjiajie, Chine (© Amazing Aerial Premium/Shutterstock)|Un trésor naturel défiant la gravité|![](/fr-FR/2023/08/202308172200AvatarMountain.jpg)|
 202308182200|Morbihan|Alignements de Carnac, Golfe du Morbihan, France (© Guy Ozenne/Getty Images)|Des menhirs à perte de vue|![](/fr-FR/2023/08/202308182200Morbihan.jpg)|
 202308192200|StartPointLight|Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)|La sentinelle des mers|![](/fr-FR/2023/08/202308192200StartPointLight.jpg)|
+202308202200|EmeraldLakeYukon|Lac Emerald, route du Klondike Sud, Yukon, Canada (© artherng/Getty Images)|Briller de l’intérieur|![](/fr-FR/2023/08/202308202200EmeraldLakeYukon.jpg)|
