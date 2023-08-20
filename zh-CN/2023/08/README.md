@@ -20,3 +20,4 @@
 202308171600|AvatarMountain|哈利路亚山，张家界国家森林公园，中国 (© Amazing Aerial Premium/Shutterstock)|挑战地心引力的世界奇观|![](/zh-CN/2023/08/202308171600AvatarMountain.jpg)|
 202308181600|CameraSquirrel|看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)|我准备好拍特写了，松鼠先生|![](/zh-CN/2023/08/202308181600CameraSquirrel.jpg)|
 202308191600|StartPointLight|起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)|海上哨兵|![](/zh-CN/2023/08/202308191600StartPointLight.jpg)|
+202308201600|EmeraldLakeYukon|翡翠湖，加拿大育空地区 (© artherng/Getty Images)|自内而外的光彩|![](/zh-CN/2023/08/202308201600EmeraldLakeYukon.jpg)|
