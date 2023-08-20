@@ -21,3 +21,4 @@
 202308171830|AvatarMountain|'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Gravity-defying wonders of the world|![](/en-IN/2023/08/202308171830AvatarMountain.jpg)|
 202308181830|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|I'm ready for my close-up, Mr. DeSquirrel|![](/en-IN/2023/08/202308181830CameraSquirrel.jpg)|
 202308191830|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-IN/2023/08/202308191830StartPointLight.jpg)|
+202308201830|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-IN/2023/08/202308201830SkogafossWaterfall.jpg)|
