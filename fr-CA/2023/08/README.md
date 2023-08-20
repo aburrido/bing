@@ -19,3 +19,4 @@
 202308170400|GeckoLeaf|Petit gecko sur une feuille  (© Darren Greenwood/Alamy)|Un drôle de lézard!|![](/fr-CA/2023/08/202308170400GeckoLeaf.jpg)|
 202308180400|CanadianNationalExhibition|Spectacle International aérien du Canada, Toronto, Canada (© Melissa Renwick/Contributor/Getty Images)|En avant toute!|![](/fr-CA/2023/08/202308180400CanadianNationalExhibition.jpg)|
 202308190400|CameraSquirrel|Écureuil regardant l'objectif d'un appareil photo (© Alfredo Piedrafita/Getty Images)|Je suis prêt (ou près) pour mon gros plan|![](/fr-CA/2023/08/202308190400CameraSquirrel.jpg)|
+202308200400|StartPointLight|Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)|Sentinelle des mers|![](/fr-CA/2023/08/202308200400StartPointLight.jpg)|

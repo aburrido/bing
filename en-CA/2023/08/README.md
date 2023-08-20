@@ -19,3 +19,4 @@
 202308170400|AvatarMountain|'Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Gravity-defying wonders of the world|![](/en-CA/2023/08/202308170400AvatarMountain.jpg)|
 202308180400|CanadianNationalExhibition|The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)|Up and away!|![](/en-CA/2023/08/202308180400CanadianNationalExhibition.jpg)|
 202308190400|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|I'm ready for my close-up, Mr. DeSquirrel|![](/en-CA/2023/08/202308190400CameraSquirrel.jpg)|
+202308200400|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-CA/2023/08/202308200400StartPointLight.jpg)|
