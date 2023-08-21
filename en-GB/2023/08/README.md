@@ -21,3 +21,4 @@
 202308182300|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|I'm ready for my close-up, Mr. DeSquirrel|![](/en-GB/2023/08/202308182300CameraSquirrel.jpg)|
 202308192300|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-GB/2023/08/202308192300StartPointLight.jpg)|
 202308202300|CotswoldEngland|Cotswolds village of Snowshill, Gloucestershire, England, United Kingdom, Europe (© Gavin Hellier/robertharding/Getty Images)|'Cot' in this town's charms|![](/en-GB/2023/08/202308202300CotswoldEngland.jpg)|
+202308212300|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-GB/2023/08/202308212300TunisiaAmphitheatre.jpg)|
