@@ -20,3 +20,4 @@
 202308180400|CanadianNationalExhibition|The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)|Up and away!|![](/en-CA/2023/08/202308180400CanadianNationalExhibition.jpg)|
 202308190400|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|I'm ready for my close-up, Mr. DeSquirrel|![](/en-CA/2023/08/202308190400CameraSquirrel.jpg)|
 202308200400|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-CA/2023/08/202308200400StartPointLight.jpg)|
+202308210400|EmeraldLakeYukon|Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)|Glowing from within|![](/en-CA/2023/08/202308210400EmeraldLakeYukon.jpg)|
