@@ -21,3 +21,4 @@
 202308181600|CameraSquirrel|看着相机镜头的松鼠 (© Alfredo Piedrafita/Getty Images)|我准备好拍特写了，松鼠先生|![](/zh-CN/2023/08/202308181600CameraSquirrel.jpg)|
 202308191600|StartPointLight|起点灯塔，德文郡，英国 (© Guy Edwardes/Minden Pictures)|海上哨兵|![](/zh-CN/2023/08/202308191600StartPointLight.jpg)|
 202308201600|EmeraldLakeYukon|翡翠湖，加拿大育空地区 (© artherng/Getty Images)|自内而外的光彩|![](/zh-CN/2023/08/202308201600EmeraldLakeYukon.jpg)|
+202308211600|TunisiaAmphitheatre|埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)|为罗马建筑“起立欢呼”|![](/zh-CN/2023/08/202308211600TunisiaAmphitheatre.jpg)|
