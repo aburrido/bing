@@ -21,3 +21,4 @@
 202308182200|CameraSquirrel|Ein Eichhörnchen schaut in das Objektiv einer Kamera (© Alfredo Piedrafita/Getty Images)|Bitte lächeln!|![](/de-DE/2023/08/202308182200CameraSquirrel.jpg)|
 202308192200|StartPointLight|Start Point Leuchtturm, South Devon, England (© Guy Edwardes/Minden Pictures)|Wächter der See|![](/de-DE/2023/08/202308192200StartPointLight.jpg)|
 202308202200|EmeraldLakeYukon|Emerald See, South Klondike Highway, Yukon, Kanada (© artherng/Getty Images)|Gold- oder Wasserrausch?|![](/de-DE/2023/08/202308202200EmeraldLakeYukon.jpg)|
+202308212200|TunisiaAmphitheatre|Amphitheater von El Djem, Tunesien (© Westend61/Getty Images)|Eine Standing-Ovation für die römische Architektur|![](/de-DE/2023/08/202308212200TunisiaAmphitheatre.jpg)|
