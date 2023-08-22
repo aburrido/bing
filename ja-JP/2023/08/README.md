@@ -22,3 +22,4 @@
 202308191500|StartPointLight|スタートポイント灯台, イングランド デヴォン州 (© Guy Edwardes/Minden Pictures)|今日は国際灯台ウィークエンド|![](/ja-JP/2023/08/202308191500StartPointLight.jpg)|
 202308201500|EmeraldLakeYukon|エメラルド湖, カナダ ユーコン準州 (© artherng/Getty Images)|今日はカナダのディスカバリーデー|![](/ja-JP/2023/08/202308201500EmeraldLakeYukon.jpg)|
 202308211500|TunisiaAmphitheatre|エル・ジェムの円形闘技場, チュニジア (© Westend61/Getty Images)|ローマ剣闘士の舞台|![](/ja-JP/2023/08/202308211500TunisiaAmphitheatre.jpg)|
+202308221500|SkogafossWaterfall|スコゥガフォス, アイスランド (© Maridav/Shutterstock)|緑に囲まれた美しい滝|![](/ja-JP/2023/08/202308221500SkogafossWaterfall.jpg)|
