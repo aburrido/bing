@@ -22,3 +22,4 @@
 202308190700|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|Info|![](/en-AU/2023/08/202308190700CameraSquirrel.jpg)|
 202308200700|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2023/08/202308200700StartPointLight.jpg)|
 202308210700|EmeraldLakeYukon|Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)|Info|![](/en-AU/2023/08/202308210700EmeraldLakeYukon.jpg)|
+202308220700|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|Info|![](/en-AU/2023/08/202308220700TunisiaAmphitheatre.jpg)|
