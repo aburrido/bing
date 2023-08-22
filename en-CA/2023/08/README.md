@@ -21,3 +21,4 @@
 202308190400|CameraSquirrel|Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)|I'm ready for my close-up, Mr. DeSquirrel|![](/en-CA/2023/08/202308190400CameraSquirrel.jpg)|
 202308200400|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-CA/2023/08/202308200400StartPointLight.jpg)|
 202308210400|EmeraldLakeYukon|Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)|Glowing from within|![](/en-CA/2023/08/202308210400EmeraldLakeYukon.jpg)|
+202308220400|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-CA/2023/08/202308220400TunisiaAmphitheatre.jpg)|

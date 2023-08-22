@@ -21,3 +21,4 @@
 202308190400|CameraSquirrel|Écureuil regardant l'objectif d'un appareil photo (© Alfredo Piedrafita/Getty Images)|Je suis prêt (ou près) pour mon gros plan|![](/fr-CA/2023/08/202308190400CameraSquirrel.jpg)|
 202308200400|StartPointLight|Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)|Sentinelle des mers|![](/fr-CA/2023/08/202308200400StartPointLight.jpg)|
 202308210400|EmeraldLakeYukon|Lac Emerald, route du Klondike Sud, Yukon, Canada (© artherng/Getty Images)|Briller de l’intérieur|![](/fr-CA/2023/08/202308210400EmeraldLakeYukon.jpg)|
+202308220400|TunisiaAmphitheatre|Amphithéâtre d'El Jem, Tunisie (© Westend61/Getty Images)|Une "ovation" à l'architecture romaine|![](/fr-CA/2023/08/202308220400TunisiaAmphitheatre.jpg)|
