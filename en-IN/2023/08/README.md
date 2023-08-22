@@ -23,3 +23,4 @@
 202308191830|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Sentinel of the sea|![](/en-IN/2023/08/202308191830StartPointLight.jpg)|
 202308201830|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-IN/2023/08/202308201830SkogafossWaterfall.jpg)|
 202308211830|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-IN/2023/08/202308211830TunisiaAmphitheatre.jpg)|
+202308221830|IndiaMoon|Full Moon set at dawn, behind Cenotaphs, Orchha, Madhya Pradesh, India (© Vaibhav Tripathi/Alamy Stock Photo)|Reaching beyond Earth's boundaries|![](/en-IN/2023/08/202308221830IndiaMoon.jpg)|
