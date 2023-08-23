@@ -23,3 +23,4 @@
 202308201600|EmeraldLakeYukon|翡翠湖，加拿大育空地区 (© artherng/Getty Images)|自内而外的光彩|![](/zh-CN/2023/08/202308201600EmeraldLakeYukon.jpg)|
 202308211600|TunisiaAmphitheatre|埃尔杰姆露天剧场，突尼斯 (© Westend61/Getty Images)|为罗马建筑“起立欢呼”|![](/zh-CN/2023/08/202308211600TunisiaAmphitheatre.jpg)|
 202308221600|SkogafossWaterfall|斯科加瀑布，冰岛 (© Maridav/Shutterstock)|溅起一潭水花|![](/zh-CN/2023/08/202308221600SkogafossWaterfall.jpg)|
+202308231600|SharkFinCove|鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)|自然“鳍”观|![](/zh-CN/2023/08/202308231600SharkFinCove.jpg)|
