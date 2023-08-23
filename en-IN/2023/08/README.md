@@ -24,3 +24,4 @@
 202308201830|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-IN/2023/08/202308201830SkogafossWaterfall.jpg)|
 202308211830|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-IN/2023/08/202308211830TunisiaAmphitheatre.jpg)|
 202308221830|IndiaMoon|Full Moon set at dawn, behind Cenotaphs, Orchha, Madhya Pradesh, India (© Vaibhav Tripathi/Alamy Stock Photo)|Reaching beyond Earth's boundaries|![](/en-IN/2023/08/202308221830IndiaMoon.jpg)|
+202308231830|SharkFinCove|Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)|What a fin-tastic view!|![](/en-IN/2023/08/202308231830SharkFinCove.jpg)|
