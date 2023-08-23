@@ -22,3 +22,4 @@
 202308200400|StartPointLight|Phare de Start Point, Devon, Angleterre (© Guy Edwardes/Minden Pictures)|Sentinelle des mers|![](/fr-CA/2023/08/202308200400StartPointLight.jpg)|
 202308210400|EmeraldLakeYukon|Lac Emerald, route du Klondike Sud, Yukon, Canada (© artherng/Getty Images)|Briller de l’intérieur|![](/fr-CA/2023/08/202308210400EmeraldLakeYukon.jpg)|
 202308220400|TunisiaAmphitheatre|Amphithéâtre d'El Jem, Tunisie (© Westend61/Getty Images)|Une "ovation" à l'architecture romaine|![](/fr-CA/2023/08/202308220400TunisiaAmphitheatre.jpg)|
+202308230400|SkogafossWaterfall|Chutes de Skógafoss, Islande (© Maridav/Shutterstock)|Plonger en eaux troubles|![](/fr-CA/2023/08/202308230400SkogafossWaterfall.jpg)|
