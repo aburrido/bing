@@ -24,3 +24,4 @@
 202308200700|StartPointLight|Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)|Celebrating lighthouses|![](/en-US/2023/08/202308200700StartPointLight.jpg)|
 202308210700|EmeraldLakeYukon|Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)|Glowing from within|![](/en-US/2023/08/202308210700EmeraldLakeYukon.jpg)|
 202308220700|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-US/2023/08/202308220700TunisiaAmphitheatre.jpg)|
+202308230700|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-US/2023/08/202308230700SkogafossWaterfall.jpg)|
