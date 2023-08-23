@@ -23,3 +23,4 @@
 202308201500|EmeraldLakeYukon|エメラルド湖, カナダ ユーコン準州 (© artherng/Getty Images)|今日はカナダのディスカバリーデー|![](/ja-JP/2023/08/202308201500EmeraldLakeYukon.jpg)|
 202308211500|TunisiaAmphitheatre|エル・ジェムの円形闘技場, チュニジア (© Westend61/Getty Images)|ローマ剣闘士の舞台|![](/ja-JP/2023/08/202308211500TunisiaAmphitheatre.jpg)|
 202308221500|SkogafossWaterfall|スコゥガフォス, アイスランド (© Maridav/Shutterstock)|緑に囲まれた美しい滝|![](/ja-JP/2023/08/202308221500SkogafossWaterfall.jpg)|
+202308231500|SharkFinCove|シャーク・フィン・コーブ, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|「サメ」が見守る海岸|![](/ja-JP/2023/08/202308231500SharkFinCove.jpg)|
