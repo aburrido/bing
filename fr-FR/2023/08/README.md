@@ -23,3 +23,4 @@
 202308202200|EmeraldLakeYukon|Lac Emerald, route du Klondike Sud, Yukon, Canada (© artherng/Getty Images)|Briller de l’intérieur|![](/fr-FR/2023/08/202308202200EmeraldLakeYukon.jpg)|
 202308212200|TunisiaAmphitheatre|Amphithéâtre d'El Jem, Tunisie (© Westend61/Getty Images)|Une "ovation" à l'architecture romaine|![](/fr-FR/2023/08/202308212200TunisiaAmphitheatre.jpg)|
 202308222200|SkogafossWaterfall|Chute d'eau de Skógafoss, Islande (© Maridav/Shutterstock)|Plonger en eaux troubles|![](/fr-FR/2023/08/202308222200SkogafossWaterfall.jpg)|
+202308232200|SharkFinCove|Crique Shark Fin, Davenport, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Une crique qui porte bien son nom|![](/fr-FR/2023/08/202308232200SharkFinCove.jpg)|
