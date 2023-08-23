@@ -23,3 +23,4 @@
 202308202300|CotswoldEngland|Cotswolds village of Snowshill, Gloucestershire, England, United Kingdom, Europe (© Gavin Hellier/robertharding/Getty Images)|'Cot' in this town's charms|![](/en-GB/2023/08/202308202300CotswoldEngland.jpg)|
 202308212300|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-GB/2023/08/202308212300TunisiaAmphitheatre.jpg)|
 202308222300|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-GB/2023/08/202308222300SkogafossWaterfall.jpg)|
+202308232300|SharkFinCove|Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)|What a fin-tastic view!|![](/en-GB/2023/08/202308232300SharkFinCove.jpg)|
