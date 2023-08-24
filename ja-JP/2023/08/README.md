@@ -24,3 +24,4 @@
 202308211500|TunisiaAmphitheatre|エル・ジェムの円形闘技場, チュニジア (© Westend61/Getty Images)|ローマ剣闘士の舞台|![](/ja-JP/2023/08/202308211500TunisiaAmphitheatre.jpg)|
 202308221500|SkogafossWaterfall|スコゥガフォス, アイスランド (© Maridav/Shutterstock)|緑に囲まれた美しい滝|![](/ja-JP/2023/08/202308221500SkogafossWaterfall.jpg)|
 202308231500|SharkFinCove|シャーク・フィン・コーブ, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|「サメ」が見守る海岸|![](/ja-JP/2023/08/202308231500SharkFinCove.jpg)|
+202308241500|YellowstoneFalls|イエローストーン国立公園のロワー滝, 米国 ワイオミング州 (© Tim Fitzharris/Minden Pictures)|今日は米国国立公園局の創立記念日|![](/ja-JP/2023/08/202308241500YellowstoneFalls.jpg)|
