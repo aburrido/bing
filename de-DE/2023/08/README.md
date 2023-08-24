@@ -24,3 +24,4 @@
 202308212200|TunisiaAmphitheatre|Amphitheater von El Djem, Tunesien (© Westend61/Getty Images)|Eine Standing-Ovation für die römische Architektur|![](/de-DE/2023/08/202308212200TunisiaAmphitheatre.jpg)|
 202308222200|SkogafossWaterfall|Skógafoss Wasserfall, Island (© Maridav/Shutterstock)|Der wertvollste aller Schätze: Wasser!|![](/de-DE/2023/08/202308222200SkogafossWaterfall.jpg)|
 202308232200|Rothenburg|Rothenburg ob der Tauber, Bayern (© RudyBalasko/Getty images)|Kennen Sie den Meistertrunk?|![](/de-DE/2023/08/202308232200Rothenburg.jpg)|
+202308242200|YellowstoneFalls|Yellowstone-Wasserfälle, Yellowstone-Nationalpark, Wyoming, USA (© Tim Fitzharris/Minden Pictures)|Natur, Natur, Natur!|![](/de-DE/2023/08/202308242200YellowstoneFalls.jpg)|
