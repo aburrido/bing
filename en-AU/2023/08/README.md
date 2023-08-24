@@ -24,3 +24,4 @@
 202308210700|EmeraldLakeYukon|Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)|Info|![](/en-AU/2023/08/202308210700EmeraldLakeYukon.jpg)|
 202308220700|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|Info|![](/en-AU/2023/08/202308220700TunisiaAmphitheatre.jpg)|
 202308230700|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Info|![](/en-AU/2023/08/202308230700SkogafossWaterfall.jpg)|
+202308240700|SharkFinCove|Shark Fin Cove, Davenport, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2023/08/202308240700SharkFinCove.jpg)|
