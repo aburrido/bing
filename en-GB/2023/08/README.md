@@ -25,3 +25,4 @@
 202308222300|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-GB/2023/08/202308222300SkogafossWaterfall.jpg)|
 202308232300|SharkFinCove|Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)|What a fin-tastic view!|![](/en-GB/2023/08/202308232300SharkFinCove.jpg)|
 202308242300|YellowstoneFalls|Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)|This land is your land|![](/en-GB/2023/08/202308242300YellowstoneFalls.jpg)|
+202308252300|MuseumIsland|Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)|A night at the museums|![](/en-GB/2023/08/202308252300MuseumIsland.jpg)|
