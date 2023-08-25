@@ -25,3 +25,4 @@
 202308221500|SkogafossWaterfall|スコゥガフォス, アイスランド (© Maridav/Shutterstock)|緑に囲まれた美しい滝|![](/ja-JP/2023/08/202308221500SkogafossWaterfall.jpg)|
 202308231500|SharkFinCove|シャーク・フィン・コーブ, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|「サメ」が見守る海岸|![](/ja-JP/2023/08/202308231500SharkFinCove.jpg)|
 202308241500|YellowstoneFalls|イエローストーン国立公園のロワー滝, 米国 ワイオミング州 (© Tim Fitzharris/Minden Pictures)|今日は米国国立公園局の創立記念日|![](/ja-JP/2023/08/202308241500YellowstoneFalls.jpg)|
+202308251500|Fireworks2023|全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)|今日は全国花火競技大会の開催日|![](/ja-JP/2023/08/202308251500Fireworks2023.jpg)|
