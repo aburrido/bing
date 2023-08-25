@@ -25,3 +25,4 @@
 202308221600|SkogafossWaterfall|斯科加瀑布，冰岛 (© Maridav/Shutterstock)|溅起一潭水花|![](/zh-CN/2023/08/202308221600SkogafossWaterfall.jpg)|
 202308231600|SharkFinCove|鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)|自然“鳍”观|![](/zh-CN/2023/08/202308231600SharkFinCove.jpg)|
 202308241600|YellowstoneFalls|黄石下瀑布，黄石国家公园，怀俄明州，美国 (© Tim Fitzharris/Minden Pictures)|这是你的土地|![](/zh-CN/2023/08/202308241600YellowstoneFalls.jpg)|
+202308251600|MuseumIsland|柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)|博物馆之夜|![](/zh-CN/2023/08/202308251600MuseumIsland.jpg)|
