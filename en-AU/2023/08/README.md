@@ -25,3 +25,4 @@
 202308220700|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|Info|![](/en-AU/2023/08/202308220700TunisiaAmphitheatre.jpg)|
 202308230700|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Info|![](/en-AU/2023/08/202308230700SkogafossWaterfall.jpg)|
 202308240700|SharkFinCove|Shark Fin Cove, Davenport, California, USA (© Jeff Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2023/08/202308240700SharkFinCove.jpg)|
+202308250700|YellowstoneFalls|Lower Yellowstone Falls, Yellowstone National Park, Wyoming, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2023/08/202308250700YellowstoneFalls.jpg)|

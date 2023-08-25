@@ -26,3 +26,4 @@
 202308220700|TunisiaAmphitheatre|Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)|A 'standing ovation' to Roman architecture|![](/en-US/2023/08/202308220700TunisiaAmphitheatre.jpg)|
 202308230700|SkogafossWaterfall|Skógafoss waterfall, Iceland (© Maridav/Shutterstock)|Making a splash|![](/en-US/2023/08/202308230700SkogafossWaterfall.jpg)|
 202308240700|SharkFinCove|Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)|What a fin-tastic view!|![](/en-US/2023/08/202308240700SharkFinCove.jpg)|
+202308250700|YellowstoneFalls|Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)|This land is your land|![](/en-US/2023/08/202308250700YellowstoneFalls.jpg)|
