@@ -24,3 +24,4 @@
 202308220400|TunisiaAmphitheatre|Amphithéâtre d'El Jem, Tunisie (© Westend61/Getty Images)|Une "ovation" à l'architecture romaine|![](/fr-CA/2023/08/202308220400TunisiaAmphitheatre.jpg)|
 202308230400|SkogafossWaterfall|Chutes de Skógafoss, Islande (© Maridav/Shutterstock)|Plonger en eaux troubles|![](/fr-CA/2023/08/202308230400SkogafossWaterfall.jpg)|
 202308240400|SharkFinCove|Crique Shark Fin, Davenport, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Une crique qui porte bien son nom|![](/fr-CA/2023/08/202308240400SharkFinCove.jpg)|
+202308250400|YellowstoneFalls|Chutes inférieures, parc national de Yellowstone, Wyoming, États-Unis (© Tim Fitzharris/Minden Pictures)|Le plus ancien parc national du monde|![](/fr-CA/2023/08/202308250400YellowstoneFalls.jpg)|
