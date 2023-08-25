@@ -26,3 +26,4 @@
 202308221830|IndiaMoon|Full Moon set at dawn, behind Cenotaphs, Orchha, Madhya Pradesh, India (© Vaibhav Tripathi/Alamy Stock Photo)|Reaching beyond Earth's boundaries|![](/en-IN/2023/08/202308221830IndiaMoon.jpg)|
 202308231830|SharkFinCove|Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)|What a fin-tastic view!|![](/en-IN/2023/08/202308231830SharkFinCove.jpg)|
 202308241830|YellowstoneFalls|Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)|This land is your land|![](/en-IN/2023/08/202308241830YellowstoneFalls.jpg)|
+202308251830|MuseumIsland|Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)|A night at the museums|![](/en-IN/2023/08/202308251830MuseumIsland.jpg)|
