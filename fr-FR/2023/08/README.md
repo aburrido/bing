@@ -25,3 +25,4 @@
 202308222200|SkogafossWaterfall|Chute d'eau de Skógafoss, Islande (© Maridav/Shutterstock)|Plonger en eaux troubles|![](/fr-FR/2023/08/202308222200SkogafossWaterfall.jpg)|
 202308232200|SharkFinCove|Crique Shark Fin, Davenport, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Une crique qui porte bien son nom|![](/fr-FR/2023/08/202308232200SharkFinCove.jpg)|
 202308242200|YellowstoneFalls|Chutes inférieures, parc national de Yellowstone, Wyoming, États-Unis (© Tim Fitzharris/Minden Pictures)|Le plus ancien parc national du monde|![](/fr-FR/2023/08/202308242200YellowstoneFalls.jpg)|
+202308252200|MuseumIsland|Cathédrale et île aux musées, Berlin, Allemagne (© Rudy Balasko/Shutterstock)|La nuit au musée !|![](/fr-FR/2023/08/202308252200MuseumIsland.jpg)|
