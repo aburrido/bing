@@ -26,3 +26,4 @@
 202308231600|SharkFinCove|鲨鱼鳍湾，达文波特，加利福尼亚州，美国 (© Jeff Lewis/Tandem Stills + Motion)|自然“鳍”观|![](/zh-CN/2023/08/202308231600SharkFinCove.jpg)|
 202308241600|YellowstoneFalls|黄石下瀑布，黄石国家公园，怀俄明州，美国 (© Tim Fitzharris/Minden Pictures)|这是你的土地|![](/zh-CN/2023/08/202308241600YellowstoneFalls.jpg)|
 202308251600|MuseumIsland|柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)|博物馆之夜|![](/zh-CN/2023/08/202308251600MuseumIsland.jpg)|
+202308261600|JejuIsland|城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)|一个酷炫的凝灰岩火山口|![](/zh-CN/2023/08/202308261600JejuIsland.jpg)|
