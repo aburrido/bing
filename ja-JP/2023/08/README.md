@@ -27,3 +27,4 @@
 202308241500|YellowstoneFalls|イエローストーン国立公園のロワー滝, 米国 ワイオミング州 (© Tim Fitzharris/Minden Pictures)|今日は米国国立公園局の創立記念日|![](/ja-JP/2023/08/202308241500YellowstoneFalls.jpg)|
 202308251500|Fireworks2023|全国花火競技大会, 秋田県 大仙市 (© Shotaro Yamaki/Shutterstock)|今日は全国花火競技大会の開催日|![](/ja-JP/2023/08/202308251500Fireworks2023.jpg)|
 202308261500|JejuIsland|済州島の城山日出峰, 韓国 (© Quynh Anh Nguyen/Getty Images)|海原に浮かぶ緑の王冠|![](/ja-JP/2023/08/202308261500JejuIsland.jpg)|
+202308271500|DubrovnikHarbor|ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)|アドリア海の真珠|![](/ja-JP/2023/08/202308271500DubrovnikHarbor.jpg)|
