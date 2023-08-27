@@ -27,3 +27,4 @@
 202308242300|YellowstoneFalls|Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)|This land is your land|![](/en-GB/2023/08/202308242300YellowstoneFalls.jpg)|
 202308252300|MuseumIsland|Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)|A night at the museums|![](/en-GB/2023/08/202308252300MuseumIsland.jpg)|
 202308262300|NottingHillCarnivalUK|Colourful houses in Notting Hill, UK (© Sebastien Mercier/Getty Images)|'Notting' but fun here|![](/en-GB/2023/08/202308262300NottingHillCarnivalUK.jpg)|
+202308272300|DubrovnikHarbor|Fort Lovrijenac, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-GB/2023/08/202308272300DubrovnikHarbor.jpg)|
