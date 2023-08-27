@@ -27,3 +27,4 @@
 202308241600|YellowstoneFalls|黄石下瀑布，黄石国家公园，怀俄明州，美国 (© Tim Fitzharris/Minden Pictures)|这是你的土地|![](/zh-CN/2023/08/202308241600YellowstoneFalls.jpg)|
 202308251600|MuseumIsland|柏林大教堂和博物馆岛，柏林，德国 (© Rudy Balasko/Shutterstock)|博物馆之夜|![](/zh-CN/2023/08/202308251600MuseumIsland.jpg)|
 202308261600|JejuIsland|城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)|一个酷炫的凝灰岩火山口|![](/zh-CN/2023/08/202308261600JejuIsland.jpg)|
+202308271600|DubrovnikHarbor|洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock)|小心龙出没！|![](/zh-CN/2023/08/202308271600DubrovnikHarbor.jpg)|
