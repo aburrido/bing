@@ -26,3 +26,4 @@
 202308240400|SharkFinCove|Crique Shark Fin, Davenport, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Une crique qui porte bien son nom|![](/fr-CA/2023/08/202308240400SharkFinCove.jpg)|
 202308250400|YellowstoneFalls|Chutes inférieures, parc national de Yellowstone, Wyoming, États-Unis (© Tim Fitzharris/Minden Pictures)|Le plus ancien parc national du monde|![](/fr-CA/2023/08/202308250400YellowstoneFalls.jpg)|
 202308260400|MuseumIsland|Cathédrale et île aux musées, Berlin, Allemagne (© Rudy Balasko/Shutterstock)|La nuit au musée !|![](/fr-CA/2023/08/202308260400MuseumIsland.jpg)|
+202308270400|JejuIsland|Seongsan Ilchulbong, cône de tuf de l’île de Jeju, Corée du Sud (© Quynh Anh Nguyen/Getty Images)|Un cratère iconique !|![](/fr-CA/2023/08/202308270400JejuIsland.jpg)|
