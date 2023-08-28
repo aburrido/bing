@@ -29,3 +29,4 @@
 202308251830|MuseumIsland|Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)|A night at the museums|![](/en-IN/2023/08/202308251830MuseumIsland.jpg)|
 202308261830|JejuIsland|Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)|A 'tuff'-tastic crater|![](/en-IN/2023/08/202308261830JejuIsland.jpg)|
 202308271830|DubrovnikHarbor|Fort Lovrijenac, West Harbour, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-IN/2023/08/202308271830DubrovnikHarbor.jpg)|
+202308281830|TurkeyTailMush|Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)|Wanna hang with a fungi?|![](/en-IN/2023/08/202308281830TurkeyTailMush.jpg)|
