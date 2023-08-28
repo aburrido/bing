@@ -28,3 +28,4 @@
 202308252300|MuseumIsland|Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)|A night at the museums|![](/en-GB/2023/08/202308252300MuseumIsland.jpg)|
 202308262300|NottingHillCarnivalUK|Colourful houses in Notting Hill, UK (© Sebastien Mercier/Getty Images)|'Notting' but fun here|![](/en-GB/2023/08/202308262300NottingHillCarnivalUK.jpg)|
 202308272300|DubrovnikHarbor|Fort Lovrijenac, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-GB/2023/08/202308272300DubrovnikHarbor.jpg)|
+202308282300|MangrovePark|Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Say hello to these halophytes!|![](/en-GB/2023/08/202308282300MangrovePark.jpg)|
