@@ -28,3 +28,4 @@
 202308252200|MuseumIsland|Berliner Dom und die Museumsinsel, Berlin (© Rudy Balasko/Shutterstock)|Museumsnächte|![](/de-DE/2023/08/202308252200MuseumIsland.jpg)|
 202308262200|JejuIsland|Seongsan Ilchulbong, Insel Jejudo, Südkorea (© Quynh Anh Nguyen/Getty Images)|Ein Krater aus Tuff|![](/de-DE/2023/08/202308262200JejuIsland.jpg)|
 202308272200|DubrovnikHarbor|Festung Lovrijenac, Dubrovnik, Kroatien (© Benny Marty/Shutterstock)|Achtung Drachen!|![](/de-DE/2023/08/202308272200DubrovnikHarbor.jpg)|
+202308282200|AvatarMountain|„Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Unglaubliche Magie der Berge|![](/de-DE/2023/08/202308282200AvatarMountain.jpg)|
