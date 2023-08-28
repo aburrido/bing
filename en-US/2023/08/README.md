@@ -29,3 +29,4 @@
 202308250700|YellowstoneFalls|Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)|This land is your land|![](/en-US/2023/08/202308250700YellowstoneFalls.jpg)|
 202308260700|MuseumIsland|Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)|A night at the museums|![](/en-US/2023/08/202308260700MuseumIsland.jpg)|
 202308270700|JejuIsland|Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)|A 'tuff'-tastic crater|![](/en-US/2023/08/202308270700JejuIsland.jpg)|
+202308280700|DubrovnikHarbor|Fort Lovrijenac, West Harbor, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-US/2023/08/202308280700DubrovnikHarbor.jpg)|
