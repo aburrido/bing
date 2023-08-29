@@ -29,3 +29,4 @@
 202308261500|JejuIsland|済州島の城山日出峰, 韓国 (© Quynh Anh Nguyen/Getty Images)|海原に浮かぶ緑の王冠|![](/ja-JP/2023/08/202308261500JejuIsland.jpg)|
 202308271500|DubrovnikHarbor|ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)|アドリア海の真珠|![](/ja-JP/2023/08/202308271500DubrovnikHarbor.jpg)|
 202308281500|MarathonMedoc|メドック, フランス ジロンド県 (© Esperanza33/Getty Images)|高級な赤ワインを産出するブドウ畑|![](/ja-JP/2023/08/202308281500MarathonMedoc.jpg)|
+202308291500|NingalooShark|ニンガルー・リーフのジンベエザメ, オーストラリア (© Jason Edwards/Getty Images)|今日は国際ジンベエザメの日|![](/ja-JP/2023/08/202308291500NingalooShark.jpg)|
