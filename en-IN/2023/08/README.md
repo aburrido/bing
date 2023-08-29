@@ -30,3 +30,4 @@
 202308261830|JejuIsland|Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)|A 'tuff'-tastic crater|![](/en-IN/2023/08/202308261830JejuIsland.jpg)|
 202308271830|DubrovnikHarbor|Fort Lovrijenac, West Harbour, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-IN/2023/08/202308271830DubrovnikHarbor.jpg)|
 202308281830|TurkeyTailMush|Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)|Wanna hang with a fungi?|![](/en-IN/2023/08/202308281830TurkeyTailMush.jpg)|
+202308291830|FestivalofThreads|Rakhi or sacred thread of different types and colors (© Ritesh Shukla/Pacific Press/LightRocket via Getty Images)|Ties that never unravel|![](/en-IN/2023/08/202308291830FestivalofThreads.jpg)|
