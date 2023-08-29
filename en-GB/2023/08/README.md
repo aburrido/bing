@@ -29,3 +29,4 @@
 202308262300|NottingHillCarnivalUK|Colourful houses in Notting Hill, UK (© Sebastien Mercier/Getty Images)|'Notting' but fun here|![](/en-GB/2023/08/202308262300NottingHillCarnivalUK.jpg)|
 202308272300|DubrovnikHarbor|Fort Lovrijenac, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-GB/2023/08/202308272300DubrovnikHarbor.jpg)|
 202308282300|MangrovePark|Jubail Mangrove Park in Abu Dhabi, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Say hello to these halophytes!|![](/en-GB/2023/08/202308282300MangrovePark.jpg)|
+202308292300|NingalooShark|Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)|A diver's big buddy|![](/en-GB/2023/08/202308292300NingalooShark.jpg)|
