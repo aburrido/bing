@@ -29,3 +29,4 @@
 202308261600|JejuIsland|城山日出峰，济州岛上的凝灰岩锥，韩国 (© Quynh Anh Nguyen/Getty Images)|一个酷炫的凝灰岩火山口|![](/zh-CN/2023/08/202308261600JejuIsland.jpg)|
 202308271600|DubrovnikHarbor|洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock)|小心龙出没！|![](/zh-CN/2023/08/202308271600DubrovnikHarbor.jpg)|
 202308281600|TetonBison|美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)|一头毛茸茸的牛|![](/zh-CN/2023/08/202308281600TetonBison.jpg)|
+202308291600|NingalooShark|鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images)|潜水员的“大伙伴”|![](/zh-CN/2023/08/202308291600NingalooShark.jpg)|
