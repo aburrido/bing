@@ -29,3 +29,4 @@
 202308262200|JejuIsland|Seongsan Ilchulbong, cône de tuf de l’île de Jeju, Corée du Sud (© Quynh Anh Nguyen/Getty Images)|Un cratère iconique !|![](/fr-FR/2023/08/202308262200JejuIsland.jpg)|
 202308272200|DubrovnikHarbor|Fort Lovrijenac, Dubrovnik, Croatie (© Benny Marty/Shutterstock)|Gare aux dragons !|![](/fr-FR/2023/08/202308272200DubrovnikHarbor.jpg)|
 202308282200|BathCircus|Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)|Un cercle « littéraire » pour Jane Austen|![](/fr-FR/2023/08/202308282200BathCircus.jpg)|
+202308292200|NingalooShark|Requin-baleine, récif de Ningaloo, Australie occidentale (© Jason Edwards/Getty Images)|Le meilleur ami des plongeurs|![](/fr-FR/2023/08/202308292200NingalooShark.jpg)|
