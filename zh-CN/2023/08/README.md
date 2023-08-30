@@ -30,3 +30,4 @@
 202308271600|DubrovnikHarbor|洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚 (© Benny Marty/Shutterstock)|小心龙出没！|![](/zh-CN/2023/08/202308271600DubrovnikHarbor.jpg)|
 202308281600|TetonBison|美洲野牛，大提顿国家公园，怀俄明州 (© Enrique Aguirre Aves/Getty Images)|一头毛茸茸的牛|![](/zh-CN/2023/08/202308281600TetonBison.jpg)|
 202308291600|NingalooShark|鲸鲨，宁加洛珊瑚礁，西澳大利亚 (© Jason Edwards/Getty Images)|潜水员的“大伙伴”|![](/zh-CN/2023/08/202308291600NingalooShark.jpg)|
+202308301600|IronwoodCactus|巨人柱，铁木森林国家纪念地，亚利桑那州，美国 (© Jack Dykinga/Minden Pictures)|你今天过得怎么样？|![](/zh-CN/2023/08/202308301600IronwoodCactus.jpg)|
