@@ -30,3 +30,4 @@
 202308271500|DubrovnikHarbor|ドゥブロヴニク, クロアチア (© Benny Marty/Shutterstock)|アドリア海の真珠|![](/ja-JP/2023/08/202308271500DubrovnikHarbor.jpg)|
 202308281500|MarathonMedoc|メドック, フランス ジロンド県 (© Esperanza33/Getty Images)|高級な赤ワインを産出するブドウ畑|![](/ja-JP/2023/08/202308281500MarathonMedoc.jpg)|
 202308291500|NingalooShark|ニンガルー・リーフのジンベエザメ, オーストラリア (© Jason Edwards/Getty Images)|今日は国際ジンベエザメの日|![](/ja-JP/2023/08/202308291500NingalooShark.jpg)|
+202308301500|IronwoodCactus|アイアンウッドフォレスト国定公園, 米国 アリゾナ州 (© Jack Dykinga/Minden Pictures)|巨大サボテンの世界|![](/ja-JP/2023/08/202308301500IronwoodCactus.jpg)|
