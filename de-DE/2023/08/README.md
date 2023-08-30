@@ -30,3 +30,4 @@
 202308272200|DubrovnikHarbor|Festung Lovrijenac, Dubrovnik, Kroatien (© Benny Marty/Shutterstock)|Achtung Drachen!|![](/de-DE/2023/08/202308272200DubrovnikHarbor.jpg)|
 202308282200|AvatarMountain|„Avatar-Berge“, Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)|Unglaubliche Magie der Berge|![](/de-DE/2023/08/202308282200AvatarMountain.jpg)|
 202308292200|NingalooShark|Walhai, Ningaloo-Riff, Westaustralien (© Jason Edwards/Getty Images)|König der Ozeane?|![](/de-DE/2023/08/202308292200NingalooShark.jpg)|
+202308302200|CassiusFlorentius|Köpfe des Heiligen Cassius und Florentius vor dem Bonner Münster, Bonn (© Peter Unger/Getty images)|Köpfe der heiligen Patrone Bonns|![](/de-DE/2023/08/202308302200CassiusFlorentius.jpg)|
