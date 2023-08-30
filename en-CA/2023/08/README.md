@@ -29,3 +29,4 @@
 202308270400|JejuIsland|Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)|A 'tuff'-tastic crater|![](/en-CA/2023/08/202308270400JejuIsland.jpg)|
 202308280400|DubrovnikHarbor|Fort Lovrijenac, West Harbour, Dubrovnik, Croatia (© Benny Marty/Shutterstock)|Watch out for dragons!|![](/en-CA/2023/08/202308280400DubrovnikHarbor.jpg)|
 202308290400|ZelenciSprings|Zelenci Nature Reserve, Slovenia (© Andrey Danilovich/Getty Images)|Revealing nature's turquoise gem|![](/en-CA/2023/08/202308290400ZelenciSprings.jpg)|
+202308300400|NingalooShark|Whale shark, Ningaloo Reef, Western Australia (© Jason Edwards/Getty Images)|A diver's big buddy|![](/en-CA/2023/08/202308300400NingalooShark.jpg)|
