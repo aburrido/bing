@@ -31,3 +31,4 @@
 202308281500|MarathonMedoc|メドック, フランス ジロンド県 (© Esperanza33/Getty Images)|高級な赤ワインを産出するブドウ畑|![](/ja-JP/2023/08/202308281500MarathonMedoc.jpg)|
 202308291500|NingalooShark|ニンガルー・リーフのジンベエザメ, オーストラリア (© Jason Edwards/Getty Images)|今日は国際ジンベエザメの日|![](/ja-JP/2023/08/202308291500NingalooShark.jpg)|
 202308301500|IronwoodCactus|アイアンウッドフォレスト国定公園, 米国 アリゾナ州 (© Jack Dykinga/Minden Pictures)|巨大サボテンの世界|![](/ja-JP/2023/08/202308301500IronwoodCactus.jpg)|
+202308311500|Fawn|草原を走るノロジカの子鹿, フランス ノルマンディー (© Gerard Lacz/Minden)|可愛い小型のシカ|![](/ja-JP/2023/08/202308311500Fawn.jpg)|
