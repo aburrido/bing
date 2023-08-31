@@ -32,3 +32,4 @@
 202308281830|TurkeyTailMush|Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)|Wanna hang with a fungi?|![](/en-IN/2023/08/202308281830TurkeyTailMush.jpg)|
 202308291830|FestivalofThreads|Rakhi or sacred thread of different types and colors (© Ritesh Shukla/Pacific Press/LightRocket via Getty Images)|Ties that never unravel|![](/en-IN/2023/08/202308291830FestivalofThreads.jpg)|
 202308301830|IronwoodCactus|Saguaro cacti, Ironwood National Monument, Arizona (© Jack Dykinga/Minden Pictures)|'Saguaro' you today?|![](/en-IN/2023/08/202308301830IronwoodCactus.jpg)|
+202308311830|KeralaBackwaters|Boat at backwaters of Kerala, India (© Goran Bogicevic/Alamy Stock Photo)|This backwater boat beckons|![](/en-IN/2023/08/202308311830KeralaBackwaters.jpg)|
