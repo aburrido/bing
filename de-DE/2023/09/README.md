@@ -3,3 +3,4 @@
 202308312200|TurkeyTailMush|Truthahnschwanzpilz, Brevard, North Carolina, USA (© Bill Gozansky/Alamy Stock Photo)|Hurra hurra, die Pilze sind wieder da!|![](/de-DE/2023/09/202308312200TurkeyTailMush.jpg)|
 202309012200|TinyHummer|Allenkolibri, Santa Cruz, Kalifornien, USA (© mallardg500/Getty Images)|Zwischenstopp, um Energie zu laden|![](/de-DE/2023/09/202309012200TinyHummer.jpg)|
 202309022200|ManhattanAerial|Luftaufnahme von Manhattan, New York City, USA (© Wojtek Zagorski/Getty Images)|Sehen Sie den Apfel?|![](/de-DE/2023/09/202309022200ManhattanAerial.jpg)|
+202309032200|BourgesMarsh|Sümpfe von Bourges, Frankreich (© Tuul & Bruno Morandi/Getty Images)|Eine grüne Oase im Herzen der Stadt|![](/de-DE/2023/09/202309032200BourgesMarsh.jpg)|
