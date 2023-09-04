@@ -4,3 +4,4 @@
 202309010700|TurkeyTailMush|Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)|Wanna hang with a fungi?|![](/en-US/2023/09/202309010700TurkeyTailMush.jpg)|
 202309020700|TinyHummer|Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)|Stopping for a blossom beverage|![](/en-US/2023/09/202309020700TinyHummer.jpg)|
 202309030700|ManhattanAerial|Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)|So high they touch the sky|![](/en-US/2023/09/202309030700ManhattanAerial.jpg)|
+202309040700|LaborDayWorkers|Construction workers on scaffolding (© Bits and Splits/Shutterstock)|Time to clock out|![](/en-US/2023/09/202309040700LaborDayWorkers.jpg)|
