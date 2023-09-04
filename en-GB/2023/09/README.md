@@ -4,3 +4,4 @@
 202309012300|HadriansWallUK|Hadrian's Wall, England (© daverhead/Getty Images)|A welcome spot for wallflowers|![](/en-GB/2023/09/202309012300HadriansWallUK.jpg)|
 202309022300|ManhattanAerial|Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)|So high they touch the sky|![](/en-GB/2023/09/202309022300ManhattanAerial.jpg)|
 202309032300|JejuIsland|Seongsan Ilchulbong, Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)|A 'tuff'-tastic crater|![](/en-GB/2023/09/202309032300JejuIsland.jpg)|
+202309042300|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|A digital creation? Nor-way!|![](/en-GB/2023/09/202309042300MountSegla.jpg)|
