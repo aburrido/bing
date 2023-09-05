@@ -5,3 +5,4 @@
 202309020700|TinyHummer|Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)|Stopping for a blossom beverage|![](/en-US/2023/09/202309020700TinyHummer.jpg)|
 202309030700|ManhattanAerial|Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)|So high they touch the sky|![](/en-US/2023/09/202309030700ManhattanAerial.jpg)|
 202309040700|LaborDayWorkers|Construction workers on scaffolding (© Bits and Splits/Shutterstock)|Time to clock out|![](/en-US/2023/09/202309040700LaborDayWorkers.jpg)|
+202309050700|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|A digital creation? Nor-way!|![](/en-US/2023/09/202309050700MountSegla.jpg)|
