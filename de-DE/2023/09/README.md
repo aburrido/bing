@@ -5,3 +5,4 @@
 202309022200|ManhattanAerial|Luftaufnahme von Manhattan, New York City, USA (© Wojtek Zagorski/Getty Images)|Sehen Sie den Apfel?|![](/de-DE/2023/09/202309022200ManhattanAerial.jpg)|
 202309032200|BourgesMarsh|Sümpfe von Bourges, Frankreich (© Tuul & Bruno Morandi/Getty Images)|Eine grüne Oase im Herzen der Stadt|![](/de-DE/2023/09/202309032200BourgesMarsh.jpg)|
 202309042200|MountSegla|Berg Segla, Senja Insel, Troms und Finnmark, Norwegen (© imageBROKER/Moritz Wolf/Getty Images)|Herr der Ringe oder Game of Thrones?|![](/de-DE/2023/09/202309042200MountSegla.jpg)|
+202309052200|CreteHarbor|Alter venezianischer Hafen, Rethymno, Kreta, Griechenland (© Gatsi/Getty Images)|Wo liegt dieser antike Hafen?|![](/de-DE/2023/09/202309052200CreteHarbor.jpg)|
