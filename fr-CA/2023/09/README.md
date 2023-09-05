@@ -4,3 +4,4 @@
 202309020400|TinyHummer|Colibri d'Allen, Santa Cruz, Californie, États-Unis (© mallardg500/Getty Images)|Savourer une boisson florale|![](/fr-CA/2023/09/202309020400TinyHummer.jpg)|
 202309030400|ManhattanAerial|Vue aérienne de Manhattan, New York, États-Unis (© Wojtek Zagorski/Getty Images)|La ville qui ne dort jamais!|![](/fr-CA/2023/09/202309030400ManhattanAerial.jpg)|
 202309040400|BourgesMarsh|Marais de Bourges, Centre-Val de Loire, France (© Tuul & Bruno Morandi/Getty Images)|Une immersion sauvage au cœur de la cité!|![](/fr-CA/2023/09/202309040400BourgesMarsh.jpg)|
+202309050400|MountSegla|Mont Segla, île de Senja, Troms et Finnmark, Norvège (© imageBROKER/Moritz Wolf/Getty Images)|Un paysage virtuel ou réel?|![](/fr-CA/2023/09/202309050400MountSegla.jpg)|
