@@ -6,3 +6,4 @@
 202309032200|BourgesMarsh|Marais de Bourges, Centre-Val de Loire (© Tuul & Bruno Morandi/Getty Images)|Une immersion sauvage au cœur de la cité !|![](/fr-FR/2023/09/202309032200BourgesMarsh.jpg)|
 202309042200|MountSegla|Mont Segla, île de Senja, Troms et Finnmark, Norvège (© imageBROKER/Moritz Wolf/Getty Images)|Un paysage virtuel ou réel ?|![](/fr-FR/2023/09/202309042200MountSegla.jpg)|
 202309052200|CreteHarbor|Ancien port vénitien, Rethymno, île de Crète, Grèce (© Gatsi/Getty Images)|Prêt à jeter l'ancre ?|![](/fr-FR/2023/09/202309052200CreteHarbor.jpg)|
+202309062200|CamelsAbove|Chameaux dans le désert, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)|Le Roi du désert !|![](/fr-FR/2023/09/202309062200CamelsAbove.jpg)|
