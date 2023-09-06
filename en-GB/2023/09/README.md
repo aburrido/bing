@@ -6,3 +6,4 @@
 202309032300|JejuIsland|Seongsan Ilchulbong, Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)|A 'tuff'-tastic crater|![](/en-GB/2023/09/202309032300JejuIsland.jpg)|
 202309042300|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|A digital creation? Nor-way!|![](/en-GB/2023/09/202309042300MountSegla.jpg)|
 202309052300|CreteHarbor|Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Ready to drop anchor?|![](/en-GB/2023/09/202309052300CreteHarbor.jpg)|
+202309062300|CamelsAbove|Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Ships of the desert, ahoy!|![](/en-GB/2023/09/202309062300CamelsAbove.jpg)|
