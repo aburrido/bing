@@ -6,3 +6,4 @@
 202309030700|ManhattanAerial|Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)|So high they touch the sky|![](/en-US/2023/09/202309030700ManhattanAerial.jpg)|
 202309040700|LaborDayWorkers|Construction workers on scaffolding (© Bits and Splits/Shutterstock)|Time to clock out|![](/en-US/2023/09/202309040700LaborDayWorkers.jpg)|
 202309050700|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|A digital creation? Nor-way!|![](/en-US/2023/09/202309050700MountSegla.jpg)|
+202309060700|CreteHarbor|Old Venetian harbor, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Ready to drop anchor?|![](/en-US/2023/09/202309060700CreteHarbor.jpg)|
