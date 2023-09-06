@@ -6,3 +6,4 @@
 202309031500|PassauSunsetJune|パッサウ, ドイツ バイエルン州 (© Scott Wilson/Alamy)|ドナウ川に映る色とりどりの街|![](/ja-JP/2023/09/202309031500PassauSunsetJune.jpg)|
 202309041500|MountSegla|センヤ島のセグラ山, ノルウェー (© imageBROKER/Moritz Wolf/Getty Images)|海面から切り立った岩峰|![](/ja-JP/2023/09/202309041500MountSegla.jpg)|
 202309051500|CreteHarbor|レティムノの港, ギリシャ (© Gatsi/Getty Images)|ヴェネツィア風の美しい街並|![](/ja-JP/2023/09/202309051500CreteHarbor.jpg)|
+202309061500|CamelsAbove|砂漠のラクダ, アラブ首長国連邦 (© Amazing Aerial Premium/Shutterstock)|砂漠の運び屋|![](/ja-JP/2023/09/202309061500CamelsAbove.jpg)|
