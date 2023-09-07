@@ -7,3 +7,4 @@
 202309040700|BourgesMarsh|Marshes of Bourges, France (© Tuul & Bruno Morandi/Getty Images)|Info|![](/en-AU/2023/09/202309040700BourgesMarsh.jpg)|
 202309050700|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|Info|![](/en-AU/2023/09/202309050700MountSegla.jpg)|
 202309060700|CreteHarbor|Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Info|![](/en-AU/2023/09/202309060700CreteHarbor.jpg)|
+202309070700|CamelsAbove|Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Info|![](/en-AU/2023/09/202309070700CamelsAbove.jpg)|
