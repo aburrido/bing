@@ -6,3 +6,4 @@
 202309040400|CamelsAbove|Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Ships of the desert, ahoy!|![](/en-CA/2023/09/202309040400CamelsAbove.jpg)|
 202309050400|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|A digital creation? Nor-way!|![](/en-CA/2023/09/202309050400MountSegla.jpg)|
 202309060400|CreteHarbor|Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Ready to drop anchor?|![](/en-CA/2023/09/202309060400CreteHarbor.jpg)|
+202309070400|TIFFCanada|Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)|Grab your popcorn, Toronto|![](/en-CA/2023/09/202309070400TIFFCanada.jpg)|

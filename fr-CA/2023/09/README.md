@@ -6,3 +6,4 @@
 202309040400|BourgesMarsh|Marais de Bourges, Centre-Val de Loire, France (© Tuul & Bruno Morandi/Getty Images)|Une immersion sauvage au cœur de la cité!|![](/fr-CA/2023/09/202309040400BourgesMarsh.jpg)|
 202309050400|MountSegla|Mont Segla, île de Senja, Troms et Finnmark, Norvège (© imageBROKER/Moritz Wolf/Getty Images)|Un paysage virtuel ou réel?|![](/fr-CA/2023/09/202309050400MountSegla.jpg)|
 202309060400|CreteHarbor|Ancien port vénitien, Rethymno, île de Crète, Grèce (© Gatsi/Getty Images)|Prêt à jeter l'ancre?|![](/fr-CA/2023/09/202309060400CreteHarbor.jpg)|
+202309070400|TIFFCanada|Vue panoramique du front de mer de la ville de Toronto au coucher du soleil (© Elena Elisseeva/Shutterstock)|Toronto, du popcorn et du ciné!|![](/fr-CA/2023/09/202309070400TIFFCanada.jpg)|
