@@ -7,3 +7,4 @@
 202309042300|MountSegla|Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)|A digital creation? Nor-way!|![](/en-GB/2023/09/202309042300MountSegla.jpg)|
 202309052300|CreteHarbor|Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Ready to drop anchor?|![](/en-GB/2023/09/202309052300CreteHarbor.jpg)|
 202309062300|CamelsAbove|Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Ships of the desert, ahoy!|![](/en-GB/2023/09/202309062300CamelsAbove.jpg)|
+202309072300|BathCircus|Georgian housing, The Circus, Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austen's literary circle|![](/en-GB/2023/09/202309072300BathCircus.jpg)|
