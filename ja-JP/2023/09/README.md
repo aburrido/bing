@@ -7,3 +7,4 @@
 202309041500|MountSegla|センヤ島のセグラ山, ノルウェー (© imageBROKER/Moritz Wolf/Getty Images)|海面から切り立った岩峰|![](/ja-JP/2023/09/202309041500MountSegla.jpg)|
 202309051500|CreteHarbor|レティムノの港, ギリシャ (© Gatsi/Getty Images)|ヴェネツィア風の美しい街並|![](/ja-JP/2023/09/202309051500CreteHarbor.jpg)|
 202309061500|CamelsAbove|砂漠のラクダ, アラブ首長国連邦 (© Amazing Aerial Premium/Shutterstock)|砂漠の運び屋|![](/ja-JP/2023/09/202309061500CamelsAbove.jpg)|
+202309071500|BathCircus|バース市街, イングランド (© Gavin Hellier/Getty Images)|今日は国際識字デー|![](/ja-JP/2023/09/202309071500BathCircus.jpg)|
