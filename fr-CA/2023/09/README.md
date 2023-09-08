@@ -7,3 +7,4 @@
 202309050400|MountSegla|Mont Segla, île de Senja, Troms et Finnmark, Norvège (© imageBROKER/Moritz Wolf/Getty Images)|Un paysage virtuel ou réel?|![](/fr-CA/2023/09/202309050400MountSegla.jpg)|
 202309060400|CreteHarbor|Ancien port vénitien, Rethymno, île de Crète, Grèce (© Gatsi/Getty Images)|Prêt à jeter l'ancre?|![](/fr-CA/2023/09/202309060400CreteHarbor.jpg)|
 202309070400|TIFFCanada|Vue panoramique du front de mer de la ville de Toronto au coucher du soleil (© Elena Elisseeva/Shutterstock)|Toronto, du popcorn et du ciné!|![](/fr-CA/2023/09/202309070400TIFFCanada.jpg)|
+202309080400|BathCircus|Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)|Un cercle « littéraire » pour Jane Austen|![](/fr-CA/2023/09/202309080400BathCircus.jpg)|
