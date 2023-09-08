@@ -8,3 +8,4 @@
 202309051600|CreteHarbor|威尼斯旧港，克里特岛，希腊 (© Gatsi/Getty Images)|准备好下锚了吗？|![](/zh-CN/2023/09/202309051600CreteHarbor.jpg)|
 202309061600|CamelsAbove|沙漠中的骆驼，阿拉伯联合酋长国 (© Amazing Aerial Premium/Shutterstock)|沙漠之舟|![](/zh-CN/2023/09/202309061600CamelsAbove.jpg)|
 202309071600|BathCircus|巴斯圆形广场，萨默塞特 ，英国 (© Gavin Hellier/Getty Images)|简·奥斯汀的文学圈|![](/zh-CN/2023/09/202309071600BathCircus.jpg)|
+202309081600|AyutthayaTemple|大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)|皇家寺庙的废墟|![](/zh-CN/2023/09/202309081600AyutthayaTemple.jpg)|
