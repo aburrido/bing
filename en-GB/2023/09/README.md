@@ -8,3 +8,4 @@
 202309052300|CreteHarbor|Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Ready to drop anchor?|![](/en-GB/2023/09/202309052300CreteHarbor.jpg)|
 202309062300|CamelsAbove|Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Ships of the desert, ahoy!|![](/en-GB/2023/09/202309062300CamelsAbove.jpg)|
 202309072300|BathCircus|Georgian housing, The Circus, Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austen's literary circle|![](/en-GB/2023/09/202309072300BathCircus.jpg)|
+202309082300|LastNightofProm|Royal Albert Hall seen from Albert Memorial in Hyde Park, London (© David Bank/Moment/Getty Images)|Where history and harmony unite|![](/en-GB/2023/09/202309082300LastNightofProm.jpg)|
