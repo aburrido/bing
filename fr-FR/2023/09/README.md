@@ -8,3 +8,4 @@
 202309052200|CreteHarbor|Ancien port vénitien, Rethymno, île de Crète, Grèce (© Gatsi/Getty Images)|Prêt à jeter l'ancre ?|![](/fr-FR/2023/09/202309052200CreteHarbor.jpg)|
 202309062200|CamelsAbove|Chameaux dans le désert, Émirats Arabes Unis (© Amazing Aerial Premium/Shutterstock)|Le Roi du désert !|![](/fr-FR/2023/09/202309062200CamelsAbove.jpg)|
 202309072200|RugbyWorldCup|Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)|Allez les bleus !|![](/fr-FR/2023/09/202309072200RugbyWorldCup.jpg)|
+202309082200|AyutthayaTemple|Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)|Les ruines d'un temple royal|![](/fr-FR/2023/09/202309082200AyutthayaTemple.jpg)|

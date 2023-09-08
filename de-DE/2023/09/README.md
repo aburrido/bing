@@ -8,3 +8,4 @@
 202309052200|CreteHarbor|Alter venezianischer Hafen, Rethymno, Kreta, Griechenland (© Gatsi/Getty Images)|Wo liegt dieser antike Hafen?|![](/de-DE/2023/09/202309052200CreteHarbor.jpg)|
 202309062200|ReichstagBeiNacht|Der Reichstag unter einem Sternenhimmel, Berlin (© MarioGuti/Getty Images)|Der Reichstag in all seiner Pracht|![](/de-DE/2023/09/202309062200ReichstagBeiNacht.jpg)|
 202309072200|BathCircus|Georgianisches Wohnhaus, The Circus Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austens literarischer Kreis|![](/de-DE/2023/09/202309072200BathCircus.jpg)|
+202309082200|AyutthayaTemple|Wat Chai Watthanaram, Historischer Park von Ayutthaya, Thailand (© Weerasak Saeku/Getty Images)|Ruinen eines königlichen Tempels|![](/de-DE/2023/09/202309082200AyutthayaTemple.jpg)|
