@@ -10,3 +10,4 @@
 202309071830|BathCircus|The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austen's literary circle|![](/en-IN/2023/09/202309071830BathCircus.jpg)|
 202309081830|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-IN/2023/09/202309081830AyutthayaTemple.jpg)|
 ||||![](/en-IN/2023/09/.jpg)|
+202309091830|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Whiskery wisdom|![](/en-IN/2023/09/202309091830WalrusSvalbard.jpg)|
