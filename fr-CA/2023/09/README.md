@@ -9,3 +9,4 @@
 202309070400|TIFFCanada|Vue panoramique du front de mer de la ville de Toronto au coucher du soleil (© Elena Elisseeva/Shutterstock)|Toronto, du popcorn et du ciné!|![](/fr-CA/2023/09/202309070400TIFFCanada.jpg)|
 202309080400|BathCircus|Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)|Un cercle « littéraire » pour Jane Austen|![](/fr-CA/2023/09/202309080400BathCircus.jpg)|
 202309090400|AyutthayaTemple|Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)|Les ruines d'un temple royal|![](/fr-CA/2023/09/202309090400AyutthayaTemple.jpg)|
+||||![](/fr-CA/2023/09/.jpg)|
