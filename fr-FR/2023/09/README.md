@@ -10,3 +10,4 @@
 202309072200|RugbyWorldCup|Parc Olympique Lyonnais, Groupama Stadium OL Vallée, Lyon (© dpa picture alliance/Alamy Stock Photo)|Allez les bleus !|![](/fr-FR/2023/09/202309072200RugbyWorldCup.jpg)|
 202309082200|AyutthayaTemple|Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)|Les ruines d'un temple royal|![](/fr-FR/2023/09/202309082200AyutthayaTemple.jpg)|
 ||||![](/fr-FR/2023/09/.jpg)|
+202309092200|CastelmazzanoSunrise|Castelmezzano, Italie (© Rudy Balasko/Shutterstock)|Un paysage de carte postale|![](/fr-FR/2023/09/202309092200CastelmazzanoSunrise.jpg)|
