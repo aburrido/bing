@@ -10,3 +10,4 @@
 202309070700|CamelsAbove|Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)|Ships of the desert, ahoy!|![](/en-US/2023/09/202309070700CamelsAbove.jpg)|
 202309080700|BathCircus|The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austen's literary circle|![](/en-US/2023/09/202309080700BathCircus.jpg)|
 ||||![](/en-US/2023/09/.jpg)|
+202309090700|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-US/2023/09/202309090700AyutthayaTemple.jpg)|
