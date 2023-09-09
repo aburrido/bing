@@ -8,3 +8,4 @@
 202309060400|CreteHarbor|Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)|Ready to drop anchor?|![](/en-CA/2023/09/202309060400CreteHarbor.jpg)|
 202309070400|TIFFCanada|Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)|Grab your popcorn, Toronto|![](/en-CA/2023/09/202309070400TIFFCanada.jpg)|
 202309080400|BathCircus|The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austen's literary circle|![](/en-CA/2023/09/202309080400BathCircus.jpg)|
+202309090400|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-CA/2023/09/202309090400AyutthayaTemple.jpg)|
