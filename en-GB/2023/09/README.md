@@ -10,3 +10,4 @@
 202309072300|BathCircus|Georgian housing, The Circus, Bath, Somerset, England (© Gavin Hellier/Getty Images)|Jane Austen's literary circle|![](/en-GB/2023/09/202309072300BathCircus.jpg)|
 202309082300|LastNightofProm|Royal Albert Hall seen from Albert Memorial in Hyde Park, London (© David Bank/Moment/Getty Images)|Where history and harmony unite|![](/en-GB/2023/09/202309082300LastNightofProm.jpg)|
 ||||![](/en-GB/2023/09/.jpg)|
+202309092300|MarathonMedoc|Bordeaux, France (© Esperanza33/Getty Images)|A misty Médoc morning|![](/en-GB/2023/09/202309092300MarathonMedoc.jpg)|
