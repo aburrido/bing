@@ -11,3 +11,4 @@
 202309082200|AyutthayaTemple|Wat Chai Watthanaram, Historischer Park von Ayutthaya, Thailand (© Weerasak Saeku/Getty Images)|Ruinen eines königlichen Tempels|![](/de-DE/2023/09/202309082200AyutthayaTemple.jpg)|
 ||||![](/de-DE/2023/09/.jpg)|
 202309092200|WalrusSvalbard|Walrosspaar auf See in Svalbard, Norwegen (© Mark Smith/Getty Images)|Unglaubliche Tiere, unglaubliche Inseln!|![](/de-DE/2023/09/202309092200WalrusSvalbard.jpg)|
+202309102200|MarathonMedoc|Sonnenaufgang über den Weinbergen in Médoc, Frankreich (© Esperanza33/Getty Images)|Wo Geschichte, Natur, Sport und Wein aufeinandertreffen|![](/de-DE/2023/09/202309102200MarathonMedoc.jpg)|

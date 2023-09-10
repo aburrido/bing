@@ -11,3 +11,4 @@
 202309082200|AyutthayaTemple|Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)|Les ruines d'un temple royal|![](/fr-FR/2023/09/202309082200AyutthayaTemple.jpg)|
 ||||![](/fr-FR/2023/09/.jpg)|
 202309092200|CastelmazzanoSunrise|Castelmezzano, Italie (© Rudy Balasko/Shutterstock)|Un paysage de carte postale|![](/fr-FR/2023/09/202309092200CastelmazzanoSunrise.jpg)|
+202309102200|MarathonMedoc|Lever du soleil dans un vignoble à Bordeaux, France (© Esperanza33/Getty Images)|Un vignoble millénaire|![](/fr-FR/2023/09/202309102200MarathonMedoc.jpg)|
