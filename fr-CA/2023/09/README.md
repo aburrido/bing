@@ -10,3 +10,4 @@
 202309080400|BathCircus|Maison géorgienne, The Circus, Bath, Somerset, Angleterre (© Gavin Hellier/Getty Images)|Un cercle « littéraire » pour Jane Austen|![](/fr-CA/2023/09/202309080400BathCircus.jpg)|
 202309090400|AyutthayaTemple|Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)|Les ruines d'un temple royal|![](/fr-CA/2023/09/202309090400AyutthayaTemple.jpg)|
 ||||![](/fr-CA/2023/09/.jpg)|
+202309100400|FrenchRiver|Rivière des Français, Ontario, Canada (© Tim Fitzharris/Minden)|Un lieu calme... et réfléchi|![](/fr-CA/2023/09/202309100400FrenchRiver.jpg)|
