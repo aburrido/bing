@@ -11,3 +11,4 @@
 202309081830|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-IN/2023/09/202309081830AyutthayaTemple.jpg)|
 ||||![](/en-IN/2023/09/.jpg)|
 202309091830|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Whiskery wisdom|![](/en-IN/2023/09/202309091830WalrusSvalbard.jpg)|
+202309101830|MarathonMedoc|Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)|A misty Médoc morning|![](/en-IN/2023/09/202309101830MarathonMedoc.jpg)|
