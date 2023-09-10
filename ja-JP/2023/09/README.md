@@ -11,3 +11,4 @@
 202309081500|DoubleNinth2023|菊の花 (© Maciej Figiel/Alamy Stock Photo)|今日は重陽の節句|![](/ja-JP/2023/09/202309081500DoubleNinth2023.jpg)|
 ||||![](/ja-JP/2023/09/.jpg)|
 202309091500|WalrusSvalbard|スバールバル諸島の海で泳ぐ 2 頭のセイウチ, ノルウェー (© Mark Smith/Getty Images)|今日は米国の祖父母の日|![](/ja-JP/2023/09/202309091500WalrusSvalbard.jpg)|
+202309101500|AyutthayaTemple|ワット・チャイワッタナーラーム, タイ (© Weerasak Saeku/Getty Images)|アユタヤ王朝の寺院遺跡|![](/ja-JP/2023/09/202309101500AyutthayaTemple.jpg)|
