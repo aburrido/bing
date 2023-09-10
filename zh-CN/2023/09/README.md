@@ -11,3 +11,4 @@
 202309081600|AyutthayaTemple|大城府历史公园的柴瓦塔那兰寺，泰国 (© Weerasak Saeku/Getty Images)|皇家寺庙的废墟|![](/zh-CN/2023/09/202309081600AyutthayaTemple.jpg)|
 ||||![](/zh-CN/2023/09/.jpg)|
 202309091600|WalrusSvalbard|斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)|长者的智慧|![](/zh-CN/2023/09/202309091600WalrusSvalbard.jpg)|
+202309101600|MarathonMedoc|波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)|历史、自然和美酒交汇之地|![](/zh-CN/2023/09/202309101600MarathonMedoc.jpg)|
