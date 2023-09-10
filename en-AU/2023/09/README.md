@@ -11,3 +11,4 @@
 202309080700|BathCircus|The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2023/09/202309080700BathCircus.jpg)|
 ||||![](/en-AU/2023/09/.jpg)|
 202309090700|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Info|![](/en-AU/2023/09/202309090700AyutthayaTemple.jpg)|
+202309100700|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Info|![](/en-AU/2023/09/202309100700WalrusSvalbard.jpg)|
