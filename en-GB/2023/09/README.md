@@ -11,3 +11,4 @@
 202309082300|LastNightofProm|Royal Albert Hall seen from Albert Memorial in Hyde Park, London (© David Bank/Moment/Getty Images)|Where history and harmony unite|![](/en-GB/2023/09/202309082300LastNightofProm.jpg)|
 ||||![](/en-GB/2023/09/.jpg)|
 202309092300|MarathonMedoc|Bordeaux, France (© Esperanza33/Getty Images)|A misty Médoc morning|![](/en-GB/2023/09/202309092300MarathonMedoc.jpg)|
+202309102300|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-GB/2023/09/202309102300AyutthayaTemple.jpg)|
