@@ -12,3 +12,4 @@
 ||||![](/en-AU/2023/09/.jpg)|
 202309090700|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Info|![](/en-AU/2023/09/202309090700AyutthayaTemple.jpg)|
 202309100700|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Info|![](/en-AU/2023/09/202309100700WalrusSvalbard.jpg)|
+202309110700|MarathonMedoc|Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)|Info|![](/en-AU/2023/09/202309110700MarathonMedoc.jpg)|
