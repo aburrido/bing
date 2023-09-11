@@ -12,3 +12,4 @@
 ||||![](/zh-CN/2023/09/.jpg)|
 202309091600|WalrusSvalbard|斯瓦尔巴群岛海上的一对海象，挪威 (© Mark Smith/Getty Images)|长者的智慧|![](/zh-CN/2023/09/202309091600WalrusSvalbard.jpg)|
 202309101600|MarathonMedoc|波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)|历史、自然和美酒交汇之地|![](/zh-CN/2023/09/202309101600MarathonMedoc.jpg)|
+202309111600|NorthSeaStairs|北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)|下一站，地平线。|![](/zh-CN/2023/09/202309111600NorthSeaStairs.jpg)|
