@@ -12,3 +12,4 @@
 ||||![](/en-IN/2023/09/.jpg)|
 202309091830|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Whiskery wisdom|![](/en-IN/2023/09/202309091830WalrusSvalbard.jpg)|
 202309101830|MarathonMedoc|Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)|A misty Médoc morning|![](/en-IN/2023/09/202309101830MarathonMedoc.jpg)|
+202309111830|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Next stop, the horizon|![](/en-IN/2023/09/202309111830NorthSeaStairs.jpg)|
