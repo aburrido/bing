@@ -11,3 +11,4 @@
 202309090400|AyutthayaTemple|Temple Wat Chaiwatthanaram, parc historique d'Ayutthaya, Thaïlande (© Weerasak Saeku/Getty Images)|Les ruines d'un temple royal|![](/fr-CA/2023/09/202309090400AyutthayaTemple.jpg)|
 ||||![](/fr-CA/2023/09/.jpg)|
 202309100400|FrenchRiver|Rivière des Français, Ontario, Canada (© Tim Fitzharris/Minden)|Un lieu calme... et réfléchi|![](/fr-CA/2023/09/202309100400FrenchRiver.jpg)|
+202309110400|MarathonMedoc|Lever du soleil dans un vignoble à Bordeaux, France (© Esperanza33/Getty Images)|Un vignoble millénaire|![](/fr-CA/2023/09/202309110400MarathonMedoc.jpg)|

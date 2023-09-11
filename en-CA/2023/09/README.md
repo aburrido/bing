@@ -11,3 +11,4 @@
 202309090400|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-CA/2023/09/202309090400AyutthayaTemple.jpg)|
 ||||![](/en-CA/2023/09/.jpg)|
 202309100400|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Whiskery wisdom|![](/en-CA/2023/09/202309100400WalrusSvalbard.jpg)|
+202309110400|FrenchRiver|French River, Ontario, Canada (© Tim Fitzharris/Minden)|A place to reflect|![](/en-CA/2023/09/202309110400FrenchRiver.jpg)|
