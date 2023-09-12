@@ -13,3 +13,4 @@
 202309091500|WalrusSvalbard|スバールバル諸島の海で泳ぐ 2 頭のセイウチ, ノルウェー (© Mark Smith/Getty Images)|今日は米国の祖父母の日|![](/ja-JP/2023/09/202309091500WalrusSvalbard.jpg)|
 202309101500|AyutthayaTemple|ワット・チャイワッタナーラーム, タイ (© Weerasak Saeku/Getty Images)|アユタヤ王朝の寺院遺跡|![](/ja-JP/2023/09/202309101500AyutthayaTemple.jpg)|
 202309111500|NorthSeaStairs|アムルム島のノルドドルフ, ドイツ  (© Frederick Doerschem/Getty Images)|ノルドドルフの遊歩道|![](/ja-JP/2023/09/202309111500NorthSeaStairs.jpg)|
+202309121500|HemakutaHill|ヘーマクータの丘寺院群, インド ハンピ (© Images of india/Alamy)|過去の栄光を物語る遺跡群|![](/ja-JP/2023/09/202309121500HemakutaHill.jpg)|
