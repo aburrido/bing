@@ -13,3 +13,4 @@
 202309092200|WalrusSvalbard|Walrosspaar auf See in Svalbard, Norwegen (© Mark Smith/Getty Images)|Unglaubliche Tiere, unglaubliche Inseln!|![](/de-DE/2023/09/202309092200WalrusSvalbard.jpg)|
 202309102200|MarathonMedoc|Sonnenaufgang über den Weinbergen in Médoc, Frankreich (© Esperanza33/Getty Images)|Wo Geschichte, Natur, Sport und Wein aufeinandertreffen|![](/de-DE/2023/09/202309102200MarathonMedoc.jpg)|
 202309112200|NorthSeaStairs|Nordsee bei Sonnenuntergang, Norddorf, Insel Amrum, Deutschland (© Frederick Doerschem/Getty Images)|Nächster Halt: der Horizont|![](/de-DE/2023/09/202309112200NorthSeaStairs.jpg)|
+202309122200|HemakutaHill|Tempel auf dem Hemakuta-Gebirge, Hampi, Karnataka, Indien (© Images of india/Alamy Stock Photo)|Geflüster der Vergangenheit|![](/de-DE/2023/09/202309122200HemakutaHill.jpg)|
