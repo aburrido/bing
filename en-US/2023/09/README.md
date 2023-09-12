@@ -13,3 +13,4 @@
 202309090700|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-US/2023/09/202309090700AyutthayaTemple.jpg)|
 202309100700|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Whiskery wisdom|![](/en-US/2023/09/202309100700WalrusSvalbard.jpg)|
 202309110700|BridgeMemorial|Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)|A 'Tribute in Light'|![](/en-US/2023/09/202309110700BridgeMemorial.jpg)|
+202309120700|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Next stop, the horizon|![](/en-US/2023/09/202309120700NorthSeaStairs.jpg)|
