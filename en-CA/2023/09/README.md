@@ -12,3 +12,4 @@
 ||||![](/en-CA/2023/09/.jpg)|
 202309100400|WalrusSvalbard|Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)|Whiskery wisdom|![](/en-CA/2023/09/202309100400WalrusSvalbard.jpg)|
 202309110400|FrenchRiver|French River, Ontario, Canada (© Tim Fitzharris/Minden)|A place to reflect|![](/en-CA/2023/09/202309110400FrenchRiver.jpg)|
+202309120400|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Next stop, the horizon|![](/en-CA/2023/09/202309120400NorthSeaStairs.jpg)|
