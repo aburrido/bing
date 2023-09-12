@@ -13,3 +13,4 @@
 202309092300|MarathonMedoc|Bordeaux, France (© Esperanza33/Getty Images)|A misty Médoc morning|![](/en-GB/2023/09/202309092300MarathonMedoc.jpg)|
 202309102300|AyutthayaTemple|Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)|Ruins of a royal temple|![](/en-GB/2023/09/202309102300AyutthayaTemple.jpg)|
 202309112300|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Next stop, the horizon|![](/en-GB/2023/09/202309112300NorthSeaStairs.jpg)|
+202309122300|HemakutaHill|Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy Stock Photo)|Whispers of the past|![](/en-GB/2023/09/202309122300HemakutaHill.jpg)|
