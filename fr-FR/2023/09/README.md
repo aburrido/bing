@@ -14,3 +14,4 @@
 202309102200|MarathonMedoc|Lever du soleil dans un vignoble à Bordeaux, France (© Esperanza33/Getty Images)|Un vignoble millénaire|![](/fr-FR/2023/09/202309102200MarathonMedoc.jpg)|
 202309112200|NorthSeaStairs|Mer du Nord au coucher du soleil, Norddorf, île d'Amrum, Allemagne (© Frederick Doerschem/Getty Images)|Le ciel, le soleil et la mer…|![](/fr-FR/2023/09/202309112200NorthSeaStairs.jpg)|
 202309122200|HemakutaHill|Temples sur la colline Hemakuta, Hampi, Karnataka, Inde (© Images of india/Alamy)|Des murmures qui viennent du passé|![](/fr-FR/2023/09/202309122200HemakutaHill.jpg)|
+202309132200|MongoliaHorses|Chevaux de Przewalski, parc national de Hustai, Mongolie (© Ondrej Prosicky/Shutterstock)|L’un des derniers chevaux sauvages|![](/fr-FR/2023/09/202309132200MongoliaHorses.jpg)|
