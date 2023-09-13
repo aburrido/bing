@@ -14,3 +14,4 @@
 202309101600|MarathonMedoc|波尔多葡萄园的日出，法国 (© Esperanza33/Getty Images)|历史、自然和美酒交汇之地|![](/zh-CN/2023/09/202309101600MarathonMedoc.jpg)|
 202309111600|NorthSeaStairs|北海日落，诺德多夫，德国 (© Frederick Doerschem/Getty Images)|下一站，地平线。|![](/zh-CN/2023/09/202309111600NorthSeaStairs.jpg)|
 202309121600|HemakutaHill|赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度 (© Images of india/Alamy Stock Photo)|往事的低语|![](/zh-CN/2023/09/202309121600HemakutaHill.jpg)|
+202309131600|MongoliaHorses|普氏野马，哈斯台国家公园，蒙古国 (© Ondrej Prosicky/Shutterstock)|只是两个朋友在玩闹而已|![](/zh-CN/2023/09/202309131600MongoliaHorses.jpg)|
