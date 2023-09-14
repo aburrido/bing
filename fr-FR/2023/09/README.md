@@ -15,3 +15,4 @@
 202309112200|NorthSeaStairs|Mer du Nord au coucher du soleil, Norddorf, île d'Amrum, Allemagne (© Frederick Doerschem/Getty Images)|Le ciel, le soleil et la mer…|![](/fr-FR/2023/09/202309112200NorthSeaStairs.jpg)|
 202309122200|HemakutaHill|Temples sur la colline Hemakuta, Hampi, Karnataka, Inde (© Images of india/Alamy)|Des murmures qui viennent du passé|![](/fr-FR/2023/09/202309122200HemakutaHill.jpg)|
 202309132200|MongoliaHorses|Chevaux de Przewalski, parc national de Hustai, Mongolie (© Ondrej Prosicky/Shutterstock)|L’un des derniers chevaux sauvages|![](/fr-FR/2023/09/202309132200MongoliaHorses.jpg)|
+202309142200|GlenariffForest|Coucher de soleil dans le parc forestier de Glenariff, comté d'Antrim, Irlande (© Peter Zelei/Getty Images)|Où se trouvent ces arbres enchevêtrés ?|![](/fr-FR/2023/09/202309142200GlenariffForest.jpg)|
