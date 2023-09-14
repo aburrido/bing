@@ -15,3 +15,4 @@
 202309110700|MarathonMedoc|Sunrise at a vineyard in Bordeaux, France (© Esperanza33/Getty Images)|Info|![](/en-AU/2023/09/202309110700MarathonMedoc.jpg)|
 202309120700|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Info|![](/en-AU/2023/09/202309120700NorthSeaStairs.jpg)|
 202309130700|HemakutaHill|Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)|Info|![](/en-AU/2023/09/202309130700HemakutaHill.jpg)|
+202309140700|MongoliaHorses|Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)|Info|![](/en-AU/2023/09/202309140700MongoliaHorses.jpg)|

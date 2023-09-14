@@ -15,3 +15,4 @@
 202309110700|BridgeMemorial|Brooklyn Bridge with the 'Tribute in Light' installation for 9/11, New York (© ANDREY DENISYUK/Getty Images)|A 'Tribute in Light'|![](/en-US/2023/09/202309110700BridgeMemorial.jpg)|
 202309120700|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Next stop, the horizon|![](/en-US/2023/09/202309120700NorthSeaStairs.jpg)|
 202309130700|HemakutaHill|Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)|Whispers of the past|![](/en-US/2023/09/202309130700HemakutaHill.jpg)|
+202309140700|MongoliaHorses|Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)|Just two pals horsin' around|![](/en-US/2023/09/202309140700MongoliaHorses.jpg)|
