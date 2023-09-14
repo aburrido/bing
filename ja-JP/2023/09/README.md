@@ -15,3 +15,4 @@
 202309111500|NorthSeaStairs|アムルム島のノルドドルフ, ドイツ  (© Frederick Doerschem/Getty Images)|ノルドドルフの遊歩道|![](/ja-JP/2023/09/202309111500NorthSeaStairs.jpg)|
 202309121500|HemakutaHill|ヘーマクータの丘寺院群, インド ハンピ (© Images of india/Alamy)|過去の栄光を物語る遺跡群|![](/ja-JP/2023/09/202309121500HemakutaHill.jpg)|
 202309131500|MongoliaHorses|ホスタイ国立公園のモウコノウマ, モンゴル (© Ondrej Prosicky/Shutterstock)|モンゴルで再野生化された馬|![](/ja-JP/2023/09/202309131500MongoliaHorses.jpg)|
+202309141500|Antilles|グランド・クルドサック・マリン, フランス (© Hemis/Alamy)|豊かなマングローブが生息する湾|![](/ja-JP/2023/09/202309141500Antilles.jpg)|
