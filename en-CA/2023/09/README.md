@@ -15,3 +15,4 @@
 202309120400|NorthSeaStairs|North Sea at sunset, Norddorf, Amrum Island, Germany (© Frederick Doerschem/Getty Images)|Next stop, the horizon|![](/en-CA/2023/09/202309120400NorthSeaStairs.jpg)|
 202309130400|HemakutaHill|Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)|Whispers of the past|![](/en-CA/2023/09/202309130400HemakutaHill.jpg)|
 202309140400|MongoliaHorses|Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)|Just two pals horsin’ around|![](/en-CA/2023/09/202309140400MongoliaHorses.jpg)|
+202309150400|GlenariffForest|Sunset in Glenariff Forest Park, County Antrim, Ireland (© Peter Zelei/Getty Images)|The Queen of the Glens|![](/en-CA/2023/09/202309150400GlenariffForest.jpg)|
