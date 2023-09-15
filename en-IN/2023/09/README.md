@@ -16,3 +16,4 @@
 202309121830|HemakutaHill|Temples on Hemakuta Hill, Hampi, Karnataka, India (© Images of india/Alamy)|Whispers of the past|![](/en-IN/2023/09/202309121830HemakutaHill.jpg)|
 202309131830|MongoliaHorses|Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)|Just two pals horsin’ around|![](/en-IN/2023/09/202309131830MongoliaHorses.jpg)|
 202309141830|UdaipurTemple|Inside of a temple at sunrise in India Udaipur (© Ronny Werner/Alamy Stock Photo)|The jewel of Rajasthan|![](/en-IN/2023/09/202309141830UdaipurTemple.jpg)|
+202309151830|SplugenPass|Splügen Pass, Graubunden, Switzerland (© Roberto Moiola/Getty Images)|Fasten your seatbelts!|![](/en-IN/2023/09/202309151830SplugenPass.jpg)|
