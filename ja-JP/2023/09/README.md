@@ -16,3 +16,4 @@
 202309121500|HemakutaHill|ヘーマクータの丘寺院群, インド ハンピ (© Images of india/Alamy)|過去の栄光を物語る遺跡群|![](/ja-JP/2023/09/202309121500HemakutaHill.jpg)|
 202309131500|MongoliaHorses|ホスタイ国立公園のモウコノウマ, モンゴル (© Ondrej Prosicky/Shutterstock)|モンゴルで再野生化された馬|![](/ja-JP/2023/09/202309131500MongoliaHorses.jpg)|
 202309141500|Antilles|グランド・クルドサック・マリン, フランス (© Hemis/Alamy)|豊かなマングローブが生息する湾|![](/ja-JP/2023/09/202309141500Antilles.jpg)|
+202309151500|SplugenPass|シュプリューゲン峠, スイス (© Roberto Moiola/Getty Images)|アルプスを越えた古来の道|![](/ja-JP/2023/09/202309151500SplugenPass.jpg)|
