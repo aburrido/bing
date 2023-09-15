@@ -16,3 +16,4 @@
 202309122200|HemakutaHill|Temples sur la colline Hemakuta, Hampi, Karnataka, Inde (© Images of india/Alamy)|Des murmures qui viennent du passé|![](/fr-FR/2023/09/202309122200HemakutaHill.jpg)|
 202309132200|MongoliaHorses|Chevaux de Przewalski, parc national de Hustai, Mongolie (© Ondrej Prosicky/Shutterstock)|L’un des derniers chevaux sauvages|![](/fr-FR/2023/09/202309132200MongoliaHorses.jpg)|
 202309142200|GlenariffForest|Coucher de soleil dans le parc forestier de Glenariff, comté d'Antrim, Irlande (© Peter Zelei/Getty Images)|Où se trouvent ces arbres enchevêtrés ?|![](/fr-FR/2023/09/202309142200GlenariffForest.jpg)|
+202309152200|OktoberfestWorkers|Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)|À votre santé !|![](/fr-FR/2023/09/202309152200OktoberfestWorkers.jpg)|

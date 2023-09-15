@@ -16,3 +16,4 @@
 202309122200|HemakutaHill|Tempel auf dem Hemakuta-Gebirge, Hampi, Karnataka, Indien (© Images of india/Alamy Stock Photo)|Geflüster der Vergangenheit|![](/de-DE/2023/09/202309122200HemakutaHill.jpg)|
 202309132200|MongoliaHorses|Przewalski-Pferde, Nationalpark Chustain Nuruu, Mongolei (© Ondrej Prosicky/Shutterstock)|Laufen und grasen tun die zwei in den endlosen Weiten der Mongolei|![](/de-DE/2023/09/202309132200MongoliaHorses.jpg)|
 202309142200|AerialCologne|Luftaufnahme von Köln (© Romas_Photo/Shutterstock)|Da simmer dabei, dat ist prima, Viva Colonia!|![](/de-DE/2023/09/202309142200AerialCologne.jpg)|
+202309152200|OktoberfestBrassBand|Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)|O’zapft is!|![](/de-DE/2023/09/202309152200OktoberfestBrassBand.jpg)|
