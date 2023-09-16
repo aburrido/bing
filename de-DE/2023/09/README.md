@@ -17,3 +17,4 @@
 202309132200|MongoliaHorses|Przewalski-Pferde, Nationalpark Chustain Nuruu, Mongolei (© Ondrej Prosicky/Shutterstock)|Laufen und grasen tun die zwei in den endlosen Weiten der Mongolei|![](/de-DE/2023/09/202309132200MongoliaHorses.jpg)|
 202309142200|AerialCologne|Luftaufnahme von Köln (© Romas_Photo/Shutterstock)|Da simmer dabei, dat ist prima, Viva Colonia!|![](/de-DE/2023/09/202309142200AerialCologne.jpg)|
 202309152200|OktoberfestBrassBand|Lederhosen und Tradition, Oktoberfest auf der Theresienwiese in München (© FooTToo/Getty Images)|O’zapft is!|![](/de-DE/2023/09/202309152200OktoberfestBrassBand.jpg)|
+202309162200|CubanTody|Vielfarbentodi, Alexander-von-Humboldt-Nationalpark, Kuba (© Bruno D'Amicis/Minden Pictures)|Welch hübsches Geschöpf|![](/de-DE/2023/09/202309162200CubanTody.jpg)|
