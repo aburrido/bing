@@ -17,3 +17,4 @@
 202309140400|MongoliaHorses|Przewalski's horses, Hustai National Park, Mongolia (© Ondrej Prosicky/Shutterstock)|Just two pals horsin’ around|![](/en-CA/2023/09/202309140400MongoliaHorses.jpg)|
 202309150400|GlenariffForest|Sunset in Glenariff Forest Park, County Antrim, Ireland (© Peter Zelei/Getty Images)|The Queen of the Glens|![](/en-CA/2023/09/202309150400GlenariffForest.jpg)|
 202309160400|OktoberfestWorkers|A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)|Prost to you and yours!|![](/en-CA/2023/09/202309160400OktoberfestWorkers.jpg)|
+202309170400|CubanTody|Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)|Can you answer the call?|![](/en-CA/2023/09/202309170400CubanTody.jpg)|

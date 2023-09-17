@@ -17,3 +17,4 @@
 202309140400|MongoliaHorses|Chevaux de Przewalski, parc national de Hustai, Mongolie (© Ondrej Prosicky/Shutterstock)|L’un des derniers chevaux sauvages|![](/fr-CA/2023/09/202309140400MongoliaHorses.jpg)|
 202309150400|GlenariffForest|Coucher de soleil dans le parc forestier de Glenariff, comté d'Antrim, Irlande (© Peter Zelei/Getty Images)|La Reine Mère des vallées !|![](/fr-CA/2023/09/202309150400GlenariffForest.jpg)|
 202309160400|OktoberfestWorkers|Toile de fond historique dans une tente lors de l'Oktoberfest à Theresienwiese, Munich, Allemagne (© Peter Kneffel/picture alliance via Getty Images)|À votre santé !|![](/fr-CA/2023/09/202309160400OktoberfestWorkers.jpg)|
+202309170400|CubanTody|Todier de Cuba, Parc national Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)|Quelle est cette créature toute mignonne?|![](/fr-CA/2023/09/202309170400CubanTody.jpg)|
