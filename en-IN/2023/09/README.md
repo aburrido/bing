@@ -18,3 +18,4 @@
 202309141830|UdaipurTemple|Inside of a temple at sunrise in India Udaipur (© Ronny Werner/Alamy Stock Photo)|The jewel of Rajasthan|![](/en-IN/2023/09/202309141830UdaipurTemple.jpg)|
 202309151830|SplugenPass|Splügen Pass, Graubunden, Switzerland (© Roberto Moiola/Getty Images)|Fasten your seatbelts!|![](/en-IN/2023/09/202309151830SplugenPass.jpg)|
 202309161830|CubanTody|Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)|Can you answer the call?|![](/en-IN/2023/09/202309161830CubanTody.jpg)|
+202309171830|MilkyWayPortugal|Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)|A rainbow's nocturnal cousin|![](/en-IN/2023/09/202309171830MilkyWayPortugal.jpg)|
