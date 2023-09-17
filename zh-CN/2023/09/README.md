@@ -18,3 +18,4 @@
 202309141600|GlenariffForest|格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰 (© Peter Zelei/Getty Images)|山谷女王|![](/zh-CN/2023/09/202309141600GlenariffForest.jpg)|
 202309151600|SplugenPass|施布吕根山口，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)|系好你的安全带！|![](/zh-CN/2023/09/202309151600SplugenPass.jpg)|
 202309161600|CubanTody|杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)|杂色短尾鴗|![](/zh-CN/2023/09/202309161600CubanTody.jpg)|
+202309171600|MilkyWayPortugal|西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)|黑夜里的“彩虹”|![](/zh-CN/2023/09/202309171600MilkyWayPortugal.jpg)|
