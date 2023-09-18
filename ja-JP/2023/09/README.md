@@ -19,3 +19,4 @@
 202309151500|SplugenPass|シュプリューゲン峠, スイス (© Roberto Moiola/Getty Images)|アルプスを越えた古来の道|![](/ja-JP/2023/09/202309151500SplugenPass.jpg)|
 202309161500|CubanTody|アレハンドロ・デ・フンボルト国立公園のキューバコビトドリ, キューバ (© Bruno D'Amicis/Minden Pictures)|小さくて鮮やかな鳥|![](/ja-JP/2023/09/202309161500CubanTody.jpg)|
 202309171500|AgedDay2023|コノハズク, 鳥取県 (© Eric Sohn Joo Tan/Minden)|今日は敬老の日|![](/ja-JP/2023/09/202309171500AgedDay2023.jpg)|
+202309181500|OktoberfestWorkers|オクトーバーフェストのビールテント, ドイツ ミュンヘン (© Peter Kneffel/picture alliance via Getty Images)|今日はオクトーバーフェストの開催日|![](/ja-JP/2023/09/202309181500OktoberfestWorkers.jpg)|
