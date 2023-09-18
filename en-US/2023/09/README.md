@@ -19,3 +19,4 @@
 202309150700|MissionRuins|Mission church ruins at Quarai, Salinas Pueblo Missions National Monument, New Mexico (© Thomas Roche/Getty Images)|Celebrating Hispanic heritage|![](/en-US/2023/09/202309150700MissionRuins.jpg)|
 202309160700|OktoberfestWorkers|A beer tent at Oktoberfest in Theresienwiese, Munich, Germany (© Peter Kneffel/picture alliance via Getty Images)|Prost to you and yours!|![](/en-US/2023/09/202309160700OktoberfestWorkers.jpg)|
 202309170700|CubanTody|Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)|Can you answer the call?|![](/en-US/2023/09/202309170700CubanTody.jpg)|
+202309180700|MilkyWayPortugal|Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)|A rainbow's nocturnal cousin|![](/en-US/2023/09/202309180700MilkyWayPortugal.jpg)|
