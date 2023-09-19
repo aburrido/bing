@@ -20,3 +20,4 @@
 202309162300|CubanTody|Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)|Can you answer the call?|![](/en-GB/2023/09/202309162300CubanTody.jpg)|
 202309172300|MilkyWayPortugal|Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)|A rainbow's nocturnal cousin|![](/en-GB/2023/09/202309172300MilkyWayPortugal.jpg)|
 202309182300|SplugenPass|Splügen Pass, Graubunden, Switzerland (© Roberto Moiola/Getty Images)|Fasten your seatbelts!|![](/en-GB/2023/09/202309182300SplugenPass.jpg)|
+202309192300|ArkadiaPark|Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)|Water under and over the bridge|![](/en-GB/2023/09/202309192300ArkadiaPark.jpg)|
