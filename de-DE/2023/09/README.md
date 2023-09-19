@@ -20,3 +20,4 @@
 202309162200|CubanTody|Vielfarbentodi, Alexander-von-Humboldt-Nationalpark, Kuba (© Bruno D'Amicis/Minden Pictures)|Welch hübsches Geschöpf|![](/de-DE/2023/09/202309162200CubanTody.jpg)|
 202309172200|MilkyWayPortugal|Milchstraße über dem Naturpark Südwest-Alentejo, Portugal (© Daniel Garrido/Getty Images)|Regenbögen im Universum|![](/de-DE/2023/09/202309172200MilkyWayPortugal.jpg)|
 202309182200|SplugenPass|Splügenpass, Graubünden, Schweiz (© Roberto Moiola/Getty Images)|Kehren, Kehren...Kehren wir zurück?|![](/de-DE/2023/09/202309182200SplugenPass.jpg)|
+202309192200|ArkadiaPark|Römisch inspiriertes Aquädukt, Arkadia Park, Polen (© PATSTOCK/Getty Images)|Wasser, sowohl über als auch unter der Brücke|![](/de-DE/2023/09/202309192200ArkadiaPark.jpg)|
