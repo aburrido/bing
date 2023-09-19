@@ -20,3 +20,4 @@
 202309161600|CubanTody|杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴 (© Bruno D'Amicis/Minden Pictures)|杂色短尾鴗|![](/zh-CN/2023/09/202309161600CubanTody.jpg)|
 202309171600|MilkyWayPortugal|西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙 (© Daniel Garrido/Getty Images)|黑夜里的“彩虹”|![](/zh-CN/2023/09/202309171600MilkyWayPortugal.jpg)|
 202309181600|HadriansWallUK|哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)|壁花的避风港|![](/zh-CN/2023/09/202309181600HadriansWallUK.jpg)|
+202309191600|ArkadiaPark|罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)|桥下和桥上的水流|![](/zh-CN/2023/09/202309191600ArkadiaPark.jpg)|
