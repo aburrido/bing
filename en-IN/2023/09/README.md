@@ -21,3 +21,4 @@
 202309171830|MilkyWayPortugal|Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)|A rainbow's nocturnal cousin|![](/en-IN/2023/09/202309171830MilkyWayPortugal.jpg)|
 202309181830|GaneshSculpture|Detail of an old Ganesh sculpture, Karnataka (© Bluberries/Getty Images)|Hail the Hindu God of wisdom|![](/en-IN/2023/09/202309181830GaneshSculpture.jpg)|
 202309191830|ArkadiaPark|Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)|Water under and over the bridge|![](/en-IN/2023/09/202309191830ArkadiaPark.jpg)|
+202309201830|NobelNorway|Inside the Nobel Peace Centre, Oslo, Norway (© Ilyas Ayub/Alamy)|Recognising champions of peace|![](/en-IN/2023/09/202309201830NobelNorway.jpg)|
