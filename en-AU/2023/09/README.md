@@ -21,3 +21,4 @@
 202309170700|CubanTody|Cuban tody, Alejandro de Humboldt National Park, Cuba (© Bruno D'Amicis/Minden Pictures)|Info|![](/en-AU/2023/09/202309170700CubanTody.jpg)|
 202309180700|MilkyWayPortugal|Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)|Info|![](/en-AU/2023/09/202309180700MilkyWayPortugal.jpg)|
 202309190700|HadriansWallUK|Hadrian's Wall, Northumberland National Park, England (© daverhead/Getty Images)|Info|![](/en-AU/2023/09/202309190700HadriansWallUK.jpg)|
+202309200700|ArkadiaPark|Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)|Info|![](/en-AU/2023/09/202309200700ArkadiaPark.jpg)|
