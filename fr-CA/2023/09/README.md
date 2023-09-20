@@ -20,3 +20,4 @@
 202309170400|CubanTody|Todier de Cuba, Parc national Alejandro de Humboldt, Cuba (© Bruno D'Amicis/Minden Pictures)|Quelle est cette créature toute mignonne?|![](/fr-CA/2023/09/202309170400CubanTody.jpg)|
 202309180400|MilkyWayPortugal|Voie lactée au-dessus du parc naturel du sud-ouest de l'Alentejo et de la côte vicentine, Portugal (© Daniel Garrido/Getty Images)|Un arc-en-ciel dans la nuit|![](/fr-CA/2023/09/202309180400MilkyWayPortugal.jpg)|
 202309190400|SplugenPass|Col de Splügen, Grisons, Suisse (© Roberto Moiola/Getty Images)|Attachez vos ceintures !|![](/fr-CA/2023/09/202309190400SplugenPass.jpg)|
+202309200400|ArkadiaPark|Aqueduc de style romain, parc d'Arkadia, Pologne (© PATSTOCK/Getty Images)|Les gardiens de l’eau|![](/fr-CA/2023/09/202309200400ArkadiaPark.jpg)|
