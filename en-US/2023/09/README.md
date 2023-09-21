@@ -22,3 +22,4 @@
 202309180700|MilkyWayPortugal|Milky Way over Southwest Alentejo and Vicentine Coast Natural Park, Portugal (© Daniel Garrido/Getty Images)|A rainbow's nocturnal cousin|![](/en-US/2023/09/202309180700MilkyWayPortugal.jpg)|
 202309190700|SplugenPass|Splügen Pass, Graubünden, Switzerland (© Roberto Moiola/Getty Images)|Fasten your seatbelts!|![](/en-US/2023/09/202309190700SplugenPass.jpg)|
 202309200700|ArkadiaPark|Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)|Water under and over the bridge|![](/en-US/2023/09/202309200700ArkadiaPark.jpg)|
+202309210700|NobelNorway|Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)|Recognizing champions of peace|![](/en-US/2023/09/202309210700NobelNorway.jpg)|
