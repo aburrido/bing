@@ -22,3 +22,4 @@
 202309181500|OktoberfestWorkers|オクトーバーフェストのビールテント, ドイツ ミュンヘン (© Peter Kneffel/picture alliance via Getty Images)|今日はオクトーバーフェストの開催日|![](/ja-JP/2023/09/202309181500OktoberfestWorkers.jpg)|
 202309191500|ArkadiaPark|アルカディア公園, ポーランド (© PATSTOCK/Getty Images)|ローマ風の水道橋|![](/ja-JP/2023/09/202309191500ArkadiaPark.jpg)|
 202309201500|NobelNorway|ノーベル平和センター, ノルウェー オスロ (© Ilyas Ayub/Alamy)|今日は国際平和デー|![](/ja-JP/2023/09/202309201500NobelNorway.jpg)|
+202309211500|ShamwariRhino|シャムワリ動物保護区, 南アフリカ (© David Silverman/Getty Images)|オスのミナミシロサイ|![](/ja-JP/2023/09/202309211500ShamwariRhino.jpg)|
