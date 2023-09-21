@@ -22,3 +22,4 @@
 202309181600|HadriansWallUK|哈德良长城，诺森伯兰郡国家公园，英国 (© daverhead/Getty Images)|壁花的避风港|![](/zh-CN/2023/09/202309181600HadriansWallUK.jpg)|
 202309191600|ArkadiaPark|罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)|桥下和桥上的水流|![](/zh-CN/2023/09/202309191600ArkadiaPark.jpg)|
 202309201600|NobelNorway|诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)|表彰和平卫士|![](/zh-CN/2023/09/202309201600NobelNorway.jpg)|
+202309211600|MarsalaSalt|马尔萨拉盐田，意大利 (© javarman3/Getty Images)|马尔萨拉，西西里岛的奇迹之一|![](/zh-CN/2023/09/202309211600MarsalaSalt.jpg)|
