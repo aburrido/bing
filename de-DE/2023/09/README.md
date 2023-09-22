@@ -23,3 +23,4 @@
 202309192200|ArkadiaPark|Römisch inspiriertes Aquädukt, Arkadia Park, Polen (© PATSTOCK/Getty Images)|Wasser, sowohl über als auch unter der Brücke|![](/de-DE/2023/09/202309192200ArkadiaPark.jpg)|
 202309202200|NobelNorway|Im Inneren des Nobel-Friedenszentrums, Oslo, Norwegen (© Ilyas Ayub/Alamy)|Anerkennung von Friedensaktivisten|![](/de-DE/2023/09/202309202200NobelNorway.jpg)|
 202309212200|ShamwariRhino|Zwei männliche Breitmaulnashörner, Shamwari Private Game Reserve, Südafrika (© David Silverman/Getty Images)|So groß und so niedlich!|![](/de-DE/2023/09/202309212200ShamwariRhino.jpg)|
+202309222200|CottonwoodCanyon|Cottonwood-Bäume und roter Sandstein in der Coyote Gulch, Glen Canyon National Recreation Area, Utah, USA (© Stephen Matera/Tandem Stills + Motion)|Blätter fallen, Äste knistern, der Herbst ist da, hören Sie sein Geflüster?|![](/de-DE/2023/09/202309222200CottonwoodCanyon.jpg)|

@@ -23,3 +23,4 @@
 202309192200|ArkadiaPark|Aqueduc de style romain, parc d'Arkadia, Pologne (© PATSTOCK/Getty Images)|Les gardiens de l’eau|![](/fr-FR/2023/09/202309192200ArkadiaPark.jpg)|
 202309202200|NobelNorway|Centre Nobel de la Paix, Oslo, Norvège (© Ilyas Ayub/Alamy)|La reconnaissance des défenseurs de la paix|![](/fr-FR/2023/09/202309202200NobelNorway.jpg)|
 202309212200|ShamwariRhino|Rhinocéros blancs du Sud, réserve de Shamwari, Afrique du Sud  (© David Silverman/Getty Images)|Des géants en sursis|![](/fr-FR/2023/09/202309212200ShamwariRhino.jpg)|
+202309222200|GastronomyDay|Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)|Une histoire de gastronomie à la française|![](/fr-FR/2023/09/202309222200GastronomyDay.jpg)|
