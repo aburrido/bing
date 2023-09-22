@@ -23,3 +23,4 @@
 202309191830|ArkadiaPark|Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)|Water under and over the bridge|![](/en-IN/2023/09/202309191830ArkadiaPark.jpg)|
 202309201830|NobelNorway|Inside the Nobel Peace Centre, Oslo, Norway (© Ilyas Ayub/Alamy)|Recognising champions of peace|![](/en-IN/2023/09/202309201830NobelNorway.jpg)|
 202309211830|ShamwariRhino|Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)|Sorry to crash your party|![](/en-IN/2023/09/202309211830ShamwariRhino.jpg)|
+202309221830|CottonwoodCanyon|Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Awash in autumn hues|![](/en-IN/2023/09/202309221830CottonwoodCanyon.jpg)|
