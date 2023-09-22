@@ -22,3 +22,4 @@
 202309190400|SplugenPass|Col de Splügen, Grisons, Suisse (© Roberto Moiola/Getty Images)|Attachez vos ceintures !|![](/fr-CA/2023/09/202309190400SplugenPass.jpg)|
 202309200400|ArkadiaPark|Aqueduc de style romain, parc d'Arkadia, Pologne (© PATSTOCK/Getty Images)|Les gardiens de l’eau|![](/fr-CA/2023/09/202309200400ArkadiaPark.jpg)|
 202309210400|NobelNorway|Centre Nobel de la Paix, Oslo, Norvège (© Ilyas Ayub/Alamy)|La reconnaissance des défenseurs de la paix|![](/fr-CA/2023/09/202309210400NobelNorway.jpg)|
+202309220400|ShamwariRhino|Rhinocéros blancs du Sud, réserve de Shamwari, Afrique du Sud (© David Silverman/Getty Images)|Des géants en sursis|![](/fr-CA/2023/09/202309220400ShamwariRhino.jpg)|
