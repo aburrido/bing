@@ -23,3 +23,4 @@
 202309191600|ArkadiaPark|罗马风格的渡槽，阿卡迪亚公园，波兰 (© PATSTOCK/Getty Images)|桥下和桥上的水流|![](/zh-CN/2023/09/202309191600ArkadiaPark.jpg)|
 202309201600|NobelNorway|诺贝尔和平中心内部，奥斯陆，挪威 (© Ilyas Ayub/Alamy)|表彰和平卫士|![](/zh-CN/2023/09/202309201600NobelNorway.jpg)|
 202309211600|MarsalaSalt|马尔萨拉盐田，意大利 (© javarman3/Getty Images)|马尔萨拉，西西里岛的奇迹之一|![](/zh-CN/2023/09/202309211600MarsalaSalt.jpg)|
+202309221600|CottonwoodCanyon|郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)|沐浴在秋天的色彩中|![](/zh-CN/2023/09/202309221600CottonwoodCanyon.jpg)|
