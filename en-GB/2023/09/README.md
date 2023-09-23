@@ -24,3 +24,4 @@
 202309202300|NobelNorway|Inside the Nobel Peace Centre, Oslo, Norway (© Ilyas Ayub/Alamy)|Recognising champions of peace|![](/en-GB/2023/09/202309202300NobelNorway.jpg)|
 202309212300|CastellyGwyntUK|Castell y Gwynt, Glyder Fach, Snowdonia National Park, North Wales, UK (© Alan Novelli/Alamy Stock Photo)|There and back again|![](/en-GB/2023/09/202309212300CastellyGwyntUK.jpg)|
 202309222300|CottonwoodCanyon|Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Awash in autumn hues|![](/en-GB/2023/09/202309222300CottonwoodCanyon.jpg)|
+202309232300|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Trickle, babble or roar|![](/en-GB/2023/09/202309232300FraserRiverBC.jpg)|
