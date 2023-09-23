@@ -24,3 +24,4 @@
 202309201830|NobelNorway|Inside the Nobel Peace Centre, Oslo, Norway (© Ilyas Ayub/Alamy)|Recognising champions of peace|![](/en-IN/2023/09/202309201830NobelNorway.jpg)|
 202309211830|ShamwariRhino|Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)|Sorry to crash your party|![](/en-IN/2023/09/202309211830ShamwariRhino.jpg)|
 202309221830|CottonwoodCanyon|Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Awash in autumn hues|![](/en-IN/2023/09/202309221830CottonwoodCanyon.jpg)|
+202309231830|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Trickle, babble or roar|![](/en-IN/2023/09/202309231830FraserRiverBC.jpg)|
