@@ -24,3 +24,4 @@
 202309200700|ArkadiaPark|Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)|Info|![](/en-AU/2023/09/202309200700ArkadiaPark.jpg)|
 202309210700|NobelNorway|Inside the Nobel Peace Centre, Oslo, Norway (© Ilyas Ayub/Alamy)|Info|![](/en-AU/2023/09/202309210700NobelNorway.jpg)|
 202309220700|MarsalaSalt|Marsala salt pans, Italy (© javarman3/Getty Images)|Info|![](/en-AU/2023/09/202309220700MarsalaSalt.jpg)|
+202309230700|CottonwoodCanyon|Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Info|![](/en-AU/2023/09/202309230700CottonwoodCanyon.jpg)|
