@@ -24,3 +24,4 @@
 202309210400|NobelNorway|Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)|Recognising champions of peace|![](/en-CA/2023/09/202309210400NobelNorway.jpg)|
 202309220400|ShamwariRhino|Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)|Sorry to crash your party|![](/en-CA/2023/09/202309220400ShamwariRhino.jpg)|
 202309230400|NuitBlanche|The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)|Toronto goes nocturnal|![](/en-CA/2023/09/202309230400NuitBlanche.jpg)|
+202309240400|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Trickle, babble, or roar|![](/en-CA/2023/09/202309240400FraserRiverBC.jpg)|

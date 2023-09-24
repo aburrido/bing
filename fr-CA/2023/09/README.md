@@ -24,3 +24,4 @@
 202309210400|NobelNorway|Centre Nobel de la Paix, Oslo, Norvège (© Ilyas Ayub/Alamy)|La reconnaissance des défenseurs de la paix|![](/fr-CA/2023/09/202309210400NobelNorway.jpg)|
 202309220400|ShamwariRhino|Rhinocéros blancs du Sud, réserve de Shamwari, Afrique du Sud (© David Silverman/Getty Images)|Des géants en sursis|![](/fr-CA/2023/09/202309220400ShamwariRhino.jpg)|
 202309230400|NuitBlanche|L'installation lumineuse "Global Rainbow" de l'artiste Yvette Mattern (© David Cooper/Contributor/Getty Images)|Toronto la nuit|![](/fr-CA/2023/09/202309230400NuitBlanche.jpg)|
+202309240400|FraserRiverBC|Le fleuve Fraser près du mont Robson, Colombie-Britannique, Canada (© phototropic/Getty Images)|Bruits sourds, gazouillis ou grondements ?|![](/fr-CA/2023/09/202309240400FraserRiverBC.jpg)|
