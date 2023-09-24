@@ -25,3 +25,4 @@
 202309211600|MarsalaSalt|马尔萨拉盐田，意大利 (© javarman3/Getty Images)|马尔萨拉，西西里岛的奇迹之一|![](/zh-CN/2023/09/202309211600MarsalaSalt.jpg)|
 202309221600|CottonwoodCanyon|郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州 (© Stephen Matera/Tandem Stills + Motion)|沐浴在秋天的色彩中|![](/zh-CN/2023/09/202309221600CottonwoodCanyon.jpg)|
 202309231600|FraserRiverBC|罗布森山附近的弗雷泽河，大不列颠哥伦比亚省，加拿大 (© phototropic/Getty Images)|时而潺潺细流，时而奔腾咆哮|![](/zh-CN/2023/09/202309231600FraserRiverBC.jpg)|
+202309241600|GlacierBayOtter|巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)|躺下来放松一下吧|![](/zh-CN/2023/09/202309241600GlacierBayOtter.jpg)|
