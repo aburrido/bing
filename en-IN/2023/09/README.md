@@ -26,3 +26,4 @@
 202309221830|CottonwoodCanyon|Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Awash in autumn hues|![](/en-IN/2023/09/202309221830CottonwoodCanyon.jpg)|
 202309231830|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Trickle, babble or roar|![](/en-IN/2023/09/202309231830FraserRiverBC.jpg)|
 202309241830|GlacierBayOtter|Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Kick back, snack and relax|![](/en-IN/2023/09/202309241830GlacierBayOtter.jpg)|
+202309251830|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Waves for wheels|![](/en-IN/2023/09/202309251830VeniceSkatePark.jpg)|
