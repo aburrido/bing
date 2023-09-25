@@ -26,3 +26,4 @@
 202309222200|CottonwoodCanyon|Cottonwood-Bäume und roter Sandstein in der Coyote Gulch, Glen Canyon National Recreation Area, Utah, USA (© Stephen Matera/Tandem Stills + Motion)|Blätter fallen, Äste knistern, der Herbst ist da, hören Sie sein Geflüster?|![](/de-DE/2023/09/202309222200CottonwoodCanyon.jpg)|
 202309232200|BerlinMarathon|Berlin Marathon Skyline mit Sonnenlicht, Berlin (© Matthias Makarinus/Getty Images)|Laufen zur Siegessäule, welch goldene Freude!|![](/de-DE/2023/09/202309232200BerlinMarathon.jpg)|
 202309242200|GlacierBayOtter|Seeotter in der Bartlett-Bucht, Glacier-Bay-Nationalpark, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)|Einfach mal abschalten!|![](/de-DE/2023/09/202309242200GlacierBayOtter.jpg)|
+202309252200|VeniceSkatePark|Venice Beach Skatepark bei Sonnenuntergang, Los Angeles, Kalifornien (© EXTREME-PHOTOGRAPHER/Getty Images)|Palmen, Skateboard, Meer und Sonne!|![](/de-DE/2023/09/202309252200VeniceSkatePark.jpg)|

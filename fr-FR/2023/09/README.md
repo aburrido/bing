@@ -26,3 +26,4 @@
 202309222200|GastronomyDay|Parc ostréicole à La Faute-sur-Mer, Pointe d'Arcay France, Vendée (© LEROY Francis/hemis.fr)|Une histoire de gastronomie à la française|![](/fr-FR/2023/09/202309222200GastronomyDay.jpg)|
 202309232200|GenoeseTower|Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)|La gardienne des Îles Sanguinaires|![](/fr-FR/2023/09/202309232200GenoeseTower.jpg)|
 202309242200|GlacierBayOtter|Loutre de mer à Bartlett Cove, parc national et réserve de Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Détente, restauration et relaxation !|![](/fr-FR/2023/09/202309242200GlacierBayOtter.jpg)|
+202309252200|VeniceSkatePark|Skatepark de Venice Beach au coucher du soleil, Los Angeles, Californie (© EXTREME-PHOTOGRAPHER/Getty Images)|En roue libre !|![](/fr-FR/2023/09/202309252200VeniceSkatePark.jpg)|
