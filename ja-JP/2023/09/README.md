@@ -26,3 +26,4 @@
 202309221500|Qiufen2023|巾着田の彼岸花, 埼玉県 日高市 (© Deseree Joy Villanueva/Getty Images)|今日は秋分の日|![](/ja-JP/2023/09/202309221500Qiufen2023.jpg)|
 202309231500|FraserRiverBC|リアガード滝州立公園を流れるフレーザー川, カナダ ブリティッシュコロンビア州 (© phototropic/Getty Images)|今日は世界川の日|![](/ja-JP/2023/09/202309231500FraserRiverBC.jpg)|
 202309241500|GlacierBayOtter|グレイシャーベイ国立公園, 米国 アラスカ州 (© Andrew Peacock/Tandem Stills + Motion)|昆布を巻き付けて休むラッコ|![](/ja-JP/2023/09/202309241500GlacierBayOtter.jpg)|
+202309251500|VeniceSkatePark|ベニススケートパーク, 米国 カリフォルニア州 (© EXTREME-PHOTOGRAPHER/Getty Images)|スケーターの楽園|![](/ja-JP/2023/09/202309251500VeniceSkatePark.jpg)|
