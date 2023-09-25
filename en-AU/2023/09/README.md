@@ -26,3 +26,4 @@
 202309220700|MarsalaSalt|Marsala salt pans, Italy (© javarman3/Getty Images)|Info|![](/en-AU/2023/09/202309220700MarsalaSalt.jpg)|
 202309230700|CottonwoodCanyon|Cottonwood trees and red sandstone in Coyote Gulch, Glen Canyon National Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Info|![](/en-AU/2023/09/202309230700CottonwoodCanyon.jpg)|
 202309240700|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Info|![](/en-AU/2023/09/202309240700FraserRiverBC.jpg)|
+202309250700|GlacierBayOtter|Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Info|![](/en-AU/2023/09/202309250700GlacierBayOtter.jpg)|
