@@ -27,3 +27,4 @@
 202309231830|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Trickle, babble or roar|![](/en-IN/2023/09/202309231830FraserRiverBC.jpg)|
 202309241830|GlacierBayOtter|Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Kick back, snack and relax|![](/en-IN/2023/09/202309241830GlacierBayOtter.jpg)|
 202309251830|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Waves for wheels|![](/en-IN/2023/09/202309251830VeniceSkatePark.jpg)|
+202309261830|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-IN/2023/09/202309261830CapriKrupp.jpg)|
