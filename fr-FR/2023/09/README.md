@@ -27,3 +27,4 @@
 202309232200|GenoeseTower|Coucher de soleil sur la tour Génoise de la Parata et les Iles Sanguinaires, Ajaccio, Corse (© Jon Ingall/Alamy Stock Photo)|La gardienne des Îles Sanguinaires|![](/fr-FR/2023/09/202309232200GenoeseTower.jpg)|
 202309242200|GlacierBayOtter|Loutre de mer à Bartlett Cove, parc national et réserve de Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Détente, restauration et relaxation !|![](/fr-FR/2023/09/202309242200GlacierBayOtter.jpg)|
 202309252200|VeniceSkatePark|Skatepark de Venice Beach au coucher du soleil, Los Angeles, Californie (© EXTREME-PHOTOGRAPHER/Getty Images)|En roue libre !|![](/fr-FR/2023/09/202309252200VeniceSkatePark.jpg)|
+202309262200|CapriKrupp|Via Krupp sur l’île de Capri, Italie (© Mikolaj Niemczewski/Shutterstock)|Le bonheur au bout du chemin|![](/fr-FR/2023/09/202309262200CapriKrupp.jpg)|
