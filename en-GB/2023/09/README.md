@@ -28,3 +28,4 @@
 202309242300|GlacierBayOtter|Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Kick back, snack and relax|![](/en-GB/2023/09/202309242300GlacierBayOtter.jpg)|
 202309252300|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Waves for wheels|![](/en-GB/2023/09/202309252300VeniceSkatePark.jpg)|
 202309262300|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-GB/2023/09/202309262300CapriKrupp.jpg)|
+202309272300|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-GB/2023/09/202309272300MaritimeDay.jpg)|
