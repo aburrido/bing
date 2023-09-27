@@ -28,3 +28,4 @@
 202309241600|GlacierBayOtter|巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州 (© Andrew Peacock/Tandem Stills + Motion)|躺下来放松一下吧|![](/zh-CN/2023/09/202309241600GlacierBayOtter.jpg)|
 202309251600|VeniceSkatePark|日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州 (© EXTREME-PHOTOGRAPHER/Getty Images)|给滑板“冲浪”的波浪|![](/zh-CN/2023/09/202309251600VeniceSkatePark.jpg)|
 202309261600|CapriKrupp|克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)|缓慢平稳地攀登悬崖|![](/zh-CN/2023/09/202309261600CapriKrupp.jpg)|
+202309271600|MaritimeDay|泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images)|遵命！船长！|![](/zh-CN/2023/09/202309271600MaritimeDay.jpg)|
