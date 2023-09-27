@@ -28,3 +28,4 @@
 202309240700|FraserRiverBC|The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)|Info|![](/en-AU/2023/09/202309240700FraserRiverBC.jpg)|
 202309250700|GlacierBayOtter|Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Info|![](/en-AU/2023/09/202309250700GlacierBayOtter.jpg)|
 202309260700|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Info|![](/en-AU/2023/09/202309260700VeniceSkatePark.jpg)|
+202309270700|FrenchRiver|French River, Ontario, Canada (© Tim Fitzharris/Minden)|Info|![](/en-AU/2023/09/202309270700FrenchRiver.jpg)|
