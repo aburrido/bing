@@ -28,3 +28,4 @@
 202309242200|GlacierBayOtter|Loutre de mer à Bartlett Cove, parc national et réserve de Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Détente, restauration et relaxation !|![](/fr-FR/2023/09/202309242200GlacierBayOtter.jpg)|
 202309252200|VeniceSkatePark|Skatepark de Venice Beach au coucher du soleil, Los Angeles, Californie (© EXTREME-PHOTOGRAPHER/Getty Images)|En roue libre !|![](/fr-FR/2023/09/202309252200VeniceSkatePark.jpg)|
 202309262200|CapriKrupp|Via Krupp sur l’île de Capri, Italie (© Mikolaj Niemczewski/Shutterstock)|Le bonheur au bout du chemin|![](/fr-FR/2023/09/202309262200CapriKrupp.jpg)|
+202309272200|MaritimeDay|Porte-conteneurs près d'un port commercial en Thaïlande (© Suriyapong Thongsawang/Getty Images)|Ohé, ohé, matelot !|![](/fr-FR/2023/09/202309272200MaritimeDay.jpg)|
