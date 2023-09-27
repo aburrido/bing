@@ -27,3 +27,4 @@
 202309240400|FraserRiverBC|Le fleuve Fraser près du mont Robson, Colombie-Britannique, Canada (© phototropic/Getty Images)|Bruits sourds, gazouillis ou grondements ?|![](/fr-CA/2023/09/202309240400FraserRiverBC.jpg)|
 202309250400|GlacierBayOtter|Loutre de mer à Bartlett Cove, parc national et réserve de Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)|Détente, restauration et relaxation!|![](/fr-CA/2023/09/202309250400GlacierBayOtter.jpg)|
 202309260400|VeniceSkatePark|Skatepark de Venice Beach au coucher du soleil, Los Angeles, Californie (© EXTREME-PHOTOGRAPHER/Getty Images)|En roue libre !|![](/fr-CA/2023/09/202309260400VeniceSkatePark.jpg)|
+202309270400|CapriKrupp|Via Krupp sur l’île de Capri, Italie (© Mikolaj Niemczewski/Shutterstock)|Le bonheur au bout du chemin|![](/fr-CA/2023/09/202309270400CapriKrupp.jpg)|
