@@ -29,3 +29,4 @@
 202309252200|VeniceSkatePark|Venice Beach Skatepark bei Sonnenuntergang, Los Angeles, Kalifornien (© EXTREME-PHOTOGRAPHER/Getty Images)|Palmen, Skateboard, Meer und Sonne!|![](/de-DE/2023/09/202309252200VeniceSkatePark.jpg)|
 202309262200|CapriKrupp|Via Krupp, Capri, Italien (© Mikolaj Niemczewski/Shutterstock)|Italienische Haarnadelkurven|![](/de-DE/2023/09/202309262200CapriKrupp.jpg)|
 202309272200|MaritimeDay|Containerschiff in der Nähe eines Handelshafens in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, Käpt’n!|![](/de-DE/2023/09/202309272200MaritimeDay.jpg)|
+202309282200|GuiyangMoon|Jiaxiu-Pagode bei Vollmond, Guiyang, Provinz Guizhou, China (© Wang Yukun/Getty Images)|Im Blick des Vollmondes!|![](/de-DE/2023/09/202309282200GuiyangMoon.jpg)|

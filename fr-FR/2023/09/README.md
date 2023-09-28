@@ -29,3 +29,4 @@
 202309252200|VeniceSkatePark|Skatepark de Venice Beach au coucher du soleil, Los Angeles, Californie (© EXTREME-PHOTOGRAPHER/Getty Images)|En roue libre !|![](/fr-FR/2023/09/202309252200VeniceSkatePark.jpg)|
 202309262200|CapriKrupp|Via Krupp sur l’île de Capri, Italie (© Mikolaj Niemczewski/Shutterstock)|Le bonheur au bout du chemin|![](/fr-FR/2023/09/202309262200CapriKrupp.jpg)|
 202309272200|MaritimeDay|Porte-conteneurs près d'un port commercial en Thaïlande (© Suriyapong Thongsawang/Getty Images)|Ohé, ohé, matelot !|![](/fr-FR/2023/09/202309272200MaritimeDay.jpg)|
+202309282200|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Lune d’automne|![](/fr-FR/2023/09/202309282200GuiyangMoon.jpg)|
