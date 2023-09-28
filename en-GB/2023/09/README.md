@@ -29,3 +29,4 @@
 202309252300|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Waves for wheels|![](/en-GB/2023/09/202309252300VeniceSkatePark.jpg)|
 202309262300|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-GB/2023/09/202309262300CapriKrupp.jpg)|
 202309272300|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-GB/2023/09/202309272300MaritimeDay.jpg)|
+202309282300|CastleCoch|Castell Coch, Tongwynlais, Cardiff, Wales, United Kingdom, Europe (© Billy Stock/robertharding/Alamy Stock Photo)|A fairytale castle|![](/en-GB/2023/09/202309282300CastleCoch.jpg)|
