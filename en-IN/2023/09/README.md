@@ -29,3 +29,4 @@
 202309251830|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Waves for wheels|![](/en-IN/2023/09/202309251830VeniceSkatePark.jpg)|
 202309261830|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-IN/2023/09/202309261830CapriKrupp.jpg)|
 202309271830|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-IN/2023/09/202309271830MaritimeDay.jpg)|
+202309281830|SangameswaraTemple|The Sangameswara Temple is part of the the former capital Kisuvolal of the Chalukya Dynasty (© Frank Bienewald/Alamy Stock Photo)|A sacred sanctuary|![](/en-IN/2023/09/202309281830SangameswaraTemple.jpg)|
