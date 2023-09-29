@@ -30,3 +30,4 @@
 202309262200|CapriKrupp|Via Krupp sur l’île de Capri, Italie (© Mikolaj Niemczewski/Shutterstock)|Le bonheur au bout du chemin|![](/fr-FR/2023/09/202309262200CapriKrupp.jpg)|
 202309272200|MaritimeDay|Porte-conteneurs près d'un port commercial en Thaïlande (© Suriyapong Thongsawang/Getty Images)|Ohé, ohé, matelot !|![](/fr-FR/2023/09/202309272200MaritimeDay.jpg)|
 202309282200|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Lune d’automne|![](/fr-FR/2023/09/202309282200GuiyangMoon.jpg)|
+202309292200|ShenandoahFoliage|Couleurs d'automne dans le parc national de Shenandoah, Virginie (© Michael Ver Sprill/Getty Images)|Légende d’automne|![](/fr-FR/2023/09/202309292200ShenandoahFoliage.jpg)|
