@@ -30,3 +30,4 @@
 202309262300|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-GB/2023/09/202309262300CapriKrupp.jpg)|
 202309272300|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-GB/2023/09/202309272300MaritimeDay.jpg)|
 202309282300|CastleCoch|Castell Coch, Tongwynlais, Cardiff, Wales, United Kingdom, Europe (© Billy Stock/robertharding/Alamy Stock Photo)|A fairytale castle|![](/en-GB/2023/09/202309282300CastleCoch.jpg)|
+202309292300|ShenandoahFoliage|Fall colours in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)|A glade of gold|![](/en-GB/2023/09/202309292300ShenandoahFoliage.jpg)|
