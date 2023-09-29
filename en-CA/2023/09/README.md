@@ -29,3 +29,4 @@
 202309260400|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Waves for wheels|![](/en-CA/2023/09/202309260400VeniceSkatePark.jpg)|
 202309270400|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-CA/2023/09/202309270400CapriKrupp.jpg)|
 202309280400|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-CA/2023/09/202309280400MaritimeDay.jpg)|
+202309290400|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Under the full moon's gaze|![](/en-CA/2023/09/202309290400GuiyangMoon.jpg)|
