@@ -30,3 +30,4 @@
 202309260700|VeniceSkatePark|Venice Beach Skatepark at sunset, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)|Info|![](/en-AU/2023/09/202309260700VeniceSkatePark.jpg)|
 202309270700|FrenchRiver|French River, Ontario, Canada (© Tim Fitzharris/Minden)|Info|![](/en-AU/2023/09/202309270700FrenchRiver.jpg)|
 202309280700|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Info|![](/en-AU/2023/09/202309280700MaritimeDay.jpg)|
+202309290700|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Info|![](/en-AU/2023/09/202309290700GuiyangMoon.jpg)|
