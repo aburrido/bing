@@ -30,3 +30,4 @@
 202309261600|CapriKrupp|克虏伯路，卡普里岛，意大利 (© Mikolaj Niemczewski/Shutterstock)|缓慢平稳地攀登悬崖|![](/zh-CN/2023/09/202309261600CapriKrupp.jpg)|
 202309271600|MaritimeDay|泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images)|遵命！船长！|![](/zh-CN/2023/09/202309271600MaritimeDay.jpg)|
 202309281600|GuiyangMoon|满月下的甲秀楼，中国贵州省贵阳市 (© Wang Yukun/Getty Images)|举杯邀明月|![](/zh-CN/2023/09/202309281600GuiyangMoon.jpg)|
+202309291600|ShenandoahFoliage|仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images)|啊！仙纳度|![](/zh-CN/2023/09/202309291600ShenandoahFoliage.jpg)|
