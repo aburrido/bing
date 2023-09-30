@@ -31,3 +31,4 @@
 202309271600|MaritimeDay|泰国商业港口附近的集装箱船 (© Suriyapong Thongsawang/Getty Images)|遵命！船长！|![](/zh-CN/2023/09/202309271600MaritimeDay.jpg)|
 202309281600|GuiyangMoon|满月下的甲秀楼，中国贵州省贵阳市 (© Wang Yukun/Getty Images)|举杯邀明月|![](/zh-CN/2023/09/202309281600GuiyangMoon.jpg)|
 202309291600|ShenandoahFoliage|仙纳度国家公园的秋色，弗吉尼亚州 (© Michael Ver Sprill/Getty Images)|啊！仙纳度|![](/zh-CN/2023/09/202309291600ShenandoahFoliage.jpg)|
+202309301600|NationalDay2023|雄伟壮丽的中国长城 (© Jeff_Hu/Getty Images)|生日快乐|![](/zh-CN/2023/09/202309301600NationalDay2023.jpg)|
