@@ -31,3 +31,4 @@
 202309272200|MaritimeDay|Containerschiff in der Nähe eines Handelshafens in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, Käpt’n!|![](/de-DE/2023/09/202309272200MaritimeDay.jpg)|
 202309282200|GuiyangMoon|Jiaxiu-Pagode bei Vollmond, Guiyang, Provinz Guizhou, China (© Wang Yukun/Getty Images)|Im Blick des Vollmondes!|![](/de-DE/2023/09/202309282200GuiyangMoon.jpg)|
 202309292200|ShenandoahFoliage|Herbstfarben im Shenandoah-Nationalpark, Virginia, USA (© Michael Ver Sprill/Getty Images)|Mein lieber Herbst, wie schön du dich färbst!|![](/de-DE/2023/09/202309292200ShenandoahFoliage.jpg)|
+202309302200|LakeBledSunrise|Der Bleder See, von Osojnica aus bei Sonnenaufgang gesehen, Slowenien (© Rasica/Getty Images)|See und Sonne, welch große Wonne!|![](/de-DE/2023/09/202309302200LakeBledSunrise.jpg)|

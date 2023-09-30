@@ -31,3 +31,4 @@
 202309272200|MaritimeDay|Porte-conteneurs près d'un port commercial en Thaïlande (© Suriyapong Thongsawang/Getty Images)|Ohé, ohé, matelot !|![](/fr-FR/2023/09/202309272200MaritimeDay.jpg)|
 202309282200|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Lune d’automne|![](/fr-FR/2023/09/202309282200GuiyangMoon.jpg)|
 202309292200|ShenandoahFoliage|Couleurs d'automne dans le parc national de Shenandoah, Virginie (© Michael Ver Sprill/Getty Images)|Légende d’automne|![](/fr-FR/2023/09/202309292200ShenandoahFoliage.jpg)|
+202309302200|LakeBledSunrise|Lac Bled depuis le panorama d'Osojnica au lever du soleil, Slovénie (© Rasica/Getty Images)|Réveil au bord du lac|![](/fr-FR/2023/09/202309302200LakeBledSunrise.jpg)|
