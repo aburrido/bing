@@ -31,3 +31,4 @@
 202309272300|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-GB/2023/09/202309272300MaritimeDay.jpg)|
 202309282300|CastleCoch|Castell Coch, Tongwynlais, Cardiff, Wales, United Kingdom, Europe (© Billy Stock/robertharding/Alamy Stock Photo)|A fairytale castle|![](/en-GB/2023/09/202309282300CastleCoch.jpg)|
 202309292300|ShenandoahFoliage|Fall colours in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)|A glade of gold|![](/en-GB/2023/09/202309292300ShenandoahFoliage.jpg)|
+202309302300|LakeBledSunrise|Lake Bled, Slovenia (© Rasica/Getty Images)|Awake to the lake|![](/en-GB/2023/09/202309302300LakeBledSunrise.jpg)|
