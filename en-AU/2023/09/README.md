@@ -31,3 +31,4 @@
 202309270700|FrenchRiver|French River, Ontario, Canada (© Tim Fitzharris/Minden)|Info|![](/en-AU/2023/09/202309270700FrenchRiver.jpg)|
 202309280700|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Info|![](/en-AU/2023/09/202309280700MaritimeDay.jpg)|
 202309290700|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Info|![](/en-AU/2023/09/202309290700GuiyangMoon.jpg)|
+202309300700|ShenandoahFoliage|Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)|Info|![](/en-AU/2023/09/202309300700ShenandoahFoliage.jpg)|
