@@ -30,3 +30,4 @@
 202309270400|CapriKrupp|The Via Krupp footpath on Capri island, Italy (© Mikolaj Niemczewski/Shutterstock)|Slow and steady climbs the cliff|![](/en-CA/2023/09/202309270400CapriKrupp.jpg)|
 202309280400|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-CA/2023/09/202309280400MaritimeDay.jpg)|
 202309290400|GuiyangMoon|Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)|Under the full moon's gaze|![](/en-CA/2023/09/202309290400GuiyangMoon.jpg)|
+202309300400|ShenandoahFoliage|Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)|A glade of gold|![](/en-CA/2023/09/202309300400ShenandoahFoliage.jpg)|
