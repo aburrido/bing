@@ -31,3 +31,4 @@
 202309271830|MaritimeDay|Container ship near a commercial port in Thailand (© Suriyapong Thongsawang/Getty Images)|Aye aye, captain!|![](/en-IN/2023/09/202309271830MaritimeDay.jpg)|
 202309281830|SangameswaraTemple|The Sangameswara Temple is part of the the former capital Kisuvolal of the Chalukya Dynasty (© Frank Bienewald/Alamy Stock Photo)|A sacred sanctuary|![](/en-IN/2023/09/202309281830SangameswaraTemple.jpg)|
 202309291830|ShenandoahFoliage|Fall colours in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)|A glade of gold|![](/en-IN/2023/09/202309291830ShenandoahFoliage.jpg)|
+202309301830|LakeBledSunrise|Lake Bled from Osojnica viewpoint at sunrise, Slovenia (© Rasica/Getty Images)|Awake to the lake|![](/en-IN/2023/09/202309301830LakeBledSunrise.jpg)|
