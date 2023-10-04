@@ -4,3 +4,4 @@
 202310011600|VerdonCanyon|韦尔东峡谷，普罗旺斯-阿尔卑斯-蓝色海岸，法国 (© luisapuccini/Getty Images)|普罗旺斯大峡谷|![](/zh-CN/2023/10/202310011600VerdonCanyon.jpg)|
 202310021600|WhitsundaySwirl|白天堂海滩，圣灵群岛，昆士兰州，澳大利亚 (© Coral Brunner/Shutterstock)|圣灵群岛之旅|![](/zh-CN/2023/10/202310021600WhitsundaySwirl.jpg)|
 202310031600|TarantulaNebula|狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜 (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|狼蛛星云|![](/zh-CN/2023/10/202310031600TarantulaNebula.jpg)|
+202310041600|GentooJump|巴布亚企鹅，南极洲 (© Art Wolfe/Getty Images)|这是怎么做到的！|![](/zh-CN/2023/10/202310041600GentooJump.jpg)|
