@@ -4,3 +4,4 @@
 202310010700|LakeBledSunrise|Lake Bled at sunrise, Slovenia (© Rasica/Getty Images)|Awake to the lake|![](/en-US/2023/10/202310010700LakeBledSunrise.jpg)|
 202310020700|VuittonFoundation|Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)|A fashionista art center|![](/en-US/2023/10/202310020700VuittonFoundation.jpg)|
 202310030700|WhitsundaySwirl|Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)|Whitsunday wanderlust|![](/en-US/2023/10/202310030700WhitsundaySwirl.jpg)|
+202310040700|TarantulaNebula|Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|A galactic spider's web|![](/en-US/2023/10/202310040700TarantulaNebula.jpg)|
