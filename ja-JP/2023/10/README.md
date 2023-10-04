@@ -4,3 +4,4 @@
 202310011500|VuittonFoundation|フォンダシオン・ルイ・ヴィトン, フランス パリ (© Atlantide Phototravel/Getty Images)|今日は世界建築の日|![](/ja-JP/2023/10/202310011500VuittonFoundation.jpg)|
 202310021500|WhitsundaySwirl|ウィットサンデー諸島, オーストラリア クイーンズランド州 (© Coral Brunner/Shutterstock)|透き通った海と白い砂浜|![](/ja-JP/2023/10/202310021500WhitsundaySwirl.jpg)|
 202310031500|TarantulaNebula|タランチュラ星雲 (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|今日から世界宇宙週間|![](/ja-JP/2023/10/202310031500TarantulaNebula.jpg)|
+202310041500|GentooJump|ジェンツーペンギン, 南極大陸 (© Art Wolfe/Getty Images)|今日は世界教師デー|![](/ja-JP/2023/10/202310041500GentooJump.jpg)|
