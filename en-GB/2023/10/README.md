@@ -4,3 +4,4 @@
 202310012300|VuittonFoundation|Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)|A fashionista art centre|![](/en-GB/2023/10/202310012300VuittonFoundation.jpg)|
 202310022300|WhitsundaySwirl|Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)|Whitsunday wanderlust|![](/en-GB/2023/10/202310022300WhitsundaySwirl.jpg)|
 202310032300|TarantulaNebula|Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|A spider's Webb of stars|![](/en-GB/2023/10/202310032300TarantulaNebula.jpg)|
+202310042300|GentooJump|Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)|Here's how it's done!|![](/en-GB/2023/10/202310042300GentooJump.jpg)|
