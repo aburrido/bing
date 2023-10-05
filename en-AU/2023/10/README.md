@@ -5,3 +5,4 @@
 202310020700|VerdonCanyon|Verdon Gorge, Provence-Alpes-Côte d'Azur, France (© luisapuccini/Getty Images)|Info|![](/en-AU/2023/10/202310020700VerdonCanyon.jpg)|
 202310030700|WhitsundaySwirl|Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)|Info|![](/en-AU/2023/10/202310030700WhitsundaySwirl.jpg)|
 202310040700|TarantulaNebula|Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|Info|![](/en-AU/2023/10/202310040700TarantulaNebula.jpg)|
+202310050700|GentooJump|Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)|Info|![](/en-AU/2023/10/202310050700GentooJump.jpg)|
