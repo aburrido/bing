@@ -6,3 +6,4 @@
 202310031830|TarantulaNebula|Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|A spider's Webb of stars|![](/en-IN/2023/10/202310031830TarantulaNebula.jpg)|
 202310041830|GentooJump|Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)|Here's how it's done!|![](/en-IN/2023/10/202310041830GentooJump.jpg)|
 202310051830|TaughannockFalls|Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)|Nature's majesty awaits!|![](/en-IN/2023/10/202310051830TaughannockFalls.jpg)|
+202310061830|GrizzlyFalls|Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-IN/2023/10/202310061830GrizzlyFalls.jpg)|
