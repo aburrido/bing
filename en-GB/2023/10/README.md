@@ -7,3 +7,4 @@
 202310042300|GentooJump|Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)|Here's how it's done!|![](/en-GB/2023/10/202310042300GentooJump.jpg)|
 202310052300|TaughannockFalls|Taughannock Falls State Park in Trumansburg, New York, USA (© Paul Massie Photography/Getty Images)|Nature's majesty awaits!|![](/en-GB/2023/10/202310052300TaughannockFalls.jpg)|
 202310062300|GrizzlyFalls|Grizzly bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska, USA (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-GB/2023/10/202310062300GrizzlyFalls.jpg)|
+||||![](/en-GB/2023/10/.jpg)|
