@@ -7,3 +7,4 @@
 202310040700|TarantulaNebula|Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)|A galactic spider's web|![](/en-US/2023/10/202310040700TarantulaNebula.jpg)|
 202310050700|GentooJump|Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)|Here's how it's done!|![](/en-US/2023/10/202310050700GentooJump.jpg)|
 202310060700|TaughannockFalls|Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)|Nature's majesty awaits!|![](/en-US/2023/10/202310060700TaughannockFalls.jpg)|
+202310070700|GrizzlyFalls|Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-US/2023/10/202310070700GrizzlyFalls.jpg)|
