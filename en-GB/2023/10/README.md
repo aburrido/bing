@@ -8,3 +8,4 @@
 202310052300|TaughannockFalls|Taughannock Falls State Park in Trumansburg, New York, USA (© Paul Massie Photography/Getty Images)|Nature's majesty awaits!|![](/en-GB/2023/10/202310052300TaughannockFalls.jpg)|
 202310062300|GrizzlyFalls|Grizzly bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska, USA (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-GB/2023/10/202310062300GrizzlyFalls.jpg)|
 ||||![](/en-GB/2023/10/.jpg)|
+202310072300|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some 'shell'ter?|![](/en-GB/2023/10/202310072300OctoClam.jpg)|
