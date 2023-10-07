@@ -7,3 +7,4 @@
 202310042200|GentooJump|Manchots papous, Antarctique (© Art Wolfe/Getty Images)|Merci professeur !|![](/fr-FR/2023/10/202310042200GentooJump.jpg)|
 202310052200|TaughannockFalls|Parc d'État de la cascade de Taughannock à Trumansburg, dans l'État de New York, aux États-Unis (© Paul Massie Photography/Getty Images)|Dame Nature dans toute sa splendeur|![](/fr-FR/2023/10/202310052200TaughannockFalls.jpg)|
 202310062200|GrizzlyFalls|Ours grizzly pêchant le saumon dans les chutes de Brooks, parc national de Katmai, Alaska, États-Unis (© oksana.perkins/Shutterstock)|Qui sera le nouveau champion poids lourds ?|![](/fr-FR/2023/10/202310062200GrizzlyFalls.jpg)|
+202310072200|OctoClam|Pieuvre noix de coco dans une coquille de palourde géante, Mer de Célèbes, Indonésie (© Alex Mustard/Minden Pictures)|Une pieuvre de génie !|![](/fr-FR/2023/10/202310072200OctoClam.jpg)|
