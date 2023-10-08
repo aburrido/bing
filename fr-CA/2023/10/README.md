@@ -8,3 +8,4 @@
 202310060400|TaughannockFalls|Parc d'État de la cascade de Taughannock à Trumansburg, dans l'État de New York, aux États-Unis (© Paul Massie Photography/Getty Images)|Dame Nature dans toute sa splendeur|![](/fr-CA/2023/10/202310060400TaughannockFalls.jpg)|
 202310070400|GrizzlyFalls|Ours grizzly pêchant le saumon dans les chutes de Brooks, parc national de Katmai, Alaska, États-Unis (© oksana.perkins/Shutterstock)|Qui sera le nouveau champion poids lourds ?|![](/fr-CA/2023/10/202310070400GrizzlyFalls.jpg)|
 202310080400|OctoClam|Pieuvre noix de coco dans une coquille de palourde géante, Mer de Célèbes, Indonésie (© Alex Mustard/Minden Pictures)|Une pieuvre de génie !|![](/fr-CA/2023/10/202310080400OctoClam.jpg)|
+||||![](/fr-CA/2023/10/.jpg)|

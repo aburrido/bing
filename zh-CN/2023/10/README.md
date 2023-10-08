@@ -9,3 +9,4 @@
 202310061600|GrizzlyFalls|灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国 (© oksana.perkins/Shutterstock)|吃三文鱼自助餐的时间到了|![](/zh-CN/2023/10/202310061600GrizzlyFalls.jpg)|
 202310071600|OctoClam|巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)|贝壳庇护所|![](/zh-CN/2023/10/202310071600OctoClam.jpg)|
 202310081600|FremontPetroglyph|弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)|古老的事故，古代的艺术|![](/zh-CN/2023/10/202310081600FremontPetroglyph.jpg)|
+||||![](/zh-CN/2023/10/.jpg)|
