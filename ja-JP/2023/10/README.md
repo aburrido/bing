@@ -8,3 +8,4 @@
 202310051500|TaughannockFalls|タガノックフォールズ州立公園, 米国 ニューヨーク州 (© Paul Massie Photography/Getty Images)|紅葉に彩られた滝|![](/ja-JP/2023/10/202310051500TaughannockFalls.jpg)|
 202310061500|GrizzlyFalls|カトマイ国立公園, 米国 アラスカ州 (© oksana.perkins/Shutterstock)|川で捕食しているヒグマたち|![](/ja-JP/2023/10/202310061500GrizzlyFalls.jpg)|
 202310071500|Hanlu2023|志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)|今日は寒露|![](/ja-JP/2023/10/202310071500Hanlu2023.jpg)|
+202310081500|FremontPetroglyph|ダイナソー国定公園のペトログリフ, 米国 ユタ州 (© Dan Leeth/Alamy)|今日は米国の先住民の日|![](/ja-JP/2023/10/202310081500FremontPetroglyph.jpg)|
