@@ -9,3 +9,4 @@
 202310062200|GrizzlyFalls|Grizzlybären beim Lachsfang an den Brooks Falls, Katmai National Park, Alaska, USA (© oksana.perkins/Shutterstock)|Zeit für Lachs zur Selbstbedienung|![](/de-DE/2023/10/202310062200GrizzlyFalls.jpg)|
 202310072200|OctoClam|Oktopus in einer Riesenmuschelschale, Celébessee, Indonesien (© Alex Mustard/Minden Pictures)|Muscheln wir?|![](/de-DE/2023/10/202310072200OctoClam.jpg)|
 ||||![](/de-DE/2023/10/.jpg)|
+202310082200|FremontPetroglyph|Fremont-Petroglyphen, Dinosaur National Monument, Jensen, Utah, USA (© Dan Leeth/Alamy)|Auf den Spuren unserer Vorfahren|![](/de-DE/2023/10/202310082200FremontPetroglyph.jpg)|
