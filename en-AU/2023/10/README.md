@@ -8,3 +8,4 @@
 202310050700|GentooJump|Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)|Info|![](/en-AU/2023/10/202310050700GentooJump.jpg)|
 202310060700|TaughannockFalls|Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)|Info|![](/en-AU/2023/10/202310060700TaughannockFalls.jpg)|
 202310070700|GrizzlyFalls|Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)|Info|![](/en-AU/2023/10/202310070700GrizzlyFalls.jpg)|
+202310080700|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Info|![](/en-AU/2023/10/202310080700OctoClam.jpg)|
