@@ -9,3 +9,4 @@
 202310061830|GrizzlyFalls|Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-IN/2023/10/202310061830GrizzlyFalls.jpg)|
 202310071830|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some 'shell'ter?|![](/en-IN/2023/10/202310071830OctoClam.jpg)|
 ||||![](/en-IN/2023/10/.jpg)|
+202310081830|GwaliorFortMP|Gwalior fort in daytime. Gwalior, Madhya Pradesh, India. (© Dmitry Rukhlenko-Photos of India/Alamy Stock Photo)|A timeless treasure|![](/en-IN/2023/10/202310081830GwaliorFortMP.jpg)|
