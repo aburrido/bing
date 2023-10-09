@@ -10,3 +10,4 @@
 202310071500|Hanlu2023|志賀高原の澗満滝, 長野県 (© Twenty47studio/Getty Images)|今日は寒露|![](/ja-JP/2023/10/202310071500Hanlu2023.jpg)|
 202310081500|FremontPetroglyph|ダイナソー国定公園のペトログリフ, 米国 ユタ州 (© Dan Leeth/Alamy)|今日は米国の先住民の日|![](/ja-JP/2023/10/202310081500FremontPetroglyph.jpg)|
 ||||![](/ja-JP/2023/10/.jpg)|
+202310091500|SoprisSunrise|ソプリス山, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)|カラフルな森と雄大な山|![](/ja-JP/2023/10/202310091500SoprisSunrise.jpg)|
