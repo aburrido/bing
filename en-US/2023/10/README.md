@@ -10,3 +10,4 @@
 202310070700|GrizzlyFalls|Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-US/2023/10/202310070700GrizzlyFalls.jpg)|
 202310080700|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some shell-ter?|![](/en-US/2023/10/202310080700OctoClam.jpg)|
 ||||![](/en-US/2023/10/.jpg)|
+202310090700|FremontPetroglyph|Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)|Celebrating Indigenous heritage|![](/en-US/2023/10/202310090700FremontPetroglyph.jpg)|
