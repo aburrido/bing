@@ -10,3 +10,4 @@
 202310072200|OctoClam|Oktopus in einer Riesenmuschelschale, Celébessee, Indonesien (© Alex Mustard/Minden Pictures)|Muscheln wir?|![](/de-DE/2023/10/202310072200OctoClam.jpg)|
 ||||![](/de-DE/2023/10/.jpg)|
 202310082200|FremontPetroglyph|Fremont-Petroglyphen, Dinosaur National Monument, Jensen, Utah, USA (© Dan Leeth/Alamy)|Auf den Spuren unserer Vorfahren|![](/de-DE/2023/10/202310082200FremontPetroglyph.jpg)|
+202310092200|SoprisSunrise|Mount Sopris, Colorado, USA (© Jason Hatfield/Tandem Stills + Motion)|Berg der Zwillings-Gipfel?|![](/de-DE/2023/10/202310092200SoprisSunrise.jpg)|

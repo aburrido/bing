@@ -10,3 +10,4 @@
 202310072200|OctoClam|Pieuvre noix de coco dans une coquille de palourde géante, Mer de Célèbes, Indonésie (© Alex Mustard/Minden Pictures)|Une pieuvre de génie !|![](/fr-FR/2023/10/202310072200OctoClam.jpg)|
 ||||![](/fr-FR/2023/10/.jpg)|
 202310082200|FremontPetroglyph|Pétroglyphes du peuple précolombien Fremont, Dinosaur National Monument, Jensen, Utah, États-Unis (© Dan Leeth/Alamy)|Un témoignage venu du lointain|![](/fr-FR/2023/10/202310082200FremontPetroglyph.jpg)|
+202310092200|MontmartreHarvest|Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)|Un vignoble au cœur de la capitale|![](/fr-FR/2023/10/202310092200MontmartreHarvest.jpg)|
