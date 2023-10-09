@@ -10,3 +10,4 @@
 202310071600|OctoClam|巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚 (© Alex Mustard/Minden Pictures)|贝壳庇护所|![](/zh-CN/2023/10/202310071600OctoClam.jpg)|
 202310081600|FremontPetroglyph|弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)|古老的事故，古代的艺术|![](/zh-CN/2023/10/202310081600FremontPetroglyph.jpg)|
 ||||![](/zh-CN/2023/10/.jpg)|
+202310091600|SoprisSunrise|索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)|高高的落基山脉|![](/zh-CN/2023/10/202310091600SoprisSunrise.jpg)|
