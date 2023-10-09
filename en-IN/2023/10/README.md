@@ -10,3 +10,4 @@
 202310071830|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some 'shell'ter?|![](/en-IN/2023/10/202310071830OctoClam.jpg)|
 ||||![](/en-IN/2023/10/.jpg)|
 202310081830|GwaliorFortMP|Gwalior fort in daytime. Gwalior, Madhya Pradesh, India. (© Dmitry Rukhlenko-Photos of India/Alamy Stock Photo)|A timeless treasure|![](/en-IN/2023/10/202310081830GwaliorFortMP.jpg)|
+202310091830|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-IN/2023/10/202310091830SoprisSunrise.jpg)|
