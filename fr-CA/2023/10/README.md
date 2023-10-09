@@ -9,3 +9,4 @@
 202310070400|GrizzlyFalls|Ours grizzly pêchant le saumon dans les chutes de Brooks, parc national de Katmai, Alaska, États-Unis (© oksana.perkins/Shutterstock)|Qui sera le nouveau champion poids lourds ?|![](/fr-CA/2023/10/202310070400GrizzlyFalls.jpg)|
 202310080400|OctoClam|Pieuvre noix de coco dans une coquille de palourde géante, Mer de Célèbes, Indonésie (© Alex Mustard/Minden Pictures)|Une pieuvre de génie !|![](/fr-CA/2023/10/202310080400OctoClam.jpg)|
 ||||![](/fr-CA/2023/10/.jpg)|
+202310090400|ThanksgivingDay|Un bol rempli de canneberges, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)|Que la fête commence!|![](/fr-CA/2023/10/202310090400ThanksgivingDay.jpg)|

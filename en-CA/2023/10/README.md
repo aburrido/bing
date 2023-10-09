@@ -9,3 +9,4 @@
 202310070400|GrizzlyFalls|Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)|Time for self-serve salmon|![](/en-CA/2023/10/202310070400GrizzlyFalls.jpg)|
 202310080400|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some 'shell'ter?|![](/en-CA/2023/10/202310080400OctoClam.jpg)|
 ||||![](/en-CA/2023/10/.jpg)|
+202310090400|ThanksgivingDay|A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)|Ready to feast?|![](/en-CA/2023/10/202310090400ThanksgivingDay.jpg)|
