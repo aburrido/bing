@@ -11,3 +11,4 @@
 202310081600|FremontPetroglyph|弗里蒙特岩画，恐龙国家纪念碑，詹森，犹他州，美国 (© Dan Leeth/Alamy)|古老的事故，古代的艺术|![](/zh-CN/2023/10/202310081600FremontPetroglyph.jpg)|
 ||||![](/zh-CN/2023/10/.jpg)|
 202310091600|SoprisSunrise|索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)|高高的落基山脉|![](/zh-CN/2023/10/202310091600SoprisSunrise.jpg)|
+202310101600|JohnDayFossil|约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion)|消失的回声|![](/zh-CN/2023/10/202310101600JohnDayFossil.jpg)|
