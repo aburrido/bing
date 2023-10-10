@@ -11,3 +11,4 @@
 ||||![](/fr-FR/2023/10/.jpg)|
 202310082200|FremontPetroglyph|Pétroglyphes du peuple précolombien Fremont, Dinosaur National Monument, Jensen, Utah, États-Unis (© Dan Leeth/Alamy)|Un témoignage venu du lointain|![](/fr-FR/2023/10/202310082200FremontPetroglyph.jpg)|
 202310092200|MontmartreHarvest|Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)|Un vignoble au cœur de la capitale|![](/fr-FR/2023/10/202310092200MontmartreHarvest.jpg)|
+202310102200|JohnDayFossil|Collines de Painted Hills dans le bassin de la John Day River National Monut, Oregon, États-Unis (© Ben Herndon/Tandem Stills + Motion)men|Des collines aux couleurs magiques|![](/fr-FR/2023/10/202310102200JohnDayFossil.jpg)|
