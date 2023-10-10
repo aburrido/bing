@@ -10,3 +10,4 @@
 202310080400|OctoClam|Pieuvre noix de coco dans une coquille de palourde géante, Mer de Célèbes, Indonésie (© Alex Mustard/Minden Pictures)|Une pieuvre de génie !|![](/fr-CA/2023/10/202310080400OctoClam.jpg)|
 ||||![](/fr-CA/2023/10/.jpg)|
 202310090400|ThanksgivingDay|Un bol rempli de canneberges, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)|Que la fête commence!|![](/fr-CA/2023/10/202310090400ThanksgivingDay.jpg)|
+202310100400|SoprisSunrise|Mont Sopris, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|À la découverte des splendides Rocheuses|![](/fr-CA/2023/10/202310100400SoprisSunrise.jpg)|

@@ -10,3 +10,4 @@
 202310080400|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some 'shell'ter?|![](/en-CA/2023/10/202310080400OctoClam.jpg)|
 ||||![](/en-CA/2023/10/.jpg)|
 202310090400|ThanksgivingDay|A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)|Ready to feast?|![](/en-CA/2023/10/202310090400ThanksgivingDay.jpg)|
+202310100400|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-CA/2023/10/202310100400SoprisSunrise.jpg)|
