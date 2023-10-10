@@ -11,3 +11,4 @@
 202310080700|OctoClam|Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)|Need some shell-ter?|![](/en-US/2023/10/202310080700OctoClam.jpg)|
 ||||![](/en-US/2023/10/.jpg)|
 202310090700|FremontPetroglyph|Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)|Celebrating Indigenous heritage|![](/en-US/2023/10/202310090700FremontPetroglyph.jpg)|
+202310100700|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-US/2023/10/202310100700SoprisSunrise.jpg)|
