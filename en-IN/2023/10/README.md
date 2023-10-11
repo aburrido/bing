@@ -12,3 +12,4 @@
 202310081830|GwaliorFortMP|Gwalior fort in daytime. Gwalior, Madhya Pradesh, India. (© Dmitry Rukhlenko-Photos of India/Alamy Stock Photo)|A timeless treasure|![](/en-IN/2023/10/202310081830GwaliorFortMP.jpg)|
 202310091830|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-IN/2023/10/202310091830SoprisSunrise.jpg)|
 202310101830|JohnDayFossil|The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)|Echoes of extinction|![](/en-IN/2023/10/202310101830JohnDayFossil.jpg)|
+202310111830|IdahoBarn|Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)|Make hay while the sun shines|![](/en-IN/2023/10/202310111830IdahoBarn.jpg)|
