@@ -12,3 +12,4 @@
 202310082200|FremontPetroglyph|Fremont-Petroglyphen, Dinosaur National Monument, Jensen, Utah, USA (© Dan Leeth/Alamy)|Auf den Spuren unserer Vorfahren|![](/de-DE/2023/10/202310082200FremontPetroglyph.jpg)|
 202310092200|SoprisSunrise|Mount Sopris, Colorado, USA (© Jason Hatfield/Tandem Stills + Motion)|Berg der Zwillings-Gipfel?|![](/de-DE/2023/10/202310092200SoprisSunrise.jpg)|
 202310102200|JohnDayFossil|Die Painted Hills im John Day Fossil Beds National Monument, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)|Echos des Aussterbens|![](/de-DE/2023/10/202310102200JohnDayFossil.jpg)|
+202310112200|NeuschwansteinCastle|Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)|Wo sich die Adeligen tummelten|![](/de-DE/2023/10/202310112200NeuschwansteinCastle.jpg)|
