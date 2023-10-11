@@ -11,3 +11,4 @@
 ||||![](/fr-CA/2023/10/.jpg)|
 202310090400|ThanksgivingDay|Un bol rempli de canneberges, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)|Que la fête commence!|![](/fr-CA/2023/10/202310090400ThanksgivingDay.jpg)|
 202310100400|SoprisSunrise|Mont Sopris, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|À la découverte des splendides Rocheuses|![](/fr-CA/2023/10/202310100400SoprisSunrise.jpg)|
+202310110400|JohnDayFossil|Collines de Painted Hills dans le bassin de la John Day River National Monument, Oregon, États-Unis (© Ben Herndon/Tandem Stills + Motion)|Des collines aux couleurs magiques|![](/fr-CA/2023/10/202310110400JohnDayFossil.jpg)|
