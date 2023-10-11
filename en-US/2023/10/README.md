@@ -12,3 +12,4 @@
 ||||![](/en-US/2023/10/.jpg)|
 202310090700|FremontPetroglyph|Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)|Celebrating Indigenous heritage|![](/en-US/2023/10/202310090700FremontPetroglyph.jpg)|
 202310100700|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-US/2023/10/202310100700SoprisSunrise.jpg)|
+202310110700|JohnDayFossil|The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)|Echoes of extinction|![](/en-US/2023/10/202310110700JohnDayFossil.jpg)|
