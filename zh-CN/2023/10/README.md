@@ -12,3 +12,4 @@
 ||||![](/zh-CN/2023/10/.jpg)|
 202310091600|SoprisSunrise|索普里斯山，科罗拉多州，美国 (© Jason Hatfield/Tandem Stills + Motion)|高高的落基山脉|![](/zh-CN/2023/10/202310091600SoprisSunrise.jpg)|
 202310101600|JohnDayFossil|约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国 (© Ben Herndon/Tandem Stills + Motion)|消失的回声|![](/zh-CN/2023/10/202310101600JohnDayFossil.jpg)|
+202310111600|IdahoBarn|帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)|趁热打铁，勿失良机！|![](/zh-CN/2023/10/202310111600IdahoBarn.jpg)|
