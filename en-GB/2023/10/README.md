@@ -12,3 +12,4 @@
 202310082300|EdinburghcityscapeUK|Edinburgh, Scotland (© Andrew Merry/Moment/Getty Images)|A majestic silhouette|![](/en-GB/2023/10/202310082300EdinburghcityscapeUK.jpg)|
 202310092300|SoprisSunrise|Mount Sopris, Colorado, USA (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-GB/2023/10/202310092300SoprisSunrise.jpg)|
 202310102300|JohnDayFossil|The Painted Hills in the John Day Fossil Beds National Monument, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)|Echoes of extinction|![](/en-GB/2023/10/202310102300JohnDayFossil.jpg)|
+202310112300|IdahoBarn|Old barn and canola field, Palouse region, Idaho, USA (© Terry Eggers/Getty Images)|Make hay while the sun shines|![](/en-GB/2023/10/202310112300IdahoBarn.jpg)|
