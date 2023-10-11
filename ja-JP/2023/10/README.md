@@ -12,3 +12,4 @@
 ||||![](/ja-JP/2023/10/.jpg)|
 202310091500|SoprisSunrise|ソプリス山, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)|カラフルな森と雄大な山|![](/ja-JP/2023/10/202310091500SoprisSunrise.jpg)|
 202310101500|JohnDayFossil|ペインテッド・ヒルズ, 米国 オレゴン州 (© Ben Herndon/Tandem Stills + Motion)|今日は米国の「化石の日」|![](/ja-JP/2023/10/202310101500JohnDayFossil.jpg)|
+202310111500|AutumnHedgehog|ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)|樹皮の中に隠れるハリネズミ|![](/ja-JP/2023/10/202310111500AutumnHedgehog.jpg)|
