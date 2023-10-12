@@ -13,3 +13,4 @@
 202310092300|SoprisSunrise|Mount Sopris, Colorado, USA (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-GB/2023/10/202310092300SoprisSunrise.jpg)|
 202310102300|JohnDayFossil|The Painted Hills in the John Day Fossil Beds National Monument, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)|Echoes of extinction|![](/en-GB/2023/10/202310102300JohnDayFossil.jpg)|
 202310112300|IdahoBarn|Old barn and canola field, Palouse region, Idaho, USA (© Terry Eggers/Getty Images)|Make hay while the sun shines|![](/en-GB/2023/10/202310112300IdahoBarn.jpg)|
+202310122300|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-GB/2023/10/202310122300ViesteItaly.jpg)|
