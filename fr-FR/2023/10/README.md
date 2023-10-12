@@ -13,3 +13,4 @@
 202310092200|MontmartreHarvest|Basilique du Sacré Cœur de Montmartre (© Tuul & Bruno Morandi)|Un vignoble au cœur de la capitale|![](/fr-FR/2023/10/202310092200MontmartreHarvest.jpg)|
 202310102200|JohnDayFossil|Collines de Painted Hills dans le bassin de la John Day River National Monut, Oregon, États-Unis (© Ben Herndon/Tandem Stills + Motion)men|Des collines aux couleurs magiques|![](/fr-FR/2023/10/202310102200JohnDayFossil.jpg)|
 202310112200|IdahoBarn|Vieille grange et champ de colza, région de Palouse, Idaho, États-Unis (© Terry Eggers/Getty Images)|Le bonheur est dans le pré !|![](/fr-FR/2023/10/202310112200IdahoBarn.jpg)|
+202310122200|KoenigsbourgCastle|Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)|Une forteresse médiévale au milieu des nuages|![](/fr-FR/2023/10/202310122200KoenigsbourgCastle.jpg)|

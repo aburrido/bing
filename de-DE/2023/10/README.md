@@ -13,3 +13,4 @@
 202310092200|SoprisSunrise|Mount Sopris, Colorado, USA (© Jason Hatfield/Tandem Stills + Motion)|Berg der Zwillings-Gipfel?|![](/de-DE/2023/10/202310092200SoprisSunrise.jpg)|
 202310102200|JohnDayFossil|Die Painted Hills im John Day Fossil Beds National Monument, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)|Echos des Aussterbens|![](/de-DE/2023/10/202310102200JohnDayFossil.jpg)|
 202310112200|NeuschwansteinCastle|Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)|Wo sich die Adeligen tummelten|![](/de-DE/2023/10/202310112200NeuschwansteinCastle.jpg)|
+202310122200|ViesteItaly|Vieste auf der Halbinsel Gargano, Apulien, Italien (© Pilat666/Getty Images)|Das Leben am Rande|![](/de-DE/2023/10/202310122200ViesteItaly.jpg)|
