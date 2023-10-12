@@ -13,3 +13,4 @@
 202310090700|FremontPetroglyph|Fremont Indian petroglyphs, Dinosaur National Monument, Jensen, Utah (© Dan Leeth/Alamy)|Info|![](/en-AU/2023/10/202310090700FremontPetroglyph.jpg)|
 202310100700|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310100700SoprisSunrise.jpg)|
 202310110700|JohnDayFossil|The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310110700JohnDayFossil.jpg)|
+202310120700|IdahoBarn|Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)|Info|![](/en-AU/2023/10/202310120700IdahoBarn.jpg)|
