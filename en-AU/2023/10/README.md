@@ -14,3 +14,4 @@
 202310100700|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310100700SoprisSunrise.jpg)|
 202310110700|JohnDayFossil|The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310110700JohnDayFossil.jpg)|
 202310120700|IdahoBarn|Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)|Info|![](/en-AU/2023/10/202310120700IdahoBarn.jpg)|
+202310130700|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Info|![](/en-AU/2023/10/202310130700ViesteItaly.jpg)|
