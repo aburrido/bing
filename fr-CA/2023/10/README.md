@@ -13,3 +13,4 @@
 202310100400|SoprisSunrise|Mont Sopris, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|À la découverte des splendides Rocheuses|![](/fr-CA/2023/10/202310100400SoprisSunrise.jpg)|
 202310110400|JohnDayFossil|Collines de Painted Hills dans le bassin de la John Day River National Monument, Oregon, États-Unis (© Ben Herndon/Tandem Stills + Motion)|Des collines aux couleurs magiques|![](/fr-CA/2023/10/202310110400JohnDayFossil.jpg)|
 202310120400|IdahoBarn|Vieille grange et champ de colza, région de Palouse, Idaho, États-Unis (© Terry Eggers/Getty Images)|Le bonheur est dans le pré !|![](/fr-CA/2023/10/202310120400IdahoBarn.jpg)|
+202310130400|JasperDarkSky|Voie lactée au-dessus du glacier Athabasca dans le parc national de Jasper, Canada (© Alan Dyer/Stocktrek Images/Getty Images)|Faites votre souhait!|![](/fr-CA/2023/10/202310130400JasperDarkSky.jpg)|

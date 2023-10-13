@@ -13,3 +13,4 @@
 202310100400|SoprisSunrise|Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Rocky Mountain high|![](/en-CA/2023/10/202310100400SoprisSunrise.jpg)|
 202310110400|JohnDayFossil|The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)|Echoes of extinction|![](/en-CA/2023/10/202310110400JohnDayFossil.jpg)|
 202310120400|IdahoBarn|Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)|Make hay while the sun shines|![](/en-CA/2023/10/202310120400IdahoBarn.jpg)|
+202310130400|JasperDarkSky|Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)|Which one gets your wish?|![](/en-CA/2023/10/202310130400JasperDarkSky.jpg)|
