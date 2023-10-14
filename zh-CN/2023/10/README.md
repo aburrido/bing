@@ -15,3 +15,4 @@
 202310111600|IdahoBarn|帕卢斯地区的老谷仓和油菜田，爱达荷州，美国 (© Terry Eggers/Getty Images)|趁热打铁，勿失良机！|![](/zh-CN/2023/10/202310111600IdahoBarn.jpg)|
 202310121600|ViesteItaly|加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)|住在悬崖边的日子|![](/zh-CN/2023/10/202310121600ViesteItaly.jpg)|
 202310131600|RingEclipse|"火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)|它燃烧，燃烧，燃烧|![](/zh-CN/2023/10/202310131600RingEclipse.jpg)|
+202310141600|AutumnHedgehog|躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures)|该位置已被占领|![](/zh-CN/2023/10/202310141600AutumnHedgehog.jpg)|
