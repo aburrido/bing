@@ -15,3 +15,4 @@
 202310112200|NeuschwansteinCastle|Schloss Neuschwanstein im Herbst, Schwangau, Bayern (© NNER/Shutterstock)|Wo sich die Adeligen tummelten|![](/de-DE/2023/10/202310112200NeuschwansteinCastle.jpg)|
 202310122200|ViesteItaly|Vieste auf der Halbinsel Gargano, Apulien, Italien (© Pilat666/Getty Images)|Das Leben am Rande|![](/de-DE/2023/10/202310122200ViesteItaly.jpg)|
 202310132200|RingEclipse|„Ring of Fire“ ringförmige Sonnenfinsternis, Doha, Katar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/de-DE/2023/10/202310132200RingEclipse.jpg)|
+202310142200|AutumnHedgehog|Europäischer Igel, der sich in der Baumrinde versteckt, Sussex, England (© Jules Cox/Minden Pictures)|Kein Platz mehr hier!|![](/de-DE/2023/10/202310142200AutumnHedgehog.jpg)|
