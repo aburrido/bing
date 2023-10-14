@@ -15,3 +15,4 @@
 202310111500|AutumnHedgehog|ナミハリネズミ, イギリス サセックス (© Jules Cox/Minden Pictures)|樹皮の中に隠れるハリネズミ|![](/ja-JP/2023/10/202310111500AutumnHedgehog.jpg)|
 202310121500|ViesteItaly|ガルガーノ半島のヴィエステ, イタリア プッリャ州 (© Pilat666/Getty Images)|白い家々が並ぶ海岸の町|![](/ja-JP/2023/10/202310121500ViesteItaly.jpg)|
 202310131500|RailwayDay2023|第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)|今日は鉄道の日|![](/ja-JP/2023/10/202310131500RailwayDay2023.jpg)|
+202310141500|RingEclipse|金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)|太陽と月のダンス|![](/ja-JP/2023/10/202310141500RingEclipse.jpg)|
