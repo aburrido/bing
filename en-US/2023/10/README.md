@@ -15,3 +15,4 @@
 202310110700|JohnDayFossil|The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)|Echoes of extinction|![](/en-US/2023/10/202310110700JohnDayFossil.jpg)|
 202310120700|IdahoBarn|Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)|Make hay while the sun shines|![](/en-US/2023/10/202310120700IdahoBarn.jpg)|
 202310130700|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-US/2023/10/202310130700ViesteItaly.jpg)|
+202310140700|RingEclipse|'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/en-US/2023/10/202310140700RingEclipse.jpg)|
