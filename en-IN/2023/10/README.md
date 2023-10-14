@@ -15,3 +15,4 @@
 202310111830|IdahoBarn|Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)|Make hay while the sun shines|![](/en-IN/2023/10/202310111830IdahoBarn.jpg)|
 202310121830|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-IN/2023/10/202310121830ViesteItaly.jpg)|
 202310131830|RingEclipse|'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/en-IN/2023/10/202310131830RingEclipse.jpg)|
+202310141830|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-IN/2023/10/202310141830AutumnHedgehog.jpg)|
