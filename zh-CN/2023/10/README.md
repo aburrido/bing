@@ -16,3 +16,4 @@
 202310121600|ViesteItaly|加尔加诺半岛上的维埃斯特，阿普利亚，意大利 (© Pilat666/Getty Images)|住在悬崖边的日子|![](/zh-CN/2023/10/202310121600ViesteItaly.jpg)|
 202310131600|RingEclipse|"火环”日环食，多哈，卡特尔 (© Sorin Furcoi/Getty Images)|它燃烧，燃烧，燃烧|![](/zh-CN/2023/10/202310131600RingEclipse.jpg)|
 202310141600|AutumnHedgehog|躲在树皮中欧洲刺猬，苏塞克斯，英国 (© Jules Cox/Minden Pictures)|该位置已被占领|![](/zh-CN/2023/10/202310141600AutumnHedgehog.jpg)|
+202310151600|GoldenEnchantments|金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)|确实令人着迷|![](/zh-CN/2023/10/202310151600GoldenEnchantments.jpg)|
