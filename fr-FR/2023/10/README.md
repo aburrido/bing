@@ -16,3 +16,4 @@
 202310122200|KoenigsbourgCastle|Château du Haut-Koenigsbourg au lever du soleil, à Orschwiller, Alsace, Grand Est (© PATRICK HERTZOG/AFP via Getty Images)|Une forteresse médiévale au milieu des nuages|![](/fr-FR/2023/10/202310122200KoenigsbourgCastle.jpg)|
 202310132200|RingEclipse|Éclipse solaire annulaire "anneau de feu", Doha, Qatar (© Sorin Furcoi/Getty Images)|À la recherche de l’anneau de feu|![](/fr-FR/2023/10/202310132200RingEclipse.jpg)|
 202310142200|AutumnHedgehog|Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)|Qui va à la chasse perd sa place !|![](/fr-FR/2023/10/202310142200AutumnHedgehog.jpg)|
+202310152200|GoldenEnchantments|Mélèzes aux couleurs de l’automne et le Mont Prusik, région Lacs Enchantés, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Un véritable enchantement !|![](/fr-FR/2023/10/202310152200GoldenEnchantments.jpg)|

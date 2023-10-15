@@ -16,3 +16,4 @@
 202310122200|ViesteItaly|Vieste auf der Halbinsel Gargano, Apulien, Italien (© Pilat666/Getty Images)|Das Leben am Rande|![](/de-DE/2023/10/202310122200ViesteItaly.jpg)|
 202310132200|RingEclipse|„Ring of Fire“ ringförmige Sonnenfinsternis, Doha, Katar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/de-DE/2023/10/202310132200RingEclipse.jpg)|
 202310142200|AutumnHedgehog|Europäischer Igel, der sich in der Baumrinde versteckt, Sussex, England (© Jules Cox/Minden Pictures)|Kein Platz mehr hier!|![](/de-DE/2023/10/202310142200AutumnHedgehog.jpg)|
+202310152200|GoldenEnchantments|Goldene Lärchen und Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)|Einfach zauberhaft|![](/de-DE/2023/10/202310152200GoldenEnchantments.jpg)|
