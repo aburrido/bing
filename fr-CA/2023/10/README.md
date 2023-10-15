@@ -15,3 +15,4 @@
 202310120400|IdahoBarn|Vieille grange et champ de colza, région de Palouse, Idaho, États-Unis (© Terry Eggers/Getty Images)|Le bonheur est dans le pré !|![](/fr-CA/2023/10/202310120400IdahoBarn.jpg)|
 202310130400|JasperDarkSky|Voie lactée au-dessus du glacier Athabasca dans le parc national de Jasper, Canada (© Alan Dyer/Stocktrek Images/Getty Images)|Faites votre souhait!|![](/fr-CA/2023/10/202310130400JasperDarkSky.jpg)|
 202310140400|RingEclipse|Éclipse solaire annulaire "anneau de feu", Doha, Qatar (© Sorin Furcoi/Getty Images)|À la recherche de l’anneau de feu|![](/fr-CA/2023/10/202310140400RingEclipse.jpg)|
+202310150400|AutumnHedgehog|Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)|Qui va à la chasse perd sa place !|![](/fr-CA/2023/10/202310150400AutumnHedgehog.jpg)|
