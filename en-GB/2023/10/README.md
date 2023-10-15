@@ -16,3 +16,4 @@
 202310122300|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-GB/2023/10/202310122300ViesteItaly.jpg)|
 202310132300|RingEclipse|'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/en-GB/2023/10/202310132300RingEclipse.jpg)|
 202310142300|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-GB/2023/10/202310142300AutumnHedgehog.jpg)|
+202310152300|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-GB/2023/10/202310152300GoldenEnchantments.jpg)|
