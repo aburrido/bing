@@ -17,3 +17,4 @@
 202310131500|RailwayDay2023|第三只見川橋梁を渡る列車, 福島県 大沼郡 三島町 (© DoctorEgg/Getty Images)|今日は鉄道の日|![](/ja-JP/2023/10/202310131500RailwayDay2023.jpg)|
 202310141500|RingEclipse|金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)|太陽と月のダンス|![](/ja-JP/2023/10/202310141500RingEclipse.jpg)|
 202310151500|GoldenEnchantments|エンチャントメンツ, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)|金色のカラマツ林とプルシク峰|![](/ja-JP/2023/10/202310151500GoldenEnchantments.jpg)|
+202310161500|SpreadsheetDay|ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)|今日は国際スプレッドシートの日|![](/ja-JP/2023/10/202310161500SpreadsheetDay.jpg)|
