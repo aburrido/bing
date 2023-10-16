@@ -17,3 +17,4 @@
 202310132300|RingEclipse|'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/en-GB/2023/10/202310132300RingEclipse.jpg)|
 202310142300|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-GB/2023/10/202310142300AutumnHedgehog.jpg)|
 202310152300|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-GB/2023/10/202310152300GoldenEnchantments.jpg)|
+202310162300|SpreadsheetDay|Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)|Distant-past data|![](/en-GB/2023/10/202310162300SpreadsheetDay.jpg)|
