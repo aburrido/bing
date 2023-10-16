@@ -16,3 +16,4 @@
 202310130400|JasperDarkSky|Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)|Which one gets your wish?|![](/en-CA/2023/10/202310130400JasperDarkSky.jpg)|
 202310140400|RingEclipse|'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/en-CA/2023/10/202310140400RingEclipse.jpg)|
 202310150400|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-CA/2023/10/202310150400AutumnHedgehog.jpg)|
+202310160400|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-CA/2023/10/202310160400GoldenEnchantments.jpg)|
