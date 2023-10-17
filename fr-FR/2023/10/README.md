@@ -18,3 +18,4 @@
 202310142200|AutumnHedgehog|Hérisson européen se réfugiant dans l'écorce d'un arbre, Sussex, Angleterre (© Jules Cox/Minden Pictures)|Qui va à la chasse perd sa place !|![](/fr-FR/2023/10/202310142200AutumnHedgehog.jpg)|
 202310152200|GoldenEnchantments|Mélèzes aux couleurs de l’automne et le Mont Prusik, région Lacs Enchantés, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Un véritable enchantement !|![](/fr-FR/2023/10/202310152200GoldenEnchantments.jpg)|
 202310162200|SpreadsheetDay|Textes anciens gravés originaires de Persépolis, Iran (© George Hall/Alamy)|Des écritures venues d’un ancien monde|![](/fr-FR/2023/10/202310162200SpreadsheetDay.jpg)|
+202310172200|KodiakAlaska|Refuge faunique national de Kodiak, Alaska, États-Unis (© Ian Shive/Tandem Stills + Motion)|Un parc merveilleux dans le Grand Nord|![](/fr-FR/2023/10/202310172200KodiakAlaska.jpg)|
