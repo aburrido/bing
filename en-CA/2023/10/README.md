@@ -17,3 +17,4 @@
 202310140400|RingEclipse|'Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)|And it burns, burns, burns|![](/en-CA/2023/10/202310140400RingEclipse.jpg)|
 202310150400|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-CA/2023/10/202310150400AutumnHedgehog.jpg)|
 202310160400|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-CA/2023/10/202310160400GoldenEnchantments.jpg)|
+202310170400|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-CA/2023/10/202310170400ViesteItaly.jpg)|
