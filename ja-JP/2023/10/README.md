@@ -18,3 +18,4 @@
 202310141500|RingEclipse|金環日食, カタール ドーハ (© Sorin Furcoi/Getty Images)|太陽と月のダンス|![](/ja-JP/2023/10/202310141500RingEclipse.jpg)|
 202310151500|GoldenEnchantments|エンチャントメンツ, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)|金色のカラマツ林とプルシク峰|![](/ja-JP/2023/10/202310151500GoldenEnchantments.jpg)|
 202310161500|SpreadsheetDay|ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)|今日は国際スプレッドシートの日|![](/ja-JP/2023/10/202310161500SpreadsheetDay.jpg)|
+202310171500|KodiakAlaska|コディアック国立野生生物保護区, 米国 アラスカ州 (© Ian Shive/Tandem Stills + Motion)|今日はアラスカの日|![](/ja-JP/2023/10/202310171500KodiakAlaska.jpg)|
