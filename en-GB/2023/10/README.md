@@ -19,3 +19,4 @@
 202310152300|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington, USA (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-GB/2023/10/202310152300GoldenEnchantments.jpg)|
 202310162300|SpreadsheetDay|Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)|Distant-past data|![](/en-GB/2023/10/202310162300SpreadsheetDay.jpg)|
 202310172300|CanaryWharfStation|Canary Wharf underground station, London (© AWL Images/DanitaDelimont.com)|The holy train-ity|![](/en-GB/2023/10/202310172300CanaryWharfStation.jpg)|
+202310182300|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-GB/2023/10/202310182300WaterLilyVietnam.jpg)|
