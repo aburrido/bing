@@ -19,3 +19,4 @@
 202310151830|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-IN/2023/10/202310151830GoldenEnchantments.jpg)|
 202310161830|SpreadsheetDay|Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)|Distant-past data|![](/en-IN/2023/10/202310161830SpreadsheetDay.jpg)|
 202310171830|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|Seward's fortune|![](/en-IN/2023/10/202310171830KodiakAlaska.jpg)|
+202310181830|GoddessDurga|Idols of Hindu gods and goddesses in Kumortuli, Kolkata, India.   (© Rob Pinney/Alamy Stock Photo)|A splendid saga|![](/en-IN/2023/10/202310181830GoddessDurga.jpg)|
