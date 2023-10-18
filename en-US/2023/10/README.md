@@ -19,3 +19,4 @@
 202310150700|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-US/2023/10/202310150700AutumnHedgehog.jpg)|
 202310160700|GoldenEnchantments|Golden larches and Prusik Peak, the Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|The magic of the Enchantments|![](/en-US/2023/10/202310160700GoldenEnchantments.jpg)|
 202310170700|SpreadsheetDay|Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)|Happy Spreadsheet Day!|![](/en-US/2023/10/202310170700SpreadsheetDay.jpg)|
+202310180700|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|Seward's fortune|![](/en-US/2023/10/202310180700KodiakAlaska.jpg)|

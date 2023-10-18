@@ -19,3 +19,4 @@
 202310150700|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)|Info|![](/en-AU/2023/10/202310150700AutumnHedgehog.jpg)|
 202310160700|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310160700GoldenEnchantments.jpg)|
 202310170700|GenoeseTower|Genoese tower Torra di a Parata, Ajaccio, Corsica, France (© Jon Ingall/Alamy)|Info|![](/en-AU/2023/10/202310170700GenoeseTower.jpg)|
+202310180700|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310180700KodiakAlaska.jpg)|
