@@ -18,3 +18,4 @@
 202310150400|AutumnHedgehog|European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)|This spot's taken|![](/en-CA/2023/10/202310150400AutumnHedgehog.jpg)|
 202310160400|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|Enchanting indeed|![](/en-CA/2023/10/202310160400GoldenEnchantments.jpg)|
 202310170400|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-CA/2023/10/202310170400ViesteItaly.jpg)|
+202310180400|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|The untamed North|![](/en-CA/2023/10/202310180400KodiakAlaska.jpg)|
