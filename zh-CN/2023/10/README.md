@@ -19,3 +19,4 @@
 202310151600|GoldenEnchantments|金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)|确实令人着迷|![](/zh-CN/2023/10/202310151600GoldenEnchantments.jpg)|
 202310161600|GenoeseTower|帕拉塔塔,阿雅克肖,科西嘉岛,法国 (© Jon Ingall/Alamy)|赤血群岛的守护者|![](/zh-CN/2023/10/202310161600GenoeseTower.jpg)|
 202310171600|KodiakAlaska|科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)|西沃德的财富|![](/zh-CN/2023/10/202310171600KodiakAlaska.jpg)|
+202310181600|CastellyGwyntUK|Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)|去而复返|![](/zh-CN/2023/10/202310181600CastellyGwyntUK.jpg)|
