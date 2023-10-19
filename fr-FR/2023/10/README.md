@@ -20,3 +20,4 @@
 202310162200|SpreadsheetDay|Textes anciens gravés originaires de Persépolis, Iran (© George Hall/Alamy)|Des écritures venues d’un ancien monde|![](/fr-FR/2023/10/202310162200SpreadsheetDay.jpg)|
 202310172200|KodiakAlaska|Refuge faunique national de Kodiak, Alaska, États-Unis (© Ian Shive/Tandem Stills + Motion)|Un parc merveilleux dans le Grand Nord|![](/fr-FR/2023/10/202310172200KodiakAlaska.jpg)|
 202310182200|WaterLilyVietnam|Récolte de nénuphars, delta du Mékong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Un travail d’équipe au pays du dragon|![](/fr-FR/2023/10/202310182200WaterLilyVietnam.jpg)|
+202310192200|PygmySloth|Bébé paresseux nain, île Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Une petite sieste ?|![](/fr-FR/2023/10/202310192200PygmySloth.jpg)|

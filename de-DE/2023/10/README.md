@@ -20,3 +20,4 @@
 202310162200|SpreadsheetDay|Antike geschnitzte Texte aus Persepolis, Iran (© George Hall/Alamy)|Daten aus der Vergangenheit|![](/de-DE/2023/10/202310162200SpreadsheetDay.jpg)|
 202310172200|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska, USA (© Ian Shive/Tandem Stills + Motion)|Sewards Juwel|![](/de-DE/2023/10/202310172200KodiakAlaska.jpg)|
 202310182200|WaterLilyVietnam|Seerosenernte, Mekong-Flussdelta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork macht die Arbeit möglich|![](/de-DE/2023/10/202310182200WaterLilyVietnam.jpg)|
+202310192200|PygmySloth|Zwergfaultier-Baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Wollen Sie nicht auch mal abhängen?|![](/de-DE/2023/10/202310192200PygmySloth.jpg)|
