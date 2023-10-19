@@ -20,3 +20,4 @@
 202310161500|SpreadsheetDay|ペルセポリスの碑文の楔形文字, イラン ファールス州 (© George Hall/Alamy)|今日は国際スプレッドシートの日|![](/ja-JP/2023/10/202310161500SpreadsheetDay.jpg)|
 202310171500|KodiakAlaska|コディアック国立野生生物保護区, 米国 アラスカ州 (© Ian Shive/Tandem Stills + Motion)|今日はアラスカの日|![](/ja-JP/2023/10/202310171500KodiakAlaska.jpg)|
 202310181500|WaterLilyVietnam|ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)|睡蓮を収穫している人たち|![](/ja-JP/2023/10/202310181500WaterLilyVietnam.jpg)|
+202310191500|PygmySloth|木にぶら下がるナマケモノの赤ちゃん, パナマ (© Suzi Eszterhas/Minden Pictures)|今日は国際ナマケモノデー|![](/ja-JP/2023/10/202310191500PygmySloth.jpg)|
