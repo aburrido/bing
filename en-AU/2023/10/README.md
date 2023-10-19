@@ -20,3 +20,4 @@
 202310160700|GoldenEnchantments|Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310160700GoldenEnchantments.jpg)|
 202310170700|GenoeseTower|Genoese tower Torra di a Parata, Ajaccio, Corsica, France (© Jon Ingall/Alamy)|Info|![](/en-AU/2023/10/202310170700GenoeseTower.jpg)|
 202310180700|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310180700KodiakAlaska.jpg)|
+202310190700|CastellyGwyntUK|Castell y Gwynt, Snowdonia, Wales (© Alan Novelli/Alamy)|Info|![](/en-AU/2023/10/202310190700CastellyGwyntUK.jpg)|
