@@ -20,3 +20,4 @@
 202310162300|SpreadsheetDay|Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)|Distant-past data|![](/en-GB/2023/10/202310162300SpreadsheetDay.jpg)|
 202310172300|CanaryWharfStation|Canary Wharf underground station, London (© AWL Images/DanitaDelimont.com)|The holy train-ity|![](/en-GB/2023/10/202310172300CanaryWharfStation.jpg)|
 202310182300|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-GB/2023/10/202310182300WaterLilyVietnam.jpg)|
+202310192300|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-GB/2023/10/202310192300PygmySloth.jpg)|
