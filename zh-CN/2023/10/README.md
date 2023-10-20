@@ -21,3 +21,4 @@
 202310171600|KodiakAlaska|科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国 (© Ian Shive/Tandem Stills + Motion)|西沃德的财富|![](/zh-CN/2023/10/202310171600KodiakAlaska.jpg)|
 202310181600|CastellyGwyntUK|Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)|去而复返|![](/zh-CN/2023/10/202310181600CastellyGwyntUK.jpg)|
 202310191600|PygmySloth|俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures)|你想“挂”着玩吗？|![](/zh-CN/2023/10/202310191600PygmySloth.jpg)|
+202310201600|PersepolisRelief|波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)|哇，真是松了一口气！|![](/zh-CN/2023/10/202310201600PersepolisRelief.jpg)|
