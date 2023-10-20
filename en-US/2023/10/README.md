@@ -21,3 +21,4 @@
 202310170700|SpreadsheetDay|Ancient carved texts from Persepolis, Iran (© George Hall/Alamy)|Happy Spreadsheet Day!|![](/en-US/2023/10/202310170700SpreadsheetDay.jpg)|
 202310180700|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|Seward's fortune|![](/en-US/2023/10/202310180700KodiakAlaska.jpg)|
 202310190700|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-US/2023/10/202310190700WaterLilyVietnam.jpg)|
+202310200700|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-US/2023/10/202310200700PygmySloth.jpg)|
