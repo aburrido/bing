@@ -20,3 +20,4 @@
 202310170400|ViesteItaly|Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)|Life on the edge|![](/en-CA/2023/10/202310170400ViesteItaly.jpg)|
 202310180400|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|The untamed North|![](/en-CA/2023/10/202310180400KodiakAlaska.jpg)|
 202310190400|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-CA/2023/10/202310190400WaterLilyVietnam.jpg)|
+202310200400|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-CA/2023/10/202310200400PygmySloth.jpg)|
