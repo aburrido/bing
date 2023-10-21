@@ -22,3 +22,4 @@
 202310182300|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-GB/2023/10/202310182300WaterLilyVietnam.jpg)|
 202310192300|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-GB/2023/10/202310192300PygmySloth.jpg)|
 202310202300|PersepolisRelief|Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)|Wow, what a relief!|![](/en-GB/2023/10/202310202300PersepolisRelief.jpg)|
+202310212300|RedGrouseUK|Red grouse, Ilkley Moor, West Yorkshire, UK (© Rebecca Cole/Alamy Stock Photo)|Spot me if you can!|![](/en-GB/2023/10/202310212300RedGrouseUK.jpg)|
