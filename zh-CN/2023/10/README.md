@@ -22,3 +22,4 @@
 202310181600|CastellyGwyntUK|Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士 (© Alan Novelli/Alamy Stock Photo)|去而复返|![](/zh-CN/2023/10/202310181600CastellyGwyntUK.jpg)|
 202310191600|PygmySloth|俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures)|你想“挂”着玩吗？|![](/zh-CN/2023/10/202310191600PygmySloth.jpg)|
 202310201600|PersepolisRelief|波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)|哇，真是松了一口气！|![](/zh-CN/2023/10/202310201600PersepolisRelief.jpg)|
+202310211600|AstoriaBridge|哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)|一条用桁架架起来的公路|![](/zh-CN/2023/10/202310211600AstoriaBridge.jpg)|
