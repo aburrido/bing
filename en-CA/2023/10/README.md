@@ -21,3 +21,4 @@
 202310180400|KodiakAlaska|Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)|The untamed North|![](/en-CA/2023/10/202310180400KodiakAlaska.jpg)|
 202310190400|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-CA/2023/10/202310190400WaterLilyVietnam.jpg)|
 202310200400|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-CA/2023/10/202310200400PygmySloth.jpg)|
+202310210400|PersepolisRelief|Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)|Wow, what a relief!|![](/en-CA/2023/10/202310210400PersepolisRelief.jpg)|
