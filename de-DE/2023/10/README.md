@@ -22,3 +22,4 @@
 202310182200|WaterLilyVietnam|Seerosenernte, Mekong-Flussdelta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork macht die Arbeit möglich|![](/de-DE/2023/10/202310182200WaterLilyVietnam.jpg)|
 202310192200|PygmySloth|Zwergfaultier-Baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Wollen Sie nicht auch mal abhängen?|![](/de-DE/2023/10/202310192200PygmySloth.jpg)|
 202310202200|PersepolisRelief|Reliefs in der antiken persischen Stadt Persepolis, Iran (© Ozbalci/Getty Images)|Unglaubliche Kunst der Antike|![](/de-DE/2023/10/202310202200PersepolisRelief.jpg)|
+202310212200|AstoriaBridge|Astoria Bridge über den Columbia River, Astoria, Oregon, USA (© Dan Mihai/Getty Images)|Letzte Brücke vor dem Pazifik?|![](/de-DE/2023/10/202310212200AstoriaBridge.jpg)|
