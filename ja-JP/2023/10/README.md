@@ -22,3 +22,4 @@
 202310181500|WaterLilyVietnam|ロンアンの河川, ベトナム メコンデルタ (© Khanh Phan/Solent News/Shutterstock)|睡蓮を収穫している人たち|![](/ja-JP/2023/10/202310181500WaterLilyVietnam.jpg)|
 202310191500|PygmySloth|木にぶら下がるナマケモノの赤ちゃん, パナマ (© Suzi Eszterhas/Minden Pictures)|今日は国際ナマケモノデー|![](/ja-JP/2023/10/202310191500PygmySloth.jpg)|
 202310201500|PersepolisRelief|ペルセポリス, イラン (© Ozbalci/Getty Images)|今日は国際考古学の日|![](/ja-JP/2023/10/202310201500PersepolisRelief.jpg)|
+202310211500|JidaiMatsuri2023|平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)|今日は時代祭|![](/ja-JP/2023/10/202310211500JidaiMatsuri2023.jpg)|
