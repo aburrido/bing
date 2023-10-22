@@ -23,3 +23,4 @@
 202310191600|PygmySloth|俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马 (© Suzi Eszterhas/Minden Pictures)|你想“挂”着玩吗？|![](/zh-CN/2023/10/202310191600PygmySloth.jpg)|
 202310201600|PersepolisRelief|波斯古城波斯波利斯的浮雕，伊朗 (© Ozbalci/Getty Images)|哇，真是松了一口气！|![](/zh-CN/2023/10/202310201600PersepolisRelief.jpg)|
 202310211600|AstoriaBridge|哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国 (© Dan Mihai/Getty Images)|一条用桁架架起来的公路|![](/zh-CN/2023/10/202310211600AstoriaBridge.jpg)|
+202310221600|PoconosMaze|塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国 (© Alex Potemkin/Getty Images)|“迷”人之境|![](/zh-CN/2023/10/202310221600PoconosMaze.jpg)|
