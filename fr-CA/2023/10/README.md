@@ -22,3 +22,4 @@
 202310190400|WaterLilyVietnam|Récolte de nénuphars, delta du Mékong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Un travail d’équipe au pays du dragon|![](/fr-CA/2023/10/202310190400WaterLilyVietnam.jpg)|
 202310200400|PygmySloth|Bébé paresseux nain, île Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Une petite sieste ?|![](/fr-CA/2023/10/202310200400PygmySloth.jpg)|
 202310210400|PersepolisRelief|Bas-reliefs, ancienne cité perse de Persépolis, Iran (© Ozbalci/Getty Images)|Un voyage extraordinaire à travers les âges|![](/fr-CA/2023/10/202310210400PersepolisRelief.jpg)|
+202310220400|AstoriaBridge|Pont Astoria-Megler sur le fleuve Columbia, Astoria, Oregon, États-Unis (© Dan Mihai/Getty Images)|Un pont dans tous ses états!|![](/fr-CA/2023/10/202310220400AstoriaBridge.jpg)|

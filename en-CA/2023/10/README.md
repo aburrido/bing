@@ -22,3 +22,4 @@
 202310190400|WaterLilyVietnam|Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)|Teamwork makes the dream work|![](/en-CA/2023/10/202310190400WaterLilyVietnam.jpg)|
 202310200400|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-CA/2023/10/202310200400PygmySloth.jpg)|
 202310210400|PersepolisRelief|Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)|Wow, what a relief!|![](/en-CA/2023/10/202310210400PersepolisRelief.jpg)|
+202310220400|AstoriaBridge|Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)|A road you can truss|![](/en-CA/2023/10/202310220400AstoriaBridge.jpg)|
