@@ -23,3 +23,4 @@
 202310190700|CastellyGwyntUK|Castell y Gwynt, Snowdonia, Wales (© Alan Novelli/Alamy)|Info|![](/en-AU/2023/10/202310190700CastellyGwyntUK.jpg)|
 202310200700|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2023/10/202310200700PygmySloth.jpg)|
 202310210700|PersepolisRelief|Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)|Info|![](/en-AU/2023/10/202310210700PersepolisRelief.jpg)|
+202310220700|AstoriaBridge|Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)|Info|![](/en-AU/2023/10/202310220700AstoriaBridge.jpg)|
