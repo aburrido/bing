@@ -23,3 +23,4 @@
 202310192200|PygmySloth|Bébé paresseux nain, île Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Une petite sieste ?|![](/fr-FR/2023/10/202310192200PygmySloth.jpg)|
 202310202200|PersepolisRelief|Bas-reliefs, ancienne cité perse de Persépolis, Iran (© Ozbalci/Getty Images)|Un voyage extraordinaire à travers les âges|![](/fr-FR/2023/10/202310202200PersepolisRelief.jpg)|
 202310212200|AstoriaBridge|Pont Astoria-Megler sur le fleuve Columbia, Astoria, Oregon, États-Unis (© Dan Mihai/Getty Images)|Un pont dans tous ses états !|![](/fr-FR/2023/10/202310212200AstoriaBridge.jpg)|
+202310222200|PoconosMaze|Labyrinthe de maïs à Saylorsburg, Pennsylvanie, États-Unis (© Alex Potemkin/Getty Images)|Trouverez-vous la sortie de ce casse-tête géant ?|![](/fr-FR/2023/10/202310222200PoconosMaze.jpg)|

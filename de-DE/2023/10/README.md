@@ -23,3 +23,4 @@
 202310192200|PygmySloth|Zwergfaultier-Baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Wollen Sie nicht auch mal abhängen?|![](/de-DE/2023/10/202310192200PygmySloth.jpg)|
 202310202200|PersepolisRelief|Reliefs in der antiken persischen Stadt Persepolis, Iran (© Ozbalci/Getty Images)|Unglaubliche Kunst der Antike|![](/de-DE/2023/10/202310202200PersepolisRelief.jpg)|
 202310212200|AstoriaBridge|Astoria Bridge über den Columbia River, Astoria, Oregon, USA (© Dan Mihai/Getty Images)|Letzte Brücke vor dem Pazifik?|![](/de-DE/2023/10/202310212200AstoriaBridge.jpg)|
+202310222200|PoconosMaze|Maislabyrinth in Saylorsburg, Pennsylvania, USA (© Alex Potemkin/Getty Images)|Verlaufen Sie sich bitte nicht|![](/de-DE/2023/10/202310222200PoconosMaze.jpg)|
