@@ -24,3 +24,4 @@
 202310201500|PersepolisRelief|ペルセポリス, イラン (© Ozbalci/Getty Images)|今日は国際考古学の日|![](/ja-JP/2023/10/202310201500PersepolisRelief.jpg)|
 202310211500|JidaiMatsuri2023|平安神宮, 京都府 京都市 (© Arif Iqball Photography-Japan/Alamy Stock Photo)|今日は時代祭|![](/ja-JP/2023/10/202310211500JidaiMatsuri2023.jpg)|
 202310221500|PoconosMaze|マゼジラ, 米国 ペンシルベニア州 (© Alex Potemkin/Getty Images)|トウモロコシ畑に作られた迷路|![](/ja-JP/2023/10/202310221500PoconosMaze.jpg)|
+202310231500|FuzerCastle|フュゼール城, ハンガリー (© ZGPhotography/Alamy)|山頂にそびえ立つ歴史的なお城|![](/ja-JP/2023/10/202310231500FuzerCastle.jpg)|
