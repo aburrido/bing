@@ -24,3 +24,4 @@
 202310201830|MehrangarhJodhpur|View of Jaswant Thada and Mehrangarh Fort in Jodhpur city in Rajasthan, India. (© Twenty47studio/Getty images)|A castle of centuries|![](/en-IN/2023/10/202310201830MehrangarhJodhpur.jpg)|
 202310211830|AstoriaBridge|Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)|A road you can truss|![](/en-IN/2023/10/202310211830AstoriaBridge.jpg)|
 202310221830|PoconosMaze|Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)|An a-maize-ing puzzle|![](/en-IN/2023/10/202310221830PoconosMaze.jpg)|
+202310231830|VijayadashamiFestival|Dussehra festival celebration in India (© im a photographer and an artist/Getty Images)|Symbols of a fiery win|![](/en-IN/2023/10/202310231830VijayadashamiFestival.jpg)|
