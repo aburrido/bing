@@ -23,3 +23,4 @@
 202310200400|PygmySloth|Pygmy three-toed sloth baby, Isla Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)|Do you wanna hang?|![](/en-CA/2023/10/202310200400PygmySloth.jpg)|
 202310210400|PersepolisRelief|Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)|Wow, what a relief!|![](/en-CA/2023/10/202310210400PersepolisRelief.jpg)|
 202310220400|AstoriaBridge|Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)|A road you can truss|![](/en-CA/2023/10/202310220400AstoriaBridge.jpg)|
+202310230400|PoconosMaze|Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)|An a-maize-ing puzzle|![](/en-CA/2023/10/202310230400PoconosMaze.jpg)|
