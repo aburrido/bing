@@ -25,3 +25,4 @@
 202310211830|AstoriaBridge|Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)|A road you can truss|![](/en-IN/2023/10/202310211830AstoriaBridge.jpg)|
 202310221830|PoconosMaze|Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)|An a-maize-ing puzzle|![](/en-IN/2023/10/202310221830PoconosMaze.jpg)|
 202310231830|VijayadashamiFestival|Dussehra festival celebration in India (© im a photographer and an artist/Getty Images)|Symbols of a fiery win|![](/en-IN/2023/10/202310231830VijayadashamiFestival.jpg)|
+202310241830|GrandStaircase|Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)|A pop of autumn gold|![](/en-IN/2023/10/202310241830GrandStaircase.jpg)|
