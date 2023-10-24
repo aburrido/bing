@@ -24,3 +24,4 @@
 202310210400|PersepolisRelief|Bas-reliefs, ancienne cité perse de Persépolis, Iran (© Ozbalci/Getty Images)|Un voyage extraordinaire à travers les âges|![](/fr-CA/2023/10/202310210400PersepolisRelief.jpg)|
 202310220400|AstoriaBridge|Pont Astoria-Megler sur le fleuve Columbia, Astoria, Oregon, États-Unis (© Dan Mihai/Getty Images)|Un pont dans tous ses états!|![](/fr-CA/2023/10/202310220400AstoriaBridge.jpg)|
 202310230400|PoconosMaze|Labyrinthe de maïs à Saylorsburg, Pennsylvanie, États-Unis (© Alex Potemkin/Getty Images)|Trouverez-vous la sortie de ce casse-tête géant?|![](/fr-CA/2023/10/202310230400PoconosMaze.jpg)|
+202310240400|FuzerCastle|Château de Füzér dans les montagnes de Zemplén, Hongrie (© ZGPhotography/Alamy)|Une vue à couper le souffle|![](/fr-CA/2023/10/202310240400FuzerCastle.jpg)|
