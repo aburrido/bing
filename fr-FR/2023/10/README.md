@@ -25,3 +25,4 @@
 202310212200|AstoriaBridge|Pont Astoria-Megler sur le fleuve Columbia, Astoria, Oregon, États-Unis (© Dan Mihai/Getty Images)|Un pont dans tous ses états !|![](/fr-FR/2023/10/202310212200AstoriaBridge.jpg)|
 202310222200|PoconosMaze|Labyrinthe de maïs à Saylorsburg, Pennsylvanie, États-Unis (© Alex Potemkin/Getty Images)|Trouverez-vous la sortie de ce casse-tête géant ?|![](/fr-FR/2023/10/202310222200PoconosMaze.jpg)|
 202310232200|FuzerCastle|Château de Füzér dans les montagnes de Zemplén, Hongrie (© ZGPhotography/Alamy)|Une vue à couper le souffle|![](/fr-FR/2023/10/202310232200FuzerCastle.jpg)|
+202310242200|GrandStaircase|Les peupliers deltoïdes dans le monument national de Grand Staircase-Escalante, Utah, États-Unis (© Jeff Foott/Minden Pictures)|Une touche d'or automnal|![](/fr-FR/2023/10/202310242200GrandStaircase.jpg)|
