@@ -25,3 +25,4 @@
 202310212300|RedGrouseUK|Red grouse, Ilkley Moor, West Yorkshire, UK (© Rebecca Cole/Alamy Stock Photo)|Spot me if you can!|![](/en-GB/2023/10/202310212300RedGrouseUK.jpg)|
 202310222300|PoconosMaze|Corn maze in Saylorsburg, Pennsylvania, USA (© Alex Potemkin/Getty Images)|An a-maize-ing puzzle|![](/en-GB/2023/10/202310222300PoconosMaze.jpg)|
 202310232300|FuzerCastle|Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)|What lurks in these misty woods?|![](/en-GB/2023/10/202310232300FuzerCastle.jpg)|
+202310242300|GrandStaircase|Cottonwood trees in Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)|A pop of autumn gold|![](/en-GB/2023/10/202310242300GrandStaircase.jpg)|
