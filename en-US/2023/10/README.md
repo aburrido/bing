@@ -25,3 +25,4 @@
 202310210700|PersepolisRelief|Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)|Wow, what a relief!|![](/en-US/2023/10/202310210700PersepolisRelief.jpg)|
 202310220700|AstoriaBridge|Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)|A bridge you can truss|![](/en-US/2023/10/202310220700AstoriaBridge.jpg)|
 202310230700|PoconosMaze|Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)|An a-maize-ing puzzle|![](/en-US/2023/10/202310230700PoconosMaze.jpg)|
+202310240700|FuzerCastle|Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)|Fortress of solitude|![](/en-US/2023/10/202310240700FuzerCastle.jpg)|
