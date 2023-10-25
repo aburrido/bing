@@ -26,3 +26,4 @@
 202310222200|PoconosMaze|Maislabyrinth in Saylorsburg, Pennsylvania, USA (© Alex Potemkin/Getty Images)|Verlaufen Sie sich bitte nicht|![](/de-DE/2023/10/202310222200PoconosMaze.jpg)|
 202310232200|GermanLibrary|Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)|Bücher und Weisheit, Symbole der Freiheit!|![](/de-DE/2023/10/202310232200GermanLibrary.jpg)|
 202310242200|GrandStaircase|Baumwollbäume im Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)|Ein Hauch von Herbstgold|![](/de-DE/2023/10/202310242200GrandStaircase.jpg)|
+202310252200|ViennaAutumn|Herbstlaub im Schlosspark Schönbrunn, Wien, Österreich (© rusm/Getty Images)|Herbstliche Allee im Schlosspark Schönbrunn|![](/de-DE/2023/10/202310252200ViennaAutumn.jpg)|
