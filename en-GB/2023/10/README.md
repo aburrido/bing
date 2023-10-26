@@ -27,3 +27,4 @@
 202310232300|FuzerCastle|Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)|What lurks in these misty woods?|![](/en-GB/2023/10/202310232300FuzerCastle.jpg)|
 202310242300|GrandStaircase|Cottonwood trees in Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)|A pop of autumn gold|![](/en-GB/2023/10/202310242300GrandStaircase.jpg)|
 202310252300|AutumnLeavesBelfastUK|Stormont Estate, Northern Ireland (© Brian Lawless/PA Images/Getty Images)|A leaf stomper's paradise|![](/en-GB/2023/10/202310252300AutumnLeavesBelfastUK.jpg)|
+202310262300|OldBridgeSkye|Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Enchanted waters run deep|![](/en-GB/2023/10/202310262300OldBridgeSkye.jpg)|
