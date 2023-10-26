@@ -27,3 +27,4 @@
 202310232200|GermanLibrary|Stiftsbibliothek im Kloster Waldsassen, Oberpfalz, Bayern (© H.&D. Zielske/Image Professionals GmbH/Alamy Stock Foto)|Bücher und Weisheit, Symbole der Freiheit!|![](/de-DE/2023/10/202310232200GermanLibrary.jpg)|
 202310242200|GrandStaircase|Baumwollbäume im Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)|Ein Hauch von Herbstgold|![](/de-DE/2023/10/202310242200GrandStaircase.jpg)|
 202310252200|ViennaAutumn|Herbstlaub im Schlosspark Schönbrunn, Wien, Österreich (© rusm/Getty Images)|Herbstliche Allee im Schlosspark Schönbrunn|![](/de-DE/2023/10/202310252200ViennaAutumn.jpg)|
+202310262200|OldBridgeSkye|Alte Brücke von Sligachan, Isle of Skye, Schottland (© Aliaume Chapelle/Tandem Stills + Motion)|Der Fluss des Wassers|![](/de-DE/2023/10/202310262200OldBridgeSkye.jpg)|
