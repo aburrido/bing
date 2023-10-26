@@ -27,3 +27,4 @@
 202310230700|PoconosMaze|Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)|Info|![](/en-AU/2023/10/202310230700PoconosMaze.jpg)|
 202310240700|FuzerCastle|Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)|Info|![](/en-AU/2023/10/202310240700FuzerCastle.jpg)|
 202310250700|GrandStaircase|Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)|Info|![](/en-AU/2023/10/202310250700GrandStaircase.jpg)|
+202310260700|ViennaAutumn|Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)|Info|![](/en-AU/2023/10/202310260700ViennaAutumn.jpg)|
