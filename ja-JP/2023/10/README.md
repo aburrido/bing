@@ -27,3 +27,4 @@
 202310231500|FuzerCastle|フュゼール城, ハンガリー (© ZGPhotography/Alamy)|山頂にそびえ立つ歴史的なお城|![](/ja-JP/2023/10/202310231500FuzerCastle.jpg)|
 202310241500|GrandStaircase|グランド・ステアケース＝エスカランテ国定記念公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)|色とりどりの岩石が作り出す絶景|![](/ja-JP/2023/10/202310241500GrandStaircase.jpg)|
 202310251500|ViennaAutumn|シェーンブルン宮殿, オーストリア ウィーン (© rusm/Getty Images)|鮮やかな紅葉に彩られた庭園|![](/ja-JP/2023/10/202310251500ViennaAutumn.jpg)|
+202310261500|OldBridgeSkye|スカイ島のスリガチャン・オールド・ブリッジ, スコットランド (© Aliaume Chapelle/Tandem Stills + Motion)|歴史的な石造りの橋|![](/ja-JP/2023/10/202310261500OldBridgeSkye.jpg)|
