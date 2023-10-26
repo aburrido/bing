@@ -27,3 +27,4 @@
 202310231600|FuzerCastle|桑佩伦山上的菲泽尔城堡，匈牙利 (© ZGPhotography/Alamy)|这片迷雾密布的树林里潜藏着什么?|![](/zh-CN/2023/10/202310231600FuzerCastle.jpg)|
 202310241600|GrandStaircase|大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)|秋天的一抹金色|![](/zh-CN/2023/10/202310241600GrandStaircase.jpg)|
 202310251600|ViennaAutumn|美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)|落叶爱好者的天堂|![](/zh-CN/2023/10/202310251600ViennaAutumn.jpg)|
+202310261600|OldBridgeSkye|斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)|魔法之河深不见底|![](/zh-CN/2023/10/202310261600OldBridgeSkye.jpg)|
