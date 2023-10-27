@@ -28,3 +28,4 @@
 202310241830|GrandStaircase|Cottonwood trees in Grand Staircase-Escalante National Monument, Utah (© Jeff Foott/Minden Pictures)|A pop of autumn gold|![](/en-IN/2023/10/202310241830GrandStaircase.jpg)|
 202310251830|ViennaAutumn|Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)|A leaf stomper's paradise|![](/en-IN/2023/10/202310251830ViennaAutumn.jpg)|
 202310261830|OldBridgeSkye|Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Enchanted waters run deep|![](/en-IN/2023/10/202310261830OldBridgeSkye.jpg)|
+202310271830|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|A Spanish knight's greatest foes|![](/en-IN/2023/10/202310271830FiveWinds.jpg)|
