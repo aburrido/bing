@@ -28,3 +28,4 @@
 202310241600|GrandStaircase|大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国 (© Jeff Foott/Minden Pictures)|秋天的一抹金色|![](/zh-CN/2023/10/202310241600GrandStaircase.jpg)|
 202310251600|ViennaAutumn|美泉宫公园的秋叶，维也纳，奥地利 (© rusm/Getty Images)|落叶爱好者的天堂|![](/zh-CN/2023/10/202310251600ViennaAutumn.jpg)|
 202310261600|OldBridgeSkye|斯利加坎老桥，苏格兰斯凯岛 (© Aliaume Chapelle/Tandem Stills + Motion)|魔法之河深不见底|![](/zh-CN/2023/10/202310261600OldBridgeSkye.jpg)|
+202310271600|FiveWinds|卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)|西班牙骑士的“劲敌”|![](/zh-CN/2023/10/202310271600FiveWinds.jpg)|
