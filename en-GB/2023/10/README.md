@@ -29,3 +29,4 @@
 202310252300|AutumnLeavesBelfastUK|Stormont Estate, Northern Ireland (© Brian Lawless/PA Images/Getty Images)|A leaf stomper's paradise|![](/en-GB/2023/10/202310252300AutumnLeavesBelfastUK.jpg)|
 202310262300|OldBridgeSkye|Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Enchanted waters run deep|![](/en-GB/2023/10/202310262300OldBridgeSkye.jpg)|
 202310272300|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|A Spanish knight's greatest foes|![](/en-GB/2023/10/202310272300FiveWinds.jpg)|
+202310282300|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia, USA (© Kelly vanDellen/Alamy)|Dare to dwell here after dark?|![](/en-GB/2023/10/202310282300SavannahSculpture.jpg)|
