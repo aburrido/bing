@@ -29,3 +29,4 @@
 202310252200|ViennaAutumn|Herbstlaub im Schlosspark Schönbrunn, Wien, Österreich (© rusm/Getty Images)|Herbstliche Allee im Schlosspark Schönbrunn|![](/de-DE/2023/10/202310252200ViennaAutumn.jpg)|
 202310262200|OldBridgeSkye|Alte Brücke von Sligachan, Isle of Skye, Schottland (© Aliaume Chapelle/Tandem Stills + Motion)|Der Fluss des Wassers|![](/de-DE/2023/10/202310262200OldBridgeSkye.jpg)|
 202310272200|FiveWinds|Windmühlen in Kastilien-La Mancha, Spanien (© Getty Images)|Gegen Windmühlen kämpfen?|![](/de-DE/2023/10/202310272200FiveWinds.jpg)|
+202310282200|FuzerCastle|Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)|Weit oben in den Bergen!|![](/de-DE/2023/10/202310282200FuzerCastle.jpg)|
