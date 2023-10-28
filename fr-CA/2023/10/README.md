@@ -28,3 +28,4 @@
 202310250400|GrandStaircase|Les peupliers deltoïdes dans le monument national de Grand Staircase-Escalante, Utah, États-Unis (© Jeff Foott/Minden Pictures)|Une touche d'or automnal|![](/fr-CA/2023/10/202310250400GrandStaircase.jpg)|
 202310260400|ViennaAutumn|Feuillage d'automne dans le parc du château de Schönbrunn, Vienne, Autriche (© rusm/Getty Images)|Un paysage de conte de fées|![](/fr-CA/2023/10/202310260400ViennaAutumn.jpg)|
 202310270400|OldBridgeSkye|Pont de sligachan, île de Skye, Écosse (© Aliaume Chapelle/Tandem Stills + Motion)|Et au milieu coule une rivière…|![](/fr-CA/2023/10/202310270400OldBridgeSkye.jpg)|
+202310280400|FiveWinds|Moulins à vent dans la région de Castille-La Manche, Espagne (© Getty Images)|Des moulins à vent légendaires et épiques|![](/fr-CA/2023/10/202310280400FiveWinds.jpg)|
