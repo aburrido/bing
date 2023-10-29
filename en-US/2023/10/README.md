@@ -30,3 +30,4 @@
 202310260700|ViennaAutumn|Autumn foliage in Schönbrunn Palace Park, Vienna, Austria (© rusm/Getty Images)|A leaf stomper's paradise|![](/en-US/2023/10/202310260700ViennaAutumn.jpg)|
 202310270700|OldBridgeSkye|Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Enchanted waters run deep|![](/en-US/2023/10/202310270700OldBridgeSkye.jpg)|
 202310280700|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|A Spanish knight's greatest foes|![](/en-US/2023/10/202310280700FiveWinds.jpg)|
+202310290700|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)|Dare to dwell here after dark?|![](/en-US/2023/10/202310290700SavannahSculpture.jpg)|
