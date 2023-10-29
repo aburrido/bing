@@ -30,3 +30,4 @@
 202310262200|OldBridgeSkye|Alte Brücke von Sligachan, Isle of Skye, Schottland (© Aliaume Chapelle/Tandem Stills + Motion)|Der Fluss des Wassers|![](/de-DE/2023/10/202310262200OldBridgeSkye.jpg)|
 202310272200|FiveWinds|Windmühlen in Kastilien-La Mancha, Spanien (© Getty Images)|Gegen Windmühlen kämpfen?|![](/de-DE/2023/10/202310272200FiveWinds.jpg)|
 202310282200|FuzerCastle|Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)|Weit oben in den Bergen!|![](/de-DE/2023/10/202310282200FuzerCastle.jpg)|
+202310292300|MallarDucks|Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)|Alle meine Entchen|![](/de-DE/2023/10/202310292300MallarDucks.jpg)|
