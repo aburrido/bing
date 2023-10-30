@@ -31,3 +31,4 @@
 202310270700|OldBridgeSkye|Sligachan Old Bridge, Isle of Skye, Scotland (© Aliaume Chapelle/Tandem Stills + Motion)|Info|![](/en-AU/2023/10/202310270700OldBridgeSkye.jpg)|
 202310280700|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|Info|![](/en-AU/2023/10/202310280700FiveWinds.jpg)|
 202310290700|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)|Info|![](/en-AU/2023/10/202310290700SavannahSculpture.jpg)|
+202310300700|AutumnRaven|Common raven sitting on a branch (© WildMedia/Shutterstock)|Info|![](/en-AU/2023/10/202310300700AutumnRaven.jpg)|
