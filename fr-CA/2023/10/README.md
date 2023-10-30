@@ -30,3 +30,4 @@
 202310270400|OldBridgeSkye|Pont de sligachan, île de Skye, Écosse (© Aliaume Chapelle/Tandem Stills + Motion)|Et au milieu coule une rivière…|![](/fr-CA/2023/10/202310270400OldBridgeSkye.jpg)|
 202310280400|FiveWinds|Moulins à vent dans la région de Castille-La Manche, Espagne (© Getty Images)|Des moulins à vent légendaires et épiques|![](/fr-CA/2023/10/202310280400FiveWinds.jpg)|
 202310290400|KennyLake|Lac Kenny à l'aube, Parc provincial du Lac-Supérieur, Ontario, Canada  (© Don Johnston/agefotostock)|Un matin dans la brume|![](/fr-CA/2023/10/202310290400KennyLake.jpg)|
+202310300400|AutumnRaven|Grand corbeau assis sur une branche (© WildMedia/Shutterstock)|Jamais plus!|![](/fr-CA/2023/10/202310300400AutumnRaven.jpg)|
