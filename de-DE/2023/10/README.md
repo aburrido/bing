@@ -31,3 +31,4 @@
 202310272200|FiveWinds|Windmühlen in Kastilien-La Mancha, Spanien (© Getty Images)|Gegen Windmühlen kämpfen?|![](/de-DE/2023/10/202310272200FiveWinds.jpg)|
 202310282200|FuzerCastle|Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)|Weit oben in den Bergen!|![](/de-DE/2023/10/202310282200FuzerCastle.jpg)|
 202310292300|MallarDucks|Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)|Alle meine Entchen|![](/de-DE/2023/10/202310292300MallarDucks.jpg)|
+202310302300|HalloweenPorchAI|Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)|Spukhafte Fratzen|![](/de-DE/2023/10/202310302300HalloweenPorchAI.jpg)|
