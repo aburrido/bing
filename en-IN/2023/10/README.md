@@ -31,3 +31,4 @@
 202310271830|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|A Spanish knight's greatest foes|![](/en-IN/2023/10/202310271830FiveWinds.jpg)|
 202310281830|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)|Dare to dwell here after dark?|![](/en-IN/2023/10/202310281830SavannahSculpture.jpg)|
 202310291830|AutumnRaven|Common raven sitting on a branch (© WildMedia/Shutterstock)|Here's to ravens, evermore|![](/en-IN/2023/10/202310291830AutumnRaven.jpg)|
+202310301830|FuzerCastle|Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)|What lurks in these misty woods?|![](/en-IN/2023/10/202310301830FuzerCastle.jpg)|
