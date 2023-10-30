@@ -31,3 +31,4 @@
 202310271600|FiveWinds|卡斯蒂利亚-拉曼恰的风车，西班牙 (© Getty Images)|西班牙骑士的“劲敌”|![](/zh-CN/2023/10/202310271600FiveWinds.jpg)|
 202310281600|SavannahSculpture|博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)|天黑后，你还敢待在这里吗？|![](/zh-CN/2023/10/202310281600SavannahSculpture.jpg)|
 202310291600|AutumnRaven|普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)|黑衣美人|![](/zh-CN/2023/10/202310291600AutumnRaven.jpg)|
+202310301600|HalloweenCuteAI|万圣节南瓜灯 (© Bing Image Creator)|恶灵们只想玩个开心。|![](/zh-CN/2023/10/202310301600HalloweenCuteAI.jpg)|
