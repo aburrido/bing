@@ -32,3 +32,4 @@
 202310281600|SavannahSculpture|博纳温彻墓地，萨凡纳，佐治亚州，美国 (© Kelly vanDellen/Alamy)|天黑后，你还敢待在这里吗？|![](/zh-CN/2023/10/202310281600SavannahSculpture.jpg)|
 202310291600|AutumnRaven|普通乌鸦坐在树枝上 (© WildMedia/Shutterstock)|黑衣美人|![](/zh-CN/2023/10/202310291600AutumnRaven.jpg)|
 202310301600|HalloweenCuteAI|万圣节南瓜灯 (© Bing Image Creator)|恶灵们只想玩个开心。|![](/zh-CN/2023/10/202310301600HalloweenCuteAI.jpg)|
+202310311600|HautBarr|上巴尔城堡，阿尔萨斯，法国 (© Andrea Pistolesi/Getty Images)|你知道“阿尔萨斯之眼”吗？|![](/zh-CN/2023/10/202310311600HautBarr.jpg)|
