@@ -32,3 +32,4 @@
 202310280700|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|Info|![](/en-AU/2023/10/202310280700FiveWinds.jpg)|
 202310290700|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)|Info|![](/en-AU/2023/10/202310290700SavannahSculpture.jpg)|
 202310300700|AutumnRaven|Common raven sitting on a branch (© WildMedia/Shutterstock)|Info|![](/en-AU/2023/10/202310300700AutumnRaven.jpg)|
+202310310700|PumpkinsSquash|Pumpkins and squashes (© bobkeenan/Getty Images)|Info|![](/en-AU/2023/10/202310310700PumpkinsSquash.jpg)|

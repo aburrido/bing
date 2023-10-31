@@ -32,3 +32,4 @@
 202310280700|FiveWinds|Windmills in Castilla-La Mancha, Spain (© Getty Images)|A Spanish knight's greatest foes|![](/en-US/2023/10/202310280700FiveWinds.jpg)|
 202310290700|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)|Dare to dwell here after dark?|![](/en-US/2023/10/202310290700SavannahSculpture.jpg)|
 202310300700|AutumnRaven|Common raven sitting on a branch (© WildMedia/Shutterstock)|Here's to ravens, evermore|![](/en-US/2023/10/202310300700AutumnRaven.jpg)|
+202310310700|HalloweenPorchAI|Halloween jack-o'-lanterns on a porch (© Bing Image Creator)|Creepin' it real|![](/en-US/2023/10/202310310700HalloweenPorchAI.jpg)|
