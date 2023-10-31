@@ -32,3 +32,4 @@
 202310281500|BourgesMarsh|ブールジュの沼地, フランス (© Tuul & Bruno Morandi/Getty Images)|フランス中心部に隠された美しい宝石|![](/ja-JP/2023/10/202310281500BourgesMarsh.jpg)|
 202310291500|GlenariffForest|グレナリフ森林公園, 北アイルランド アントリム県 (© Peter Zelei/Getty Images)|日差しに照らされている森|![](/ja-JP/2023/10/202310291500GlenariffForest.jpg)|
 202310301500|HalloweenCuteAI|ハロウィンのシンボルであるジャック・オー・ランタン (© Bing Image Creator)|今日はハロウィン|![](/ja-JP/2023/10/202310301500HalloweenCuteAI.jpg)|
+202310311500|AstoriaBridge|コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)|米国の最も長い連続トラス橋|![](/ja-JP/2023/10/202310311500AstoriaBridge.jpg)|
