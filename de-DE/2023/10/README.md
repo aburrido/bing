@@ -32,3 +32,4 @@
 202310282200|FuzerCastle|Burg Füzér im Tokajer Gebirge, Ungarn (© ZGPhotography/Alamy)|Weit oben in den Bergen!|![](/de-DE/2023/10/202310282200FuzerCastle.jpg)|
 202310292300|MallarDucks|Zwei Stockenten im Wasser, Herbst, Deutschland (© sun ok/Shutterstock)|Alle meine Entchen|![](/de-DE/2023/10/202310292300MallarDucks.jpg)|
 202310302300|HalloweenPorchAI|Halloween-Kürbisse auf einer Veranda (© Bing Image Creator)|Spukhafte Fratzen|![](/de-DE/2023/10/202310302300HalloweenPorchAI.jpg)|
+202310312300|HautBarr|Burg Hohbarr, Elsass, Frankreich (© Andrea Pistolesi/Getty Images)|Kennen Sie das „Auge des Elsass“?|![](/de-DE/2023/10/202310312300HautBarr.jpg)|
