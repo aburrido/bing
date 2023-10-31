@@ -32,3 +32,4 @@
 202310281830|SavannahSculpture|Bonaventure Cemetery, Savannah, Georgia (© Kelly vanDellen/Alamy)|Dare to dwell here after dark?|![](/en-IN/2023/10/202310281830SavannahSculpture.jpg)|
 202310291830|AutumnRaven|Common raven sitting on a branch (© WildMedia/Shutterstock)|Here's to ravens, evermore|![](/en-IN/2023/10/202310291830AutumnRaven.jpg)|
 202310301830|FuzerCastle|Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)|What lurks in these misty woods?|![](/en-IN/2023/10/202310301830FuzerCastle.jpg)|
+202310311830|HautBarr|Haut-Barr Castle, Alsace, France (© Andrea Pistolesi/Getty Images)|Did you know the "Eye of Alsace"?|![](/en-IN/2023/10/202310311830HautBarr.jpg)|
