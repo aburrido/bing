@@ -31,3 +31,4 @@
 202310280400|FiveWinds|Moulins à vent dans la région de Castille-La Manche, Espagne (© Getty Images)|Des moulins à vent légendaires et épiques|![](/fr-CA/2023/10/202310280400FiveWinds.jpg)|
 202310290400|KennyLake|Lac Kenny à l'aube, Parc provincial du Lac-Supérieur, Ontario, Canada  (© Don Johnston/agefotostock)|Un matin dans la brume|![](/fr-CA/2023/10/202310290400KennyLake.jpg)|
 202310300400|AutumnRaven|Grand corbeau assis sur une branche (© WildMedia/Shutterstock)|Jamais plus!|![](/fr-CA/2023/10/202310300400AutumnRaven.jpg)|
+202310310400|HalloweenPorchAI|Lanternes citrouilles d'Halloween sous un porche (© Bing Image Creator)|Un sort ou un bonbon?|![](/fr-CA/2023/10/202310310400HalloweenPorchAI.jpg)|
