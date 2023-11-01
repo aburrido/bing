@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202310311500|AstoriaBridge|コロンビア川とアストリア・メグラー橋, 米国 オレゴン州 (© Dan Mihai/Getty Images)|米国の最も長い連続トラス橋|![](/ja-JP/2023/11/202310311500AstoriaBridge.jpg)|
+202311011500|DeathValleySalt|デスバレー国立公園, 米国 カリフォルニア州 (© Jim Patterson/Tandem Stills + Motion)|白く輝くバッドウォーター|![](/ja-JP/2023/11/202311011500DeathValleySalt.jpg)|
