@@ -3,3 +3,4 @@
 202310311830|HautBarr|Haut-Barr Castle, Alsace, France (© Andrea Pistolesi/Getty Images)|Did you know the "Eye of Alsace"?|![](/en-IN/2023/11/202310311830HautBarr.jpg)|
 202311011830|DeathValleySalt|Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)|This park is worth its salt|![](/en-IN/2023/11/202311011830DeathValleySalt.jpg)|
 202311021830|SeaNettles|Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)|An illuminated bloom|![](/en-IN/2023/11/202311021830SeaNettles.jpg)|
+202311031830|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Built for the cold|![](/en-IN/2023/11/202311031830BisonSnow.jpg)|
