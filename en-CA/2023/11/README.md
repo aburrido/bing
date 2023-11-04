@@ -4,3 +4,4 @@
 202311010400|KennyLake|Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)|Morning in the mist|![](/en-CA/2023/11/202311010400KennyLake.jpg)|
 202311020400|DeathValleySalt|Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)|This park is worth its salt|![](/en-CA/2023/11/202311020400DeathValleySalt.jpg)|
 202311030400|SeaNettles|Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)|An illuminated bloom|![](/en-CA/2023/11/202311030400SeaNettles.jpg)|
+202311040400|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Built for the cold|![](/en-CA/2023/11/202311040400BisonSnow.jpg)|

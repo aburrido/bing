@@ -4,3 +4,4 @@
 202311010400|HautBarr|Château de Haut-Barr, Pays de Saverne, Vosges, France (© Andrea Pistolesi/Getty Images)|Connaissez-vous « l’œil de l’Alsace » ?|![](/fr-CA/2023/11/202311010400HautBarr.jpg)|
 202311020400|DeathValleySalt|Salines dans le bassin Badwater, parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Ce parc vaut son pesant… de sel!|![](/fr-CA/2023/11/202311020400DeathValleySalt.jpg)|
 202311030400|SeaNettles|Méduse dorée, au large de la côte de Carmel, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)|La redoutable méduse tueuse|![](/fr-CA/2023/11/202311030400SeaNettles.jpg)|
+202311040400|BisonSnow|Bison d'Amérique, parc national de Yellowstone, Wyoming, États-Unis (© Gary Gray/Getty Images)|Froid? Même pas peur!|![](/fr-CA/2023/11/202311040400BisonSnow.jpg)|
