@@ -4,3 +4,4 @@
 202311010700|HautBarr|Haut-Barr Castle, Alsace, France (© Andrea Pistolesi/Getty Images)|Info|![](/en-AU/2023/11/202311010700HautBarr.jpg)|
 202311020700|DeathValleySalt|Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311020700DeathValleySalt.jpg)|
 202311030700|SeaNettles|Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311030700SeaNettles.jpg)|
+202311040700|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Info|![](/en-AU/2023/11/202311040700BisonSnow.jpg)|
