@@ -5,3 +5,4 @@
 202311022300|SeaNettles|Méduse dorée, au large de la côte de Carmel, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)|La redoutable méduse tueuse|![](/fr-FR/2023/11/202311022300SeaNettles.jpg)|
 202311032300|BisonSnow|Bison d'Amérique, parc national de Yellowstone, Wyoming, États-Unis (© Gary Gray/Getty Images)|Froid ? Même pas peur !|![](/fr-FR/2023/11/202311032300BisonSnow.jpg)|
 202311042300|SilencioSpain|Formation de quartzite, Playa del Silencio, Espagne (© Jean-Philippe Delobelle/Minden Pictures)|La magie du silence de la mer|![](/fr-FR/2023/11/202311042300SilencioSpain.jpg)|
+202311052300|LagoPehoe|Lac Pehoé, Parc National Torres del Paine, Chili (© OST/Getty Images)|« Bleu-ffés » par cette splendeur !|![](/fr-FR/2023/11/202311052300LagoPehoe.jpg)|
