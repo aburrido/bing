@@ -5,3 +5,4 @@
 202311021500|ManateeMama|スリー・シスターズ・スプリングス, 米国 フロリダ州 クリスタルリバー市 (© Karine Aigner/Tandem Stills + Motion)|マナティーの親子|![](/ja-JP/2023/11/202311021500ManateeMama.jpg)|
 202311031500|BisonSnow|イエローストーン国立公園のバイソン, 米国 ワイオミング州 (© Gary Gray/Getty Images)|今日は米国のバイソンの日|![](/ja-JP/2023/11/202311031500BisonSnow.jpg)|
 202311041500|SilencioSpain|静寂のビーチ, スペイン アストゥリアス州 (© Jean-Philippe Delobelle/Minden Pictures)|不思議な岩を持つ海岸|![](/ja-JP/2023/11/202311041500SilencioSpain.jpg)|
+202311051500|LagoPehoe|トーレス・デル・パイネ国立公園, チリ (© OST/Getty Images)|ターコイズブルーの湖と荒々しい岩峰|![](/ja-JP/2023/11/202311051500LagoPehoe.jpg)|
