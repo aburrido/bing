@@ -5,3 +5,4 @@
 202311020700|DeathValleySalt|Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)|This park is worth its salt|![](/en-US/2023/11/202311020700DeathValleySalt.jpg)|
 202311030700|SeaNettles|Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)|An illuminated bloom|![](/en-US/2023/11/202311030700SeaNettles.jpg)|
 202311040700|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Built for the cold|![](/en-US/2023/11/202311040700BisonSnow.jpg)|
+202311050800|SilencioSpain|Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)|A quiet place, indeed|![](/en-US/2023/11/202311050800SilencioSpain.jpg)|
