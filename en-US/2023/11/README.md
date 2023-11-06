@@ -6,3 +6,4 @@
 202311030700|SeaNettles|Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)|An illuminated bloom|![](/en-US/2023/11/202311030700SeaNettles.jpg)|
 202311040700|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Built for the cold|![](/en-US/2023/11/202311040700BisonSnow.jpg)|
 202311050800|SilencioSpain|Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)|A quiet place, indeed|![](/en-US/2023/11/202311050800SilencioSpain.jpg)|
+202311060800|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Catching rays in Torres del Paine|![](/en-US/2023/11/202311060800LagoPehoe.jpg)|
