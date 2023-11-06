@@ -6,3 +6,4 @@
 202311031500|BisonSnow|イエローストーン国立公園のバイソン, 米国 ワイオミング州 (© Gary Gray/Getty Images)|今日は米国のバイソンの日|![](/ja-JP/2023/11/202311031500BisonSnow.jpg)|
 202311041500|SilencioSpain|静寂のビーチ, スペイン アストゥリアス州 (© Jean-Philippe Delobelle/Minden Pictures)|不思議な岩を持つ海岸|![](/ja-JP/2023/11/202311041500SilencioSpain.jpg)|
 202311051500|LagoPehoe|トーレス・デル・パイネ国立公園, チリ (© OST/Getty Images)|ターコイズブルーの湖と荒々しい岩峰|![](/ja-JP/2023/11/202311051500LagoPehoe.jpg)|
+202311061500|KirkilaiTower|ビルジャイ地域公園, リトアニア (© MNStudio/Shutterstock)|キルキライの湖と展望台|![](/ja-JP/2023/11/202311061500KirkilaiTower.jpg)|
