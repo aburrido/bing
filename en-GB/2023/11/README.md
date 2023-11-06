@@ -5,3 +5,4 @@
 202311030000|SeaNettles|Pacific sea nettles off the coast of Carmel, California, USA (© Jim Patterson/Tandem Stills + Motion)|An illuminated bloom|![](/en-GB/2023/11/202311030000SeaNettles.jpg)|
 202311040000|SilencioSpain|Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)|A quiet place, indeed|![](/en-GB/2023/11/202311040000SilencioSpain.jpg)|
 202311050000|GuyFawkesnightKettering|Firework display at Boughton House, Kettering (© Ben Browning/Alamy Stock Photo)|A rare celebration of failure|![](/en-GB/2023/11/202311050000GuyFawkesnightKettering.jpg)|
+202311060000|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Shine a light into your blues|![](/en-GB/2023/11/202311060000LagoPehoe.jpg)|
