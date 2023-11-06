@@ -6,3 +6,4 @@
 202311031830|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Built for the cold|![](/en-IN/2023/11/202311031830BisonSnow.jpg)|
 202311041830|SilencioSpain|Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)|A quiet place, indeed|![](/en-IN/2023/11/202311041830SilencioSpain.jpg)|
 202311051830|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Shine a light into your blues|![](/en-IN/2023/11/202311051830LagoPehoe.jpg)|
+202311061830|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Lookout above!|![](/en-IN/2023/11/202311061830KirkilaiTower.jpg)|
