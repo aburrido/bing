@@ -7,3 +7,4 @@
 202311040700|BisonSnow|American bison, Yellowstone National Park, Wyoming (© Gary Gray/Getty Images)|Info|![](/en-AU/2023/11/202311040700BisonSnow.jpg)|
 202311050800|SilencioSpain|Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)|Info|![](/en-AU/2023/11/202311050800SilencioSpain.jpg)|
 202311060800|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Info|![](/en-AU/2023/11/202311060800LagoPehoe.jpg)|
+202311070800|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Info|![](/en-AU/2023/11/202311070800KirkilaiTower.jpg)|
