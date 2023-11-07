@@ -7,3 +7,4 @@
 202311042300|SilencioSpain|Quarzitformation, Playa del Silencio, Asturien, Spanien (© Jean-Philippe Delobelle/Minden Pictures)|Wahrlich ein stiller und ruhiger Ort|![](/de-DE/2023/11/202311042300SilencioSpain.jpg)|
 202311052300|LagoPehoe|Pehoé-See, Nationalpark Torres del Paine, Chile (© OST/Getty Images)|Das Licht sehen!|![](/de-DE/2023/11/202311052300LagoPehoe.jpg)|
 202311062300|KirkilaiTower|Kirkilai-Seen und Aussichtsturm, Regionalpark Biržai, Litauen (© MNStudio/Shutterstock)​|Ein grünes Paradies mit eigenem Holzmond!|![](/de-DE/2023/11/202311062300KirkilaiTower.jpg)|
+202311072300|ManateeMama|Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)|Was sind das für sanfte Tiere?|![](/de-DE/2023/11/202311072300ManateeMama.jpg)|
