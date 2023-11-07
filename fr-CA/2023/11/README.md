@@ -7,3 +7,4 @@
 202311040400|BisonSnow|Bison d'Amérique, parc national de Yellowstone, Wyoming, États-Unis (© Gary Gray/Getty Images)|Froid? Même pas peur!|![](/fr-CA/2023/11/202311040400BisonSnow.jpg)|
 202311050400|SilencioSpain|Formation de quartzite, Playa del Silencio, Espagne (© Jean-Philippe Delobelle/Minden Pictures)|La magie du silence de la mer|![](/fr-CA/2023/11/202311050400SilencioSpain.jpg)|
 202311060500|LagoPehoe|Lac Pehoé, Parc National Torres del Paine, sud du Chili (© OST/Getty Images)|« Bleu-ffés » par cette splendeur!|![](/fr-CA/2023/11/202311060500LagoPehoe.jpg)|
+202311070500|KirkilaiTower|Lacs de Kirkilai et tour de guet, parc régional de Biržai, Lituanie (© MNStudio/Shutterstock)|Qui-va-là!|![](/fr-CA/2023/11/202311070500KirkilaiTower.jpg)|
