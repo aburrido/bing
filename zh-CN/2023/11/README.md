@@ -7,3 +7,4 @@
 202311041600|SilencioSpain|石英岩地层，普拉亚德尔锡伦西奥，西班牙 (© Jean-Philippe Delobelle/Minden Pictures)|宁静之地|![](/zh-CN/2023/11/202311041600SilencioSpain.jpg)|
 202311051600|LagoPehoe|佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)|照亮你忧郁的心|![](/zh-CN/2023/11/202311051600LagoPehoe.jpg)|
 202311061600|KirkilaiTower|Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)|瞭望塔上，一睹奇景！|![](/zh-CN/2023/11/202311061600KirkilaiTower.jpg)|
+202311071600|LiDong2023|黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)|冬日里的壮丽美景|![](/zh-CN/2023/11/202311071600LiDong2023.jpg)|
