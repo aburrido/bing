@@ -8,3 +8,4 @@
 202311051600|LagoPehoe|佩霍湖，百内国家公园，智利南部 (© OST/Getty Images)|照亮你忧郁的心|![](/zh-CN/2023/11/202311051600LagoPehoe.jpg)|
 202311061600|KirkilaiTower|Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛 (© MNStudio/Shutterstock)|瞭望塔上，一睹奇景！|![](/zh-CN/2023/11/202311061600KirkilaiTower.jpg)|
 202311071600|LiDong2023|黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)|冬日里的壮丽美景|![](/zh-CN/2023/11/202311071600LiDong2023.jpg)|
+202311081600|NorwayBirch|秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)|秋天的影子|![](/zh-CN/2023/11/202311081600NorwayBirch.jpg)|
