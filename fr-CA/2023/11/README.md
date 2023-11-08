@@ -8,3 +8,4 @@
 202311050400|SilencioSpain|Formation de quartzite, Playa del Silencio, Espagne (© Jean-Philippe Delobelle/Minden Pictures)|La magie du silence de la mer|![](/fr-CA/2023/11/202311050400SilencioSpain.jpg)|
 202311060500|LagoPehoe|Lac Pehoé, Parc National Torres del Paine, sud du Chili (© OST/Getty Images)|« Bleu-ffés » par cette splendeur!|![](/fr-CA/2023/11/202311060500LagoPehoe.jpg)|
 202311070500|KirkilaiTower|Lacs de Kirkilai et tour de guet, parc régional de Biržai, Lituanie (© MNStudio/Shutterstock)|Qui-va-là!|![](/fr-CA/2023/11/202311070500KirkilaiTower.jpg)|
+202311080500|ManateeMama|Lamantins des Caraïbes, femelle avec son bébé, Crystal River, Three Sisters Spring, Floride, États-Unis (© Karine Aigner/Tandem Stills + Motion)|Sirènes ou lamantins?|![](/fr-CA/2023/11/202311080500ManateeMama.jpg)|
