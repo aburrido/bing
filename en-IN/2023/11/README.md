@@ -8,3 +8,4 @@
 202311051830|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Shine a light into your blues|![](/en-IN/2023/11/202311051830LagoPehoe.jpg)|
 202311061830|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Lookout above!|![](/en-IN/2023/11/202311061830KirkilaiTower.jpg)|
 202311071830|ManateeMama|West Indian manatee mother and baby, Three Sisters Spring, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)|Sirens or sea cows?|![](/en-IN/2023/11/202311071830ManateeMama.jpg)|
+202311081830|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Shades of autumn|![](/en-IN/2023/11/202311081830NorwayBirch.jpg)|
