@@ -8,3 +8,4 @@
 202311050800|SilencioSpain|Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)|Info|![](/en-AU/2023/11/202311050800SilencioSpain.jpg)|
 202311060800|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Info|![](/en-AU/2023/11/202311060800LagoPehoe.jpg)|
 202311070800|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Info|![](/en-AU/2023/11/202311070800KirkilaiTower.jpg)|
+202311080800|ManateeMama|West Indian manatee mother and baby, Three Sisters Spring, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311080800ManateeMama.jpg)|
