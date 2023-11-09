@@ -9,3 +9,4 @@
 202311060800|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Catching rays in Torres del Paine|![](/en-US/2023/11/202311060800LagoPehoe.jpg)|
 202311070800|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Lookout above!|![](/en-US/2023/11/202311070800KirkilaiTower.jpg)|
 202311080800|ManateeMama|West Indian manatee mother and baby, Three Sisters Springs, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)|The life aquatic|![](/en-US/2023/11/202311080800ManateeMama.jpg)|
+202311090800|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Shades of autumn|![](/en-US/2023/11/202311090800NorwayBirch.jpg)|
