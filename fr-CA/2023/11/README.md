@@ -9,3 +9,4 @@
 202311060500|LagoPehoe|Lac Pehoé, Parc National Torres del Paine, sud du Chili (© OST/Getty Images)|« Bleu-ffés » par cette splendeur!|![](/fr-CA/2023/11/202311060500LagoPehoe.jpg)|
 202311070500|KirkilaiTower|Lacs de Kirkilai et tour de guet, parc régional de Biržai, Lituanie (© MNStudio/Shutterstock)|Qui-va-là!|![](/fr-CA/2023/11/202311070500KirkilaiTower.jpg)|
 202311080500|ManateeMama|Lamantins des Caraïbes, femelle avec son bébé, Crystal River, Three Sisters Spring, Floride, États-Unis (© Karine Aigner/Tandem Stills + Motion)|Sirènes ou lamantins?|![](/fr-CA/2023/11/202311080500ManateeMama.jpg)|
+202311090500|NorwayBirch|Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)|Nuances d'automne|![](/fr-CA/2023/11/202311090500NorwayBirch.jpg)|
