@@ -8,3 +8,4 @@
 202311060000|LagoPehoe|Lake Pehoé, Torres del Paine National Park, Chile (© OST/Getty Images)|Shine a light into your blues|![](/en-GB/2023/11/202311060000LagoPehoe.jpg)|
 202311070000|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Lookout above!|![](/en-GB/2023/11/202311070000KirkilaiTower.jpg)|
 202311080000|LlanberisSnowdoniaSunset|Llyn Padarn, Llanberis, Snowdonia, Wales (© Joe Daniel Price/Moment/Getty Images)|A place to reflect|![](/en-GB/2023/11/202311080000LlanberisSnowdoniaSunset.jpg)|
+202311090000|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Shades of autumn|![](/en-GB/2023/11/202311090000NorwayBirch.jpg)|
