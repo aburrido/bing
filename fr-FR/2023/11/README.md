@@ -9,3 +9,4 @@
 202311062300|KirkilaiTower|Lacs de Kirkilai et tour de guet, parc régional de Biržai, Lituanie (© MNStudio/Shutterstock)|Qui-va-là !|![](/fr-FR/2023/11/202311062300KirkilaiTower.jpg)|
 202311072300|ManateeMama|Lamantins des Caraïbes, femelle avec son bébé, Crystal River, Three Sisters Spring, Floride, États-Unis (© Karine Aigner/Tandem Stills + Motion)|Sirènes ou lamantins ?|![](/fr-FR/2023/11/202311072300ManateeMama.jpg)|
 202311082300|NorwayBirch|Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)|Nuances d'automne|![](/fr-FR/2023/11/202311082300NorwayBirch.jpg)|
+202311092300|BadlandsSunrise|Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)|Une merveille géologique|![](/fr-FR/2023/11/202311092300BadlandsSunrise.jpg)|

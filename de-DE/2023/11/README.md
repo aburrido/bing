@@ -9,3 +9,4 @@
 202311062300|KirkilaiTower|Kirkilai-Seen und Aussichtsturm, Regionalpark Biržai, Litauen (© MNStudio/Shutterstock)​|Ein grünes Paradies mit eigenem Holzmond!|![](/de-DE/2023/11/202311062300KirkilaiTower.jpg)|
 202311072300|ManateeMama|Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)|Was sind das für sanfte Tiere?|![](/de-DE/2023/11/202311072300ManateeMama.jpg)|
 202311082300|NorwayBirch|Birken im Herbst, Drammen, Norwegen (© Baac3nes/Getty Images)|Warme, melancholische Herbsttöne|![](/de-DE/2023/11/202311082300NorwayBirch.jpg)|
+202311092300|SchwerinerSchloss|Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)|Ein Schloss wie aus dem Märchen|![](/de-DE/2023/11/202311092300SchwerinerSchloss.jpg)|
