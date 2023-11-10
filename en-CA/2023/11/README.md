@@ -10,3 +10,4 @@
 202311070500|KirkilaiTower|Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)|Lookout above!|![](/en-CA/2023/11/202311070500KirkilaiTower.jpg)|
 202311080500|ManateeMama|West Indian manatee mother and baby, Three Sisters Spring, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)|Sirens or sea cows?|![](/en-CA/2023/11/202311080500ManateeMama.jpg)|
 202311090500|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Shades of autumn|![](/en-CA/2023/11/202311090500NorwayBirch.jpg)|
+202311100500|BadlandsSunrise|Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)|Not so bad lands|![](/en-CA/2023/11/202311100500BadlandsSunrise.jpg)|
