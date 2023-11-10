@@ -10,3 +10,4 @@
 202311071600|LiDong2023|黄山的日落，安徽省，中国 (© Nantapon Pattamakijsakul/Getty Images)|冬日里的壮丽美景|![](/zh-CN/2023/11/202311071600LiDong2023.jpg)|
 202311081600|NorwayBirch|秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)|秋天的影子|![](/zh-CN/2023/11/202311081600NorwayBirch.jpg)|
 202311091600|BadlandsSunrise|恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)|还不错的荒地|![](/zh-CN/2023/11/202311091600BadlandsSunrise.jpg)|
+202311101600|ValDiFunes|富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)|如诗如画的地方|![](/zh-CN/2023/11/202311101600ValDiFunes.jpg)|
