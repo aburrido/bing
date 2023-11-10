@@ -10,3 +10,4 @@
 202311072300|ManateeMama|Seekuh-Mutter mit Baby, Crystal River, Three Sisters Spring, Florida, USA (© Karine Aigner/Tandem Stills + Motion)|Was sind das für sanfte Tiere?|![](/de-DE/2023/11/202311072300ManateeMama.jpg)|
 202311082300|NorwayBirch|Birken im Herbst, Drammen, Norwegen (© Baac3nes/Getty Images)|Warme, melancholische Herbsttöne|![](/de-DE/2023/11/202311082300NorwayBirch.jpg)|
 202311092300|SchwerinerSchloss|Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)|Ein Schloss wie aus dem Märchen|![](/de-DE/2023/11/202311092300SchwerinerSchloss.jpg)|
+202311102300|ValDiFunes|Villnöß, Dolomiten im Hintergrund, Südtirol, Italien (© Achim Thomae/Getty Images)|Wie im Bilderbuch!|![](/de-DE/2023/11/202311102300ValDiFunes.jpg)|
