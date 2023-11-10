@@ -10,3 +10,4 @@
 202311071500|Lidong2023|干し柿, 山梨県 南都留郡 富士河口湖町 (© STEPHEN FLEMING/Alamy Stock Photo)|今日は立冬|![](/ja-JP/2023/11/202311071500Lidong2023.jpg)|
 202311081500|NorwayBirch|ドランメンの白樺林, ノルウェー (© Baac3nes/Getty Images)|紅葉した白樺の樹々|![](/ja-JP/2023/11/202311081500NorwayBirch.jpg)|
 202311091500|BadlandsSunrise|バッドランズ国立公園, 米国 サウスダコタ州 (© Grant Ordelheide/Tandem Stills + Motion)|今日はバッドランズ国立公園の開園記念日|![](/ja-JP/2023/11/202311091500BadlandsSunrise.jpg)|
+202311101500|SarekSweden|サレック国立公園, スウェーデン (© Hans Strand/Getty Images)|ラパ川が作り出した壮大な渓谷|![](/ja-JP/2023/11/202311101500SarekSweden.jpg)|
