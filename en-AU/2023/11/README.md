@@ -11,3 +11,4 @@
 202311080800|ManateeMama|West Indian manatee mother and baby, Three Sisters Spring, Crystal River, Florida (© Karine Aigner/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311080800ManateeMama.jpg)|
 202311090800|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Info|![](/en-AU/2023/11/202311090800NorwayBirch.jpg)|
 202311100800|BadlandsSunrise|Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311100800BadlandsSunrise.jpg)|
+202311110800|ValDiFunes|Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)|Info|![](/en-AU/2023/11/202311110800ValDiFunes.jpg)|
