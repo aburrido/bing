@@ -11,3 +11,4 @@
 202311081600|NorwayBirch|秋天的白桦树，德拉门，挪威 (© Baac3nes/Getty Images)|秋天的影子|![](/zh-CN/2023/11/202311081600NorwayBirch.jpg)|
 202311091600|BadlandsSunrise|恶地国家公园，南达科他州，美国 (© Grant Ordelheide/Tandem Stills + Motion)|还不错的荒地|![](/zh-CN/2023/11/202311091600BadlandsSunrise.jpg)|
 202311101600|ValDiFunes|富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利 (© Achim Thomae/Getty Images)|如诗如画的地方|![](/zh-CN/2023/11/202311101600ValDiFunes.jpg)|
+202311111600|MallarDucks|秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)|我所有的小鸭子们|![](/zh-CN/2023/11/202311111600MallarDucks.jpg)|
