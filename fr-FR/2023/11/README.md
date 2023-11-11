@@ -11,3 +11,4 @@
 202311082300|NorwayBirch|Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)|Nuances d'automne|![](/fr-FR/2023/11/202311082300NorwayBirch.jpg)|
 202311092300|BadlandsSunrise|Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)|Une merveille géologique|![](/fr-FR/2023/11/202311092300BadlandsSunrise.jpg)|
 202311102300|RemembranceDay|Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)|Se souvenir et ne jamais oublier|![](/fr-FR/2023/11/202311102300RemembranceDay.jpg)|
+202311112300|DiwaliAyodhya|Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)|Mille et une lumières au pays de la spiritualité|![](/fr-FR/2023/11/202311112300DiwaliAyodhya.jpg)|
