@@ -11,3 +11,4 @@
 202311081500|NorwayBirch|ドランメンの白樺林, ノルウェー (© Baac3nes/Getty Images)|紅葉した白樺の樹々|![](/ja-JP/2023/11/202311081500NorwayBirch.jpg)|
 202311091500|BadlandsSunrise|バッドランズ国立公園, 米国 サウスダコタ州 (© Grant Ordelheide/Tandem Stills + Motion)|今日はバッドランズ国立公園の開園記念日|![](/ja-JP/2023/11/202311091500BadlandsSunrise.jpg)|
 202311101500|SarekSweden|サレック国立公園, スウェーデン (© Hans Strand/Getty Images)|ラパ川が作り出した壮大な渓谷|![](/ja-JP/2023/11/202311101500SarekSweden.jpg)|
+202311111500|DiwaliAyodhya|ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)|今日はディーワーリー|![](/ja-JP/2023/11/202311111500DiwaliAyodhya.jpg)|
