@@ -11,3 +11,4 @@
 202311080500|ManateeMama|Lamantins des Caraïbes, femelle avec son bébé, Crystal River, Three Sisters Spring, Floride, États-Unis (© Karine Aigner/Tandem Stills + Motion)|Sirènes ou lamantins?|![](/fr-CA/2023/11/202311080500ManateeMama.jpg)|
 202311090500|NorwayBirch|Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)|Nuances d'automne|![](/fr-CA/2023/11/202311090500NorwayBirch.jpg)|
 202311100500|BadlandsSunrise|Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)|Une merveille géologique|![](/fr-CA/2023/11/202311100500BadlandsSunrise.jpg)|
+202311110500|YoungPeaks|Forêt automnale et Youngs Peak, Colombie-Britannique, Canada (© David Noton/Minden)|Le ciel est la limite|![](/fr-CA/2023/11/202311110500YoungPeaks.jpg)|
