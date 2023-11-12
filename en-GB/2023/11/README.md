@@ -11,3 +11,4 @@
 202311090000|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Shades of autumn|![](/en-GB/2023/11/202311090000NorwayBirch.jpg)|
 202311100000|BadlandsSunrise|Badlands National Park, South Dakota, USA (© Grant Ordelheide/Tandem Stills + Motion)|Not so bad lands|![](/en-GB/2023/11/202311100000BadlandsSunrise.jpg)|
 202311110000|ValDiFunes|Val di Funes, South Tyrol, Italy (© Achim Thomae/Getty Images)|Small town life, elevated|![](/en-GB/2023/11/202311110000ValDiFunes.jpg)|
+202311120000|DiwaliAyodhya|Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A thousand splendid lights|![](/en-GB/2023/11/202311120000DiwaliAyodhya.jpg)|
