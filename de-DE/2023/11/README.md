@@ -12,3 +12,4 @@
 202311092300|SchwerinerSchloss|Das pittoreske Schweriner Schloss, Schwerin, Mecklenburg-Vorpommern (© Hannes Wendt/Shutterstock)|Ein Schloss wie aus dem Märchen|![](/de-DE/2023/11/202311092300SchwerinerSchloss.jpg)|
 202311102300|ValDiFunes|Villnöß, Dolomiten im Hintergrund, Südtirol, Italien (© Achim Thomae/Getty Images)|Wie im Bilderbuch!|![](/de-DE/2023/11/202311102300ValDiFunes.jpg)|
 202311112300|DiwaliAyodhya|Lampen an den Ufern des Sarju-Flusses an Diwali, Ayodhya, Indien (© SANJAY KANOJIA/AFP/Getty Images)|Der Sieg des Guten über das Böse|![](/de-DE/2023/11/202311112300DiwaliAyodhya.jpg)|
+202311122300|OliveOrchard|Alter Olivenhain in der Serra Tramuntana, Mallorca, Spanien (© cinoby/Getty Images)|Olivenoase|![](/de-DE/2023/11/202311122300OliveOrchard.jpg)|
