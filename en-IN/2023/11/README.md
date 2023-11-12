@@ -12,3 +12,4 @@
 202311091830|BadlandsSunrise|Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)|Not so bad lands|![](/en-IN/2023/11/202311091830BadlandsSunrise.jpg)|
 202311101830|FishingNetsKochi|Traditional chinese fishing nets in Kochi, India at sunrise. (© mammuth/Getty images)|Tools waiting for their harvest|![](/en-IN/2023/11/202311101830FishingNetsKochi.jpg)|
 202311111830|DiwaliAyodhya|Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A thousand splendid lights|![](/en-IN/2023/11/202311111830DiwaliAyodhya.jpg)|
+202311121830|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|From the tree to the table|![](/en-IN/2023/11/202311121830OliveOrchard.jpg)|
