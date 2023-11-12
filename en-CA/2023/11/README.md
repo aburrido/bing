@@ -12,3 +12,4 @@
 202311090500|NorwayBirch|Birch trees in autumn, Drammen, Norway (© Baac3nes/Getty Images)|Shades of autumn|![](/en-CA/2023/11/202311090500NorwayBirch.jpg)|
 202311100500|BadlandsSunrise|Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)|Not so bad lands|![](/en-CA/2023/11/202311100500BadlandsSunrise.jpg)|
 202311110500|YoungPeaks|Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)|Forever Young|![](/en-CA/2023/11/202311110500YoungPeaks.jpg)|
+202311120500|DiwaliAyodhya|Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A thousand splendid lights|![](/en-CA/2023/11/202311120500DiwaliAyodhya.jpg)|

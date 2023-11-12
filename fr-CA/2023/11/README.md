@@ -12,3 +12,4 @@
 202311090500|NorwayBirch|Bouleaux en automne, Drammen, Norvège (© Baac3nes/Getty Images)|Nuances d'automne|![](/fr-CA/2023/11/202311090500NorwayBirch.jpg)|
 202311100500|BadlandsSunrise|Parc national des Badlands, Dakota du Sud, États-Unis (© Grant Ordelheide/Tandem Stills + Motion)|Une merveille géologique|![](/fr-CA/2023/11/202311100500BadlandsSunrise.jpg)|
 202311110500|YoungPeaks|Forêt automnale et Youngs Peak, Colombie-Britannique, Canada (© David Noton/Minden)|Le ciel est la limite|![](/fr-CA/2023/11/202311110500YoungPeaks.jpg)|
+202311120500|DiwaliAyodhya|Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)|Mille et une lumières au pays de la spiritualité|![](/fr-CA/2023/11/202311120500DiwaliAyodhya.jpg)|
