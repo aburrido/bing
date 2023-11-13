@@ -13,3 +13,4 @@
 202311100800|BadlandsSunrise|Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)|Not-so-bad lands|![](/en-US/2023/11/202311100800BadlandsSunrise.jpg)|
 202311110800|VeteransDayDC|Sunset at the Washington Monument, Washington, DC (© Joe Daniel Price/Getty Images)|A salute to veterans|![](/en-US/2023/11/202311110800VeteransDayDC.jpg)|
 202311120800|DiwaliAyodhya|Lamps on the banks of the Sarayu River for Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A dazzling display for Diwali|![](/en-US/2023/11/202311120800DiwaliAyodhya.jpg)|
+202311130800|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|From the tree to the table|![](/en-US/2023/11/202311130800OliveOrchard.jpg)|
