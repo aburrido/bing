@@ -13,3 +13,4 @@
 202311102300|RemembranceDay|Drapeau français sous l’Arc de Triomphe, Paris, France (© Wiliam Perry/Alamy Stock Photo)|Se souvenir et ne jamais oublier|![](/fr-FR/2023/11/202311102300RemembranceDay.jpg)|
 202311112300|DiwaliAyodhya|Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)|Mille et une lumières au pays de la spiritualité|![](/fr-FR/2023/11/202311112300DiwaliAyodhya.jpg)|
 202311122300|OliveOrchard|Vieille oliveraie dans la Serra de Tramuntana, Majorque, Espagne (© cinoby/Getty Images)|De l'arbre à la table !|![](/fr-FR/2023/11/202311122300OliveOrchard.jpg)|
+202311132300|RussellLupines|Lupins de Russell sur le lac Tekapo, île du Sud, Nouvelle-Zélande (© Jeffrey Lewis/Tandem Stills + Motion)|Une prairie de Lupins à perte de vue|![](/fr-FR/2023/11/202311132300RussellLupines.jpg)|
