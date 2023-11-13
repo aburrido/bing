@@ -13,3 +13,4 @@
 202311100500|BadlandsSunrise|Badlands National Park, South Dakota (© Grant Ordelheide/Tandem Stills + Motion)|Not so bad lands|![](/en-CA/2023/11/202311100500BadlandsSunrise.jpg)|
 202311110500|YoungPeaks|Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)|Forever Young|![](/en-CA/2023/11/202311110500YoungPeaks.jpg)|
 202311120500|DiwaliAyodhya|Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A thousand splendid lights|![](/en-CA/2023/11/202311120500DiwaliAyodhya.jpg)|
+202311130500|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|From the tree to the table|![](/en-CA/2023/11/202311130500OliveOrchard.jpg)|
