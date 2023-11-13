@@ -12,3 +12,4 @@
 202311100000|BadlandsSunrise|Badlands National Park, South Dakota, USA (© Grant Ordelheide/Tandem Stills + Motion)|Not so bad lands|![](/en-GB/2023/11/202311100000BadlandsSunrise.jpg)|
 202311110000|ValDiFunes|Val di Funes, South Tyrol, Italy (© Achim Thomae/Getty Images)|Small town life, elevated|![](/en-GB/2023/11/202311110000ValDiFunes.jpg)|
 202311120000|DiwaliAyodhya|Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A thousand splendid lights|![](/en-GB/2023/11/202311120000DiwaliAyodhya.jpg)|
+202311130000|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|From the tree to the table|![](/en-GB/2023/11/202311130000OliveOrchard.jpg)|
