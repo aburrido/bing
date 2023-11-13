@@ -13,3 +13,4 @@
 202311101500|SarekSweden|サレック国立公園, スウェーデン (© Hans Strand/Getty Images)|ラパ川が作り出した壮大な渓谷|![](/ja-JP/2023/11/202311101500SarekSweden.jpg)|
 202311111500|DiwaliAyodhya|ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)|今日はディーワーリー|![](/ja-JP/2023/11/202311111500DiwaliAyodhya.jpg)|
 202311121500|OliveOrchard|マヨルカ島のトラムンタナ山脈, スペイン (© cinoby/Getty Images)|古いオリーブ畑|![](/ja-JP/2023/11/202311121500OliveOrchard.jpg)|
+202311131500|RussellLupines|テカポ湖, ニュージーランド (© Jeffrey Lewis/Tandem Stills + Motion)|湖を彩るラッセルルピナスの花畑|![](/ja-JP/2023/11/202311131500RussellLupines.jpg)|
