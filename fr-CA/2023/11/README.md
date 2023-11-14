@@ -14,3 +14,4 @@
 202311110500|YoungPeaks|Forêt automnale et Youngs Peak, Colombie-Britannique, Canada (© David Noton/Minden)|Le ciel est la limite|![](/fr-CA/2023/11/202311110500YoungPeaks.jpg)|
 202311120500|DiwaliAyodhya|Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)|Mille et une lumières au pays de la spiritualité|![](/fr-CA/2023/11/202311120500DiwaliAyodhya.jpg)|
 202311130500|OliveOrchard|Vieille oliveraie dans la Serra de Tramuntana, Majorque, Espagne (© cinoby/Getty Images)|De l'arbre à la table!|![](/fr-CA/2023/11/202311130500OliveOrchard.jpg)|
+202311140500|RussellLupines|Lupins de Russell sur le lac Tekapo, île du Sud, Nouvelle-Zélande (© Jeffrey Lewis/Tandem Stills + Motion)|Une prairie de Lupins à perte de vue|![](/fr-CA/2023/11/202311140500RussellLupines.jpg)|
