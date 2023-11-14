@@ -14,3 +14,4 @@
 202311111600|MallarDucks|秋天池塘里的两只绿头鸭 (© sun ok/Shutterstock)|我所有的小鸭子们|![](/zh-CN/2023/11/202311111600MallarDucks.jpg)|
 202311121600|OliveOrchard|特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)|从树上到餐桌之上|![](/zh-CN/2023/11/202311121600OliveOrchard.jpg)|
 202311131600|RussellLupines|特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion)|让人又爱又恨的花田|![](/zh-CN/2023/11/202311131600RussellLupines.jpg)|
+202311141600|SarekSweden|萨雷克国家公园的拉帕谷，瑞典 (© Hans Strand/Getty Images)|想象一下此处的回声|![](/zh-CN/2023/11/202311141600SarekSweden.jpg)|
