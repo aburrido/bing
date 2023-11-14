@@ -14,3 +14,4 @@
 202311112300|DiwaliAyodhya|Lampen an den Ufern des Sarju-Flusses an Diwali, Ayodhya, Indien (© SANJAY KANOJIA/AFP/Getty Images)|Der Sieg des Guten über das Böse|![](/de-DE/2023/11/202311112300DiwaliAyodhya.jpg)|
 202311122300|OliveOrchard|Alter Olivenhain in der Serra Tramuntana, Mallorca, Spanien (© cinoby/Getty Images)|Olivenoase|![](/de-DE/2023/11/202311122300OliveOrchard.jpg)|
 202311132300|RusellLupines|Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)|Vielblättrige Lupinen, soweit das Auge reicht!|![](/de-DE/2023/11/202311132300RusellLupines.jpg)|
+202311142300|SarekSweden|Rapadalen im Nationalpark Sarek, Schweden (© Hans Strand/Getty Images)|Stellen Sie sich mal das Echo vor, or, or, or|![](/de-DE/2023/11/202311142300SarekSweden.jpg)|
