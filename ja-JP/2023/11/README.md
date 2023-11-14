@@ -14,3 +14,4 @@
 202311111500|DiwaliAyodhya|ランプが灯るアヨーディヤー, インド (© SANJAY KANOJIA/AFP/Getty Images)|今日はディーワーリー|![](/ja-JP/2023/11/202311111500DiwaliAyodhya.jpg)|
 202311121500|OliveOrchard|マヨルカ島のトラムンタナ山脈, スペイン (© cinoby/Getty Images)|古いオリーブ畑|![](/ja-JP/2023/11/202311121500OliveOrchard.jpg)|
 202311131500|RussellLupines|テカポ湖, ニュージーランド (© Jeffrey Lewis/Tandem Stills + Motion)|湖を彩るラッセルルピナスの花畑|![](/ja-JP/2023/11/202311131500RussellLupines.jpg)|
+202311141500|ShichiGoSan2023|七五三の絵馬 (© 222studio/Shutterstock)|今日は七五三|![](/ja-JP/2023/11/202311141500ShichiGoSan2023.jpg)|
