@@ -14,3 +14,4 @@
 202311120000|DiwaliAyodhya|Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)|A thousand splendid lights|![](/en-GB/2023/11/202311120000DiwaliAyodhya.jpg)|
 202311130000|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|From the tree to the table|![](/en-GB/2023/11/202311130000OliveOrchard.jpg)|
 202311140000|RussellLupines|Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)|A beautiful nuisance|![](/en-GB/2023/11/202311140000RussellLupines.jpg)|
+202311150000|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Imagine the echo!|![](/en-GB/2023/11/202311150000SarekSweden.jpg)|
