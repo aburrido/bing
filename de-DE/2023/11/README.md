@@ -15,3 +15,4 @@
 202311122300|OliveOrchard|Alter Olivenhain in der Serra Tramuntana, Mallorca, Spanien (© cinoby/Getty Images)|Olivenoase|![](/de-DE/2023/11/202311122300OliveOrchard.jpg)|
 202311132300|RusellLupines|Vielblättrige Lupinen am Lake Tekapo, Südinsel, Neuseeland (© Jeffrey Lewis/Tandem Stills + Motion)|Vielblättrige Lupinen, soweit das Auge reicht!|![](/de-DE/2023/11/202311132300RusellLupines.jpg)|
 202311142300|SarekSweden|Rapadalen im Nationalpark Sarek, Schweden (© Hans Strand/Getty Images)|Stellen Sie sich mal das Echo vor, or, or, or|![](/de-DE/2023/11/202311142300SarekSweden.jpg)|
+202311152300|AthensAcropolis|Blick über Athen und die Akropolis, Griechenland (© Mlenny/Getty Images)|Der Geburtsort der westlichen Philosophie|![](/de-DE/2023/11/202311152300AthensAcropolis.jpg)|

@@ -15,3 +15,4 @@
 202311122300|OliveOrchard|Vieille oliveraie dans la Serra de Tramuntana, Majorque, Espagne (© cinoby/Getty Images)|De l'arbre à la table !|![](/fr-FR/2023/11/202311122300OliveOrchard.jpg)|
 202311132300|RussellLupines|Lupins de Russell sur le lac Tekapo, île du Sud, Nouvelle-Zélande (© Jeffrey Lewis/Tandem Stills + Motion)|Une prairie de Lupins à perte de vue|![](/fr-FR/2023/11/202311132300RussellLupines.jpg)|
 202311142300|SarekSweden|Vallée de Rapa dans le parc national de Sarek, Suède (© Hans Strand/Getty Images)|Imaginez l'écho !|![](/fr-FR/2023/11/202311142300SarekSweden.jpg)|
+202311152300|BeaujolaisVineyard|Moulin à vent dans les vignes, France (© Marco Bottigelli/Getty Images)|Il est arrivé !|![](/fr-FR/2023/11/202311152300BeaujolaisVineyard.jpg)|
