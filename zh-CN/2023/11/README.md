@@ -15,3 +15,4 @@
 202311121600|OliveOrchard|特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙 (© cinoby/Getty Images)|从树上到餐桌之上|![](/zh-CN/2023/11/202311121600OliveOrchard.jpg)|
 202311131600|RussellLupines|特卡波湖沿岸的鲁冰花，南岛，新西兰 (© Jeffrey Lewis/Tandem Stills + Motion)|让人又爱又恨的花田|![](/zh-CN/2023/11/202311131600RussellLupines.jpg)|
 202311141600|SarekSweden|萨雷克国家公园的拉帕谷，瑞典 (© Hans Strand/Getty Images)|想象一下此处的回声|![](/zh-CN/2023/11/202311141600SarekSweden.jpg)|
+202311151600|AthensAcropolis|雅典和卫城，希腊 (© Mlenny/Getty Images)|西方哲学的发源地|![](/zh-CN/2023/11/202311151600AthensAcropolis.jpg)|
