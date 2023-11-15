@@ -15,3 +15,4 @@
 202311121830|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|From the tree to the table|![](/en-IN/2023/11/202311121830OliveOrchard.jpg)|
 202311131830|RussellLupines|Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)|A beautiful nuisance|![](/en-IN/2023/11/202311131830RussellLupines.jpg)|
 202311141830|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Imagine the echo!|![](/en-IN/2023/11/202311141830SarekSweden.jpg)|
+202311151830|AthensAcropolis|View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)|The birthplace of Western philosophy|![](/en-IN/2023/11/202311151830AthensAcropolis.jpg)|
