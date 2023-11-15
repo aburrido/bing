@@ -15,3 +15,4 @@
 202311120800|MallarDucks|Two mallard ducks on a pond in autumn (© sun ok/Shutterstock)|Info|![](/en-AU/2023/11/202311120800MallarDucks.jpg)|
 202311130800|OliveOrchard|Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)|Info|![](/en-AU/2023/11/202311130800OliveOrchard.jpg)|
 202311140800|RussellLupines|Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311140800RussellLupines.jpg)|
+202311150800|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Info|![](/en-AU/2023/11/202311150800SarekSweden.jpg)|
