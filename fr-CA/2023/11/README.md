@@ -15,3 +15,4 @@
 202311120500|DiwaliAyodhya|Lumières sur les rives de la rivière Sarayu à l'occasion de Diwali, Ayodhya, Inde (© SANJAY KANOJIA/AFP/Getty Images)|Mille et une lumières au pays de la spiritualité|![](/fr-CA/2023/11/202311120500DiwaliAyodhya.jpg)|
 202311130500|OliveOrchard|Vieille oliveraie dans la Serra de Tramuntana, Majorque, Espagne (© cinoby/Getty Images)|De l'arbre à la table!|![](/fr-CA/2023/11/202311130500OliveOrchard.jpg)|
 202311140500|RussellLupines|Lupins de Russell sur le lac Tekapo, île du Sud, Nouvelle-Zélande (© Jeffrey Lewis/Tandem Stills + Motion)|Une prairie de Lupins à perte de vue|![](/fr-CA/2023/11/202311140500RussellLupines.jpg)|
+202311150500|SarekSweden|Vallée de Rapa dans le parc national de Sarek, Suède (© Hans Strand/Getty Images)|Imaginez l'écho!|![](/fr-CA/2023/11/202311150500SarekSweden.jpg)|
