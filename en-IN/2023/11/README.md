@@ -16,3 +16,4 @@
 202311131830|RussellLupines|Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)|A beautiful nuisance|![](/en-IN/2023/11/202311131830RussellLupines.jpg)|
 202311141830|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Imagine the echo!|![](/en-IN/2023/11/202311141830SarekSweden.jpg)|
 202311151830|AthensAcropolis|View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)|The birthplace of Western philosophy|![](/en-IN/2023/11/202311151830AthensAcropolis.jpg)|
+202311161830|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Time to lace up those boots|![](/en-IN/2023/11/202311161830BadRiver.jpg)|
