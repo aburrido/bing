@@ -17,3 +17,4 @@
 202311141830|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Imagine the echo!|![](/en-IN/2023/11/202311141830SarekSweden.jpg)|
 202311151830|AthensAcropolis|View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)|The birthplace of Western philosophy|![](/en-IN/2023/11/202311151830AthensAcropolis.jpg)|
 202311161830|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Time to lace up those boots|![](/en-IN/2023/11/202311161830BadRiver.jpg)|
+202311171830|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|A warm hug in a cold place|![](/en-IN/2023/11/202311171830MilsePolarBear.jpg)|
