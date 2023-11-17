@@ -17,3 +17,4 @@
 202311140800|RussellLupines|Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2023/11/202311140800RussellLupines.jpg)|
 202311150800|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Info|![](/en-AU/2023/11/202311150800SarekSweden.jpg)|
 202311160800|AthensAcropolis|View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)|Info|![](/en-AU/2023/11/202311160800AthensAcropolis.jpg)|
+202311170800|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Info|![](/en-AU/2023/11/202311170800BadRiver.jpg)|
