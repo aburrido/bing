@@ -17,3 +17,4 @@
 202311141600|SarekSweden|萨雷克国家公园的拉帕谷，瑞典 (© Hans Strand/Getty Images)|想象一下此处的回声|![](/zh-CN/2023/11/202311141600SarekSweden.jpg)|
 202311151600|AthensAcropolis|雅典和卫城，希腊 (© Mlenny/Getty Images)|西方哲学的发源地|![](/zh-CN/2023/11/202311151600AthensAcropolis.jpg)|
 202311161600|BadRiver|铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)|该给靴子系上鞋带了！|![](/zh-CN/2023/11/202311161600BadRiver.jpg)|
+202311171600|MilsePolarBear|北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)|寒地温情|![](/zh-CN/2023/11/202311171600MilsePolarBear.jpg)|
