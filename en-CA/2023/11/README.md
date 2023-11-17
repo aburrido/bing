@@ -17,3 +17,4 @@
 202311140500|RussellLupines|Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)|A beautiful nuisance|![](/en-CA/2023/11/202311140500RussellLupines.jpg)|
 202311150500|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Imagine the echo!|![](/en-CA/2023/11/202311150500SarekSweden.jpg)|
 202311160500|VanDusenGarden|Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)|The luminous spirit of nature|![](/en-CA/2023/11/202311160500VanDusenGarden.jpg)|
+202311170500|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Time to lace up those boots|![](/en-CA/2023/11/202311170500BadRiver.jpg)|
