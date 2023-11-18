@@ -17,3 +17,4 @@
 202311150000|SarekSweden|Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)|Imagine the echo!|![](/en-GB/2023/11/202311150000SarekSweden.jpg)|
 202311160000|AthensAcropolis|View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)|The birthplace of Western philosophy|![](/en-GB/2023/11/202311160000AthensAcropolis.jpg)|
 202311170000|MeonHillViewUK|Meon Hill, Gloucestershire, England (© Stuart Black/Alamy Stock Photo)|The rest is mystery|![](/en-GB/2023/11/202311170000MeonHillViewUK.jpg)|
+202311180000|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|A warm hug in a cold place|![](/en-GB/2023/11/202311180000MilsePolarBear.jpg)|
