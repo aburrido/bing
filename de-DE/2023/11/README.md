@@ -18,3 +18,4 @@
 202311152300|AthensAcropolis|Blick über Athen und die Akropolis, Griechenland (© Mlenny/Getty Images)|Der Geburtsort der westlichen Philosophie|![](/de-DE/2023/11/202311152300AthensAcropolis.jpg)|
 202311162300|KoenigseeLake|Königssee im Herbst, Berchtesgaden, Bayern (© rusm/Getty Images)|Rote Bäume, klarer See, in meinem Herbst, da sprießen Träume!|![](/de-DE/2023/11/202311162300KoenigseeLake.jpg)|
 202311172300|MilsePolarBear|Eisbärenmutter und -junge, Churchill, Manitoba, Kanada (© Thorsten Milse/Getty Images)|Warme Umarmungen an einem kalten Ort|![](/de-DE/2023/11/202311172300MilsePolarBear.jpg)|
+202311182300|FrozenBog|Naturschutzgebiet Alam-Pedja, Estland (© Sven Zacek/Minden Pictures)|Irdisch oder überirdisch?|![](/de-DE/2023/11/202311182300FrozenBog.jpg)|
