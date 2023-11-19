@@ -19,3 +19,4 @@
 202311162300|BadRiver|Rivière Bad River dans le parc d'État de Copper Falls, Wisconsin, États-Unis (© Big Joe/Getty Images)|Á vos baskets !|![](/fr-FR/2023/11/202311162300BadRiver.jpg)|
 202311172300|MilsePolarBear|Mère et oursons polaires, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|Un câlin du Grand Nord !|![](/fr-FR/2023/11/202311172300MilsePolarBear.jpg)|
 202311182300|FrozenBog|Réserve naturelle d'Alam-Pedja, Estonie (© Sven Zacek/Minden Pictures)|Un trésor naturel|![](/fr-FR/2023/11/202311182300FrozenBog.jpg)|
+202311192300|ChapmanAdventure|Aire de jeux Chapman Adventure Playground, Gathering Place, Tulsa, Oklahoma, États-Unis (© Susan Vineyard/Alamy)|Pour un avenir meilleur|![](/fr-FR/2023/11/202311192300ChapmanAdventure.jpg)|
