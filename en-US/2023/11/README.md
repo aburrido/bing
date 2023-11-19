@@ -19,3 +19,4 @@
 202311160800|AthensAcropolis|View over Athens and the Acropolis, Greece (© Mlenny/Getty Images)|The birthplace of Western philosophy|![](/en-US/2023/11/202311160800AthensAcropolis.jpg)|
 202311170800|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Time to lace up those boots|![](/en-US/2023/11/202311170800BadRiver.jpg)|
 202311180800|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|Awaiting the big freeze|![](/en-US/2023/11/202311180800MilsePolarBear.jpg)|
+202311190800|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Tread carefully!|![](/en-US/2023/11/202311190800FrozenBog.jpg)|
