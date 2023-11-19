@@ -19,3 +19,4 @@
 202311161600|BadRiver|铜瀑布州立公园的巴德河，威斯康星州，美国 (© Big Joe/Getty Images)|该给靴子系上鞋带了！|![](/zh-CN/2023/11/202311161600BadRiver.jpg)|
 202311171600|MilsePolarBear|北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)|寒地温情|![](/zh-CN/2023/11/202311171600MilsePolarBear.jpg)|
 202311181600|FrozenBog|Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)|谨慎行事！|![](/zh-CN/2023/11/202311181600FrozenBog.jpg)|
+202311191600|CastleCoch|科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo)|童话城堡|![](/zh-CN/2023/11/202311191600CastleCoch.jpg)|
