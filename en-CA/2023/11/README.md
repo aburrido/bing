@@ -19,3 +19,4 @@
 202311160500|VanDusenGarden|Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)|The luminous spirit of nature|![](/en-CA/2023/11/202311160500VanDusenGarden.jpg)|
 202311170500|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Time to lace up those boots|![](/en-CA/2023/11/202311170500BadRiver.jpg)|
 202311180500|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|A warm hug in a cold place|![](/en-CA/2023/11/202311180500MilsePolarBear.jpg)|
+202311190500|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Tread carefully!|![](/en-CA/2023/11/202311190500FrozenBog.jpg)|
