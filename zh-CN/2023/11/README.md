@@ -20,3 +20,4 @@
 202311171600|MilsePolarBear|北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大 (© Thorsten Milse/Getty Images)|寒地温情|![](/zh-CN/2023/11/202311171600MilsePolarBear.jpg)|
 202311181600|FrozenBog|Alam-Pedja自然保护区，爱沙尼亚 (© Sven Zacek/Minden Pictures)|谨慎行事！|![](/zh-CN/2023/11/202311181600FrozenBog.jpg)|
 202311191600|CastleCoch|科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲 (© Billy Stock/robertharding/Alamy Stock Photo)|童话城堡|![](/zh-CN/2023/11/202311191600CastleCoch.jpg)|
+202311201600|HelloSeal|英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)|欢迎来到这个世界！|![](/zh-CN/2023/11/202311201600HelloSeal.jpg)|
