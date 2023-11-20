@@ -19,3 +19,4 @@
 202311170000|MeonHillViewUK|Meon Hill, Gloucestershire, England (© Stuart Black/Alamy Stock Photo)|The rest is mystery|![](/en-GB/2023/11/202311170000MeonHillViewUK.jpg)|
 202311180000|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|A warm hug in a cold place|![](/en-GB/2023/11/202311180000MilsePolarBear.jpg)|
 202311190000|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Tread carefully!|![](/en-GB/2023/11/202311190000FrozenBog.jpg)|
+202311200000|ChapmanAdventure|Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)|Every day is a play day!|![](/en-GB/2023/11/202311200000ChapmanAdventure.jpg)|
