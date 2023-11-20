@@ -20,3 +20,4 @@
 202311171500|MilsePolarBear|チャーチルの雪景色, カナダ マニトバ州  (© Thorsten Milse/Getty Images)|ホッキョクグマの親子|![](/ja-JP/2023/11/202311171500MilsePolarBear.jpg)|
 202311181500|FrozenBog|アラムペジャ自然保護区, エストニア (© Sven Zacek/Minden Pictures)|キラキラ光る川と湖|![](/ja-JP/2023/11/202311181500FrozenBog.jpg)|
 202311191500|ChapmanAdventure|ギャザリング・プレイス公園内の滑り台, 米国 オクラホマ州 (© Susan Vineyard/Alamy)|今日は世界子どもの日|![](/ja-JP/2023/11/202311191500ChapmanAdventure.jpg)|
+202311201500|HelloSeal|ノーフォーク海岸, イギリス イングランド (© Vince Burton/Minden Pictures)|仰向けに横たわるハイイロアザラシの赤ちゃん|![](/ja-JP/2023/11/202311201500HelloSeal.jpg)|
