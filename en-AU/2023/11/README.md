@@ -20,3 +20,4 @@
 202311170800|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Info|![](/en-AU/2023/11/202311170800BadRiver.jpg)|
 202311180800|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|Info|![](/en-AU/2023/11/202311180800MilsePolarBear.jpg)|
 202311190800|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Info|![](/en-AU/2023/11/202311190800FrozenBog.jpg)|
+202311200800|CastleCoch|Castell Coch, Tongwynlais, South Wales (© Billy Stock/Alamy)|Info|![](/en-AU/2023/11/202311200800CastleCoch.jpg)|
