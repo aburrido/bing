@@ -20,3 +20,4 @@
 202311170500|BadRiver|Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)|Time to lace up those boots|![](/en-CA/2023/11/202311170500BadRiver.jpg)|
 202311180500|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|A warm hug in a cold place|![](/en-CA/2023/11/202311180500MilsePolarBear.jpg)|
 202311190500|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Tread carefully!|![](/en-CA/2023/11/202311190500FrozenBog.jpg)|
+202311200500|ChapmanAdventure|Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)|Every day is a play day!|![](/en-CA/2023/11/202311200500ChapmanAdventure.jpg)|
