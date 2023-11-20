@@ -20,3 +20,4 @@
 202311172300|MilsePolarBear|Eisbärenmutter und -junge, Churchill, Manitoba, Kanada (© Thorsten Milse/Getty Images)|Warme Umarmungen an einem kalten Ort|![](/de-DE/2023/11/202311172300MilsePolarBear.jpg)|
 202311182300|FrozenBog|Naturschutzgebiet Alam-Pedja, Estland (© Sven Zacek/Minden Pictures)|Irdisch oder überirdisch?|![](/de-DE/2023/11/202311182300FrozenBog.jpg)|
 202311192300|ChapmanAdventure|Chapman-Abenteuerspielplatz auf dem Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)|Jeder Tag ist ein Spieltag!|![](/de-DE/2023/11/202311192300ChapmanAdventure.jpg)|
+202311202300|RioNegro|Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)|Spieglein Spieglein auf dem Wasser|![](/de-DE/2023/11/202311202300RioNegro.jpg)|

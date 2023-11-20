@@ -20,3 +20,4 @@
 202311172300|MilsePolarBear|Mère et oursons polaires, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|Un câlin du Grand Nord !|![](/fr-FR/2023/11/202311172300MilsePolarBear.jpg)|
 202311182300|FrozenBog|Réserve naturelle d'Alam-Pedja, Estonie (© Sven Zacek/Minden Pictures)|Un trésor naturel|![](/fr-FR/2023/11/202311182300FrozenBog.jpg)|
 202311192300|ChapmanAdventure|Aire de jeux Chapman Adventure Playground, Gathering Place, Tulsa, Oklahoma, États-Unis (© Susan Vineyard/Alamy)|Pour un avenir meilleur|![](/fr-FR/2023/11/202311192300ChapmanAdventure.jpg)|
+202311202300|HelloSeal|Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)|Bonjour chez vous !|![](/fr-FR/2023/11/202311202300HelloSeal.jpg)|
