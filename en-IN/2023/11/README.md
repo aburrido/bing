@@ -20,3 +20,4 @@
 202311171830|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|A warm hug in a cold place|![](/en-IN/2023/11/202311171830MilsePolarBear.jpg)|
 202311181830|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Tread carefully!|![](/en-IN/2023/11/202311181830FrozenBog.jpg)|
 202311191830|ChapmanAdventure|Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)|Where is this whimsical playground?|![](/en-IN/2023/11/202311191830ChapmanAdventure.jpg)|
+202311201830|HelloSeal|Grey seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)|Welcome to the world, pup!|![](/en-IN/2023/11/202311201830HelloSeal.jpg)|
