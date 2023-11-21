@@ -21,3 +21,4 @@
 202311180800|MilsePolarBear|Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)|Info|![](/en-AU/2023/11/202311180800MilsePolarBear.jpg)|
 202311190800|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Info|![](/en-AU/2023/11/202311190800FrozenBog.jpg)|
 202311200800|CastleCoch|Castell Coch, Tongwynlais, South Wales (© Billy Stock/Alamy)|Info|![](/en-AU/2023/11/202311200800CastleCoch.jpg)|
+202311210800|HelloSeal|Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)|Info|![](/en-AU/2023/11/202311210800HelloSeal.jpg)|
