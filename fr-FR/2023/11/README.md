@@ -22,3 +22,4 @@
 202311192300|ChapmanAdventure|Aire de jeux Chapman Adventure Playground, Gathering Place, Tulsa, Oklahoma, États-Unis (© Susan Vineyard/Alamy)|Pour un avenir meilleur|![](/fr-FR/2023/11/202311192300ChapmanAdventure.jpg)|
 202311202300|HelloSeal|Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)|Bonjour chez vous !|![](/fr-FR/2023/11/202311202300HelloSeal.jpg)|
 202311212300|SnakeRiverTeton|Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)|La beauté à l'état pur|![](/fr-FR/2023/11/202311212300SnakeRiverTeton.jpg)|
+202311222300|FlamingosSaintesMaries|Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)|Les divas de la Camargue|![](/fr-FR/2023/11/202311222300FlamingosSaintesMaries.jpg)|

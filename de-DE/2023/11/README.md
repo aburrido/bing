@@ -22,3 +22,4 @@
 202311192300|ChapmanAdventure|Chapman-Abenteuerspielplatz auf dem Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)|Jeder Tag ist ein Spieltag!|![](/de-DE/2023/11/202311192300ChapmanAdventure.jpg)|
 202311202300|RioNegro|Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)|Spieglein Spieglein auf dem Wasser|![](/de-DE/2023/11/202311202300RioNegro.jpg)|
 202311212300|SnakeRiverTeton|Grand-Teton-Nationalpark, Wyoming, USA (© Westend61/Getty Images)|Weiße Berge in weiter Ferne!|![](/de-DE/2023/11/202311212300SnakeRiverTeton.jpg)|
+202311222300|TeideNational|Sonnenuntergang im Nationalpark El Teide, Teneriffa, Kanarische Inseln, Spanien (© Javier Martínez Morán/Alamy)|Ein Sonnenuntergang mitten im Atlantik|![](/de-DE/2023/11/202311222300TeideNational.jpg)|
