@@ -21,3 +21,4 @@
 202311190000|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Tread carefully!|![](/en-GB/2023/11/202311190000FrozenBog.jpg)|
 202311200000|ChapmanAdventure|Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)|Every day is a play day!|![](/en-GB/2023/11/202311200000ChapmanAdventure.jpg)|
 202311210000|HelloSeal|Grey seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)|Welcome to the world, pup!|![](/en-GB/2023/11/202311210000HelloSeal.jpg)|
+202311220000|SnakeRiverTeton|Grand Teton National Park, Wyoming, USA (© Westend61/Getty Images)|Big on beauty, short on people|![](/en-GB/2023/11/202311220000SnakeRiverTeton.jpg)|
