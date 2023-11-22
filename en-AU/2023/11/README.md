@@ -22,3 +22,4 @@
 202311190800|FrozenBog|Alam-Pedja Nature Reserve, Estonia (© Sven Zacek/Minden Pictures)|Info|![](/en-AU/2023/11/202311190800FrozenBog.jpg)|
 202311200800|CastleCoch|Castell Coch, Tongwynlais, South Wales (© Billy Stock/Alamy)|Info|![](/en-AU/2023/11/202311200800CastleCoch.jpg)|
 202311210800|HelloSeal|Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)|Info|![](/en-AU/2023/11/202311210800HelloSeal.jpg)|
+202311220800|SnakeRiverTeton|Grand Teton National Park, Wyoming (© Westend61/Getty Images)|Info|![](/en-AU/2023/11/202311220800SnakeRiverTeton.jpg)|
