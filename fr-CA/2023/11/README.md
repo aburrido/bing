@@ -22,3 +22,4 @@
 202311190500|FrozenBog|Réserve naturelle d'Alam-Pedja, Estonie (© Sven Zacek/Minden Pictures)|Un trésor naturel|![](/fr-CA/2023/11/202311190500FrozenBog.jpg)|
 202311200500|ChapmanAdventure|Aire de jeux Chapman Adventure Playground, Gathering Place, Tulsa, Oklahoma, États-Unis (© Susan Vineyard/Alamy)|Pour un avenir meilleur|![](/fr-CA/2023/11/202311200500ChapmanAdventure.jpg)|
 202311210500|HelloSeal|Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)|Bonjour chez vous!|![](/fr-CA/2023/11/202311210500HelloSeal.jpg)|
+202311220500|SnakeRiverTeton|Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)|La beauté à l'état pur|![](/fr-CA/2023/11/202311220500SnakeRiverTeton.jpg)|
