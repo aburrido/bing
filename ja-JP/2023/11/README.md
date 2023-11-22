@@ -22,3 +22,4 @@
 202311191500|ChapmanAdventure|ギャザリング・プレイス公園内の滑り台, 米国 オクラホマ州 (© Susan Vineyard/Alamy)|今日は世界子どもの日|![](/ja-JP/2023/11/202311191500ChapmanAdventure.jpg)|
 202311201500|HelloSeal|ノーフォーク海岸, イギリス イングランド (© Vince Burton/Minden Pictures)|仰向けに横たわるハイイロアザラシの赤ちゃん|![](/ja-JP/2023/11/202311201500HelloSeal.jpg)|
 202311211500|Xiaoxue2023|初冬の阿寒湖周辺, 北海道 釧路市 (© vladimir zakharov/Getty Images)|今日は小雪|![](/ja-JP/2023/11/202311211500Xiaoxue2023.jpg)|
+202311221500|BradgateFallow|ブラッドゲート・パーク, イギリス イングランド (© Chris Bainbridge/Alamy)|カメラに気付いたダマジカ|![](/ja-JP/2023/11/202311221500BradgateFallow.jpg)|
