@@ -23,3 +23,4 @@
 202311200800|ChapmanAdventure|Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)|Every day is a play day!|![](/en-US/2023/11/202311200800ChapmanAdventure.jpg)|
 202311210800|HelloSeal|Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)|Welcome to the world, pup!|![](/en-US/2023/11/202311210800HelloSeal.jpg)|
 202311220800|SnakeRiverTeton|Grand Teton National Park, Wyoming (© Westend61/Getty Images)|The quiet beauty of Grand Teton|![](/en-US/2023/11/202311220800SnakeRiverTeton.jpg)|
+202311230800|FlintCorn|Flint corn (© Cynthia Liang/Shutterstock)|Happy Thanksgiving!|![](/en-US/2023/11/202311230800FlintCorn.jpg)|
