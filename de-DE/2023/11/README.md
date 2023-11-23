@@ -23,3 +23,4 @@
 202311202300|RioNegro|Río Negro, Amazonasbecken, Brasilien (© Timothy Allen/Getty Images)|Spieglein Spieglein auf dem Wasser|![](/de-DE/2023/11/202311202300RioNegro.jpg)|
 202311212300|SnakeRiverTeton|Grand-Teton-Nationalpark, Wyoming, USA (© Westend61/Getty Images)|Weiße Berge in weiter Ferne!|![](/de-DE/2023/11/202311212300SnakeRiverTeton.jpg)|
 202311222300|TeideNational|Sonnenuntergang im Nationalpark El Teide, Teneriffa, Kanarische Inseln, Spanien (© Javier Martínez Morán/Alamy)|Ein Sonnenuntergang mitten im Atlantik|![](/de-DE/2023/11/202311222300TeideNational.jpg)|
+202311232300|HallofMosses|Hall of Mosses-Pfad im Hoh-Regenwald, Olympic National Park, Washington, USA (© James Randklev/Getty Images)|Schon mal etwas vom „Grünen Freitag“ gehört?|![](/de-DE/2023/11/202311232300HallofMosses.jpg)|
