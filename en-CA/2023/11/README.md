@@ -23,3 +23,4 @@
 202311200500|ChapmanAdventure|Chapman Adventure Playground in the Gathering Place, Tulsa, Oklahoma (© Susan Vineyard/Alamy)|Every day is a play day!|![](/en-CA/2023/11/202311200500ChapmanAdventure.jpg)|
 202311210500|HelloSeal|Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)|Welcome to the world, pup!|![](/en-CA/2023/11/202311210500HelloSeal.jpg)|
 202311220500|SnakeRiverTeton|Grand Teton National Park, Wyoming (© Westend61/Getty Images)|Big on beauty, short on people|![](/en-CA/2023/11/202311220500SnakeRiverTeton.jpg)|
+202311230500|TeideNational|Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)|Summits in the sea|![](/en-CA/2023/11/202311230500TeideNational.jpg)|
