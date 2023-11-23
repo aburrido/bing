@@ -23,3 +23,4 @@
 202311201600|HelloSeal|英国诺福克海滩上的灰海豹幼崽 (© Vince Burton/Minden Pictures)|欢迎来到这个世界！|![](/zh-CN/2023/11/202311201600HelloSeal.jpg)|
 202311211600|SnakeRiverTeton|大提顿国家公园，怀俄明州，美国 (© Westend61/Getty Images)|人少景美的静谧之地|![](/zh-CN/2023/11/202311211600SnakeRiverTeton.jpg)|
 202311221600|TeideNational|泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)|从深海到天空|![](/zh-CN/2023/11/202311221600TeideNational.jpg)|
+202311231600|HallofMosses|奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)|不一样的热带雨林|![](/zh-CN/2023/11/202311231600HallofMosses.jpg)|
