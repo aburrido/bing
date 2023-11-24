@@ -24,3 +24,4 @@
 202311210800|HelloSeal|Gray seal pup on the beach of Norfolk, England (© Vince Burton/Minden Pictures)|Info|![](/en-AU/2023/11/202311210800HelloSeal.jpg)|
 202311220800|SnakeRiverTeton|Grand Teton National Park, Wyoming (© Westend61/Getty Images)|Info|![](/en-AU/2023/11/202311220800SnakeRiverTeton.jpg)|
 202311230800|TeideNational|Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)|Info|![](/en-AU/2023/11/202311230800TeideNational.jpg)|
+202311240800|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|Info|![](/en-AU/2023/11/202311240800HallofMosses.jpg)|

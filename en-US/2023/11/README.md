@@ -24,3 +24,4 @@
 202311210800|HelloSeal|Gray seal pup, Norfolk, England (© Vince Burton/Minden Pictures)|Welcome to the world, pup!|![](/en-US/2023/11/202311210800HelloSeal.jpg)|
 202311220800|SnakeRiverTeton|Grand Teton National Park, Wyoming (© Westend61/Getty Images)|The quiet beauty of Grand Teton|![](/en-US/2023/11/202311220800SnakeRiverTeton.jpg)|
 202311230800|FlintCorn|Flint corn (© Cynthia Liang/Shutterstock)|Happy Thanksgiving!|![](/en-US/2023/11/202311230800FlintCorn.jpg)|
+202311240800|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|A different kind of rainforest|![](/en-US/2023/11/202311240800HallofMosses.jpg)|
