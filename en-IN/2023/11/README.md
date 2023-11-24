@@ -24,3 +24,4 @@
 202311211830|SnakeRiverTeton|Grand Teton National Park, Wyoming (© Westend61/Getty Images)|Big on beauty, short on people|![](/en-IN/2023/11/202311211830SnakeRiverTeton.jpg)|
 202311221830|VictoriaMemorialIndia|Beautiful foggy winter sunrise at Victoria Memorial, Kolkata, India. (© DebashisK/Shutterstock)|Memories in the mist|![](/en-IN/2023/11/202311221830VictoriaMemorialIndia.jpg)|
 202311231830|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|A different kind of rainforest|![](/en-IN/2023/11/202311231830HallofMosses.jpg)|
+202311241830|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Toledo's timeless tale|![](/en-IN/2023/11/202311241830TajoRiver.jpg)|
