@@ -24,3 +24,4 @@
 202311210500|HelloSeal|Bébé phoque gris sur la plage de Norfolk, Angleterre (© Vince Burton/Minden Pictures)|Bonjour chez vous!|![](/fr-CA/2023/11/202311210500HelloSeal.jpg)|
 202311220500|SnakeRiverTeton|Parc national de Grand Teton, Wyoming, États-Unis (© Westend61/Getty Images)|La beauté à l'état pur|![](/fr-CA/2023/11/202311220500SnakeRiverTeton.jpg)|
 202311230500|TeideNational|Coucher de soleil au parc national du Teide, Tenerife, îles Canaries, Espagne (© Javier Martínez Morán/Alamy)|Un volcan endormi|![](/fr-CA/2023/11/202311230500TeideNational.jpg)|
+202311240500|HallofMosses|Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)|Connaissez-vous le «Green Friday»?|![](/fr-CA/2023/11/202311240500HallofMosses.jpg)|
