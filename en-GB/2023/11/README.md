@@ -24,3 +24,4 @@
 202311220000|SnakeRiverTeton|Grand Teton National Park, Wyoming, USA (© Westend61/Getty Images)|Big on beauty, short on people|![](/en-GB/2023/11/202311220000SnakeRiverTeton.jpg)|
 202311230000|TeideNational|Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)|Summits in the sea|![](/en-GB/2023/11/202311230000TeideNational.jpg)|
 202311240000|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington, USA (© James Randklev/Getty Images)|A different kind of rainforest|![](/en-GB/2023/11/202311240000HallofMosses.jpg)|
+202311250000|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Toledo's timeless tale|![](/en-GB/2023/11/202311250000TajoRiver.jpg)|
