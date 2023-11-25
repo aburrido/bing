@@ -25,3 +25,4 @@
 202311221600|TeideNational|泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙 (© Javier Martínez Morán/Alamy)|从深海到天空|![](/zh-CN/2023/11/202311221600TeideNational.jpg)|
 202311231600|HallofMosses|奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)|不一样的热带雨林|![](/zh-CN/2023/11/202311231600HallofMosses.jpg)|
 202311241600|TajoRiver|托莱多，西班牙 (© Carlos Fernandez/Getty Images)|永恒之城托莱多|![](/zh-CN/2023/11/202311241600TajoRiver.jpg)|
+202311251600|BradgateFallow|布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy)|谁踩到树枝了?|![](/zh-CN/2023/11/202311251600BradgateFallow.jpg)|
