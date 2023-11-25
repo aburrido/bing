@@ -25,3 +25,4 @@
 202311222300|FlamingosSaintesMaries|Flamants roses au lever du soleil, Saintes-Maries-de-la-Mer, Parc Naturel Régional de Camargue, France (© Image via Shutterstock)|Les divas de la Camargue|![](/fr-FR/2023/11/202311222300FlamingosSaintesMaries.jpg)|
 202311232300|HallofMosses|Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)|Connaissez-vous le « Green Friday » ?|![](/fr-FR/2023/11/202311232300HallofMosses.jpg)|
 202311242300|TajoRiver|Tolède, Espagne (© Carlos Fernandez/Getty Images)|Une ville, trois cultures|![](/fr-FR/2023/11/202311242300TajoRiver.jpg)|
+202311252300|BradgateFallow|Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)|Qui va là !|![](/fr-FR/2023/11/202311252300BradgateFallow.jpg)|
