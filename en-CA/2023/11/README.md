@@ -26,3 +26,4 @@
 202311230500|TeideNational|Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)|Summits in the sea|![](/en-CA/2023/11/202311230500TeideNational.jpg)|
 202311240500|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|A different kind of rainforest|![](/en-CA/2023/11/202311240500HallofMosses.jpg)|
 202311250500|KluaneNationalPark|Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© A. Michael Brown/Shutterstock)|Kluane's untamed beauty|![](/en-CA/2023/11/202311250500KluaneNationalPark.jpg)|
+202311260500|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Who stepped on a twig?|![](/en-CA/2023/11/202311260500BradgateFallow.jpg)|
