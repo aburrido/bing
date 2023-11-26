@@ -26,3 +26,4 @@
 202311230800|TeideNational|Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)|Info|![](/en-AU/2023/11/202311230800TeideNational.jpg)|
 202311240800|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|Info|![](/en-AU/2023/11/202311240800HallofMosses.jpg)|
 202311250800|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2023/11/202311250800TajoRiver.jpg)|
+202311260800|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Info|![](/en-AU/2023/11/202311260800BradgateFallow.jpg)|
