@@ -26,3 +26,4 @@
 202311231500|HallofMosses|オリンピック国立公園の温帯雨林, 米国 ワシントン州 (© James Randklev/Getty Images)|今日は米国の「グリーンフライデー」|![](/ja-JP/2023/11/202311231500HallofMosses.jpg)|
 202311241500|TajoRiver|トレド, スペイン カスティーリャ＝ラ・マンチャ州 (© Carlos Fernandez/Getty Images)|トレドの夜景とタホ川|![](/ja-JP/2023/11/202311241500TajoRiver.jpg)|
 202311251500|BathingDay2023|修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)|今日は「いい風呂の日」|![](/ja-JP/2023/11/202311251500BathingDay2023.jpg)|
+202311261500|RioNegro|ネグロ川, ブラジル  (© Timothy Allen/Getty Images)|まるで鏡のようなリフレクション|![](/ja-JP/2023/11/202311261500RioNegro.jpg)|
