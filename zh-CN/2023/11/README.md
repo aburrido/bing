@@ -26,3 +26,4 @@
 202311231600|HallofMosses|奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国 (© James Randklev/Getty Images)|不一样的热带雨林|![](/zh-CN/2023/11/202311231600HallofMosses.jpg)|
 202311241600|TajoRiver|托莱多，西班牙 (© Carlos Fernandez/Getty Images)|永恒之城托莱多|![](/zh-CN/2023/11/202311241600TajoRiver.jpg)|
 202311251600|BradgateFallow|布拉德盖特公园的小鹿，莱斯特郡，英国 (© Chris Bainbridge/Alamy)|谁踩到树枝了?|![](/zh-CN/2023/11/202311251600BradgateFallow.jpg)|
+202311261600|RioNegro|内格罗河，亚马逊河流域，巴西 (© Timothy Allen/Getty Images)|水上明镜|![](/zh-CN/2023/11/202311261600RioNegro.jpg)|
