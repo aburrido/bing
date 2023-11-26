@@ -26,3 +26,4 @@
 202311232300|HallofMosses|Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)|Connaissez-vous le « Green Friday » ?|![](/fr-FR/2023/11/202311232300HallofMosses.jpg)|
 202311242300|TajoRiver|Tolède, Espagne (© Carlos Fernandez/Getty Images)|Une ville, trois cultures|![](/fr-FR/2023/11/202311242300TajoRiver.jpg)|
 202311252300|BradgateFallow|Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)|Qui va là !|![](/fr-FR/2023/11/202311252300BradgateFallow.jpg)|
+202311262300|RioNegro|Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)|Miroir, mon gentil miroir !|![](/fr-FR/2023/11/202311262300RioNegro.jpg)|
