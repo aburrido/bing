@@ -27,3 +27,4 @@
 202311241500|TajoRiver|トレド, スペイン カスティーリャ＝ラ・マンチャ州 (© Carlos Fernandez/Getty Images)|トレドの夜景とタホ川|![](/ja-JP/2023/11/202311241500TajoRiver.jpg)|
 202311251500|BathingDay2023|修善寺温泉街, 静岡県 伊豆市 (© JaCZhou 2015/Getty Images)|今日は「いい風呂の日」|![](/ja-JP/2023/11/202311251500BathingDay2023.jpg)|
 202311261500|RioNegro|ネグロ川, ブラジル  (© Timothy Allen/Getty Images)|まるで鏡のようなリフレクション|![](/ja-JP/2023/11/202311261500RioNegro.jpg)|
+202311271500|HumanKindness|手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)|今日はギビングチューズデー|![](/ja-JP/2023/11/202311271500HumanKindness.jpg)|
