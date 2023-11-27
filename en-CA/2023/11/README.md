@@ -27,3 +27,4 @@
 202311240500|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|A different kind of rainforest|![](/en-CA/2023/11/202311240500HallofMosses.jpg)|
 202311250500|KluaneNationalPark|Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© A. Michael Brown/Shutterstock)|Kluane's untamed beauty|![](/en-CA/2023/11/202311250500KluaneNationalPark.jpg)|
 202311260500|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Who stepped on a twig?|![](/en-CA/2023/11/202311260500BradgateFallow.jpg)|
+202311270500|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-CA/2023/11/202311270500RioNegro.jpg)|

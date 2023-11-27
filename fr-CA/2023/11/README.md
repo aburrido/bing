@@ -27,3 +27,4 @@
 202311240500|HallofMosses|Sentier "Hall of Mosses" dans la forêt pluviale de Hoh, Parc national olympique, Washington, États-Unis (© James Randklev/Getty Images)|Connaissez-vous le «Green Friday»?|![](/fr-CA/2023/11/202311240500HallofMosses.jpg)|
 202311250500|KluaneNationalPark|Mont Logan dans le parc national et la réserve de Kluane, Yukon, Canada (© A. Michael Brown/shutterstock)|La beauté sauvage de Kluane|![](/fr-CA/2023/11/202311250500KluaneNationalPark.jpg)|
 202311260500|BradgateFallow|Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)|Qui va là!|![](/fr-CA/2023/11/202311260500BradgateFallow.jpg)|
+202311270500|RioNegro|Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)|Miroir, mon gentil miroir!|![](/fr-CA/2023/11/202311270500RioNegro.jpg)|
