@@ -27,3 +27,4 @@
 202311242300|TajoRiver|Tolède, Espagne (© Carlos Fernandez/Getty Images)|Une ville, trois cultures|![](/fr-FR/2023/11/202311242300TajoRiver.jpg)|
 202311252300|BradgateFallow|Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)|Qui va là !|![](/fr-FR/2023/11/202311252300BradgateFallow.jpg)|
 202311262300|RioNegro|Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)|Miroir, mon gentil miroir !|![](/fr-FR/2023/11/202311262300RioNegro.jpg)|
+202311272300|HumanKindness|Fresques géantes sur gazon créée par l’artiste Saype à Istanbul, Turquie (© Chris McGrath/Getty Images)|Libérez votre générosité !|![](/fr-FR/2023/11/202311272300HumanKindness.jpg)|

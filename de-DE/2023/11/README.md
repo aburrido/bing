@@ -27,3 +27,4 @@
 202311242300|TajoRiver|Toledo, Spanien (© Carlos Fernandez/Getty Images)|Lichterspektakel in Toledo|![](/de-DE/2023/11/202311242300TajoRiver.jpg)|
 202311252300|BradgateFallow|Damhirsch im Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Unschuldshirsche?|![](/de-DE/2023/11/202311252300BradgateFallow.jpg)|
 202311262300|FrankfurtChristmasMarket|Weihnachtsmarkt in Frankfurt am Main, Hessen (© Michael Abid/Alamy Stock Photo)|Oh du gelobte Weihnachtsstimmung!|![](/de-DE/2023/11/202311262300FrankfurtChristmasMarket.jpg)|
+202311272300|HumanKindness|Riesiges Land-Art-Fresko des Künstlers Saype in Istanbul, Türkei (© Chris McGrath/Getty Images)|Eine Hand „hilft“ der anderen!|![](/de-DE/2023/11/202311272300HumanKindness.jpg)|
