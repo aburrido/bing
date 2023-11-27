@@ -27,3 +27,4 @@
 202311240800|HallofMosses|Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)|A different kind of rainforest|![](/en-US/2023/11/202311240800HallofMosses.jpg)|
 202311250800|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Toledo's timeless tale|![](/en-US/2023/11/202311250800TajoRiver.jpg)|
 202311260800|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Who stepped on a twig?|![](/en-US/2023/11/202311260800BradgateFallow.jpg)|
+202311270800|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-US/2023/11/202311270800RioNegro.jpg)|
