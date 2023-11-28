@@ -28,3 +28,4 @@
 202311250800|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Toledo's timeless tale|![](/en-US/2023/11/202311250800TajoRiver.jpg)|
 202311260800|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Who stepped on a twig?|![](/en-US/2023/11/202311260800BradgateFallow.jpg)|
 202311270800|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-US/2023/11/202311270800RioNegro.jpg)|
+202311280800|HumanKindness|Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)|A day to lend a hand|![](/en-US/2023/11/202311280800HumanKindness.jpg)|
