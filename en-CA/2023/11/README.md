@@ -28,3 +28,4 @@
 202311250500|KluaneNationalPark|Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© A. Michael Brown/Shutterstock)|Kluane's untamed beauty|![](/en-CA/2023/11/202311250500KluaneNationalPark.jpg)|
 202311260500|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Who stepped on a twig?|![](/en-CA/2023/11/202311260500BradgateFallow.jpg)|
 202311270500|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-CA/2023/11/202311270500RioNegro.jpg)|
+202311280500|HumanKindness|Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)|A day to lend a hand|![](/en-CA/2023/11/202311280500HumanKindness.jpg)|

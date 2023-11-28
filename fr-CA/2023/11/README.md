@@ -28,3 +28,4 @@
 202311250500|KluaneNationalPark|Mont Logan dans le parc national et la réserve de Kluane, Yukon, Canada (© A. Michael Brown/shutterstock)|La beauté sauvage de Kluane|![](/fr-CA/2023/11/202311250500KluaneNationalPark.jpg)|
 202311260500|BradgateFallow|Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)|Qui va là!|![](/fr-CA/2023/11/202311260500BradgateFallow.jpg)|
 202311270500|RioNegro|Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)|Miroir, mon gentil miroir!|![](/fr-CA/2023/11/202311270500RioNegro.jpg)|
+202311280500|HumanKindness|Fresques géantes sur gazon créée par l’artiste Saype à Istanbul, Turquie (© Chris McGrath/Getty Images)|Libérez votre générosité!|![](/fr-CA/2023/11/202311280500HumanKindness.jpg)|
