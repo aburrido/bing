@@ -28,3 +28,4 @@
 202311251830|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Who stepped on a twig?|![](/en-IN/2023/11/202311251830BradgateFallow.jpg)|
 202311261830|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-IN/2023/11/202311261830RioNegro.jpg)|
 202311271830|VarandhaGhatBhor|Lush green landscape of Varandha Ghat,Bhor,Maharashtra, India. (© AmitRane1975/Getty Images)|Over the clouds|![](/en-IN/2023/11/202311271830VarandhaGhatBhor.jpg)|
+202311281830|TreeLighting|Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)|Tis the season|![](/en-IN/2023/11/202311281830TreeLighting.jpg)|
