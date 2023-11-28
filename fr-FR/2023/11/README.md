@@ -28,3 +28,4 @@
 202311252300|BradgateFallow|Daim à Bradgate Park, Leicestershire, Angleterre (© Chris Bainbridge/Alamy)|Qui va là !|![](/fr-FR/2023/11/202311252300BradgateFallow.jpg)|
 202311262300|RioNegro|Rio Negro, bassin amazonien, Brésil (© Timothy Allen/Getty Images)|Miroir, mon gentil miroir !|![](/fr-FR/2023/11/202311262300RioNegro.jpg)|
 202311272300|HumanKindness|Fresques géantes sur gazon créée par l’artiste Saype à Istanbul, Turquie (© Chris McGrath/Getty Images)|Libérez votre générosité !|![](/fr-FR/2023/11/202311272300HumanKindness.jpg)|
+202311282300|TreeLighting|Arbre de Noël du Rockefeller Center, New York, États-Unis (© Jonathan Orenstein/Getty Images)|La plus belle période de l’année est arrivée !|![](/fr-FR/2023/11/202311282300TreeLighting.jpg)|
