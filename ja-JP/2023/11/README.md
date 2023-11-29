@@ -29,3 +29,4 @@
 202311261500|RioNegro|ネグロ川, ブラジル  (© Timothy Allen/Getty Images)|まるで鏡のようなリフレクション|![](/ja-JP/2023/11/202311261500RioNegro.jpg)|
 202311271500|HumanKindness|手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)|今日はギビングチューズデー|![](/ja-JP/2023/11/202311271500HumanKindness.jpg)|
 202311281500|TreeLighting|ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)|巨大なクリスマスツリー|![](/ja-JP/2023/11/202311281500TreeLighting.jpg)|
+202311291500|TrotternishStorr|スカイ島の奇岩, イギリス スコットランド (© Juan Maria Coy Vergara/Getty Images)|今日は聖アンドリューの日|![](/ja-JP/2023/11/202311291500TrotternishStorr.jpg)|
