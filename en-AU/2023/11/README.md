@@ -29,3 +29,4 @@
 202311260800|BradgateFallow|Fallow deer in Bradgate Park, Leicestershire, England (© Chris Bainbridge/Alamy)|Info|![](/en-AU/2023/11/202311260800BradgateFallow.jpg)|
 202311270800|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Info|![](/en-AU/2023/11/202311270800RioNegro.jpg)|
 202311280800|AssiniboineProvincialPark|Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)|Info|![](/en-AU/2023/11/202311280800AssiniboineProvincialPark.jpg)|
+202311290800|SchwerinerSchloss|Schwerin Castle on Lake Schwerin, Mecklenburg-Vorpommern, Germany (© Hannes Wendt/Shutterstock)|Info|![](/en-AU/2023/11/202311290800SchwerinerSchloss.jpg)|
