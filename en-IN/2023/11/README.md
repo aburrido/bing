@@ -29,3 +29,4 @@
 202311261830|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-IN/2023/11/202311261830RioNegro.jpg)|
 202311271830|VarandhaGhatBhor|Lush green landscape of Varandha Ghat,Bhor,Maharashtra, India. (© AmitRane1975/Getty Images)|Over the clouds|![](/en-IN/2023/11/202311271830VarandhaGhatBhor.jpg)|
 202311281830|TreeLighting|Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)|Tis the season|![](/en-IN/2023/11/202311281830TreeLighting.jpg)|
+202311291830|TrotternishStorr|The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)|The Old Man on his watch|![](/en-IN/2023/11/202311291830TrotternishStorr.jpg)|
