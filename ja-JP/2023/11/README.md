@@ -30,3 +30,4 @@
 202311271500|HumanKindness|手と手をつなぐ巨大な地上絵, トルコ イスタンブール (© Chris McGrath/Getty Images)|今日はギビングチューズデー|![](/ja-JP/2023/11/202311271500HumanKindness.jpg)|
 202311281500|TreeLighting|ロックフェラーセンター,  米国 ニューヨーク州 (© Jonathan Orenstein/Getty Images)|巨大なクリスマスツリー|![](/ja-JP/2023/11/202311281500TreeLighting.jpg)|
 202311291500|TrotternishStorr|スカイ島の奇岩, イギリス スコットランド (© Juan Maria Coy Vergara/Getty Images)|今日は聖アンドリューの日|![](/ja-JP/2023/11/202311291500TrotternishStorr.jpg)|
+202311301500|IcebergAntarctica|ロス海の氷山, 南極 (© Michel Roggo/Minden Pictures)|今日は南極の日|![](/ja-JP/2023/11/202311301500IcebergAntarctica.jpg)|
