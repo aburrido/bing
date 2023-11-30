@@ -30,3 +30,4 @@
 202311270800|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Info|![](/en-AU/2023/11/202311270800RioNegro.jpg)|
 202311280800|AssiniboineProvincialPark|Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)|Info|![](/en-AU/2023/11/202311280800AssiniboineProvincialPark.jpg)|
 202311290800|SchwerinerSchloss|Schwerin Castle on Lake Schwerin, Mecklenburg-Vorpommern, Germany (© Hannes Wendt/Shutterstock)|Info|![](/en-AU/2023/11/202311290800SchwerinerSchloss.jpg)|
+202311300800|TrotternishStorr|The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)|Info|![](/en-AU/2023/11/202311300800TrotternishStorr.jpg)|
