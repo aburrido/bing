@@ -29,3 +29,4 @@
 202311270000|RioNegro|Rio Negro, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-GB/2023/11/202311270000RioNegro.jpg)|
 202311280000|HumanKindness|Giant land art fresco by artist Saype, Istanbul, Turkey (© Chris McGrath/Getty Images)|A day to lend a hand|![](/en-GB/2023/11/202311280000HumanKindness.jpg)|
 202311290000|TreeLighting|Rockefeller Centre Christmas Tree, New York City, USA (© Jonathan Orenstein/Getty Images)|'Tis the season|![](/en-GB/2023/11/202311290000TreeLighting.jpg)|
+202311300000|LeadenhallUK|Leadenhall Market, London (© Vittorio Caramazza/Alamy Stock Photo)|Where the wares and goods are great|![](/en-GB/2023/11/202311300000LeadenhallUK.jpg)|
