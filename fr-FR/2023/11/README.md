@@ -30,3 +30,4 @@
 202311272300|HumanKindness|Fresques géantes sur gazon créée par l’artiste Saype à Istanbul, Turquie (© Chris McGrath/Getty Images)|Libérez votre générosité !|![](/fr-FR/2023/11/202311272300HumanKindness.jpg)|
 202311282300|TreeLighting|Arbre de Noël du Rockefeller Center, New York, États-Unis (© Jonathan Orenstein/Getty Images)|La plus belle période de l’année est arrivée !|![](/fr-FR/2023/11/202311282300TreeLighting.jpg)|
 202311292300|BaldCypress|Cyprès chauves à l'étang de Boulieu, Isère, France (© photosimysia/Getty Images)|Reflets d’automne|![](/fr-FR/2023/11/202311292300BaldCypress.jpg)|
+202311302300|IcebergAntarctica|Iceberg, mer de Ross, Antarctique (© Michel Roggo/Minden Pictures)|La vie au grand frais !|![](/fr-FR/2023/11/202311302300IcebergAntarctica.jpg)|

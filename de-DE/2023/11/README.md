@@ -30,3 +30,4 @@
 202311272300|HumanKindness|Riesiges Land-Art-Fresko des Künstlers Saype in Istanbul, Türkei (© Chris McGrath/Getty Images)|Eine Hand „hilft“ der anderen!|![](/de-DE/2023/11/202311272300HumanKindness.jpg)|
 202311282300|TreeLighting|Weihnachtsbaum des Rockefeller Centers New York City, USA (© Jonathan Orenstein/Getty Images)|Weihnachten mal ganz wo anders|![](/de-DE/2023/11/202311282300TreeLighting.jpg)|
 202311292300|TrotternishStorr|Der Old Man of Storr, eine Felsnadel auf der Isle of Skye, Schottland, UK (© Juan Maria Coy Vergara/Getty Images)|Gipfel der nordischen Götter?|![](/de-DE/2023/11/202311292300TrotternishStorr.jpg)|
+202311302300|IcebergAntarctica|Eisberg, Rossmeer, Antarktis (© Michel Roggo/Minden Pictures)|Eis, Eis und nochmals Eis|![](/de-DE/2023/11/202311302300IcebergAntarctica.jpg)|
