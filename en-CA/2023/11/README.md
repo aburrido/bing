@@ -30,3 +30,4 @@
 202311270500|RioNegro|Río Negro, Amazon basin, Brazil (© Timothy Allen/Getty Images)|Mirror, mirror, on the water|![](/en-CA/2023/11/202311270500RioNegro.jpg)|
 202311280500|HumanKindness|Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)|A day to lend a hand|![](/en-CA/2023/11/202311280500HumanKindness.jpg)|
 202311290500|TreeLighting|Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)|Rockefeller 'round the Christmas tree|![](/en-CA/2023/11/202311290500TreeLighting.jpg)|
+202311300500|TrotternishStorr|The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)|The Old Man on his watch|![](/en-CA/2023/11/202311300500TrotternishStorr.jpg)|
