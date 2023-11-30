@@ -30,3 +30,4 @@
 202311271830|VarandhaGhatBhor|Lush green landscape of Varandha Ghat,Bhor,Maharashtra, India. (© AmitRane1975/Getty Images)|Over the clouds|![](/en-IN/2023/11/202311271830VarandhaGhatBhor.jpg)|
 202311281830|TreeLighting|Rockefeller Center Christmas tree, New York City (© Jonathan Orenstein/Getty Images)|Tis the season|![](/en-IN/2023/11/202311281830TreeLighting.jpg)|
 202311291830|TrotternishStorr|The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)|The Old Man on his watch|![](/en-IN/2023/11/202311291830TrotternishStorr.jpg)|
+202311301830|IcebergAntarctica|Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)|A very cool place|![](/en-IN/2023/11/202311301830IcebergAntarctica.jpg)|
