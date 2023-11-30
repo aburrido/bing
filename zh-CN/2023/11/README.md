@@ -30,3 +30,4 @@
 202311271600|AssiniboineProvincialPark|阿西尼博因山省级公园，加拿大 (© matt macpherson/500px/Getty Images)|冬日私语|![](/zh-CN/2023/11/202311271600AssiniboineProvincialPark.jpg)|
 202311281600|SchwerinerSchloss|什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国 (© Hannes Wendt/Shutterstock)|童话中的城堡|![](/zh-CN/2023/11/202311281600SchwerinerSchloss.jpg)|
 202311291600|TrotternishStorr|斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国 (© Juan Maria Coy Vergara/Getty Images)|守望的老人|![](/zh-CN/2023/11/202311291600TrotternishStorr.jpg)|
+202311301600|IcebergAntarctica|罗斯海的冰山，南极洲 (© Michel Roggo/Minden Pictures)|为最酷的地方欢呼！|![](/zh-CN/2023/11/202311301600IcebergAntarctica.jpg)|
