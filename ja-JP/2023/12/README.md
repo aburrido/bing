@@ -5,3 +5,4 @@
 202312021500|ChichibuNightFestival2023|豪華絢爛な山車と花火, 埼玉県 秩父市 (© ASSOCIATED PRESS/AP)|今日は秩父夜祭|![](/ja-JP/2023/12/202312021500ChichibuNightFestival2023.jpg)|
 ||||![](/ja-JP/2023/12/.jpg)|
 202312031500|CheetahDay|マサイマラ国立保護区のチーター親子, ケニア (© Scott Davis/Tandem Stills + Motion)|今日は国際チーターの日|![](/ja-JP/2023/12/202312031500CheetahDay.jpg)|
+202312041500|AlpsCastles|ノイシュヴァンシュタイン城とホーエンシュヴァンガウ城, ドイツ (© Harald Nachtmann/Getty Images)|バイエルン・アルプスに建つ美しいお城|![](/ja-JP/2023/12/202312041500AlpsCastles.jpg)|
