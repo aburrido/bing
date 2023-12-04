@@ -5,3 +5,4 @@
 202312020500|AngkorPark|Porte nord d'Angkor Thom, Parc archéologique d'Angkor, Cambodge (© Amazing Travel Lifestyle/Shutterstock)|L’ancienne cité Khmer aux temples majestueux|![](/fr-CA/2023/12/202312020500AngkorPark.jpg)|
 202312030500|VermilionCliffs|Formations rocheuses en grès, Monument national de Vermilion Cliffs, Arizona, États-Unis (© Yva Momatiuk and John Eastcott/Minden Pictures)|Un paysage extraordinaire sculpté par le temps|![](/fr-CA/2023/12/202312030500VermilionCliffs.jpg)|
 ||||![](/fr-CA/2023/12/.jpg)|
+202312040500|CheetahDay|Une mère guépard et ses petits dans la réserve nationale du Masai Mara, au Kenya (© Scott Davis/Tandem Stills + Motion)|Le félin le plus rapide du monde!|![](/fr-CA/2023/12/202312040500CheetahDay.jpg)|
