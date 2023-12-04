@@ -5,3 +5,4 @@
 202312020800|GwaliorFortMP|Gwalior Fort, Madhya Pradesh, India (© Dmitry Rukhlenko-Photos of India/Alamy)|Info|![](/en-AU/2023/12/202312020800GwaliorFortMP.jpg)|
 202312030800|VermilionCliffs|Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2023/12/202312030800VermilionCliffs.jpg)|
 ||||![](/en-AU/2023/12/.jpg)|
+202312040800|CheetahDay|A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)|Info|![](/en-AU/2023/12/202312040800CheetahDay.jpg)|
