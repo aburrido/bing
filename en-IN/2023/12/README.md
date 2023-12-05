@@ -6,3 +6,4 @@
 ||||![](/en-IN/2023/12/.jpg)|
 202312031830|CheetahDay|A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)|Masters of agility and cuteness|![](/en-IN/2023/12/202312031830CheetahDay.jpg)|
 202312041830|AlpsCastles|Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Straight out of a fairytale|![](/en-IN/2023/12/202312041830AlpsCastles.jpg)|
+202312051830|PalolemGoa|Beach with bungalow and coconut palm trees at Palolem in Goa, India. (© Pikoso.kz/Shutterstock)|A sand-sational escapade|![](/en-IN/2023/12/202312051830PalolemGoa.jpg)|
