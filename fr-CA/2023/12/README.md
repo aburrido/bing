@@ -6,3 +6,4 @@
 202312030500|VermilionCliffs|Formations rocheuses en grès, Monument national de Vermilion Cliffs, Arizona, États-Unis (© Yva Momatiuk and John Eastcott/Minden Pictures)|Un paysage extraordinaire sculpté par le temps|![](/fr-CA/2023/12/202312030500VermilionCliffs.jpg)|
 ||||![](/fr-CA/2023/12/.jpg)|
 202312040500|CheetahDay|Une mère guépard et ses petits dans la réserve nationale du Masai Mara, au Kenya (© Scott Davis/Tandem Stills + Motion)|Le félin le plus rapide du monde!|![](/fr-CA/2023/12/202312040500CheetahDay.jpg)|
+202312050500|AlpsCastles|Châteaux de Neuschwanstein et de Hohenschwangau, Alpes bavaroises, Allemagne (© Harald Nachtmann/Getty Images)|Un paysage tout droit sorti d'un conte de fées|![](/fr-CA/2023/12/202312050500AlpsCastles.jpg)|
