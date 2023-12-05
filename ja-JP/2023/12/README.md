@@ -6,3 +6,4 @@
 ||||![](/ja-JP/2023/12/.jpg)|
 202312031500|CheetahDay|マサイマラ国立保護区のチーター親子, ケニア (© Scott Davis/Tandem Stills + Motion)|今日は国際チーターの日|![](/ja-JP/2023/12/202312031500CheetahDay.jpg)|
 202312041500|AlpsCastles|ノイシュヴァンシュタイン城とホーエンシュヴァンガウ城, ドイツ (© Harald Nachtmann/Getty Images)|バイエルン・アルプスに建つ美しいお城|![](/ja-JP/2023/12/202312041500AlpsCastles.jpg)|
+202312051500|CERNCenter|グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)|今週はコンピューターサイエンス教育週間|![](/ja-JP/2023/12/202312051500CERNCenter.jpg)|
