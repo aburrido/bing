@@ -6,3 +6,4 @@
 ||||![](/zh-CN/2023/12/.jpg)|
 202312031600|CheetahDay|一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚 (© Scott Davis/Tandem Stills + Motion)|机敏可爱的捕猎高手|![](/zh-CN/2023/12/202312031600CheetahDay.jpg)|
 202312041600|AlpsCastles|天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images)|童话故事中的场景|![](/zh-CN/2023/12/202312041600AlpsCastles.jpg)|
+202312051600|DardagnaWaterfalls|达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)|穿过群山的蜿蜒小路|![](/zh-CN/2023/12/202312051600DardagnaWaterfalls.jpg)|
