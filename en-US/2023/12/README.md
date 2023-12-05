@@ -6,3 +6,4 @@
 202312030800|VermilionCliffs|Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)|Sculpted by time|![](/en-US/2023/12/202312030800VermilionCliffs.jpg)|
 ||||![](/en-US/2023/12/.jpg)|
 202312040800|CheetahDay|A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)|Masters of agility and cuteness|![](/en-US/2023/12/202312040800CheetahDay.jpg)|
+202312050800|AlpsCastles|Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Straight out of a fairy tale|![](/en-US/2023/12/202312050800AlpsCastles.jpg)|
