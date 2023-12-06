@@ -7,3 +7,4 @@
 202312032300|CheetahDay|Eine Geparde-Mutter und ihre Jungen im Masai Mara Naturschutzgebiet, Kenia (© Scott Davis/Tandem Stills + Motion)|Schnelle, souveräne, süße Katzen der Wildnis|![](/de-DE/2023/12/202312032300CheetahDay.jpg)|
 202312042300|AlpsCastles|Schloss Neuschwanstein und Schloss Hohenschwangau, Bayerische Alpen (© Harald Nachtmann/Getty Images)|Schlösser und Berge, sehen Sie die sieben Zwerge?|![](/de-DE/2023/12/202312042300AlpsCastles.jpg)|
 202312052300|CERNCenter|Der Globe of Science and Innovation, Meyrin, Schweiz (© Deyan Baric/Alamy Stock Photo)|Globus der Wissenschaft|![](/de-DE/2023/12/202312052300CERNCenter.jpg)|
+202312062300|GrandCanyonVerdon|Ein nebliger Morgen in der Verdonschlucht in den Alpes-de-Haute-Provence, Frankreich (© Hemis/Alamy)|Der Grand Canyon Europas|![](/de-DE/2023/12/202312062300GrandCanyonVerdon.jpg)|
