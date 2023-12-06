@@ -7,3 +7,4 @@
 ||||![](/fr-CA/2023/12/.jpg)|
 202312040500|CheetahDay|Une mère guépard et ses petits dans la réserve nationale du Masai Mara, au Kenya (© Scott Davis/Tandem Stills + Motion)|Le félin le plus rapide du monde!|![](/fr-CA/2023/12/202312040500CheetahDay.jpg)|
 202312050500|AlpsCastles|Châteaux de Neuschwanstein et de Hohenschwangau, Alpes bavaroises, Allemagne (© Harald Nachtmann/Getty Images)|Un paysage tout droit sorti d'un conte de fées|![](/fr-CA/2023/12/202312050500AlpsCastles.jpg)|
+202312060500|CERNCenter|Le siège du Globe de la science et de l'innovation, Meyrin, Suisse (© Deyan Baric/Alamy Stock Photo)|Un code Mondial pour l’avenir|![](/fr-CA/2023/12/202312060500CERNCenter.jpg)|
