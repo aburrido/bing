@@ -6,3 +6,4 @@
 ||||![](/en-GB/2023/12/.jpg)|
 202312040000|CheetahDay|A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)|Masters of agility and cuteness|![](/en-GB/2023/12/202312040000CheetahDay.jpg)|
 202312050000|AlpsCastles|Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Straight out of a fairytale|![](/en-GB/2023/12/202312050000AlpsCastles.jpg)|
+202312060000|CERNCenter|The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)|A global code for the future|![](/en-GB/2023/12/202312060000CERNCenter.jpg)|
