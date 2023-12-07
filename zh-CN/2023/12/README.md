@@ -8,3 +8,4 @@
 202312041600|AlpsCastles|天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国 (© Harald Nachtmann/Getty Images)|童话故事中的场景|![](/zh-CN/2023/12/202312041600AlpsCastles.jpg)|
 202312051600|DardagnaWaterfalls|达尔达尼亚瀑布，博洛尼亚，意大利 (© Alberto Ghizzi Panizza/Minden)|穿过群山的蜿蜒小路|![](/zh-CN/2023/12/202312051600DardagnaWaterfalls.jpg)|
 202312061600|GrandCanyonVerdon|韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)|欧洲大峡谷|![](/zh-CN/2023/12/202312061600GrandCanyonVerdon.jpg)|
+202312071600|JerseyIsland|拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)|不是那个泽西海岸!|![](/zh-CN/2023/12/202312071600JerseyIsland.jpg)|
