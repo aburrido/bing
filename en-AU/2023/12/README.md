@@ -8,3 +8,4 @@
 202312040800|CheetahDay|A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)|Info|![](/en-AU/2023/12/202312040800CheetahDay.jpg)|
 202312050800|AlpsCastles|Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Info|![](/en-AU/2023/12/202312050800AlpsCastles.jpg)|
 202312060800|DardagnaWaterfalls|Dardagna waterfalls, Bologna, Italy (© Alberto Ghizzi Panizza/Minden)|Info|![](/en-AU/2023/12/202312060800DardagnaWaterfalls.jpg)|
+202312070800|GrandCanyonVerdon|A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)|Info|![](/en-AU/2023/12/202312070800GrandCanyonVerdon.jpg)|
