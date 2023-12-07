@@ -8,3 +8,4 @@
 202312042300|AlpsCastles|Châteaux de Neuschwanstein et de Hohenschwangau, Alpes bavaroises, Allemagne (© Harald Nachtmann/Getty Images)|Un paysage tout droit sorti d'un conte de fées|![](/fr-FR/2023/12/202312042300AlpsCastles.jpg)|
 202312052300|CERNCenter|Le siège du Globe de la science et de l'innovation, Meyrin, Suisse (© Deyan Baric/Alamy Stock Photo)|Un code Mondial pour l’avenir|![](/fr-FR/2023/12/202312052300CERNCenter.jpg)|
 202312062300|GrandCanyonVerdon|Un matin brumeux dans les gorges du Verdon dans les Alpes-de-Haute-Provence en France (© Hemis/Alamy)|Le Grand Canyon Provençal|![](/fr-FR/2023/12/202312062300GrandCanyonVerdon.jpg)|
+202312072300|LightFestivalLyon|Fête des Lumières, œuvre d'art de Daniel Knipper, nommée Regards, en hommage aux victimes de l'attentat de Paris 2015, Lyon, France (© Baptiste de Izarra/Alamy Stock Photo)|Une féerie douce et lumineuse|![](/fr-FR/2023/12/202312072300LightFestivalLyon.jpg)|
