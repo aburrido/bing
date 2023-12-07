@@ -8,3 +8,4 @@
 202312041830|AlpsCastles|Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Straight out of a fairytale|![](/en-IN/2023/12/202312041830AlpsCastles.jpg)|
 202312051830|PalolemGoa|Beach with bungalow and coconut palm trees at Palolem in Goa, India. (© Pikoso.kz/Shutterstock)|A sand-sational escapade|![](/en-IN/2023/12/202312051830PalolemGoa.jpg)|
 202312061830|GrandCanyonVerdon|A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)|Is this a river of clouds?|![](/en-IN/2023/12/202312061830GrandCanyonVerdon.jpg)|
+202312071830|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore|![](/en-IN/2023/12/202312071830JerseyIsland.jpg)|
