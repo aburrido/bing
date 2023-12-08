@@ -9,3 +9,4 @@
 202312052300|CERNCenter|Der Globe of Science and Innovation, Meyrin, Schweiz (© Deyan Baric/Alamy Stock Photo)|Globus der Wissenschaft|![](/de-DE/2023/12/202312052300CERNCenter.jpg)|
 202312062300|GrandCanyonVerdon|Ein nebliger Morgen in der Verdonschlucht in den Alpes-de-Haute-Provence, Frankreich (© Hemis/Alamy)|Der Grand Canyon Europas|![](/de-DE/2023/12/202312062300GrandCanyonVerdon.jpg)|
 202312072300|NurnbergSouvenir|Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)|Weihnachtszeit, Schnee und Christkindlmärkte|![](/de-DE/2023/12/202312072300NurnbergSouvenir.jpg)|
+202312082300|PatagoniaGuanaco|Guanakos, Nationalpark Los Glaciares, Patagonien, Argentinien (© Yva Momatiuk and John Eastcott/Minden Pictures)|Guanakos auf argentinischem Hintergrund|![](/de-DE/2023/12/202312082300PatagoniaGuanaco.jpg)|
