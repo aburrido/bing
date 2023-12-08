@@ -9,3 +9,4 @@
 202312050500|AlpsCastles|Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Straight out of a fairytale|![](/en-CA/2023/12/202312050500AlpsCastles.jpg)|
 202312060500|CERNCenter|The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)|A global code for the future|![](/en-CA/2023/12/202312060500CERNCenter.jpg)|
 202312070500|GrandCanyonVerdon|A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)|Don't let the clouds fool you!|![](/en-CA/2023/12/202312070500GrandCanyonVerdon.jpg)|
+202312080500|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore Not that Jersey Shore|![](/en-CA/2023/12/202312080500JerseyIsland.jpg)|

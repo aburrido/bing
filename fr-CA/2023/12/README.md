@@ -9,3 +9,4 @@
 202312050500|AlpsCastles|Châteaux de Neuschwanstein et de Hohenschwangau, Alpes bavaroises, Allemagne (© Harald Nachtmann/Getty Images)|Un paysage tout droit sorti d'un conte de fées|![](/fr-CA/2023/12/202312050500AlpsCastles.jpg)|
 202312060500|CERNCenter|Le siège du Globe de la science et de l'innovation, Meyrin, Suisse (© Deyan Baric/Alamy Stock Photo)|Un code Mondial pour l’avenir|![](/fr-CA/2023/12/202312060500CERNCenter.jpg)|
 202312070500|GrandCanyonVerdon|Un matin brumeux dans les gorges du Verdon dans les Alpes-de-Haute-Provence en France (© Hemis/Alamy)|Le Grand Canyon Provençal|![](/fr-CA/2023/12/202312070500GrandCanyonVerdon.jpg)|
+202312080500|PatagoniaGuanaco|Guanacos, parc national Los Glaciares, Patagonie, Argentine (© Yva Momatiuk and John Eastcott/Minden Pictures)|Où se trouvent ces camélidés?|![](/fr-CA/2023/12/202312080500PatagoniaGuanaco.jpg)|
