@@ -9,3 +9,4 @@
 202312050800|AlpsCastles|Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)|Straight out of a fairy tale|![](/en-US/2023/12/202312050800AlpsCastles.jpg)|
 202312060800|CERNCenter|The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)|A global code for the future|![](/en-US/2023/12/202312060800CERNCenter.jpg)|
 202312070800|PearlHarborArizona|USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)|Remembering the fallen|![](/en-US/2023/12/202312070800PearlHarborArizona.jpg)|
+202312080800|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore|![](/en-US/2023/12/202312080800JerseyIsland.jpg)|
