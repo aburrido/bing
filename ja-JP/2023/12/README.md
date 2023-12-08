@@ -9,3 +9,4 @@
 202312051500|CERNCenter|グローブ・オブ・サイエンス・アンド・イノベーション, スイス (© Deyan Baric/Alamy)|今週はコンピューターサイエンス教育週間|![](/ja-JP/2023/12/202312051500CERNCenter.jpg)|
 202312061500|Taisetsu2023|白川郷の雪景色, 岐阜県 (© MIYAMOTO_Y/Getty Images)|今日は二十四節気の「大雪」|![](/ja-JP/2023/12/202312061500Taisetsu2023.jpg)|
 202312071500|JerseyIsland|ラ・ロック港, イギリス ジャージー (© Reinhard Schmid/Huber/eStock Photo)|海に向かって伸びる遊歩道|![](/ja-JP/2023/12/202312071500JerseyIsland.jpg)|
+202312081500|PatagoniaGuanaco|ロス・グラシアレス国立公園, アルゼンチン サンタクルス州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|今日はリャマの日|![](/ja-JP/2023/12/202312081500PatagoniaGuanaco.jpg)|
