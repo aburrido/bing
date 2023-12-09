@@ -10,3 +10,4 @@
 202312061600|GrandCanyonVerdon|韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国 (© Hemis/Alamy)|欧洲大峡谷|![](/zh-CN/2023/12/202312061600GrandCanyonVerdon.jpg)|
 202312071600|JerseyIsland|拉罗克港，圣克莱门特，泽西岛 (© Reinhard Schmid/Huber/eStock Photo)|不是那个泽西海岸!|![](/zh-CN/2023/12/202312071600JerseyIsland.jpg)|
 202312081600|PatagoniaGuanaco|原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)|出逃的美洲鸵|![](/zh-CN/2023/12/202312081600PatagoniaGuanaco.jpg)|
+202312091600|LlanberisSnowdoniaSunset|林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)|一个让人沉思的地方|![](/zh-CN/2023/12/202312091600LlanberisSnowdoniaSunset.jpg)|
