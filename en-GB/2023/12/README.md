@@ -9,3 +9,4 @@
 202312060000|CERNCenter|The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)|A global code for the future|![](/en-GB/2023/12/202312060000CERNCenter.jpg)|
 202312070000|GrandCanyonVerdon|Verdon Gorge, Provence-Alpes-Côte d'Azur, France (© Hemis/Alamy)|Isn't it just 'gorges'?|![](/en-GB/2023/12/202312070000GrandCanyonVerdon.jpg)|
 202312080000|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore|![](/en-GB/2023/12/202312080000JerseyIsland.jpg)|
+202312090000|VermilionCliffs|Sandstone rock formations, Vermilion Cliffs National Monument, Arizona, USA (© Yva Momatiuk and John Eastcott/Minden Pictures)|Sculpted by time|![](/en-GB/2023/12/202312090000VermilionCliffs.jpg)|
