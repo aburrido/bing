@@ -10,3 +10,4 @@
 202312061830|GrandCanyonVerdon|A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)|Is this a river of clouds?|![](/en-IN/2023/12/202312061830GrandCanyonVerdon.jpg)|
 202312071830|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore|![](/en-IN/2023/12/202312071830JerseyIsland.jpg)|
 202312081830|IndiaGate|India gate war memorial designed by Sir Edwin Lutyens in New Delhi, India. (© Amit kg/Shutterstock)|A majestic frame for an eternal flame|![](/en-IN/2023/12/202312081830IndiaGate.jpg)|
+202312091830|SaharaDunes|Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-IN/2023/12/202312091830SaharaDunes.jpg)|
