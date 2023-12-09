@@ -10,3 +10,4 @@
 202312060500|CERNCenter|Le siège du Globe de la science et de l'innovation, Meyrin, Suisse (© Deyan Baric/Alamy Stock Photo)|Un code Mondial pour l’avenir|![](/fr-CA/2023/12/202312060500CERNCenter.jpg)|
 202312070500|GrandCanyonVerdon|Un matin brumeux dans les gorges du Verdon dans les Alpes-de-Haute-Provence en France (© Hemis/Alamy)|Le Grand Canyon Provençal|![](/fr-CA/2023/12/202312070500GrandCanyonVerdon.jpg)|
 202312080500|PatagoniaGuanaco|Guanacos, parc national Los Glaciares, Patagonie, Argentine (© Yva Momatiuk and John Eastcott/Minden Pictures)|Où se trouvent ces camélidés?|![](/fr-CA/2023/12/202312080500PatagoniaGuanaco.jpg)|
+202312090500|MinnewankaLake|Lac Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)|Le bonheur est sous une pluie étoilée!|![](/fr-CA/2023/12/202312090500MinnewankaLake.jpg)|
