@@ -11,3 +11,4 @@
 202312072300|NurnbergSouvenir|Souvenirverkauf auf dem Christkindlesmarkt, Nürnberg (© AlpKaya/Shutterstock)|Weihnachtszeit, Schnee und Christkindlmärkte|![](/de-DE/2023/12/202312072300NurnbergSouvenir.jpg)|
 202312082300|PatagoniaGuanaco|Guanakos, Nationalpark Los Glaciares, Patagonien, Argentinien (© Yva Momatiuk and John Eastcott/Minden Pictures)|Guanakos auf argentinischem Hintergrund|![](/de-DE/2023/12/202312082300PatagoniaGuanaco.jpg)|
 202312092300|SaharaDunes|Sonnenstrahlen in einer Dünenlandschaft, Sahara, Algerien (© AWL Images/DanitaDelimont.com)|Vom Winde verweht...|![](/de-DE/2023/12/202312092300SaharaDunes.jpg)|
+202312102300|MountainDayChina|Winter im Gebirge Huang Shan, China (© Hung Chung Chih/Shutterstock)|Lust auf Bergsteigen?|![](/de-DE/2023/12/202312102300MountainDayChina.jpg)|
