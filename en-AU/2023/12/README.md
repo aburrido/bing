@@ -11,3 +11,4 @@
 202312070800|GrandCanyonVerdon|A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)|Info|![](/en-AU/2023/12/202312070800GrandCanyonVerdon.jpg)|
 202312080800|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Info|![](/en-AU/2023/12/202312080800JerseyIsland.jpg)|
 202312090800|PatagoniaGuanaco|Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2023/12/202312090800PatagoniaGuanaco.jpg)|
+202312100800|LlanberisSnowdoniaSunset|Llyn Padarn lake, Snowdonia, Wales (© Joe Daniel Price/Getty Images)|Info|![](/en-AU/2023/12/202312100800LlanberisSnowdoniaSunset.jpg)|

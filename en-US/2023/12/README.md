@@ -11,3 +11,4 @@
 202312070800|PearlHarborArizona|USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)|Remembering the fallen|![](/en-US/2023/12/202312070800PearlHarborArizona.jpg)|
 202312080800|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore|![](/en-US/2023/12/202312080800JerseyIsland.jpg)|
 202312090800|PatagoniaGuanaco|Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)|Living the high life|![](/en-US/2023/12/202312090800PatagoniaGuanaco.jpg)|
+202312100800|SaharaDunes|Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-US/2023/12/202312100800SaharaDunes.jpg)|
