@@ -12,3 +12,4 @@
 202312081500|PatagoniaGuanaco|ロス・グラシアレス国立公園, アルゼンチン サンタクルス州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|今日はリャマの日|![](/ja-JP/2023/12/202312081500PatagoniaGuanaco.jpg)|
 202312091500|SaharaDunes|サハラ砂漠の砂丘群, アルジェリア (© AWL Images/DanitaDelimont.com)|光に照らされ輝く砂丘|![](/ja-JP/2023/12/202312091500SaharaDunes.jpg)|
 202312101500|MountainDayChina|冬の黄山, 中国 安徽省 (© Hung Chung Chih/Shutterstock)|今日は国際山岳デー|![](/ja-JP/2023/12/202312101500MountainDayChina.jpg)|
+202312111500|Poinsettia|ポインセチア (© Yarygin/Getty Images)|今日は米国のポインセチアの日|![](/ja-JP/2023/12/202312111500Poinsettia.jpg)|
