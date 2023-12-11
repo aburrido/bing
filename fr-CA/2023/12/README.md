@@ -12,3 +12,4 @@
 202312080500|PatagoniaGuanaco|Guanacos, parc national Los Glaciares, Patagonie, Argentine (© Yva Momatiuk and John Eastcott/Minden Pictures)|Où se trouvent ces camélidés?|![](/fr-CA/2023/12/202312080500PatagoniaGuanaco.jpg)|
 202312090500|MinnewankaLake|Lac Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)|Le bonheur est sous une pluie étoilée!|![](/fr-CA/2023/12/202312090500MinnewankaLake.jpg)|
 202312100500|SaharaDunes|Derniers rayons du soleil de la journée sur des dunes, Sahara, Algérie (© AWL Images/DanitaDelimont.com)|Chaque jour, une dune différente…|![](/fr-CA/2023/12/202312100500SaharaDunes.jpg)|
+202312110500|MountainDayChina|Hiver dans les montagnes de Huangshan, Chine (© Hung Chung Chih/Shutterstock)|Excursion au sommet!|![](/fr-CA/2023/12/202312110500MountainDayChina.jpg)|

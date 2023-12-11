@@ -12,3 +12,4 @@
 202312080500|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore Not that Jersey Shore|![](/en-CA/2023/12/202312080500JerseyIsland.jpg)|
 202312090500|PatagoniaGuanaco|Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)|Llamas on the loose|![](/en-CA/2023/12/202312090500PatagoniaGuanaco.jpg)|
 202312100500|SaharaDunes|Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-CA/2023/12/202312100500SaharaDunes.jpg)|
+202312110500|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-CA/2023/12/202312110500MountainDayChina.jpg)|
