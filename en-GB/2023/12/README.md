@@ -11,3 +11,4 @@
 202312080000|JerseyIsland|La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)|Not that Jersey Shore|![](/en-GB/2023/12/202312080000JerseyIsland.jpg)|
 202312090000|VermilionCliffs|Sandstone rock formations, Vermilion Cliffs National Monument, Arizona, USA (© Yva Momatiuk and John Eastcott/Minden Pictures)|Sculpted by time|![](/en-GB/2023/12/202312090000VermilionCliffs.jpg)|
 202312100000|SaharaDunes|Sand dunes in the Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-GB/2023/12/202312100000SaharaDunes.jpg)|
+202312110000|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-GB/2023/12/202312110000MountainDayChina.jpg)|
