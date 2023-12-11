@@ -12,3 +12,4 @@
 202312081830|IndiaGate|India gate war memorial designed by Sir Edwin Lutyens in New Delhi, India. (© Amit kg/Shutterstock)|A majestic frame for an eternal flame|![](/en-IN/2023/12/202312081830IndiaGate.jpg)|
 202312091830|SaharaDunes|Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-IN/2023/12/202312091830SaharaDunes.jpg)|
 202312101830|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-IN/2023/12/202312101830MountainDayChina.jpg)|
+202312111830|Poinsettia|Red poinsettias (© Yarygin/Getty Images)|Paint your world red|![](/en-IN/2023/12/202312111830Poinsettia.jpg)|
