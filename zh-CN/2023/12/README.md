@@ -12,3 +12,4 @@
 202312081600|PatagoniaGuanaco|原驼，冰川国家公园，阿根廷 (© Yva Momatiuk and John Eastcott/Minden Pictures)|出逃的美洲鸵|![](/zh-CN/2023/12/202312081600PatagoniaGuanaco.jpg)|
 202312091600|LlanberisSnowdoniaSunset|林帕达恩湖，斯诺登尼亚国家公园， 威尔士 (© Joe Daniel Price/Getty Images)|一个让人沉思的地方|![](/zh-CN/2023/12/202312091600LlanberisSnowdoniaSunset.jpg)|
 202312101600|MountainDayChina|黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)|想看看黄山的全貌吗？|![](/zh-CN/2023/12/202312101600MountainDayChina.jpg)|
+202312111600|Poinsettia|一品红 (© Yarygin/Getty Images)|把你的世界涂成红色|![](/zh-CN/2023/12/202312111600Poinsettia.jpg)|
