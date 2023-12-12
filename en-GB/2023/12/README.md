@@ -12,3 +12,4 @@
 202312090000|VermilionCliffs|Sandstone rock formations, Vermilion Cliffs National Monument, Arizona, USA (© Yva Momatiuk and John Eastcott/Minden Pictures)|Sculpted by time|![](/en-GB/2023/12/202312090000VermilionCliffs.jpg)|
 202312100000|SaharaDunes|Sand dunes in the Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-GB/2023/12/202312100000SaharaDunes.jpg)|
 202312110000|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-GB/2023/12/202312110000MountainDayChina.jpg)|
+202312120000|ReedBuntingWales|Reed bunting, Newport Wetlands, Wales (© Chris Howes/Wild Places Photography/Alamy Stock Photo)|Look no 'feather'|![](/en-GB/2023/12/202312120000ReedBuntingWales.jpg)|
