@@ -13,3 +13,4 @@
 202312090500|PatagoniaGuanaco|Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)|Llamas on the loose|![](/en-CA/2023/12/202312090500PatagoniaGuanaco.jpg)|
 202312100500|SaharaDunes|Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)|Each day a different dune|![](/en-CA/2023/12/202312100500SaharaDunes.jpg)|
 202312110500|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-CA/2023/12/202312110500MountainDayChina.jpg)|
+202312120500|Poinsettia|Red poinsettias (© Yarygin/Getty Images)|Paint your world red|![](/en-CA/2023/12/202312120500Poinsettia.jpg)|
