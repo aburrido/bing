@@ -13,3 +13,4 @@
 202312090800|PatagoniaGuanaco|Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2023/12/202312090800PatagoniaGuanaco.jpg)|
 202312100800|LlanberisSnowdoniaSunset|Llyn Padarn lake, Snowdonia, Wales (© Joe Daniel Price/Getty Images)|Info|![](/en-AU/2023/12/202312100800LlanberisSnowdoniaSunset.jpg)|
 202312110800|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Info|![](/en-AU/2023/12/202312110800MountainDayChina.jpg)|
+202312120800|Poinsettia|Red poinsettias (© Yarygin/Getty Images)|Info|![](/en-AU/2023/12/202312120800Poinsettia.jpg)|
