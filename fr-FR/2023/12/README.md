@@ -13,3 +13,4 @@
 202312092300|SaharaDunes|Derniers rayons du soleil de la journée sur des dunes, Sahara, Algérie (© AWL Images/DanitaDelimont.com)|Chaque jour, une dune différente…|![](/fr-FR/2023/12/202312092300SaharaDunes.jpg)|
 202312102300|MountainDayChina|Hiver dans les montagnes de Huangshan, Chine (© Hung Chung Chih/Shutterstock)|Excursion au sommet !|![](/fr-FR/2023/12/202312102300MountainDayChina.jpg)|
 202312112300|Poinsettia|Poinsettia rouge (© Yarygin/Getty Images)|Les « Étoiles de Noël » sont de retour !|![](/fr-FR/2023/12/202312112300Poinsettia.jpg)|
+202312122300|LofotenRorbu|Traditional fishing cabins, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|La vie dans un « rorbu »  !|![](/fr-FR/2023/12/202312122300LofotenRorbu.jpg)|

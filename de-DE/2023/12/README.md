@@ -13,3 +13,4 @@
 202312092300|SaharaDunes|Sonnenstrahlen in einer Dünenlandschaft, Sahara, Algerien (© AWL Images/DanitaDelimont.com)|Vom Winde verweht...|![](/de-DE/2023/12/202312092300SaharaDunes.jpg)|
 202312102300|MountainDayChina|Winter im Gebirge Huang Shan, China (© Hung Chung Chih/Shutterstock)|Lust auf Bergsteigen?|![](/de-DE/2023/12/202312102300MountainDayChina.jpg)|
 202312112300|Poinsettia|Weihnachtsstern (© Yarygin/Getty Images)|Pflanzen wir Weihnachtssterne!|![](/de-DE/2023/12/202312112300Poinsettia.jpg)|
+202312122300|LofotenRorbu|Traditionelle Fischerhütten, Svolvær, Lofoten-Inseln, Norwegen (© Roberto Moiola/Sysaworld/Getty Images)|Lust auf einen Winterurlaub?|![](/de-DE/2023/12/202312122300LofotenRorbu.jpg)|
