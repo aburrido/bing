@@ -14,3 +14,4 @@
 202312101600|MountainDayChina|黄山的冬天，中国 (© Hung Chung Chih/Shutterstock)|想看看黄山的全貌吗？|![](/zh-CN/2023/12/202312101600MountainDayChina.jpg)|
 202312111600|Poinsettia|一品红 (© Yarygin/Getty Images)|把你的世界涂成红色|![](/zh-CN/2023/12/202312111600Poinsettia.jpg)|
 202312121600|LofotenRorbu|传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威 (© Roberto Moiola/Sysaworld/Getty Images)|小屋生活|![](/zh-CN/2023/12/202312121600LofotenRorbu.jpg)|
+202312131600|BorealOwl|北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)|融为一体的猫头鹰|![](/zh-CN/2023/12/202312131600BorealOwl.jpg)|
