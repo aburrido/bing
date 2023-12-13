@@ -14,3 +14,4 @@
 202312102300|MountainDayChina|Hiver dans les montagnes de Huangshan, Chine (© Hung Chung Chih/Shutterstock)|Excursion au sommet !|![](/fr-FR/2023/12/202312102300MountainDayChina.jpg)|
 202312112300|Poinsettia|Poinsettia rouge (© Yarygin/Getty Images)|Les « Étoiles de Noël » sont de retour !|![](/fr-FR/2023/12/202312112300Poinsettia.jpg)|
 202312122300|LofotenRorbu|Traditional fishing cabins, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|La vie dans un « rorbu »  !|![](/fr-FR/2023/12/202312122300LofotenRorbu.jpg)|
+202312132300|BorealOwl|Chouette Nyctale de Tengmalm, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Une chouette... chouette !|![](/fr-FR/2023/12/202312132300BorealOwl.jpg)|

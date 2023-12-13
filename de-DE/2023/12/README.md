@@ -14,3 +14,4 @@
 202312102300|MountainDayChina|Winter im Gebirge Huang Shan, China (© Hung Chung Chih/Shutterstock)|Lust auf Bergsteigen?|![](/de-DE/2023/12/202312102300MountainDayChina.jpg)|
 202312112300|Poinsettia|Weihnachtsstern (© Yarygin/Getty Images)|Pflanzen wir Weihnachtssterne!|![](/de-DE/2023/12/202312112300Poinsettia.jpg)|
 202312122300|LofotenRorbu|Traditionelle Fischerhütten, Svolvær, Lofoten-Inseln, Norwegen (© Roberto Moiola/Sysaworld/Getty Images)|Lust auf einen Winterurlaub?|![](/de-DE/2023/12/202312122300LofotenRorbu.jpg)|
+202312132300|BorealOwl|Raufußkauz, Saskatchewan, Kanada (© Nick Saunders/Minden Pictures)|Kuschelig und behaglich|![](/de-DE/2023/12/202312132300BorealOwl.jpg)|
