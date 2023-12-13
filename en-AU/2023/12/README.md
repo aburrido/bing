@@ -14,3 +14,4 @@
 202312100800|LlanberisSnowdoniaSunset|Llyn Padarn lake, Snowdonia, Wales (© Joe Daniel Price/Getty Images)|Info|![](/en-AU/2023/12/202312100800LlanberisSnowdoniaSunset.jpg)|
 202312110800|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Info|![](/en-AU/2023/12/202312110800MountainDayChina.jpg)|
 202312120800|Poinsettia|Red poinsettias (© Yarygin/Getty Images)|Info|![](/en-AU/2023/12/202312120800Poinsettia.jpg)|
+202312130800|LofotenRorbu|Traditional fishing cabins, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|Info|![](/en-AU/2023/12/202312130800LofotenRorbu.jpg)|
