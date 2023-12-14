@@ -14,3 +14,4 @@
 202312110000|MountainDayChina|Winter in Huangshan Mountains, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-GB/2023/12/202312110000MountainDayChina.jpg)|
 202312120000|ReedBuntingWales|Reed bunting, Newport Wetlands, Wales (© Chris Howes/Wild Places Photography/Alamy Stock Photo)|Look no 'feather'|![](/en-GB/2023/12/202312120000ReedBuntingWales.jpg)|
 202312130000|LofotenRorbu|Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|Life in a hut-shell|![](/en-GB/2023/12/202312130000LofotenRorbu.jpg)|
+202312140000|BorealOwl|Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Owl in one|![](/en-GB/2023/12/202312140000BorealOwl.jpg)|
