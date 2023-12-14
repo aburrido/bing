@@ -15,3 +15,4 @@
 202312111830|Poinsettia|Red poinsettias (© Yarygin/Getty Images)|Paint your world red|![](/en-IN/2023/12/202312111830Poinsettia.jpg)|
 202312121830|LofotenRorbu|Traditional fishing cabins, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|Life in a hut-shell|![](/en-IN/2023/12/202312121830LofotenRorbu.jpg)|
 202312131830|BorealOwl|Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Owl in one|![](/en-IN/2023/12/202312131830BorealOwl.jpg)|
+202312141830|SantaPark|SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)|Santa's playground|![](/en-IN/2023/12/202312141830SantaPark.jpg)|
