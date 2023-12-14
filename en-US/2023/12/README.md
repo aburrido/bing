@@ -15,3 +15,4 @@
 202312110800|MountainDayChina|Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)|Care for a peak?|![](/en-US/2023/12/202312110800MountainDayChina.jpg)|
 202312120800|Poinsettia|Poinsettias (© Yarygin/Getty Images)|Holiday hues|![](/en-US/2023/12/202312120800Poinsettia.jpg)|
 202312130800|LofotenRorbu|Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|All is calm|![](/en-US/2023/12/202312130800LofotenRorbu.jpg)|
+202312140800|BorealOwl|Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Owl eyes on you|![](/en-US/2023/12/202312140800BorealOwl.jpg)|
