@@ -15,3 +15,4 @@
 202312112300|Poinsettia|Weihnachtsstern (© Yarygin/Getty Images)|Pflanzen wir Weihnachtssterne!|![](/de-DE/2023/12/202312112300Poinsettia.jpg)|
 202312122300|LofotenRorbu|Traditionelle Fischerhütten, Svolvær, Lofoten-Inseln, Norwegen (© Roberto Moiola/Sysaworld/Getty Images)|Lust auf einen Winterurlaub?|![](/de-DE/2023/12/202312122300LofotenRorbu.jpg)|
 202312132300|BorealOwl|Raufußkauz, Saskatchewan, Kanada (© Nick Saunders/Minden Pictures)|Kuschelig und behaglich|![](/de-DE/2023/12/202312132300BorealOwl.jpg)|
+202312142300|SantaPark|SantaPark in Rovaniemi, Lappland, Finnland (© lukutin77/Getty Images)|Zuhause beim Weihnachtsmann|![](/de-DE/2023/12/202312142300SantaPark.jpg)|
