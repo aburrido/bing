@@ -15,3 +15,4 @@
 202312111500|Poinsettia|ポインセチア (© Yarygin/Getty Images)|今日は米国のポインセチアの日|![](/ja-JP/2023/12/202312111500Poinsettia.jpg)|
 202312121500|LofotenRorbu|スボールバル, ノルウェー (© Roberto Moiola/Sysaworld/Getty Images)|水辺に並ぶ伝統的な小屋|![](/ja-JP/2023/12/202312121500LofotenRorbu.jpg)|
 202312131500|BorealOwl|キンメフクロウ, カナダ サスカチュワン州 (© Nick Saunders/Minden Pictures)|今日はクリスマス・バード・カウント|![](/ja-JP/2023/12/202312131500BorealOwl.jpg)|
+202312141500|SantaPark|サンタパーク, フィンランド ロヴァニエミ (© lukutin77/Getty Images)|サンタクロースの故郷|![](/ja-JP/2023/12/202312141500SantaPark.jpg)|
