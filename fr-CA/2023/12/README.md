@@ -16,3 +16,4 @@
 202312120500|Poinsettia|Poinsettia rouge (© Yarygin/Getty Images)|Les « Étoiles de Noël » sont de retour!|![](/fr-CA/2023/12/202312120500Poinsettia.jpg)|
 202312130500|LofotenRorbu|Cabanes de pêcheurs traditionnelles, Svolvaer, îles Lofoten, Norvège (© Roberto Moiola/Sysaworld/Getty Images)|La vie dans un « rorbu »!|![](/fr-CA/2023/12/202312130500LofotenRorbu.jpg)|
 202312140500|BorealOwl|Chouette Nyctale de Tengmalm, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Une chouette...chouette!|![](/fr-CA/2023/12/202312140500BorealOwl.jpg)|
+202312150500|SantaPark|SantaPark à Rovaniemi, Laponie, Finlande (© lukutin77/Getty Images)|L'aire de jeux du Père Noël!|![](/fr-CA/2023/12/202312150500SantaPark.jpg)|
