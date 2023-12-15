@@ -16,3 +16,4 @@
 202312122300|LofotenRorbu|Traditionelle Fischerhütten, Svolvær, Lofoten-Inseln, Norwegen (© Roberto Moiola/Sysaworld/Getty Images)|Lust auf einen Winterurlaub?|![](/de-DE/2023/12/202312122300LofotenRorbu.jpg)|
 202312132300|BorealOwl|Raufußkauz, Saskatchewan, Kanada (© Nick Saunders/Minden Pictures)|Kuschelig und behaglich|![](/de-DE/2023/12/202312132300BorealOwl.jpg)|
 202312142300|SantaPark|SantaPark in Rovaniemi, Lappland, Finnland (© lukutin77/Getty Images)|Zuhause beim Weihnachtsmann|![](/de-DE/2023/12/202312142300SantaPark.jpg)|
+202312152300|FestivelyIlluminated|Festlich beleuchtete Marktkirche, Hannover, Niedersachsen (© picture alliance/Alamy)|Sternen-Gewölbe|![](/de-DE/2023/12/202312152300FestivelyIlluminated.jpg)|
