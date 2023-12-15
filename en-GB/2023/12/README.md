@@ -15,3 +15,4 @@
 202312120000|ReedBuntingWales|Reed bunting, Newport Wetlands, Wales (© Chris Howes/Wild Places Photography/Alamy Stock Photo)|Look no 'feather'|![](/en-GB/2023/12/202312120000ReedBuntingWales.jpg)|
 202312130000|LofotenRorbu|Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|Life in a hut-shell|![](/en-GB/2023/12/202312130000LofotenRorbu.jpg)|
 202312140000|BorealOwl|Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Owl in one|![](/en-GB/2023/12/202312140000BorealOwl.jpg)|
+202312150000|SantaPark|SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)|Santa's playground|![](/en-GB/2023/12/202312150000SantaPark.jpg)|
