@@ -17,3 +17,4 @@
 202312130500|LofotenRorbu|Traditional fishing cabins, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)|Life in a hut-shell|![](/en-CA/2023/12/202312130500LofotenRorbu.jpg)|
 202312140500|BorealOwl|Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Owl in one|![](/en-CA/2023/12/202312140500BorealOwl.jpg)|
 202312150500|SantaPark|SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)|Santa's playground|![](/en-CA/2023/12/202312150500SantaPark.jpg)|
+202312160500|GrandPlaceXmas|Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)|A cheerful case of the blues|![](/en-CA/2023/12/202312160500GrandPlaceXmas.jpg)|
