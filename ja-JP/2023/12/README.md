@@ -17,3 +17,4 @@
 202312131500|BorealOwl|キンメフクロウ, カナダ サスカチュワン州 (© Nick Saunders/Minden Pictures)|今日はクリスマス・バード・カウント|![](/ja-JP/2023/12/202312131500BorealOwl.jpg)|
 202312141500|SantaPark|サンタパーク, フィンランド ロヴァニエミ (© lukutin77/Getty Images)|サンタクロースの故郷|![](/ja-JP/2023/12/202312141500SantaPark.jpg)|
 202312151500|GrandPlaceXmas|グラン・プラス, ベルギー ブリュッセル (© Richard Taylor/Sime/eStock Photo)|ライトアップされたギルドハウス|![](/ja-JP/2023/12/202312151500GrandPlaceXmas.jpg)|
+202312161500|WinterWaxwings|枝に止まるキレンジャク, カナダ (© Jim Cumming/Shutterstock)|小さくて可愛い鳥|![](/ja-JP/2023/12/202312161500WinterWaxwings.jpg)|
