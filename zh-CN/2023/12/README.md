@@ -17,3 +17,4 @@
 202312131600|BorealOwl|北方猫头鹰，萨斯喀彻温省，加拿大 (© Nick Saunders/Minden Pictures)|融为一体的猫头鹰|![](/zh-CN/2023/12/202312131600BorealOwl.jpg)|
 202312141600|SantaPark|罗瓦涅米的圣诞老人公园，拉普兰德，芬兰 (© lukutin77/Getty Images)|圣诞老人的乐园|![](/zh-CN/2023/12/202312141600SantaPark.jpg)|
 202312151600|GrandPlaceXmas|大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo)|令人愉悦的忧郁蓝|![](/zh-CN/2023/12/202312151600GrandPlaceXmas.jpg)|
+202312161600|WinterWaxwings|波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)|有羽毛的时尚达人|![](/zh-CN/2023/12/202312161600WinterWaxwings.jpg)|
