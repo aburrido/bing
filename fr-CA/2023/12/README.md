@@ -18,3 +18,4 @@
 202312140500|BorealOwl|Chouette Nyctale de Tengmalm, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Une chouette...chouette!|![](/fr-CA/2023/12/202312140500BorealOwl.jpg)|
 202312150500|SantaPark|SantaPark à Rovaniemi, Laponie, Finlande (© lukutin77/Getty Images)|L'aire de jeux du Père Noël!|![](/fr-CA/2023/12/202312150500SantaPark.jpg)|
 202312160500|GrandPlaceXmas|Maisons de guilde de la Grand-Place, Bruxelles, Belgique (© Richard Taylor/Sime/eStock Photo)|Bruxelles, ma belle!|![](/fr-CA/2023/12/202312160500GrandPlaceXmas.jpg)|
+202312170500|WinterWaxwings|Jaseur boréal perché sur une branche, Canada (© Jim Cumming/Shutterstock)|Des fashionistas à plumes!|![](/fr-CA/2023/12/202312170500WinterWaxwings.jpg)|
