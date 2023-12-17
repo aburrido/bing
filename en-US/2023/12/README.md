@@ -18,3 +18,4 @@
 202312140800|BorealOwl|Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)|Owl eyes on you|![](/en-US/2023/12/202312140800BorealOwl.jpg)|
 202312150800|SantaPark|SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)|Santa's playground|![](/en-US/2023/12/202312150800SantaPark.jpg)|
 202312160800|GrandPlaceXmas|Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)|A cheerful case of the blues|![](/en-US/2023/12/202312160800GrandPlaceXmas.jpg)|
+202312170800|WinterWaxwings|Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)|Feathered fashionistas|![](/en-US/2023/12/202312170800WinterWaxwings.jpg)|
