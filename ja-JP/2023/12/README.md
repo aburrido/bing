@@ -18,3 +18,4 @@
 202312141500|SantaPark|サンタパーク, フィンランド ロヴァニエミ (© lukutin77/Getty Images)|サンタクロースの故郷|![](/ja-JP/2023/12/202312141500SantaPark.jpg)|
 202312151500|GrandPlaceXmas|グラン・プラス, ベルギー ブリュッセル (© Richard Taylor/Sime/eStock Photo)|ライトアップされたギルドハウス|![](/ja-JP/2023/12/202312151500GrandPlaceXmas.jpg)|
 202312161500|WinterWaxwings|枝に止まるキレンジャク, カナダ (© Jim Cumming/Shutterstock)|小さくて可愛い鳥|![](/ja-JP/2023/12/202312161500WinterWaxwings.jpg)|
+202312171500|CapitolReefSnow|キャピトル・リーフ国立公園 , 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)|虹の大地|![](/ja-JP/2023/12/202312171500CapitolReefSnow.jpg)|
