@@ -18,3 +18,4 @@
 202312142300|SantaPark|SantaPark in Rovaniemi, Lappland, Finnland (© lukutin77/Getty Images)|Zuhause beim Weihnachtsmann|![](/de-DE/2023/12/202312142300SantaPark.jpg)|
 202312152300|FestivelyIlluminated|Festlich beleuchtete Marktkirche, Hannover, Niedersachsen (© picture alliance/Alamy)|Sternen-Gewölbe|![](/de-DE/2023/12/202312152300FestivelyIlluminated.jpg)|
 202312162300|WinterWaxwings|Seidenschwänze auf einem Zweig sitzend, Kanada (© Jim Cumming/Shutterstock)|Gefiederte Fashionistas|![](/de-DE/2023/12/202312162300WinterWaxwings.jpg)|
+202312172300|CapitolReefSnow|Capitol-Reef-Nationalpark, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|Schneit es in der Wüste wirklich?|![](/de-DE/2023/12/202312172300CapitolReefSnow.jpg)|
