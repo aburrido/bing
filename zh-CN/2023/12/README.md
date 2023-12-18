@@ -19,3 +19,4 @@
 202312151600|GrandPlaceXmas|大广场，布鲁塞尔，比利时 (© Richard Taylor/Sime/eStock Photo)|令人愉悦的忧郁蓝|![](/zh-CN/2023/12/202312151600GrandPlaceXmas.jpg)|
 202312161600|WinterWaxwings|波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)|有羽毛的时尚达人|![](/zh-CN/2023/12/202312161600WinterWaxwings.jpg)|
 202312171600|CapitolReefSnow|圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)|山峦积雪|![](/zh-CN/2023/12/202312171600CapitolReefSnow.jpg)|
+202312181600|WarsawChristmas|城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)|圣诞老人的波兰休息站|![](/zh-CN/2023/12/202312181600WarsawChristmas.jpg)|
