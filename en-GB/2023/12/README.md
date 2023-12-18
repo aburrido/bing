@@ -18,3 +18,4 @@
 202312150000|SantaPark|SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)|Santa's playground|![](/en-GB/2023/12/202312150000SantaPark.jpg)|
 202312160000|GrandPlaceXmas|Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)|A cheerful case of the blues|![](/en-GB/2023/12/202312160000GrandPlaceXmas.jpg)|
 202312170000|WinterWaxwings|Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)|Feathered fashionistas|![](/en-GB/2023/12/202312170000WinterWaxwings.jpg)|
+202312180000|CapitolReefSnow|Capitol Reef National Park, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|Snow, snow on the range|![](/en-GB/2023/12/202312180000CapitolReefSnow.jpg)|
