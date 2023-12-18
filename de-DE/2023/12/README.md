@@ -19,3 +19,4 @@
 202312152300|FestivelyIlluminated|Festlich beleuchtete Marktkirche, Hannover, Niedersachsen (© picture alliance/Alamy)|Sternen-Gewölbe|![](/de-DE/2023/12/202312152300FestivelyIlluminated.jpg)|
 202312162300|WinterWaxwings|Seidenschwänze auf einem Zweig sitzend, Kanada (© Jim Cumming/Shutterstock)|Gefiederte Fashionistas|![](/de-DE/2023/12/202312162300WinterWaxwings.jpg)|
 202312172300|CapitolReefSnow|Capitol-Reef-Nationalpark, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|Schneit es in der Wüste wirklich?|![](/de-DE/2023/12/202312172300CapitolReefSnow.jpg)|
+202312182300|WarsawChristmas|Weihnachtsbaum auf dem Schlossplatz, Altstadt, Warschau, Polen (© Panther Media GmbH/Alamy Stock Photo)|Polnische Raststätte des Weihnachtsmanns|![](/de-DE/2023/12/202312182300WarsawChristmas.jpg)|
