@@ -20,3 +20,4 @@
 202312160500|GrandPlaceXmas|Maisons de guilde de la Grand-Place, Bruxelles, Belgique (© Richard Taylor/Sime/eStock Photo)|Bruxelles, ma belle!|![](/fr-CA/2023/12/202312160500GrandPlaceXmas.jpg)|
 202312170500|WinterWaxwings|Jaseur boréal perché sur une branche, Canada (© Jim Cumming/Shutterstock)|Des fashionistas à plumes!|![](/fr-CA/2023/12/202312170500WinterWaxwings.jpg)|
 202312180500|CapitolReefSnow|Parc national de Capitol Reef, Utah, États-Unis (© Jeff Clay/Tandem Stills + Motion)|Un paysage surréaliste entre rouille et neige|![](/fr-CA/2023/12/202312180500CapitolReefSnow.jpg)|
+202312190500|WarsawChristmas|Arbre de Noël sur la place du château, vieille ville, Varsovie, Pologne (© Panther Media GmbH/Alamy)|La halte polonaise du Père Noël!|![](/fr-CA/2023/12/202312190500WarsawChristmas.jpg)|
