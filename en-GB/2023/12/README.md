@@ -19,3 +19,4 @@
 202312160000|GrandPlaceXmas|Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)|A cheerful case of the blues|![](/en-GB/2023/12/202312160000GrandPlaceXmas.jpg)|
 202312170000|WinterWaxwings|Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)|Feathered fashionistas|![](/en-GB/2023/12/202312170000WinterWaxwings.jpg)|
 202312180000|CapitolReefSnow|Capitol Reef National Park, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|Snow, snow on the range|![](/en-GB/2023/12/202312180000CapitolReefSnow.jpg)|
+202312190000|WarsawChristmas|Christmas tree in Castle Square, Warsaw, Poland (© Panther Media GmbH/Alamy)|Santa's Polish rest stop|![](/en-GB/2023/12/202312190000WarsawChristmas.jpg)|
