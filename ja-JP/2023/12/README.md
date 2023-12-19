@@ -20,3 +20,4 @@
 202312161500|WinterWaxwings|枝に止まるキレンジャク, カナダ (© Jim Cumming/Shutterstock)|小さくて可愛い鳥|![](/ja-JP/2023/12/202312161500WinterWaxwings.jpg)|
 202312171500|CapitolReefSnow|キャピトル・リーフ国立公園 , 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)|虹の大地|![](/ja-JP/2023/12/202312171500CapitolReefSnow.jpg)|
 202312181500|WarsawChristmas|ワルシャワの旧市街, ポーランド (© Panther Media GmbH/Alamy)|王宮広場にそびえ立つクリスマスツリー|![](/ja-JP/2023/12/202312181500WarsawChristmas.jpg)|
+202312191500|ValGardenaItaly|ヴァル・ガルデーナ, イタリア (© Ingus Kruklitis/Getty Images)|クリスマス時期の渓谷|![](/ja-JP/2023/12/202312191500ValGardenaItaly.jpg)|
