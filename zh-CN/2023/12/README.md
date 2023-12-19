@@ -20,3 +20,4 @@
 202312161600|WinterWaxwings|波西米亚太平鸟栖息在树枝上，加拿大 (© Jim Cumming/Shutterstock)|有羽毛的时尚达人|![](/zh-CN/2023/12/202312161600WinterWaxwings.jpg)|
 202312171600|CapitolReefSnow|圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)|山峦积雪|![](/zh-CN/2023/12/202312171600CapitolReefSnow.jpg)|
 202312181600|WarsawChristmas|城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)|圣诞老人的波兰休息站|![](/zh-CN/2023/12/202312181600WarsawChristmas.jpg)|
+202312191600|ValGardenaItaly|圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)|多洛米蒂山之光|![](/zh-CN/2023/12/202312191600ValGardenaItaly.jpg)|
