@@ -20,3 +20,4 @@
 202312162300|WinterWaxwings|Seidenschwänze auf einem Zweig sitzend, Kanada (© Jim Cumming/Shutterstock)|Gefiederte Fashionistas|![](/de-DE/2023/12/202312162300WinterWaxwings.jpg)|
 202312172300|CapitolReefSnow|Capitol-Reef-Nationalpark, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|Schneit es in der Wüste wirklich?|![](/de-DE/2023/12/202312172300CapitolReefSnow.jpg)|
 202312182300|WarsawChristmas|Weihnachtsbaum auf dem Schlossplatz, Altstadt, Warschau, Polen (© Panther Media GmbH/Alamy Stock Photo)|Polnische Raststätte des Weihnachtsmanns|![](/de-DE/2023/12/202312182300WarsawChristmas.jpg)|
+202312192300|ValGardenaItaly|Dorf in Gröden zu Weihnachten, Dolomiten, Italien (© Ingus Kruklitis/Getty Images)|Lichter der Dolomiten|![](/de-DE/2023/12/202312192300ValGardenaItaly.jpg)|
