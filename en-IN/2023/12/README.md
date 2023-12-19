@@ -20,3 +20,4 @@
 202312161830|WinterWaxwings|Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)|Feathered fashionistas|![](/en-IN/2023/12/202312161830WinterWaxwings.jpg)|
 202312171830|CapitolReefSnow|Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)|Snow, snow on the range|![](/en-IN/2023/12/202312171830CapitolReefSnow.jpg)|
 202312181830|WarsawChristmas|Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)|Santa's Polish rest stop|![](/en-IN/2023/12/202312181830WarsawChristmas.jpg)|
+202312191830|ValGardenaItaly|Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)|Lights of the Dolomites|![](/en-IN/2023/12/202312191830ValGardenaItaly.jpg)|
