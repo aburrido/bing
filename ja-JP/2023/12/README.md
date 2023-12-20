@@ -21,3 +21,4 @@
 202312171500|CapitolReefSnow|キャピトル・リーフ国立公園 , 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)|虹の大地|![](/ja-JP/2023/12/202312171500CapitolReefSnow.jpg)|
 202312181500|WarsawChristmas|ワルシャワの旧市街, ポーランド (© Panther Media GmbH/Alamy)|王宮広場にそびえ立つクリスマスツリー|![](/ja-JP/2023/12/202312181500WarsawChristmas.jpg)|
 202312191500|ValGardenaItaly|ヴァル・ガルデーナ, イタリア (© Ingus Kruklitis/Getty Images)|クリスマス時期の渓谷|![](/ja-JP/2023/12/202312191500ValGardenaItaly.jpg)|
+202312201500|LjubljanaLights|リュブリャナ, スロベニア (© kasto80/Getty images)|丘の上に建つお城と美しい街並み|![](/ja-JP/2023/12/202312201500LjubljanaLights.jpg)|
