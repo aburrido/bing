@@ -22,3 +22,4 @@
 202312180800|CapitolReefSnow|Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)|Info|![](/en-AU/2023/12/202312180800CapitolReefSnow.jpg)|
 202312190800|ChapadaDiamantina|Cachoeira da Fumacinha, Chapada Diamantina, Bahia, Brazil (© Rtzstudio/Shutterstock)|Info|![](/en-AU/2023/12/202312190800ChapadaDiamantina.jpg)|
 202312200800|ValGardenaItaly|Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)|Info|![](/en-AU/2023/12/202312200800ValGardenaItaly.jpg)|
+202312210800|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Info|![](/en-AU/2023/12/202312210800LjubljanaLights.jpg)|
