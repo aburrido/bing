@@ -22,3 +22,4 @@
 202312181500|WarsawChristmas|ワルシャワの旧市街, ポーランド (© Panther Media GmbH/Alamy)|王宮広場にそびえ立つクリスマスツリー|![](/ja-JP/2023/12/202312181500WarsawChristmas.jpg)|
 202312191500|ValGardenaItaly|ヴァル・ガルデーナ, イタリア (© Ingus Kruklitis/Getty Images)|クリスマス時期の渓谷|![](/ja-JP/2023/12/202312191500ValGardenaItaly.jpg)|
 202312201500|LjubljanaLights|リュブリャナ, スロベニア (© kasto80/Getty images)|丘の上に建つお城と美しい街並み|![](/ja-JP/2023/12/202312201500LjubljanaLights.jpg)|
+202312211500|Wintersolstice2023|青い池, 北海道 美瑛町 (© Haruna/Getty Images)|今日は冬至|![](/ja-JP/2023/12/202312211500Wintersolstice2023.jpg)|
