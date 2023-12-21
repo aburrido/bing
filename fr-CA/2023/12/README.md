@@ -22,3 +22,4 @@
 202312180500|CapitolReefSnow|Parc national de Capitol Reef, Utah, États-Unis (© Jeff Clay/Tandem Stills + Motion)|Un paysage surréaliste entre rouille et neige|![](/fr-CA/2023/12/202312180500CapitolReefSnow.jpg)|
 202312190500|WarsawChristmas|Arbre de Noël sur la place du château, vieille ville, Varsovie, Pologne (© Panther Media GmbH/Alamy)|La halte polonaise du Père Noël!|![](/fr-CA/2023/12/202312190500WarsawChristmas.jpg)|
 202312200500|ValGardenaItaly|Village de Val Gardena à Noël, Dolomites, Italie (© Ingus Kruklitis/Getty Images)|Les lumières magiques des Dolomites|![](/fr-CA/2023/12/202312200500ValGardenaItaly.jpg)|
+202312210500|CastleriggStoneCircleUK|Enceinte mégalithique de Castlerigg, parc national du Lake District, Angleterre (© John Finney Photography/Getty Images)|Prêt pour la nuit la plus longue de l’année?|![](/fr-CA/2023/12/202312210500CastleriggStoneCircleUK.jpg)|
