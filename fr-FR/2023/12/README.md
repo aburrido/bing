@@ -22,3 +22,4 @@
 202312182300|WarsawChristmas|Arbre de Noël sur la place du château, vieille ville, Varsovie, Pologne (© Panther Media GmbH/Alamy)|La halte polonaise du Père Noël !|![](/fr-FR/2023/12/202312182300WarsawChristmas.jpg)|
 202312192300|XmasDesserts|Barcelonnette aux portes des Hautes Vallées de l'Ubay, Alpes-de-Haute-Provence, France (© iStock/Getty Images Plus)|Une veillée de Noël provençale|![](/fr-FR/2023/12/202312192300XmasDesserts.jpg)|
 202312202300|LjubljanaLights|Ljubljana, Slovénie (© kasto80/Getty images)|Des fêtes de fin d'année à la slovène !|![](/fr-FR/2023/12/202312202300LjubljanaLights.jpg)|
+202312212300|CastleriggStoneCircleUK|Enceinte mégalithique de Castlerigg, parc national du Lake District, Angleterre (© John Finney Photography/Getty Images)|Prêt pour la nuit la plus longue de l’année ?|![](/fr-FR/2023/12/202312212300CastleriggStoneCircleUK.jpg)|

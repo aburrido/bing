@@ -22,3 +22,4 @@
 202312182300|WarsawChristmas|Weihnachtsbaum auf dem Schlossplatz, Altstadt, Warschau, Polen (© Panther Media GmbH/Alamy Stock Photo)|Polnische Raststätte des Weihnachtsmanns|![](/de-DE/2023/12/202312182300WarsawChristmas.jpg)|
 202312192300|ValGardenaItaly|Dorf in Gröden zu Weihnachten, Dolomiten, Italien (© Ingus Kruklitis/Getty Images)|Lichter der Dolomiten|![](/de-DE/2023/12/202312192300ValGardenaItaly.jpg)|
 202312202300|LjubljanaLights|Ljubljana, Slowenien (© kasto80/Getty images)|Ein Winternachtstraum?|![](/de-DE/2023/12/202312202300LjubljanaLights.jpg)|
+202312212300|CastleriggStoneCircleUK|Steinkreis von Castlerigg, Lake District National Park, Cumbria, Vereinigtes Königreich (© John Finney Photography/Getty Images)|Rituelle Tänze der Antike?|![](/de-DE/2023/12/202312212300CastleriggStoneCircleUK.jpg)|
