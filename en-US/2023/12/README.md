@@ -23,3 +23,4 @@
 202312190800|WarsawChristmas|Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)|Santa's Polish rest stop|![](/en-US/2023/12/202312190800WarsawChristmas.jpg)|
 202312200800|ValGardenaItaly|Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)|Lights of the Dolomites|![](/en-US/2023/12/202312200800ValGardenaItaly.jpg)|
 202312210800|BavarianSolstice|Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)|The veil of winter|![](/en-US/2023/12/202312210800BavarianSolstice.jpg)|
+202312220800|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-US/2023/12/202312220800LjubljanaLights.jpg)|
