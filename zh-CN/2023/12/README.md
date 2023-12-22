@@ -23,3 +23,4 @@
 202312191600|ValGardenaItaly|圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)|多洛米蒂山之光|![](/zh-CN/2023/12/202312191600ValGardenaItaly.jpg)|
 202312201600|LjubljanaLights|卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)|斯洛文尼亚式的节日氛围|![](/zh-CN/2023/12/202312201600LjubljanaLights.jpg)|
 202312211600|WinterSolstice2023|天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)|冬季仙境中的精灵|![](/zh-CN/2023/12/202312211600WinterSolstice2023.jpg)|
+202312221600|FestivusPenguins|帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)|它们看起来有话要说|![](/zh-CN/2023/12/202312221600FestivusPenguins.jpg)|
