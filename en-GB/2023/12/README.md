@@ -22,3 +22,4 @@
 202312190000|WarsawChristmas|Christmas tree in Castle Square, Warsaw, Poland (© Panther Media GmbH/Alamy)|Santa's Polish rest stop|![](/en-GB/2023/12/202312190000WarsawChristmas.jpg)|
 202312200000|ValGardenaItaly|Val Gardena, Dolomites, Italy (© Ingus Kruklitis/Getty Images)|Lights of the Dolomites|![](/en-GB/2023/12/202312200000ValGardenaItaly.jpg)|
 202312210000|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-GB/2023/12/202312210000LjubljanaLights.jpg)|
+202312220000|CastleriggStoneCircleUK|Castlerigg Stone Circle, Lake District National Park, England (© John Finney Photography/Getty Images)|Bring on the light|![](/en-GB/2023/12/202312220000CastleriggStoneCircleUK.jpg)|
