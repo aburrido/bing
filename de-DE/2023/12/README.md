@@ -23,3 +23,4 @@
 202312192300|ValGardenaItaly|Dorf in Gröden zu Weihnachten, Dolomiten, Italien (© Ingus Kruklitis/Getty Images)|Lichter der Dolomiten|![](/de-DE/2023/12/202312192300ValGardenaItaly.jpg)|
 202312202300|LjubljanaLights|Ljubljana, Slowenien (© kasto80/Getty images)|Ein Winternachtstraum?|![](/de-DE/2023/12/202312202300LjubljanaLights.jpg)|
 202312212300|CastleriggStoneCircleUK|Steinkreis von Castlerigg, Lake District National Park, Cumbria, Vereinigtes Königreich (© John Finney Photography/Getty Images)|Rituelle Tänze der Antike?|![](/de-DE/2023/12/202312212300CastleriggStoneCircleUK.jpg)|
+202312222300|AlpsReflecting|Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)|Sonne, Berge und Schnee, ein Märchen oder Realität?|![](/de-DE/2023/12/202312222300AlpsReflecting.jpg)|
