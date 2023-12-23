@@ -24,3 +24,4 @@
 202312201830|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-IN/2023/12/202312201830LjubljanaLights.jpg)|
 202312211830|RedFortDelhi|Red Fort Delhi historic monument at sunrise with flying pigeons (© Roop Dey/Alamy Stock Photo)|Through the gateways of history|![](/en-IN/2023/12/202312211830RedFortDelhi.jpg)|
 202312221830|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-IN/2023/12/202312221830FestivusPenguins.jpg)|
+202312231830|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-IN/2023/12/202312231830EstoniaXmasEve.jpg)|
