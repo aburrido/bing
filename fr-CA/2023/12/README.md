@@ -24,3 +24,4 @@
 202312200500|ValGardenaItaly|Village de Val Gardena à Noël, Dolomites, Italie (© Ingus Kruklitis/Getty Images)|Les lumières magiques des Dolomites|![](/fr-CA/2023/12/202312200500ValGardenaItaly.jpg)|
 202312210500|CastleriggStoneCircleUK|Enceinte mégalithique de Castlerigg, parc national du Lake District, Angleterre (© John Finney Photography/Getty Images)|Prêt pour la nuit la plus longue de l’année?|![](/fr-CA/2023/12/202312210500CastleriggStoneCircleUK.jpg)|
 202312220500|LjubljanaLights|Ljubljana, Slovénie (© kasto80/Getty images)|Des fêtes de fin d'année à la slovène!|![](/fr-CA/2023/12/202312220500LjubljanaLights.jpg)|
+202312230500|FestivusPenguins|Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)|Un manchot… à jugulaire!|![](/fr-CA/2023/12/202312230500FestivusPenguins.jpg)|

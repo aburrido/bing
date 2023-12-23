@@ -24,3 +24,4 @@
 202312200500|ValGardenaItaly|Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)|Lights of the Dolomites|![](/en-CA/2023/12/202312200500ValGardenaItaly.jpg)|
 202312210500|CastleriggStoneCircleUK|Castlerigg Stone Circle near Keswick, Lake District National Park, Cumbria, United Kingdom (© John Finney Photography/Getty Images)|Bring on the light|![](/en-CA/2023/12/202312210500CastleriggStoneCircleUK.jpg)|
 202312220500|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-CA/2023/12/202312220500LjubljanaLights.jpg)|
+202312230500|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-CA/2023/12/202312230500FestivusPenguins.jpg)|
