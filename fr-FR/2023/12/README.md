@@ -24,3 +24,4 @@
 202312202300|LjubljanaLights|Ljubljana, Slovénie (© kasto80/Getty images)|Des fêtes de fin d'année à la slovène !|![](/fr-FR/2023/12/202312202300LjubljanaLights.jpg)|
 202312212300|CastleriggStoneCircleUK|Enceinte mégalithique de Castlerigg, parc national du Lake District, Angleterre (© John Finney Photography/Getty Images)|Prêt pour la nuit la plus longue de l’année ?|![](/fr-FR/2023/12/202312212300CastleriggStoneCircleUK.jpg)|
 202312222300|FestivusPenguins|Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)|Un manchot… à jugulaire !|![](/fr-FR/2023/12/202312222300FestivusPenguins.jpg)|
+202312232300|EstoniaXmasEve|Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)|Une nuit magique vous attend !|![](/fr-FR/2023/12/202312232300EstoniaXmasEve.jpg)|
