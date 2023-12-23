@@ -24,3 +24,4 @@
 202312201500|LjubljanaLights|リュブリャナ, スロベニア (© kasto80/Getty images)|丘の上に建つお城と美しい街並み|![](/ja-JP/2023/12/202312201500LjubljanaLights.jpg)|
 202312211500|Wintersolstice2023|青い池, 北海道 美瑛町 (© Haruna/Getty Images)|今日は冬至|![](/ja-JP/2023/12/202312211500Wintersolstice2023.jpg)|
 202312221500|TokyoTower2023|けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)|今日は東京タワー完工の日|![](/ja-JP/2023/12/202312221500TokyoTower2023.jpg)|
+202312231500|EstoniaXmasEve|クリスマスツリーで彩られた広場, エストニア タルトゥ (© Westend61/Getty Images)|今日はクリスマス・イヴ|![](/ja-JP/2023/12/202312231500EstoniaXmasEve.jpg)|
