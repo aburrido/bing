@@ -25,3 +25,4 @@
 202312211500|Wintersolstice2023|青い池, 北海道 美瑛町 (© Haruna/Getty Images)|今日は冬至|![](/ja-JP/2023/12/202312211500Wintersolstice2023.jpg)|
 202312221500|TokyoTower2023|けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)|今日は東京タワー完工の日|![](/ja-JP/2023/12/202312221500TokyoTower2023.jpg)|
 202312231500|EstoniaXmasEve|クリスマスツリーで彩られた広場, エストニア タルトゥ (© Westend61/Getty Images)|今日はクリスマス・イヴ|![](/ja-JP/2023/12/202312231500EstoniaXmasEve.jpg)|
+202312241500|CaribouChristmas|トナカイ, 米国 アラスカ州 (© Michael Quinton/Minden Pictures)|ハッピーホリデーズ！|![](/ja-JP/2023/12/202312241500CaribouChristmas.jpg)|
