@@ -24,3 +24,4 @@
 202312210000|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-GB/2023/12/202312210000LjubljanaLights.jpg)|
 202312220000|CastleriggStoneCircleUK|Castlerigg Stone Circle, Lake District National Park, England (© John Finney Photography/Getty Images)|Bring on the light|![](/en-GB/2023/12/202312220000CastleriggStoneCircleUK.jpg)|
 202312230000|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-GB/2023/12/202312230000FestivusPenguins.jpg)|
+202312240000|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-GB/2023/12/202312240000EstoniaXmasEve.jpg)|
