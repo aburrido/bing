@@ -25,3 +25,4 @@
 202312212300|CastleriggStoneCircleUK|Steinkreis von Castlerigg, Lake District National Park, Cumbria, Vereinigtes Königreich (© John Finney Photography/Getty Images)|Rituelle Tänze der Antike?|![](/de-DE/2023/12/202312212300CastleriggStoneCircleUK.jpg)|
 202312222300|AlpsReflecting|Berge, die sich in einem kristallklaren Bergsee spiegeln, Alpen Deutschland (© JFL Photography/Adobe Stock)|Sonne, Berge und Schnee, ein Märchen oder Realität?|![](/de-DE/2023/12/202312222300AlpsReflecting.jpg)|
 202312232300|EstoniaXmasEve|Rathausplatz, Tartu, Estland (© Westend61/Getty Images)|Wie treu sind deine Blätter!|![](/de-DE/2023/12/202312232300EstoniaXmasEve.jpg)|
+202312242300|CaribouChristmas|Karibu auf der Flucht im Schnee, Alaska, USA (© Michael Quinton/Minden Pictures)|Kalte Füße an Weihnachten?|![](/de-DE/2023/12/202312242300CaribouChristmas.jpg)|
