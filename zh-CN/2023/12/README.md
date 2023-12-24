@@ -25,3 +25,4 @@
 202312211600|WinterSolstice2023|天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)|冬季仙境中的精灵|![](/zh-CN/2023/12/202312211600WinterSolstice2023.jpg)|
 202312221600|FestivusPenguins|帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)|它们看起来有话要说|![](/zh-CN/2023/12/202312221600FestivusPenguins.jpg)|
 202312231600|EstoniaXmasEve|市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)|多么可爱的树枝啊！|![](/zh-CN/2023/12/202312231600EstoniaXmasEve.jpg)|
+202312241600|CaribouChristmas|驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)|圣诞快乐，亲爱的朋友们！|![](/zh-CN/2023/12/202312241600CaribouChristmas.jpg)|
