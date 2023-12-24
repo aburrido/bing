@@ -25,3 +25,4 @@
 202312210800|BavarianSolstice|Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)|The veil of winter|![](/en-US/2023/12/202312210800BavarianSolstice.jpg)|
 202312220800|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-US/2023/12/202312220800LjubljanaLights.jpg)|
 202312230800|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-US/2023/12/202312230800FestivusPenguins.jpg)|
+202312240800|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-US/2023/12/202312240800EstoniaXmasEve.jpg)|
