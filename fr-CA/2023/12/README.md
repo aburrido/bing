@@ -26,3 +26,4 @@
 202312220500|LjubljanaLights|Ljubljana, Slovénie (© kasto80/Getty images)|Des fêtes de fin d'année à la slovène!|![](/fr-CA/2023/12/202312220500LjubljanaLights.jpg)|
 202312230500|FestivusPenguins|Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)|Un manchot… à jugulaire!|![](/fr-CA/2023/12/202312230500FestivusPenguins.jpg)|
 202312240500|EstoniaXmasEve|Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)|Une nuit magique vous attend!|![](/fr-CA/2023/12/202312240500EstoniaXmasEve.jpg)|
+202312250500|ChristmasCA|Marché de Noël de Toronto dans le Distillery (© Praveen P.N/Moment/Getty Images)|Joyeux temps des Fêtes!|![](/fr-CA/2023/12/202312250500ChristmasCA.jpg)|

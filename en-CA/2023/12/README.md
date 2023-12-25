@@ -26,3 +26,4 @@
 202312220500|LjubljanaLights|Ljubljana, Slovenia (© kasto80/Getty images)|Holiday cheer, Slovenian style|![](/en-CA/2023/12/202312220500LjubljanaLights.jpg)|
 202312230500|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-CA/2023/12/202312230500FestivusPenguins.jpg)|
 202312240500|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-CA/2023/12/202312240500EstoniaXmasEve.jpg)|
+202312250500|ChristmasCA|Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)|Merry Christmas!|![](/en-CA/2023/12/202312250500ChristmasCA.jpg)|
