@@ -26,3 +26,4 @@
 202312221500|TokyoTower2023|けやき坂のイルミネーション, 東京 (© Photography by ZhangXun/Getty Images)|今日は東京タワー完工の日|![](/ja-JP/2023/12/202312221500TokyoTower2023.jpg)|
 202312231500|EstoniaXmasEve|クリスマスツリーで彩られた広場, エストニア タルトゥ (© Westend61/Getty Images)|今日はクリスマス・イヴ|![](/ja-JP/2023/12/202312231500EstoniaXmasEve.jpg)|
 202312241500|CaribouChristmas|トナカイ, 米国 アラスカ州 (© Michael Quinton/Minden Pictures)|ハッピーホリデーズ！|![](/ja-JP/2023/12/202312241500CaribouChristmas.jpg)|
+202312251500|BoxingDaySunrise|デダムでの日の出, イギリス コルチェスター (© George W Johnson/Getty Images)|今日はボクシング・デー|![](/ja-JP/2023/12/202312251500BoxingDaySunrise.jpg)|
