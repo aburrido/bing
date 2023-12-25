@@ -26,3 +26,4 @@
 202312222300|FestivusPenguins|Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)|Un manchot… à jugulaire !|![](/fr-FR/2023/12/202312222300FestivusPenguins.jpg)|
 202312232300|EstoniaXmasEve|Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)|Une nuit magique vous attend !|![](/fr-FR/2023/12/202312232300EstoniaXmasEve.jpg)|
 202312242300|CaribouChristmas|Rennes courant dans la neige, Alaska, États-Unis (© Michael Quinton/Minden Pictures)|Les « rennes » de Noël !|![](/fr-FR/2023/12/202312242300CaribouChristmas.jpg)|
+202312252300|BoxingDaySunrise|Lever de soleil hivernal à Dedham, Colchester, Angleterre (© George W Johnson/Getty Images)|Connaissez-vous la tradition du « Boxing Day »|![](/fr-FR/2023/12/202312252300BoxingDaySunrise.jpg)|
