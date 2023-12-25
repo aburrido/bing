@@ -25,3 +25,4 @@
 202312220000|CastleriggStoneCircleUK|Castlerigg Stone Circle, Lake District National Park, England (© John Finney Photography/Getty Images)|Bring on the light|![](/en-GB/2023/12/202312220000CastleriggStoneCircleUK.jpg)|
 202312230000|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-GB/2023/12/202312230000FestivusPenguins.jpg)|
 202312240000|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-GB/2023/12/202312240000EstoniaXmasEve.jpg)|
+202312250000|CaribouChristmas|Caribou running in snow, Alaska, USA (© Michael Quinton/Minden Pictures)|Merry Christmas, deer friends!|![](/en-GB/2023/12/202312250000CaribouChristmas.jpg)|
