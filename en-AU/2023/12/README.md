@@ -27,3 +27,4 @@
 202312230800|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|Info|![](/en-AU/2023/12/202312230800FestivusPenguins.jpg)|
 202312240800|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|Info|![](/en-AU/2023/12/202312240800EstoniaXmasEve.jpg)|
 202312250800|CaribouChristmas|Reindeer running in snow, Alaska, USA (© Michael Quinton/Minden Pictures)|Info|![](/en-AU/2023/12/202312250800CaribouChristmas.jpg)|
+202312260800|BoxingDaySunrise|Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)|Info|![](/en-AU/2023/12/202312260800BoxingDaySunrise.jpg)|
