@@ -27,3 +27,4 @@
 202312230500|FestivusPenguins|Manchots à jugulaire, îles Sandwich du Sud, océan Atlantique Sud (© Jan Vermeer/Minden Pictures)|Un manchot… à jugulaire!|![](/fr-CA/2023/12/202312230500FestivusPenguins.jpg)|
 202312240500|EstoniaXmasEve|Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)|Une nuit magique vous attend!|![](/fr-CA/2023/12/202312240500EstoniaXmasEve.jpg)|
 202312250500|ChristmasCA|Marché de Noël de Toronto dans le Distillery (© Praveen P.N/Moment/Getty Images)|Joyeux temps des Fêtes!|![](/fr-CA/2023/12/202312250500ChristmasCA.jpg)|
+202312260500|BoxingDayCA|Lumières de Noël sur les arbres au crépuscule, Vancouver, Canada (© Stuart Dee/Getty Images)|Joyeux jour des boîtes!|![](/fr-CA/2023/12/202312260500BoxingDayCA.jpg)|

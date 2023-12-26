@@ -27,3 +27,4 @@
 202312230500|FestivusPenguins|Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)|They've got some things to say|![](/en-CA/2023/12/202312230500FestivusPenguins.jpg)|
 202312240500|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-CA/2023/12/202312240500EstoniaXmasEve.jpg)|
 202312250500|ChristmasCA|Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)|Merry Christmas!|![](/en-CA/2023/12/202312250500ChristmasCA.jpg)|
+202312260500|BoxingDayCA|Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)|Happy Boxing Day!|![](/en-CA/2023/12/202312260500BoxingDayCA.jpg)|
