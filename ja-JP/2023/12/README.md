@@ -27,3 +27,4 @@
 202312231500|EstoniaXmasEve|クリスマスツリーで彩られた広場, エストニア タルトゥ (© Westend61/Getty Images)|今日はクリスマス・イヴ|![](/ja-JP/2023/12/202312231500EstoniaXmasEve.jpg)|
 202312241500|CaribouChristmas|トナカイ, 米国 アラスカ州 (© Michael Quinton/Minden Pictures)|ハッピーホリデーズ！|![](/ja-JP/2023/12/202312241500CaribouChristmas.jpg)|
 202312251500|BoxingDaySunrise|デダムでの日の出, イギリス コルチェスター (© George W Johnson/Getty Images)|今日はボクシング・デー|![](/ja-JP/2023/12/202312251500BoxingDaySunrise.jpg)|
+202312261500|KirkjufellAurora|キルキュフェットル山, アイスランド (© Ratnakorn Piyasirisorost/Getty Images)|山と空に舞うオーロラ|![](/ja-JP/2023/12/202312261500KirkjufellAurora.jpg)|
