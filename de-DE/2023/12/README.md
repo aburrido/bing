@@ -27,3 +27,4 @@
 202312232300|EstoniaXmasEve|Rathausplatz, Tartu, Estland (© Westend61/Getty Images)|Wie treu sind deine Blätter!|![](/de-DE/2023/12/202312232300EstoniaXmasEve.jpg)|
 202312242300|CaribouChristmas|Karibu auf der Flucht im Schnee, Alaska, USA (© Michael Quinton/Minden Pictures)|Kalte Füße an Weihnachten?|![](/de-DE/2023/12/202312242300CaribouChristmas.jpg)|
 202312252300|BoxingDaySunrise|Wintersonnenaufgang in Dedham, Colchester, England (© George W Johnson/Getty Images)|Frohen 2. Weihnachtsfeiertag!|![](/de-DE/2023/12/202312252300BoxingDaySunrise.jpg)|
+202312262300|KirkjufellAurora|Kirkjufell, Snæfellsnes-Halbinsel, Island (© Ratnakorn Piyasirisorost/Getty Images)|Mystisches Land aus Feuer und Eis|![](/de-DE/2023/12/202312262300KirkjufellAurora.jpg)|

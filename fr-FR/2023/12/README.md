@@ -27,3 +27,4 @@
 202312232300|EstoniaXmasEve|Place de l'hôtel de ville, Tartu, Estonie (© Westend61/Getty Images)|Une nuit magique vous attend !|![](/fr-FR/2023/12/202312232300EstoniaXmasEve.jpg)|
 202312242300|CaribouChristmas|Rennes courant dans la neige, Alaska, États-Unis (© Michael Quinton/Minden Pictures)|Les « rennes » de Noël !|![](/fr-FR/2023/12/202312242300CaribouChristmas.jpg)|
 202312252300|BoxingDaySunrise|Lever de soleil hivernal à Dedham, Colchester, Angleterre (© George W Johnson/Getty Images)|Connaissez-vous la tradition du « Boxing Day »|![](/fr-FR/2023/12/202312252300BoxingDaySunrise.jpg)|
+202312262300|KirkjufellAurora|Kirkjufell, péninsule de Snæfellsnes, Islande (© Ratnakorn Piyasirisorost/Getty Images)|Le pays de la glace et du feu|![](/fr-FR/2023/12/202312262300KirkjufellAurora.jpg)|
