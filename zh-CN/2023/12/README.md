@@ -27,3 +27,4 @@
 202312231600|EstoniaXmasEve|市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)|多么可爱的树枝啊！|![](/zh-CN/2023/12/202312231600EstoniaXmasEve.jpg)|
 202312241600|CaribouChristmas|驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)|圣诞快乐，亲爱的朋友们！|![](/zh-CN/2023/12/202312241600CaribouChristmas.jpg)|
 202312251600|BoxingDaySunrise|冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)|节礼日快乐|![](/zh-CN/2023/12/202312251600BoxingDaySunrise.jpg)|
+202312261600|KirkjufellAurora|教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images)|冰与火之地|![](/zh-CN/2023/12/202312261600KirkjufellAurora.jpg)|
