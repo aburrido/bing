@@ -27,3 +27,4 @@
 202312231830|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-IN/2023/12/202312231830EstoniaXmasEve.jpg)|
 202312241830|CaribouChristmas|Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)|Merry Christmas, deer friends!|![](/en-IN/2023/12/202312241830CaribouChristmas.jpg)|
 202312251830|SanchiStupaMP|Carved stories of King Ashoka on gate of Sanchi Stupa, Madhya Pradesh, India (© Dinodia Photos/Alamy Stock Photo)|A timeless beacon of heritage|![](/en-IN/2023/12/202312251830SanchiStupaMP.jpg)|
+202312261830|KirkjufellAurora|Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)|The land of ice and fire|![](/en-IN/2023/12/202312261830KirkjufellAurora.jpg)|
