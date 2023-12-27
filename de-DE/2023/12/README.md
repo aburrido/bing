@@ -28,3 +28,4 @@
 202312242300|CaribouChristmas|Karibu auf der Flucht im Schnee, Alaska, USA (© Michael Quinton/Minden Pictures)|Kalte Füße an Weihnachten?|![](/de-DE/2023/12/202312242300CaribouChristmas.jpg)|
 202312252300|BoxingDaySunrise|Wintersonnenaufgang in Dedham, Colchester, England (© George W Johnson/Getty Images)|Frohen 2. Weihnachtsfeiertag!|![](/de-DE/2023/12/202312252300BoxingDaySunrise.jpg)|
 202312262300|KirkjufellAurora|Kirkjufell, Snæfellsnes-Halbinsel, Island (© Ratnakorn Piyasirisorost/Getty Images)|Mystisches Land aus Feuer und Eis|![](/de-DE/2023/12/202312262300KirkjufellAurora.jpg)|
+202312272300|GreenlandHumpback|Buckelwal, Diskobucht, Grönland (© Paul Souders/DanitaDelimont.com)|Sprung von der Gefährdungsliste|![](/de-DE/2023/12/202312272300GreenlandHumpback.jpg)|
