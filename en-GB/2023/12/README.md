@@ -27,3 +27,4 @@
 202312240000|EstoniaXmasEve|Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)|How lovely are your branches|![](/en-GB/2023/12/202312240000EstoniaXmasEve.jpg)|
 202312250000|CaribouChristmas|Caribou running in snow, Alaska, USA (© Michael Quinton/Minden Pictures)|Merry Christmas, deer friends!|![](/en-GB/2023/12/202312250000CaribouChristmas.jpg)|
 202312260000|PrincesStreetEdinburgh|Princes Street, Edinburgh (© Andrew Merry/Moment/Getty Images)|Happy Boxing Day!|![](/en-GB/2023/12/202312260000PrincesStreetEdinburgh.jpg)|
+202312270000|KirkjufellAurora|Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)|The land of ice and fire|![](/en-GB/2023/12/202312270000KirkjufellAurora.jpg)|
