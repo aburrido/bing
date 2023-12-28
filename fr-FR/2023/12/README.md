@@ -29,3 +29,4 @@
 202312252300|BoxingDaySunrise|Lever de soleil hivernal à Dedham, Colchester, Angleterre (© George W Johnson/Getty Images)|Connaissez-vous la tradition du « Boxing Day »|![](/fr-FR/2023/12/202312252300BoxingDaySunrise.jpg)|
 202312262300|KirkjufellAurora|Kirkjufell, péninsule de Snæfellsnes, Islande (© Ratnakorn Piyasirisorost/Getty Images)|Le pays de la glace et du feu|![](/fr-FR/2023/12/202312262300KirkjufellAurora.jpg)|
 202312272300|GreenlandHumpback|Baleine à bosse, baie de Disko, Groenland (© Paul Souders/DanitaDelimont.com)|Si grande et pourtant si fragile|![](/fr-FR/2023/12/202312272300GreenlandHumpback.jpg)|
+202312282300|BlueAmsterdam|Quartier Oud-West, Amsterdam, Pays-Bas (© George Pachantouris/Getty Images)|La capitale aux mille ponts !|![](/fr-FR/2023/12/202312282300BlueAmsterdam.jpg)|
