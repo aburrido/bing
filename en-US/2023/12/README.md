@@ -29,3 +29,4 @@
 202312250800|CaribouChristmas|Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)|Merry Christmas, deer friends!|![](/en-US/2023/12/202312250800CaribouChristmas.jpg)|
 202312260800|BoxingDaySunrise|Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)|Happy Boxing Day!|![](/en-US/2023/12/202312260800BoxingDaySunrise.jpg)|
 202312270800|KirkjufellAurora|Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)|The land of ice and fire|![](/en-US/2023/12/202312270800KirkjufellAurora.jpg)|
+202312280800|GreenlandHumpback|Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)|Jumping off the endangered list|![](/en-US/2023/12/202312280800GreenlandHumpback.jpg)|
