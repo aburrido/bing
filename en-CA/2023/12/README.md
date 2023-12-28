@@ -29,3 +29,4 @@
 202312250500|ChristmasCA|Toronto Christmas market at the Distillery District (© Praveen P.N/Moment/Getty Images)|Merry Christmas!|![](/en-CA/2023/12/202312250500ChristmasCA.jpg)|
 202312260500|BoxingDayCA|Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)|Happy Boxing Day!|![](/en-CA/2023/12/202312260500BoxingDayCA.jpg)|
 202312270500|KirkjufellAurora|Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)|The land of ice and fire|![](/en-CA/2023/12/202312270500KirkjufellAurora.jpg)|
+202312280500|GreenlandHumpback|Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)|Whale hello there|![](/en-CA/2023/12/202312280500GreenlandHumpback.jpg)|
