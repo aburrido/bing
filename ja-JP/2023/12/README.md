@@ -29,3 +29,4 @@
 202312251500|BoxingDaySunrise|デダムでの日の出, イギリス コルチェスター (© George W Johnson/Getty Images)|今日はボクシング・デー|![](/ja-JP/2023/12/202312251500BoxingDaySunrise.jpg)|
 202312261500|KirkjufellAurora|キルキュフェットル山, アイスランド (© Ratnakorn Piyasirisorost/Getty Images)|山と空に舞うオーロラ|![](/ja-JP/2023/12/202312261500KirkjufellAurora.jpg)|
 202312271500|GreenlandHumpback|ディスコ湾のザトウクジラ, グリーンランド (© Paul Souders/DanitaDelimont.com)|今年は ESA 制定 50 周年|![](/ja-JP/2023/12/202312271500GreenlandHumpback.jpg)|
+202312281500|BlueAmsterdam|アムステルダム, オランダ (© George Pachantouris/Getty Images)|運河から眺める美しい夜景|![](/ja-JP/2023/12/202312281500BlueAmsterdam.jpg)|
