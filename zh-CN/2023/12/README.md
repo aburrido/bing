@@ -29,3 +29,4 @@
 202312251600|BoxingDaySunrise|冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)|节礼日快乐|![](/zh-CN/2023/12/202312251600BoxingDaySunrise.jpg)|
 202312261600|KirkjufellAurora|教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images)|冰与火之地|![](/zh-CN/2023/12/202312261600KirkjufellAurora.jpg)|
 202312271600|GreenlandHumpback|座头鲸，迪斯科湾，格陵兰 (© Paul Souders/DanitaDelimont.com)|跳出“濒危名单”|![](/zh-CN/2023/12/202312271600GreenlandHumpback.jpg)|
+202312281600|BlueAmsterdam|旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images)|旧西街区的故事|![](/zh-CN/2023/12/202312281600BlueAmsterdam.jpg)|
