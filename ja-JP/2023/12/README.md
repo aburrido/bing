@@ -30,3 +30,4 @@
 202312261500|KirkjufellAurora|キルキュフェットル山, アイスランド (© Ratnakorn Piyasirisorost/Getty Images)|山と空に舞うオーロラ|![](/ja-JP/2023/12/202312261500KirkjufellAurora.jpg)|
 202312271500|GreenlandHumpback|ディスコ湾のザトウクジラ, グリーンランド (© Paul Souders/DanitaDelimont.com)|今年は ESA 制定 50 周年|![](/ja-JP/2023/12/202312271500GreenlandHumpback.jpg)|
 202312281500|BlueAmsterdam|アムステルダム, オランダ (© George Pachantouris/Getty Images)|運河から眺める美しい夜景|![](/ja-JP/2023/12/202312281500BlueAmsterdam.jpg)|
+202312291500|TadamiWinter|第一只見川橋梁, 福島県 (© DoctorEgg/Getty Images)|雪に覆われた山々と橋の風景|![](/ja-JP/2023/12/202312291500TadamiWinter.jpg)|
