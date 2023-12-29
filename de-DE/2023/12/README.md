@@ -30,3 +30,4 @@
 202312262300|KirkjufellAurora|Kirkjufell, Snæfellsnes-Halbinsel, Island (© Ratnakorn Piyasirisorost/Getty Images)|Mystisches Land aus Feuer und Eis|![](/de-DE/2023/12/202312262300KirkjufellAurora.jpg)|
 202312272300|GreenlandHumpback|Buckelwal, Diskobucht, Grönland (© Paul Souders/DanitaDelimont.com)|Sprung von der Gefährdungsliste|![](/de-DE/2023/12/202312272300GreenlandHumpback.jpg)|
 202312282300|BlueAmsterdam|Stadtviertel Oud-West, Amsterdam, Niederlande (© George Pachantouris/Getty Images)|Oud-West Side Story|![](/de-DE/2023/12/202312282300BlueAmsterdam.jpg)|
+202312292300|TadamiWinter|Daiichi Tadami-Flussbrücke, Fukushima, Japan (© DoctorEgg/Getty Images)|Lassen Sie sich verzaubern|![](/de-DE/2023/12/202312292300TadamiWinter.jpg)|
