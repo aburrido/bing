@@ -30,3 +30,4 @@
 202312260500|BoxingDayCA|Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)|Happy Boxing Day!|![](/en-CA/2023/12/202312260500BoxingDayCA.jpg)|
 202312270500|KirkjufellAurora|Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)|The land of ice and fire|![](/en-CA/2023/12/202312270500KirkjufellAurora.jpg)|
 202312280500|GreenlandHumpback|Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)|Whale hello there|![](/en-CA/2023/12/202312280500GreenlandHumpback.jpg)|
+202312290500|BlueAmsterdam|Oud-West neighborhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)|Oud-West side story|![](/en-CA/2023/12/202312290500BlueAmsterdam.jpg)|

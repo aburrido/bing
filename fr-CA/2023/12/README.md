@@ -30,3 +30,4 @@
 202312260500|BoxingDayCA|Lumières de Noël sur les arbres au crépuscule, Vancouver, Canada (© Stuart Dee/Getty Images)|Joyeux jour des boîtes!|![](/fr-CA/2023/12/202312260500BoxingDayCA.jpg)|
 202312270500|KirkjufellAurora|Kirkjufell, péninsule de Snæfellsnes, Islande (© Ratnakorn Piyasirisorost/Getty Images)|Le pays de la glace et du feu|![](/fr-CA/2023/12/202312270500KirkjufellAurora.jpg)|
 202312280500|GreenlandHumpback|Baleine à bosse, baie de Disko, Groenland (© Paul Souders/DanitaDelimont.com)|Si grande et pourtant si fragile|![](/fr-CA/2023/12/202312280500GreenlandHumpback.jpg)|
+202312290500|BlueAmsterdam|Quartier Oud-West, Amsterdam, Pays-Bas (© George Pachantouris/Getty Images)|La capitale aux mille ponts!|![](/fr-CA/2023/12/202312290500BlueAmsterdam.jpg)|
