@@ -31,3 +31,4 @@
 202312271830|GreenlandHumpback|Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)|A jump like no other|![](/en-IN/2023/12/202312271830GreenlandHumpback.jpg)|
 202312281830|BlueAmsterdam|Oud-West neighborhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)|Oud-West side story|![](/en-IN/2023/12/202312281830BlueAmsterdam.jpg)|
 202312291830|TadamiWinter|Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)|A journey over the bold blue|![](/en-IN/2023/12/202312291830TadamiWinter.jpg)|
+202312301830|ThailandNewYears|Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)|See you next year!|![](/en-IN/2023/12/202312301830ThailandNewYears.jpg)|
