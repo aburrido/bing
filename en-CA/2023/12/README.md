@@ -31,3 +31,4 @@
 202312270500|KirkjufellAurora|Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)|The land of ice and fire|![](/en-CA/2023/12/202312270500KirkjufellAurora.jpg)|
 202312280500|GreenlandHumpback|Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)|Whale hello there|![](/en-CA/2023/12/202312280500GreenlandHumpback.jpg)|
 202312290500|BlueAmsterdam|Oud-West neighborhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)|Oud-West side story|![](/en-CA/2023/12/202312290500BlueAmsterdam.jpg)|
+202312300500|TadamiWinter|Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)|A journey over the bold blue|![](/en-CA/2023/12/202312300500TadamiWinter.jpg)|
