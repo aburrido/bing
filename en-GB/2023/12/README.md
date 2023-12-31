@@ -31,3 +31,4 @@
 202312280000|GreenlandHumpback|Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)|Jumping off the endangered list|![](/en-GB/2023/12/202312280000GreenlandHumpback.jpg)|
 202312290000|HogmanayFireworksSoctland|Hogmanay firework display, Edinburgh, Scotland (© The Travel Library/Shutterstock)|Lang may yer lum reek|![](/en-GB/2023/12/202312290000HogmanayFireworksSoctland.jpg)|
 202312300000|TadamiWinter|Daiichi Tadami River Bridge, Fukushima, Japan (© DoctorEgg/Getty Images)|A journey over the bold blue|![](/en-GB/2023/12/202312300000TadamiWinter.jpg)|
+202312310000|ThailandNewYears|Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)|See you next year!|![](/en-GB/2023/12/202312310000ThailandNewYears.jpg)|
