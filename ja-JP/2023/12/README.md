@@ -32,3 +32,4 @@
 202312281500|BlueAmsterdam|アムステルダム, オランダ (© George Pachantouris/Getty Images)|運河から眺める美しい夜景|![](/ja-JP/2023/12/202312281500BlueAmsterdam.jpg)|
 202312291500|TadamiWinter|第一只見川橋梁, 福島県 (© DoctorEgg/Getty Images)|雪に覆われた山々と橋の風景|![](/ja-JP/2023/12/202312291500TadamiWinter.jpg)|
 202312301500|Omisoka2023|増上寺の梵鐘, 東京 (© kanzilyou/Adobe Stock)|今日は大晦日|![](/ja-JP/2023/12/202312301500Omisoka2023.jpg)|
+202312311500|Sunrise2024|本栖湖から見る富士山の日の出, 山梨県 (© Sakarin Sawasdinaka/Shutterstock)|今日は元日|![](/ja-JP/2023/12/202312311500Sunrise2024.jpg)|
