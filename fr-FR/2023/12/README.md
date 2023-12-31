@@ -32,3 +32,4 @@
 202312282300|BlueAmsterdam|Quartier Oud-West, Amsterdam, Pays-Bas (© George Pachantouris/Getty Images)|La capitale aux mille ponts !|![](/fr-FR/2023/12/202312282300BlueAmsterdam.jpg)|
 202312292300|TadamiWinter|Pont de la rivière Daiichi Tadami, Fukushima, Japon (© DoctorEgg/Getty Images)|Le Grand Bleu japonais|![](/fr-FR/2023/12/202312292300TadamiWinter.jpg)|
 202312302300|ThailandNewYears|Feux d'artifice sur Phra Nakhon Khiri, Phetchaburi, Thaïlande (© noomcpk/Shutterstock)|À l’année prochaine !|![](/fr-FR/2023/12/202312302300ThailandNewYears.jpg)|
+202312312300|SleepingFox|Renard roux dormant dans la neige, Abruzzes, Italie (© marco vancini/500px/Getty Images)|Bienvenue dans la nouvelle année !|![](/fr-FR/2023/12/202312312300SleepingFox.jpg)|

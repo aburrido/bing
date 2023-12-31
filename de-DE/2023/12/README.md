@@ -32,3 +32,4 @@
 202312282300|BlueAmsterdam|Stadtviertel Oud-West, Amsterdam, Niederlande (© George Pachantouris/Getty Images)|Oud-West Side Story|![](/de-DE/2023/12/202312282300BlueAmsterdam.jpg)|
 202312292300|TadamiWinter|Daiichi Tadami-Flussbrücke, Fukushima, Japan (© DoctorEgg/Getty Images)|Lassen Sie sich verzaubern|![](/de-DE/2023/12/202312292300TadamiWinter.jpg)|
 202312302300|ThailandNewYears|Feuerwerk in Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)|Rutschen Sie gut ins neue Jahr!|![](/de-DE/2023/12/202312302300ThailandNewYears.jpg)|
+202312312300|SleepingFox|Schlafender Rotfuchs im Schnee, Abruzzen, Italien (© marco vancini/500px/Getty Images)|Neues Jahr, neue Träume, neue Abenteuer, neue Visionen|![](/de-DE/2023/12/202312312300SleepingFox.jpg)|
