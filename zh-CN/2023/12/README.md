@@ -32,3 +32,4 @@
 202312281600|BlueAmsterdam|旧西街区，阿姆斯特丹 ，荷兰 (© George Pachantouris/Getty Images)|旧西街区的故事|![](/zh-CN/2023/12/202312281600BlueAmsterdam.jpg)|
 202312291600|CastleriggStoneCircleUK|卡塞里格石圈，湖区国家公园 ，坎布里亚，英国 (© John Finney Photography/Getty Images)|古石圈|![](/zh-CN/2023/12/202312291600CastleriggStoneCircleUK.jpg)|
 202312301600|ThailandNewYears|帕那空奇里上空的烟花，碧武里府,泰国 (© noomcpk/Shutterstock)|明年见!|![](/zh-CN/2023/12/202312301600ThailandNewYears.jpg)|
+202312311600|SleepingFox|睡在雪地里的赤狐，阿布鲁佐，意大利 (© marco vancini/500px/Getty Images)|新年伊始|![](/zh-CN/2023/12/202312311600SleepingFox.jpg)|
