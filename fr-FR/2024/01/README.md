@@ -1,0 +1,3 @@
+|fullstartdate|name|copyright|title|image|
+|--|--|--|--|--|
+202312312300|SleepingFox|Renard roux dormant dans la neige, Abruzzes, Italie (© marco vancini/500px/Getty Images)|Bienvenue dans la nouvelle année !|![](/fr-FR/2024/01/202312312300SleepingFox.jpg)|
