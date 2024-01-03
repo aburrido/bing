@@ -4,3 +4,4 @@
 202401010500|SleepingFox|Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)|Kicking the new year off right|![](/en-CA/2024/01/202401010500SleepingFox.jpg)|
 202401020500|BhutanSolstice|Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)|Make your own rainbow|![](/en-CA/2024/01/202401020500BhutanSolstice.jpg)|
 ||||![](/en-CA/2024/01/.jpg)|
+202401030500|BodleianCeiling|Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)|One library to rule them all|![](/en-CA/2024/01/202401030500BodleianCeiling.jpg)|

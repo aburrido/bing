@@ -4,3 +4,4 @@
 202401010500|SleepingFox|Renard roux dormant dans la neige, Abruzzes, Italie (© marco vancini/500px/Getty Images)|Bienvenue dans la nouvelle année!|![](/fr-CA/2024/01/202401010500SleepingFox.jpg)|
 202401020500|BhutanSolstice|Drapeaux de prière dans la vallée de Phobjikha, Bhoutan (© John Warburton-Lee/DanitaDelimont.com)|Fabriquez votre propre arc-en-ciel!|![](/fr-CA/2024/01/202401020500BhutanSolstice.jpg)|
 ||||![](/fr-CA/2024/01/.jpg)|
+202401030500|BodleianCeiling|Bibliothèque Bodléienne, Université d'Oxford, Angleterre (© Andrew Holt/Getty Images)|Qui a laissé son héritage dans cette bibliothèque?|![](/fr-CA/2024/01/202401030500BodleianCeiling.jpg)|
