@@ -4,3 +4,4 @@
 202401010800|SleepingFox|Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)|Info|![](/en-AU/2024/01/202401010800SleepingFox.jpg)|
 202401020800|MehrangarhJodhpur|Jaswant Thada and Mehrangarh Fort, Jodhpur, Rajasthan, India (© Twenty47studio/Getty images)|Info|![](/en-AU/2024/01/202401020800MehrangarhJodhpur.jpg)|
 ||||![](/en-AU/2024/01/.jpg)|
+202401030800|MinnewankaLake|Lake Minnewanka, Alberta, Canada (© Ken Phung/Getty Images)|Info|![](/en-AU/2024/01/202401030800MinnewankaLake.jpg)|
