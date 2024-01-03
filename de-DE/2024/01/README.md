@@ -4,3 +4,4 @@
 202401012300|BhutanSolstice|Gebetsfahnen im Phobjikha-Tal, Bhutan (© John Warburton-Lee/DanitaDelimont.com)|Gebetsfahnen und antike Weisheiten von Schamanen|![](/de-DE/2024/01/202401012300BhutanSolstice.jpg)|
 ||||![](/de-DE/2024/01/.jpg)|
 202401022300|BodleianCeiling|Bodleian Library, Universität von Oxford, England (© Andrew Holt/Getty Images)|Bücher und Weisheit bis in alle Ewigkeit!|![](/de-DE/2024/01/202401022300BodleianCeiling.jpg)|
+202401032300|StPeterMonastery|Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)|Schnee, Schwarzwald und ein Kloster, welch schönes Poster!|![](/de-DE/2024/01/202401032300StPeterMonastery.jpg)|
