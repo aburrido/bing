@@ -5,3 +5,4 @@
 202401020800|MehrangarhJodhpur|Jaswant Thada and Mehrangarh Fort, Jodhpur, Rajasthan, India (© Twenty47studio/Getty images)|Info|![](/en-AU/2024/01/202401020800MehrangarhJodhpur.jpg)|
 ||||![](/en-AU/2024/01/.jpg)|
 202401030800|MinnewankaLake|Lake Minnewanka, Alberta, Canada (© Ken Phung/Getty Images)|Info|![](/en-AU/2024/01/202401030800MinnewankaLake.jpg)|
+202401040800|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2024/01/202401040800GoldenGateLight.jpg)|
