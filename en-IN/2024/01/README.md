@@ -5,3 +5,4 @@
 ||||![](/en-IN/2024/01/.jpg)|
 202401021830|VirupakshaTempleIN|Virupaksha temple in the ancient city of Vijayanagar at Hampi, Karnataka, India. (© leshiy985/shutterstock)|A celestial saga|![](/en-IN/2024/01/202401021830VirupakshaTempleIN.jpg)|
 202401031830|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|A mist-ical marvel|![](/en-IN/2024/01/202401031830GoldenGateLight.jpg)|
+202401041830|HarbinFestival|International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-IN/2024/01/202401041830HarbinFestival.jpg)|
