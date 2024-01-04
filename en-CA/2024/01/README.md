@@ -5,3 +5,4 @@
 202401020500|BhutanSolstice|Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)|Make your own rainbow|![](/en-CA/2024/01/202401020500BhutanSolstice.jpg)|
 ||||![](/en-CA/2024/01/.jpg)|
 202401030500|BodleianCeiling|Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)|One library to rule them all|![](/en-CA/2024/01/202401030500BodleianCeiling.jpg)|
+202401040500|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|A mist-ical marvel|![](/en-CA/2024/01/202401040500GoldenGateLight.jpg)|
