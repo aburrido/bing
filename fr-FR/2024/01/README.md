@@ -5,3 +5,4 @@
 ||||![](/fr-FR/2024/01/.jpg)|
 202401022300|Cheserys|Coucher de soleil sur les lacs des Chéserys, Chamonix-Mont Blanc, France (© Smit/Shutterstock)|Un panorama unique sur le Mont-Blanc|![](/fr-FR/2024/01/202401022300Cheserys.jpg)|
 202401032300|GoldenGateLight|Pont du Golden Gate, San Francisco, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Là où les rêves deviennent réalité !|![](/fr-FR/2024/01/202401032300GoldenGateLight.jpg)|
+202401042300|HarbinFestival|Festival international de la glace et de la neige, Harbin, Chine (© WANG ZHAO/AFP/Getty Images)|Féerie glacée dans l'Empire du Milieu|![](/fr-FR/2024/01/202401042300HarbinFestival.jpg)|
