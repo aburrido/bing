@@ -6,3 +6,4 @@
 202401022300|BodleianCeiling|Bodleian Library, Universität von Oxford, England (© Andrew Holt/Getty Images)|Bücher und Weisheit bis in alle Ewigkeit!|![](/de-DE/2024/01/202401022300BodleianCeiling.jpg)|
 202401032300|StPeterMonastery|Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)|Schnee, Schwarzwald und ein Kloster, welch schönes Poster!|![](/de-DE/2024/01/202401032300StPeterMonastery.jpg)|
 202401042300|HarbinFestival|Harbiner Internationales Eis- und Schneefest, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Skulpturen aus Eis|![](/de-DE/2024/01/202401042300HarbinFestival.jpg)|
+202401052300|GoldenGateLight|Golden Gate Bridge, San Francisco, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)|Auf Wolke sieben schweben|![](/de-DE/2024/01/202401052300GoldenGateLight.jpg)|
