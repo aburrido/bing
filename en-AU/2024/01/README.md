@@ -6,3 +6,4 @@
 ||||![](/en-AU/2024/01/.jpg)|
 202401030800|MinnewankaLake|Lake Minnewanka, Alberta, Canada (© Ken Phung/Getty Images)|Info|![](/en-AU/2024/01/202401030800MinnewankaLake.jpg)|
 202401040800|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2024/01/202401040800GoldenGateLight.jpg)|
+202401050800|AlpsReflecting|Bavarian Alps, Germany (© JFL Photography/Adobe Stock)|Info|![](/en-AU/2024/01/202401050800AlpsReflecting.jpg)|
