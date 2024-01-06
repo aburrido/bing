@@ -7,3 +7,4 @@
 202401031500|GoldenGateLight|ゴールデン・ゲート・ブリッジ, 米国 サンフランシスコ (© Jim Patterson/Tandem Stills + Motion)|ライトアップされた美しい吊り橋|![](/ja-JP/2024/01/202401031500GoldenGateLight.jpg)|
 202401041500|HarbinFestival|ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)|ライトアップされた氷の彫刻|![](/ja-JP/2024/01/202401041500HarbinFestival.jpg)|
 202401051500|CrabappleChaffinch|クラブアップルの木とズアオアトリ (© Mark Hamblin/2020VISION/Minden Pictures)|冬の赤い宝石|![](/ja-JP/2024/01/202401051500CrabappleChaffinch.jpg)|
+202401061500|DevilsMarbles|デビルズマーブルズ保護区, オーストラリア (© Yva Momatiuk and John Eastcott/Minden Pictures)|巨大な丸い岩|![](/ja-JP/2024/01/202401061500DevilsMarbles.jpg)|
