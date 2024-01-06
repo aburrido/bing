@@ -7,3 +7,4 @@
 202401030500|BodleianCeiling|Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)|One library to rule them all|![](/en-CA/2024/01/202401030500BodleianCeiling.jpg)|
 202401040500|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|A mist-ical marvel|![](/en-CA/2024/01/202401040500GoldenGateLight.jpg)|
 202401050500|HarbinFestival|International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-CA/2024/01/202401050500HarbinFestival.jpg)|
+202401060500|VermilionLakesCA|Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)|The sky isn't always blue|![](/en-CA/2024/01/202401060500VermilionLakesCA.jpg)|
