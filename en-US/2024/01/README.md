@@ -7,3 +7,4 @@
 202401030800|BodleianCeiling|Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)|One library to rule them all|![](/en-US/2024/01/202401030800BodleianCeiling.jpg)|
 202401040800|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|On cloud forty-nine|![](/en-US/2024/01/202401040800GoldenGateLight.jpg)|
 202401050800|HarbinFestival|International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-US/2024/01/202401050800HarbinFestival.jpg)|
+202401060800|CrabappleChaffinch|Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)|Crab an apple!|![](/en-US/2024/01/202401060800CrabappleChaffinch.jpg)|
