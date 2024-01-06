@@ -7,3 +7,4 @@
 202401031830|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|A mist-ical marvel|![](/en-IN/2024/01/202401031830GoldenGateLight.jpg)|
 202401041830|HarbinFestival|International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-IN/2024/01/202401041830HarbinFestival.jpg)|
 202401051830|CrabappleChaffinch|Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)|Crab an apple!|![](/en-IN/2024/01/202401051830CrabappleChaffinch.jpg)|
+202401061830|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Nature's balancing act|![](/en-IN/2024/01/202401061830DevilsMarbles.jpg)|
