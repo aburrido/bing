@@ -8,3 +8,4 @@
 202401040500|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|A mist-ical marvel|![](/en-CA/2024/01/202401040500GoldenGateLight.jpg)|
 202401050500|HarbinFestival|International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-CA/2024/01/202401050500HarbinFestival.jpg)|
 202401060500|VermilionLakesCA|Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)|The sky isn't always blue|![](/en-CA/2024/01/202401060500VermilionLakesCA.jpg)|
+202401070500|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Nature's balancing act|![](/en-CA/2024/01/202401070500DevilsMarbles.jpg)|

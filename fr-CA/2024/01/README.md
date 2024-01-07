@@ -8,3 +8,4 @@
 202401040500|GoldenGateLight|Pont du Golden Gate, San Francisco, Californie, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Là où les rêves deviennent réalité!|![](/fr-CA/2024/01/202401040500GoldenGateLight.jpg)|
 202401050500|HarbinFestival|Festival international de la glace et de la neige, Harbin, Chine (© WANG ZHAO/AFP/Getty Images)|Féerie glacée dans l'Empire du Milieu|![](/fr-CA/2024/01/202401050500HarbinFestival.jpg)|
 202401060500|VermilionLakesCA|Lacs Vermilion, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)|Un paysage venu d’ailleurs|![](/fr-CA/2024/01/202401060500VermilionLakesCA.jpg)|
+202401070500|DevilsMarbles|Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|La nature en équilibre|![](/fr-CA/2024/01/202401070500DevilsMarbles.jpg)|
