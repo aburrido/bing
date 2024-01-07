@@ -8,3 +8,4 @@
 202401040800|GoldenGateLight|Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2024/01/202401040800GoldenGateLight.jpg)|
 202401050800|AlpsReflecting|Bavarian Alps, Germany (© JFL Photography/Adobe Stock)|Info|![](/en-AU/2024/01/202401050800AlpsReflecting.jpg)|
 202401060800|CrabappleChaffinch|Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)|Info|![](/en-AU/2024/01/202401060800CrabappleChaffinch.jpg)|
+202401070800|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2024/01/202401070800DevilsMarbles.jpg)|
