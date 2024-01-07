@@ -8,3 +8,4 @@
 202401041830|HarbinFestival|International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-IN/2024/01/202401041830HarbinFestival.jpg)|
 202401051830|CrabappleChaffinch|Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)|Crab an apple!|![](/en-IN/2024/01/202401051830CrabappleChaffinch.jpg)|
 202401061830|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Nature's balancing act|![](/en-IN/2024/01/202401061830DevilsMarbles.jpg)|
+202401071830|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Swish Swiss Swish|![](/en-IN/2024/01/202401071830BerninaPass.jpg)|
