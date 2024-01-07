@@ -7,3 +7,4 @@
 202401040000|GoldenGateLight|Golden Gate Bridge, San Francisco, California, USA (© Jim Patterson/Tandem Stills + Motion)|A mist-ical marvel|![](/en-GB/2024/01/202401040000GoldenGateLight.jpg)|
 202401050000|HarbinFestival|International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)|Chisels and chills|![](/en-GB/2024/01/202401050000HarbinFestival.jpg)|
 202401060000|BlueAmsterdam|Oud-West neighbourhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)|Oud-West side story|![](/en-GB/2024/01/202401060000BlueAmsterdam.jpg)|
+202401070000|GreatStapleSnowUK|Great Staple Tor, Dartmoor National Park (© MattStansfield/E+/Getty Images)|Nature's balancing act|![](/en-GB/2024/01/202401070000GreatStapleSnowUK.jpg)|
