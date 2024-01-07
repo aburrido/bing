@@ -8,3 +8,4 @@
 202401041500|HarbinFestival|ハルビン氷祭り, 中国 (© WANG ZHAO/AFP/Getty Images)|ライトアップされた氷の彫刻|![](/ja-JP/2024/01/202401041500HarbinFestival.jpg)|
 202401051500|CrabappleChaffinch|クラブアップルの木とズアオアトリ (© Mark Hamblin/2020VISION/Minden Pictures)|冬の赤い宝石|![](/ja-JP/2024/01/202401051500CrabappleChaffinch.jpg)|
 202401061500|DevilsMarbles|デビルズマーブルズ保護区, オーストラリア (© Yva Momatiuk and John Eastcott/Minden Pictures)|巨大な丸い岩|![](/ja-JP/2024/01/202401061500DevilsMarbles.jpg)|
+202401071500|BerninaPass|ベルニナ峠, スイス (© Francesco Bergamaschi/Getty Images)|雪に覆われたアルプスの峠|![](/ja-JP/2024/01/202401071500BerninaPass.jpg)|
