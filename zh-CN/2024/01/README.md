@@ -9,3 +9,4 @@
 202401051600|CrabappleChaffinch|冬天，雄性苍头燕雀栖息在海棠果树上 (© Mark Hamblin/2020VISION/Minden Pictures)|薅一个苹果！|![](/zh-CN/2024/01/202401051600CrabappleChaffinch.jpg)|
 202401061600|DevilsMarbles|魔鬼大理石保护区，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)|大自然的平衡术|![](/zh-CN/2024/01/202401061600DevilsMarbles.jpg)|
 202401071600|BerninaPass|贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)|瑞士的雪花漱漱落下|![](/zh-CN/2024/01/202401071600BerninaPass.jpg)|
+202401081600|BalloonDay|格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)|乘着热气球向上飞|![](/zh-CN/2024/01/202401081600BalloonDay.jpg)|
