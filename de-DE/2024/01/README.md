@@ -9,3 +9,4 @@
 202401052300|GoldenGateLight|Golden Gate Bridge, San Francisco, Kalifornien, USA (© Jim Patterson/Tandem Stills + Motion)|Auf Wolke sieben schweben|![](/de-DE/2024/01/202401052300GoldenGateLight.jpg)|
 202401062300|DevilsMarbles|Karlu Karlu, heilige Stätte der Aborigines, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)|Natürliches Gleichgewicht|![](/de-DE/2024/01/202401062300DevilsMarbles.jpg)|
 202401072300|BerninaPass|Skifahrer am Berninapass, Graubünden, Schweiz (© Francesco Bergamaschi/Getty Images)|Eine Piste ganz für sich allein?|![](/de-DE/2024/01/202401072300BerninaPass.jpg)|
+202401082300|BalloonDay|Heißluftballons über dem Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)|Zählen Sie auch 99 Heißluftballons?|![](/de-DE/2024/01/202401082300BalloonDay.jpg)|

@@ -9,3 +9,4 @@
 202401052300|GuadeloupeCarnival|Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)|Que la fête commence !|![](/fr-FR/2024/01/202401052300GuadeloupeCarnival.jpg)|
 202401062300|DevilsMarbles|Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|La nature en équilibre|![](/fr-FR/2024/01/202401062300DevilsMarbles.jpg)|
 202401072300|BerninaPass|Skieur au col de la Bernina, Grisons, Suisse (© Francesco Bergamaschi/Getty Images)|Les joies du ski !|![](/fr-FR/2024/01/202401072300BerninaPass.jpg)|
+202401082300|BalloonDay|Montgolfières au-dessus du Rio Grande, Albuquerque, Nouveau Mexique, États-Unis (© Jennifer MacCornack/Shutterstock)|Un paysage idyllique !|![](/fr-FR/2024/01/202401082300BalloonDay.jpg)|
