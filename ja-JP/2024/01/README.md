@@ -10,3 +10,4 @@
 202401061500|DevilsMarbles|デビルズマーブルズ保護区, オーストラリア (© Yva Momatiuk and John Eastcott/Minden Pictures)|巨大な丸い岩|![](/ja-JP/2024/01/202401061500DevilsMarbles.jpg)|
 202401071500|BerninaPass|ベルニナ峠, スイス (© Francesco Bergamaschi/Getty Images)|雪に覆われたアルプスの峠|![](/ja-JP/2024/01/202401071500BerninaPass.jpg)|
 202401081500|BalloonDay|リオ・グランデ川上空に舞い上がる気球, 米国 コロラド州 (© Jennifer MacCornack/Shutterstock)|今日は米国の「気球上昇記念日」|![](/ja-JP/2024/01/202401081500BalloonDay.jpg)|
+202401091500|MilopotamosStairs|ミロポタモスの海岸にある階段, ギリシャ (© Orestis Zoumpos/Amazing Aerial Agency)|今日は米国の「階段の日」|![](/ja-JP/2024/01/202401091500MilopotamosStairs.jpg)|
