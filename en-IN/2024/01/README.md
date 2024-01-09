@@ -10,3 +10,4 @@
 202401061830|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Nature's balancing act|![](/en-IN/2024/01/202401061830DevilsMarbles.jpg)|
 202401071830|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Swish Swiss Swish|![](/en-IN/2024/01/202401071830BerninaPass.jpg)|
 202401081830|GayathriReservoir|Gayathri Reservoir, near Chitradurga, Karnataka, India. (© Amith Nag Photography/Getty images)|Water, water everywhere!|![](/en-IN/2024/01/202401081830GayathriReservoir.jpg)|
+202401091830|MilopotamosStairs|Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)|Step up to the challenge!|![](/en-IN/2024/01/202401091830MilopotamosStairs.jpg)|
