@@ -9,3 +9,4 @@
 202401060000|BlueAmsterdam|Oud-West neighbourhood, Amsterdam, Netherlands (© George Pachantouris/Getty Images)|Oud-West side story|![](/en-GB/2024/01/202401060000BlueAmsterdam.jpg)|
 202401070000|GreatStapleSnowUK|Great Staple Tor, Dartmoor National Park (© MattStansfield/E+/Getty Images)|Nature's balancing act|![](/en-GB/2024/01/202401070000GreatStapleSnowUK.jpg)|
 202401080000|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Swish Swiss Swish|![](/en-GB/2024/01/202401080000BerninaPass.jpg)|
+202401090000|BalloonDay|Hot air balloons over the Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)|Coming in hot|![](/en-GB/2024/01/202401090000BalloonDay.jpg)|
