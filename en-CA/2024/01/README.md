@@ -10,3 +10,4 @@
 202401060500|VermilionLakesCA|Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)|The sky isn't always blue|![](/en-CA/2024/01/202401060500VermilionLakesCA.jpg)|
 202401070500|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Nature's balancing act|![](/en-CA/2024/01/202401070500DevilsMarbles.jpg)|
 202401080500|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Swish Swiss Swish|![](/en-CA/2024/01/202401080500BerninaPass.jpg)|
+202401090500|BalloonDay|Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)|Coming in hot|![](/en-CA/2024/01/202401090500BalloonDay.jpg)|
