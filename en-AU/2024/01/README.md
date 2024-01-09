@@ -10,3 +10,4 @@
 202401060800|CrabappleChaffinch|Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)|Info|![](/en-AU/2024/01/202401060800CrabappleChaffinch.jpg)|
 202401070800|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2024/01/202401070800DevilsMarbles.jpg)|
 202401080800|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Info|![](/en-AU/2024/01/202401080800BerninaPass.jpg)|
+202401090800|BalloonDay|Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)|Info|![](/en-AU/2024/01/202401090800BalloonDay.jpg)|
