@@ -11,3 +11,4 @@
 202401070800|DevilsMarbles|Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Nature's balancing act|![](/en-US/2024/01/202401070800DevilsMarbles.jpg)|
 202401080800|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Alpine twists and turns|![](/en-US/2024/01/202401080800BerninaPass.jpg)|
 202401090800|BalloonDay|Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)|Coming in hot|![](/en-US/2024/01/202401090800BalloonDay.jpg)|
+202401100800|MilopotamosStairs|Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)|Step up to the challenge!|![](/en-US/2024/01/202401100800MilopotamosStairs.jpg)|
