@@ -11,3 +11,4 @@
 202401072300|BerninaPass|Skifahrer am Berninapass, Graubünden, Schweiz (© Francesco Bergamaschi/Getty Images)|Eine Piste ganz für sich allein?|![](/de-DE/2024/01/202401072300BerninaPass.jpg)|
 202401082300|BalloonDay|Heißluftballons über dem Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)|Zählen Sie auch 99 Heißluftballons?|![](/de-DE/2024/01/202401082300BalloonDay.jpg)|
 202401092300|LynxSnow|Eurasischer Luchs im Schnee (© Jan Stria/Shutterstock)|Wie der Luchs wohl schnurrt?|![](/de-DE/2024/01/202401092300LynxSnow.jpg)|
+202401102300|OrnamentalAppleTree|Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)|Ein Apfel heute, ein Apfel Morgen, und Sie sind frei von allen Sorgen!|![](/de-DE/2024/01/202401102300OrnamentalAppleTree.jpg)|
