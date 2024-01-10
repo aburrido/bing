@@ -11,3 +11,4 @@
 202401070500|DevilsMarbles|Karlu Karlu, Réserve de conservation des billes du diable, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|La nature en équilibre|![](/fr-CA/2024/01/202401070500DevilsMarbles.jpg)|
 202401080500|BerninaPass|Skieur au col de la Bernina, Grisons, Suisse (© Francesco Bergamaschi/Getty Images)|Les joies du ski!|![](/fr-CA/2024/01/202401080500BerninaPass.jpg)|
 202401090500|BalloonDay|Montgolfières au-dessus du Rio Grande, Albuquerque, Nouveau Mexique, États-Unis (© Jennifer MacCornack/Shutterstock)|Un paysage idyllique!|![](/fr-CA/2024/01/202401090500BalloonDay.jpg)|
+202401100500|MilopotamosStairs|Sentier sur le rivage  Mylopotamos, Thessalie, Grèce (© Orestis Zoumpos/Amazing Aerial Agency)|Une petite promenade?|![](/fr-CA/2024/01/202401100500MilopotamosStairs.jpg)|
