@@ -11,3 +11,4 @@
 202401071600|BerninaPass|贝尔尼纳山口的滑雪场，格劳宾登州，瑞士 (© Francesco Bergamaschi/Getty Images)|瑞士的雪花漱漱落下|![](/zh-CN/2024/01/202401071600BerninaPass.jpg)|
 202401081600|BalloonDay|格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)|乘着热气球向上飞|![](/zh-CN/2024/01/202401081600BalloonDay.jpg)|
 202401091600|MilopotamosStairs|米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency)|迎接挑战！|![](/zh-CN/2024/01/202401091600MilopotamosStairs.jpg)|
+202401101600|LynxSnow|雪中的欧亚猞猁 (© Jan Stria/Shutterstock)|长胡须的“流浪汉”|![](/zh-CN/2024/01/202401101600LynxSnow.jpg)|
