@@ -12,3 +12,4 @@
 202401081830|GayathriReservoir|Gayathri Reservoir, near Chitradurga, Karnataka, India. (© Amith Nag Photography/Getty images)|Water, water everywhere!|![](/en-IN/2024/01/202401081830GayathriReservoir.jpg)|
 202401091830|MilopotamosStairs|Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)|Step up to the challenge!|![](/en-IN/2024/01/202401091830MilopotamosStairs.jpg)|
 202401101830|LynxSnow|Eurasian lynx in the snow (© Jan Stria/Shutterstock)|A whiskered wanderer|![](/en-IN/2024/01/202401101830LynxSnow.jpg)|
+202401111830|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Take this peak for granite|![](/en-IN/2024/01/202401111830BukhansanSeoul.jpg)|
