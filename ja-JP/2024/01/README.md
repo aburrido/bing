@@ -12,3 +12,4 @@
 202401081500|BalloonDay|リオ・グランデ川上空に舞い上がる気球, 米国 コロラド州 (© Jennifer MacCornack/Shutterstock)|今日は米国の「気球上昇記念日」|![](/ja-JP/2024/01/202401081500BalloonDay.jpg)|
 202401091500|MilopotamosStairs|ミロポタモスの海岸にある階段, ギリシャ (© Orestis Zoumpos/Amazing Aerial Agency)|今日は米国の「階段の日」|![](/ja-JP/2024/01/202401091500MilopotamosStairs.jpg)|
 202401101500|LynxSnow|オオヤマネコ (© Jan Stria/Shutterstock)|美しい毛皮を持つ孤高の動物|![](/ja-JP/2024/01/202401101500LynxSnow.jpg)|
+202401111500|BukhansanSeoul|北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)|そそり立つ岩峰|![](/ja-JP/2024/01/202401111500BukhansanSeoul.jpg)|
