@@ -11,3 +11,4 @@
 202401080000|BerninaPass|Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)|Swish Swiss Swish|![](/en-GB/2024/01/202401080000BerninaPass.jpg)|
 202401090000|BalloonDay|Hot air balloons over the Rio Grande, Albuquerque, New Mexico, USA (© Jennifer MacCornack/Shutterstock)|Coming in hot|![](/en-GB/2024/01/202401090000BalloonDay.jpg)|
 202401100000|MilopotamosStairs|Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)|Step up to the challenge!|![](/en-GB/2024/01/202401100000MilopotamosStairs.jpg)|
+202401110000|LynxSnow|Eurasian lynx in the snow (© Jan Stria/Shutterstock)|A whiskered wanderer|![](/en-GB/2024/01/202401110000LynxSnow.jpg)|
