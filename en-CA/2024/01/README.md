@@ -13,3 +13,4 @@
 202401090500|BalloonDay|Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)|Coming in hot|![](/en-CA/2024/01/202401090500BalloonDay.jpg)|
 202401100500|MilopotamosStairs|Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)|Step up to the challenge!|![](/en-CA/2024/01/202401100500MilopotamosStairs.jpg)|
 202401110500|LynxSnow|Eurasian lynx in the snow (© Jan Stria/Shutterstock)|A whiskered wanderer|![](/en-CA/2024/01/202401110500LynxSnow.jpg)|
+202401120500|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Take this peak for granite|![](/en-CA/2024/01/202401120500BukhansanSeoul.jpg)|

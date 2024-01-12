@@ -13,3 +13,4 @@
 202401090500|BalloonDay|Montgolfières au-dessus du Rio Grande, Albuquerque, Nouveau Mexique, États-Unis (© Jennifer MacCornack/Shutterstock)|Un paysage idyllique!|![](/fr-CA/2024/01/202401090500BalloonDay.jpg)|
 202401100500|MilopotamosStairs|Sentier sur le rivage  Mylopotamos, Thessalie, Grèce (© Orestis Zoumpos/Amazing Aerial Agency)|Une petite promenade?|![](/fr-CA/2024/01/202401100500MilopotamosStairs.jpg)|
 202401110500|LynxSnow|Lynx boréal dans la neige (© Jan Stria/Shutterstock)|Quelle est cette créature des neiges?|![](/fr-CA/2024/01/202401110500LynxSnow.jpg)|
+202401120500|BukhansanSeoul|Parc national de Bukhansan, Corée du Sud (© TRAVEL TAKE PHOTOS/Shutterstock)|À la conquête des sommets!|![](/fr-CA/2024/01/202401120500BukhansanSeoul.jpg)|
