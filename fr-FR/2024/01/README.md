@@ -13,3 +13,4 @@
 202401092300|MilopotamosStairs|Sentier sur le rivage de Mylopotamos, Thessalie, Grèce (© Orestis Zoumpos/Amazing Aerial Agency)|Une petite promenade ?|![](/fr-FR/2024/01/202401092300MilopotamosStairs.jpg)|
 202401102300|LynxSnow|Lynx boréal dans la neige (© Jan Stria/Shutterstock)|Le super-prédateur des Neiges !|![](/fr-FR/2024/01/202401102300LynxSnow.jpg)|
 202401112300|BukhansanSeoul|Parc national de Bukhansan, Corée du Sud (© TRAVEL TAKE PHOTOS/Shutterstock)|À la conquête des sommets !|![](/fr-FR/2024/01/202401112300BukhansanSeoul.jpg)|
+202401122300|HanaHighway|Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)|Savourez l'instant et profitez de la vue !|![](/fr-FR/2024/01/202401122300HanaHighway.jpg)|
