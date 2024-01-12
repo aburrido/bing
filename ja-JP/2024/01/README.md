@@ -13,3 +13,4 @@
 202401091500|MilopotamosStairs|ミロポタモスの海岸にある階段, ギリシャ (© Orestis Zoumpos/Amazing Aerial Agency)|今日は米国の「階段の日」|![](/ja-JP/2024/01/202401091500MilopotamosStairs.jpg)|
 202401101500|LynxSnow|オオヤマネコ (© Jan Stria/Shutterstock)|美しい毛皮を持つ孤高の動物|![](/ja-JP/2024/01/202401101500LynxSnow.jpg)|
 202401111500|BukhansanSeoul|北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)|そそり立つ岩峰|![](/ja-JP/2024/01/202401111500BukhansanSeoul.jpg)|
+202401121500|Daruma2024|勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)|今日から大学入学共通テスト|![](/ja-JP/2024/01/202401121500Daruma2024.jpg)|
