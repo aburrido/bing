@@ -13,3 +13,4 @@
 202401091830|MilopotamosStairs|Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)|Step up to the challenge!|![](/en-IN/2024/01/202401091830MilopotamosStairs.jpg)|
 202401101830|LynxSnow|Eurasian lynx in the snow (© Jan Stria/Shutterstock)|A whiskered wanderer|![](/en-IN/2024/01/202401101830LynxSnow.jpg)|
 202401111830|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Take this peak for granite|![](/en-IN/2024/01/202401111830BukhansanSeoul.jpg)|
+202401121830|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Slow down, enjoy the journey!|![](/en-IN/2024/01/202401121830HanaHighway.jpg)|
