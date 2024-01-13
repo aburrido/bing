@@ -14,3 +14,4 @@
 202401101500|LynxSnow|オオヤマネコ (© Jan Stria/Shutterstock)|美しい毛皮を持つ孤高の動物|![](/ja-JP/2024/01/202401101500LynxSnow.jpg)|
 202401111500|BukhansanSeoul|北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)|そそり立つ岩峰|![](/ja-JP/2024/01/202401111500BukhansanSeoul.jpg)|
 202401121500|Daruma2024|勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)|今日から大学入学共通テスト|![](/ja-JP/2024/01/202401121500Daruma2024.jpg)|
+202401131500|HokkaidoSwans|屈斜路湖, 北海道 (© Darrell Gulin/DanitaDelimont.com)|優雅なオオハクチョウたち|![](/ja-JP/2024/01/202401131500HokkaidoSwans.jpg)|
