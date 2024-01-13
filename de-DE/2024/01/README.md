@@ -14,3 +14,4 @@
 202401102300|OrnamentalAppleTree|Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)|Ein Apfel heute, ein Apfel Morgen, und Sie sind frei von allen Sorgen!|![](/de-DE/2024/01/202401102300OrnamentalAppleTree.jpg)|
 202401112300|BukhansanSeoul|Bukhansan-Nationalpark, Südkorea (© TRAVEL TAKE PHOTOS/Shutterstock)|Gipfel der Schönheit|![](/de-DE/2024/01/202401112300BukhansanSeoul.jpg)|
 202401122300|HanaHighway|Road to Hāna, Maui, Hawaii, USA (© Matteo Colombo/Getty Images)|Langsam fahren und die Sicht genießen|![](/de-DE/2024/01/202401122300HanaHighway.jpg)|
+202401132300|HokkaidoSwans|Singschwäne im Kussharo-See, Hokkaido, Japan (© Darrell Gulin/DanitaDelimont.com)|Eine gefiederte Sinfonie in Weiß|![](/de-DE/2024/01/202401132300HokkaidoSwans.jpg)|
