@@ -14,3 +14,4 @@
 202401101830|LynxSnow|Eurasian lynx in the snow (© Jan Stria/Shutterstock)|A whiskered wanderer|![](/en-IN/2024/01/202401101830LynxSnow.jpg)|
 202401111830|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Take this peak for granite|![](/en-IN/2024/01/202401111830BukhansanSeoul.jpg)|
 202401121830|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Slow down, enjoy the journey!|![](/en-IN/2024/01/202401121830HanaHighway.jpg)|
+202401131830|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-IN/2024/01/202401131830HokkaidoSwans.jpg)|
