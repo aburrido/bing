@@ -15,3 +15,4 @@
 202401111600|BukhansanSeoul|北汉山国立公园，韩国 (© TRAVEL TAKE PHOTOS/Shutterstock)|北汉山的花岗岩山峰|![](/zh-CN/2024/01/202401111600BukhansanSeoul.jpg)|
 202401121600|HanaHighway|哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)|放慢脚步，享受旅途！|![](/zh-CN/2024/01/202401121600HanaHighway.jpg)|
 202401131600|HokkaidoSwans|屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)|白色羽毛交响曲|![](/zh-CN/2024/01/202401131600HokkaidoSwans.jpg)|
+202401141600|IceChapel|瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)|在地球上还是在外星？|![](/zh-CN/2024/01/202401141600IceChapel.jpg)|
