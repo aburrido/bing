@@ -15,3 +15,4 @@
 202401112300|BukhansanSeoul|Parc national de Bukhansan, Corée du Sud (© TRAVEL TAKE PHOTOS/Shutterstock)|À la conquête des sommets !|![](/fr-FR/2024/01/202401112300BukhansanSeoul.jpg)|
 202401122300|HanaHighway|Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)|Savourez l'instant et profitez de la vue !|![](/fr-FR/2024/01/202401122300HanaHighway.jpg)|
 202401132300|HokkaidoSwans|Cygnes chanteurs sur le lac Kussharo, Japon (© Darrell Gulin/DanitaDelimont.com)|Une symphonie de plumes blanches|![](/fr-FR/2024/01/202401132300HokkaidoSwans.jpg)|
+202401142300|SnowHorses|Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)|Des chevaux et des hommes|![](/fr-FR/2024/01/202401142300SnowHorses.jpg)|
