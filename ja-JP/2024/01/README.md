@@ -15,3 +15,4 @@
 202401111500|BukhansanSeoul|北漢山国立公園, 韓国 (© TRAVEL TAKE PHOTOS/Shutterstock)|そそり立つ岩峰|![](/ja-JP/2024/01/202401111500BukhansanSeoul.jpg)|
 202401121500|Daruma2024|勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)|今日から大学入学共通テスト|![](/ja-JP/2024/01/202401121500Daruma2024.jpg)|
 202401131500|HokkaidoSwans|屈斜路湖, 北海道 (© Darrell Gulin/DanitaDelimont.com)|優雅なオオハクチョウたち|![](/ja-JP/2024/01/202401131500HokkaidoSwans.jpg)|
+202401141500|HanaHighway|マウイ島のハナハイウェイ, 米国 ハワイ州 (© Matteo Colombo/Getty Images)|海岸沿いの絶景ドライブコース|![](/ja-JP/2024/01/202401141500HanaHighway.jpg)|
