@@ -16,3 +16,4 @@
 202401120800|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Beautiful Bukhansan|![](/en-US/2024/01/202401120800BukhansanSeoul.jpg)|
 202401130800|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Slow down and enjoy the journey!|![](/en-US/2024/01/202401130800HanaHighway.jpg)|
 202401140800|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-US/2024/01/202401140800HokkaidoSwans.jpg)|
+202401150800|MLKMemorialDC|Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)|A day on, not a day off|![](/en-US/2024/01/202401150800MLKMemorialDC.jpg)|
