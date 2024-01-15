@@ -16,3 +16,4 @@
 202401121500|Daruma2024|勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)|今日から大学入学共通テスト|![](/ja-JP/2024/01/202401121500Daruma2024.jpg)|
 202401131500|HokkaidoSwans|屈斜路湖, 北海道 (© Darrell Gulin/DanitaDelimont.com)|優雅なオオハクチョウたち|![](/ja-JP/2024/01/202401131500HokkaidoSwans.jpg)|
 202401141500|HanaHighway|マウイ島のハナハイウェイ, 米国 ハワイ州 (© Matteo Colombo/Getty Images)|海岸沿いの絶景ドライブコース|![](/ja-JP/2024/01/202401141500HanaHighway.jpg)|
+202401151500|LakeLouise|レイク・ルイーズ, カナダ アルバータ州 (© Mr. Simon Paul/Shutterstock)|湖の冬景色|![](/ja-JP/2024/01/202401151500LakeLouise.jpg)|
