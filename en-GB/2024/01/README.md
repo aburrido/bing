@@ -15,3 +15,4 @@
 202401120000|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Take this peak for granite|![](/en-GB/2024/01/202401120000BukhansanSeoul.jpg)|
 202401130000|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Slow down, enjoy the journey!|![](/en-GB/2024/01/202401130000HanaHighway.jpg)|
 202401140000|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-GB/2024/01/202401140000HokkaidoSwans.jpg)|
+202401150000|ParisBridge|Pont Alexandre III, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-GB/2024/01/202401150000ParisBridge.jpg)|
