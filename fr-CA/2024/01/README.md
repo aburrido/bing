@@ -16,3 +16,4 @@
 202401120500|BukhansanSeoul|Parc national de Bukhansan, Corée du Sud (© TRAVEL TAKE PHOTOS/Shutterstock)|À la conquête des sommets!|![](/fr-CA/2024/01/202401120500BukhansanSeoul.jpg)|
 202401130500|HanaHighway|Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)|Savourez l'instant et profitez de la vue!|![](/fr-CA/2024/01/202401130500HanaHighway.jpg)|
 202401140500|HokkaidoSwans|Cygnes chanteurs sur le lac Kussharo, Japon (© Darrell Gulin/DanitaDelimont.com)|Une symphonie de plumes blanches|![](/fr-CA/2024/01/202401140500HokkaidoSwans.jpg)|
+202401150500|AuroraBritishColumbia|Tempête géomagnétique nocturne, Penticton, Colombie-Britannique, Canada (© DEEPOL by plainpicture/Preserved Light Photography)|À la poursuite des aurores boréales|![](/fr-CA/2024/01/202401150500AuroraBritishColumbia.jpg)|

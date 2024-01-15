@@ -16,3 +16,4 @@
 202401120500|BukhansanSeoul|Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)|Take this peak for granite|![](/en-CA/2024/01/202401120500BukhansanSeoul.jpg)|
 202401130500|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Slow down, enjoy the journey!|![](/en-CA/2024/01/202401130500HanaHighway.jpg)|
 202401140500|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-CA/2024/01/202401140500HokkaidoSwans.jpg)|
+202401150500|AuroraBritishColumbia|Geomagnetic storm at night, Penticton, British Columbia, Canada (© DEEPOL by plainpicture/Preserved Light Photography)|Chasing the Northern Lights|![](/en-CA/2024/01/202401150500AuroraBritishColumbia.jpg)|
