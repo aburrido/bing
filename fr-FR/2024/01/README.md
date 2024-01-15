@@ -16,3 +16,4 @@
 202401122300|HanaHighway|Route d’Hana, Maui, Hawaï, États-Unis (© Matteo Colombo/Getty Images)|Savourez l'instant et profitez de la vue !|![](/fr-FR/2024/01/202401122300HanaHighway.jpg)|
 202401132300|HokkaidoSwans|Cygnes chanteurs sur le lac Kussharo, Japon (© Darrell Gulin/DanitaDelimont.com)|Une symphonie de plumes blanches|![](/fr-FR/2024/01/202401132300HokkaidoSwans.jpg)|
 202401142300|SnowHorses|Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)|Des chevaux et des hommes|![](/fr-FR/2024/01/202401142300SnowHorses.jpg)|
+202401152300|LakeLouise|Lac Louise, parc national de Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Une petite escapade zen au Canada ?|![](/fr-FR/2024/01/202401152300LakeLouise.jpg)|
