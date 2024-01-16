@@ -17,3 +17,4 @@
 202401132300|HokkaidoSwans|Singschwäne im Kussharo-See, Hokkaido, Japan (© Darrell Gulin/DanitaDelimont.com)|Eine gefiederte Sinfonie in Weiß|![](/de-DE/2024/01/202401132300HokkaidoSwans.jpg)|
 202401142300|IceChapel|Eiskapelle am Fuße des Watzmanns, Bayern (© Christian Bäck/eStock Photo)|Irdisch oder außerirdisch?|![](/de-DE/2024/01/202401142300IceChapel.jpg)|
 202401152300|LakeLouise|Lake Louise, Banff-Nationalpark, Alberta, Kanada (© Mr. Simon Paul/Shutterstock)|Traumhaus in unberührter Natur|![](/de-DE/2024/01/202401152300LakeLouise.jpg)|
+202401162300|SleepyWolf|Schlafender Wolf im Nationalpark Bayerischer Wald (© Raimund Linke/Getty Images)|Weckt mich, sobald es wärmer wird|![](/de-DE/2024/01/202401162300SleepyWolf.jpg)|

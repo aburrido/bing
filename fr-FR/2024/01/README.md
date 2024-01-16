@@ -17,3 +17,4 @@
 202401132300|HokkaidoSwans|Cygnes chanteurs sur le lac Kussharo, Japon (© Darrell Gulin/DanitaDelimont.com)|Une symphonie de plumes blanches|![](/fr-FR/2024/01/202401132300HokkaidoSwans.jpg)|
 202401142300|SnowHorses|Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)|Des chevaux et des hommes|![](/fr-FR/2024/01/202401142300SnowHorses.jpg)|
 202401152300|LakeLouise|Lac Louise, parc national de Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Une petite escapade zen au Canada ?|![](/fr-FR/2024/01/202401152300LakeLouise.jpg)|
+202401162300|SleepyWolf|Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)|Promenons-nous dans les bois….|![](/fr-FR/2024/01/202401162300SleepyWolf.jpg)|
