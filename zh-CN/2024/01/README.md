@@ -17,3 +17,4 @@
 202401131600|HokkaidoSwans|屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)|白色羽毛交响曲|![](/zh-CN/2024/01/202401131600HokkaidoSwans.jpg)|
 202401141600|IceChapel|瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)|在地球上还是在外星？|![](/zh-CN/2024/01/202401141600IceChapel.jpg)|
 202401151600|LakeLouise|路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock)|加拿大式的小憩和放松|![](/zh-CN/2024/01/202401151600LakeLouise.jpg)|
+202401161600|SleepyWolf|巴伐利亚森林国家公园里睡觉的狼，德国 (© Raimund Linke/Getty Images)|天气暖和了再叫醒我|![](/zh-CN/2024/01/202401161600SleepyWolf.jpg)|
