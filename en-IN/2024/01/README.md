@@ -17,3 +17,4 @@
 202401131830|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-IN/2024/01/202401131830HokkaidoSwans.jpg)|
 202401141830|MakarSankrantiKites|Kite flying in Ahmedabad during the last hour of Uttarayan (© Saumil Shah - flickr.com/saumil/Getty images)|Up for a kite-flying contest?|![](/en-IN/2024/01/202401141830MakarSankrantiKites.jpg)|
 202401151830|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|A little paradise for relaxing|![](/en-IN/2024/01/202401151830LakeLouise.jpg)|
+202401161830|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Wake me when it warms up|![](/en-IN/2024/01/202401161830SleepyWolf.jpg)|
