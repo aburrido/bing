@@ -17,3 +17,4 @@
 202401130800|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Info|![](/en-AU/2024/01/202401130800HanaHighway.jpg)|
 202401140800|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|Info|![](/en-AU/2024/01/202401140800HokkaidoSwans.jpg)|
 202401150800|IceChapel|The Eiskapelle (Ice Chapel) at the foot of Watzmann mountain, Bavaria, Germany (© Christian Bäck/eStock Photo)|Info|![](/en-AU/2024/01/202401150800IceChapel.jpg)|
+202401160800|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Info|![](/en-AU/2024/01/202401160800LakeLouise.jpg)|
