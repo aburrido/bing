@@ -16,3 +16,4 @@
 202401130000|HanaHighway|Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)|Slow down, enjoy the journey!|![](/en-GB/2024/01/202401130000HanaHighway.jpg)|
 202401140000|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-GB/2024/01/202401140000HokkaidoSwans.jpg)|
 202401150000|ParisBridge|Pont Alexandre III, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-GB/2024/01/202401150000ParisBridge.jpg)|
+202401160000|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|A little Canadian rest and relaxation|![](/en-GB/2024/01/202401160000LakeLouise.jpg)|
