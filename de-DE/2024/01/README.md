@@ -18,3 +18,4 @@
 202401142300|IceChapel|Eiskapelle am Fuße des Watzmanns, Bayern (© Christian Bäck/eStock Photo)|Irdisch oder außerirdisch?|![](/de-DE/2024/01/202401142300IceChapel.jpg)|
 202401152300|LakeLouise|Lake Louise, Banff-Nationalpark, Alberta, Kanada (© Mr. Simon Paul/Shutterstock)|Traumhaus in unberührter Natur|![](/de-DE/2024/01/202401152300LakeLouise.jpg)|
 202401162300|SleepyWolf|Schlafender Wolf im Nationalpark Bayerischer Wald (© Raimund Linke/Getty Images)|Weckt mich, sobald es wärmer wird|![](/de-DE/2024/01/202401162300SleepyWolf.jpg)|
+202401172300|ParisBridge|Brücke Alexandre III. in der Dämmerung, Paris, Frankreich (© Sizun Eye/Getty Images)|Unter dem Schutz von Pegasus|![](/de-DE/2024/01/202401172300ParisBridge.jpg)|

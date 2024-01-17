@@ -18,3 +18,4 @@
 202401142300|SnowHorses|Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)|Des chevaux et des hommes|![](/fr-FR/2024/01/202401142300SnowHorses.jpg)|
 202401152300|LakeLouise|Lac Louise, parc national de Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Une petite escapade zen au Canada ?|![](/fr-FR/2024/01/202401152300LakeLouise.jpg)|
 202401162300|SleepyWolf|Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)|Promenons-nous dans les bois….|![](/fr-FR/2024/01/202401162300SleepyWolf.jpg)|
+202401172300|ParisBridge|Pont Alexandre III au crépuscule, Paris, France  (© Sizun Eye/Getty Images)|Sous le regard de Pégase|![](/fr-FR/2024/01/202401172300ParisBridge.jpg)|
