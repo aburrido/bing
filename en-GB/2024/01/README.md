@@ -17,3 +17,4 @@
 202401140000|HokkaidoSwans|Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)|A feathered symphony in white|![](/en-GB/2024/01/202401140000HokkaidoSwans.jpg)|
 202401150000|ParisBridge|Pont Alexandre III, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-GB/2024/01/202401150000ParisBridge.jpg)|
 202401160000|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|A little Canadian rest and relaxation|![](/en-GB/2024/01/202401160000LakeLouise.jpg)|
+202401170000|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Wake me when it warms up|![](/en-GB/2024/01/202401170000SleepyWolf.jpg)|
