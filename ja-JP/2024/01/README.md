@@ -19,3 +19,4 @@
 202401151500|LakeLouise|レイク・ルイーズ, カナダ アルバータ州 (© Mr. Simon Paul/Shutterstock)|湖の冬景色|![](/ja-JP/2024/01/202401151500LakeLouise.jpg)|
 202401161500|SleepyWolf|バイエルンの森国立公園, ドイツ (© Raimund Linke/Getty Images)|ぐっすり寝ているオオカミ|![](/ja-JP/2024/01/202401161500SleepyWolf.jpg)|
 202401171500|ParisBridge|アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)|華麗な装飾が施された橋|![](/ja-JP/2024/01/202401171500ParisBridge.jpg)|
+202401181500|PlitviceWinter|プリトヴィツェ湖群国立公園, クロアチア (© Massimo_S8/Getty Images)|氷結した湖と滝|![](/ja-JP/2024/01/202401181500PlitviceWinter.jpg)|
