@@ -19,3 +19,4 @@
 202401151600|LakeLouise|路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock)|加拿大式的小憩和放松|![](/zh-CN/2024/01/202401151600LakeLouise.jpg)|
 202401161600|SleepyWolf|巴伐利亚森林国家公园里睡觉的狼，德国 (© Raimund Linke/Getty Images)|天气暖和了再叫醒我|![](/zh-CN/2024/01/202401161600SleepyWolf.jpg)|
 202401171600|ParisBridge|黄昏时分的亚历山大三世桥，巴黎，法国 (© Sizun Eye/Getty Images)|在飞马珀伽索斯的守望之下|![](/zh-CN/2024/01/202401171600ParisBridge.jpg)|
+202401181600|PlitviceWinter|十六湖国家公园，克罗地亚 (© Massimo_S8/Getty Images)|瀑布变“冰瀑”|![](/zh-CN/2024/01/202401181600PlitviceWinter.jpg)|
