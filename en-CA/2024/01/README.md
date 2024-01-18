@@ -19,3 +19,4 @@
 202401150500|AuroraBritishColumbia|Geomagnetic storm at night, Penticton, British Columbia, Canada (© DEEPOL by plainpicture/Preserved Light Photography)|Chasing the Northern Lights|![](/en-CA/2024/01/202401150500AuroraBritishColumbia.jpg)|
 202401160500|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|A little Albertan rest and relaxation|![](/en-CA/2024/01/202401160500LakeLouise.jpg)|
 202401170500|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Wake me when it warms up|![](/en-CA/2024/01/202401170500SleepyWolf.jpg)|
+202401180500|ParisBridge|Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-CA/2024/01/202401180500ParisBridge.jpg)|

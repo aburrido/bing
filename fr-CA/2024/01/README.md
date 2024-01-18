@@ -19,3 +19,4 @@
 202401150500|AuroraBritishColumbia|Tempête géomagnétique nocturne, Penticton, Colombie-Britannique, Canada (© DEEPOL by plainpicture/Preserved Light Photography)|À la poursuite des aurores boréales|![](/fr-CA/2024/01/202401150500AuroraBritishColumbia.jpg)|
 202401160500|LakeLouise|Lac Louise, parc national de Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Une petite escapade zen?|![](/fr-CA/2024/01/202401160500LakeLouise.jpg)|
 202401170500|SleepyWolf|Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)|Promenons-nous dans les bois….|![](/fr-CA/2024/01/202401170500SleepyWolf.jpg)|
+202401180500|ParisBridge|Pont Alexandre III au crépuscule, Paris, France (© Sizun Eye/Getty Images)|Sous le regard de Pégase|![](/fr-CA/2024/01/202401180500ParisBridge.jpg)|
