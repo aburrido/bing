@@ -19,3 +19,4 @@
 202401152300|LakeLouise|Lac Louise, parc national de Banff, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Une petite escapade zen au Canada ?|![](/fr-FR/2024/01/202401152300LakeLouise.jpg)|
 202401162300|SleepyWolf|Loup endormi dans le parc national de la forêt bavaroise, Allemagne (© Raimund Linke/Getty Images)|Promenons-nous dans les bois….|![](/fr-FR/2024/01/202401162300SleepyWolf.jpg)|
 202401172300|ParisBridge|Pont Alexandre III au crépuscule, Paris, France  (© Sizun Eye/Getty Images)|Sous le regard de Pégase|![](/fr-FR/2024/01/202401172300ParisBridge.jpg)|
+202401182300|PlitviceWinter|Parc national des lacs de Plitvice, Croatie (© Massimo_S8/Getty Images)|Un paysage figé dans le temps|![](/fr-FR/2024/01/202401182300PlitviceWinter.jpg)|
