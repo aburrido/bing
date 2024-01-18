@@ -19,3 +19,4 @@
 202401150800|MLKMemorialDC|Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)|A day on, not a day off|![](/en-US/2024/01/202401150800MLKMemorialDC.jpg)|
 202401160800|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|A little Canadian rest and relaxation|![](/en-US/2024/01/202401160800LakeLouise.jpg)|
 202401170800|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Wake me when it warms up|![](/en-US/2024/01/202401170800SleepyWolf.jpg)|
+202401180800|ParisBridge|Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-US/2024/01/202401180800ParisBridge.jpg)|

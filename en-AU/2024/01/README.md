@@ -19,3 +19,4 @@
 202401150800|IceChapel|The Eiskapelle (Ice Chapel) at the foot of Watzmann mountain, Bavaria, Germany (© Christian Bäck/eStock Photo)|Info|![](/en-AU/2024/01/202401150800IceChapel.jpg)|
 202401160800|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|Info|![](/en-AU/2024/01/202401160800LakeLouise.jpg)|
 202401170800|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Info|![](/en-AU/2024/01/202401170800SleepyWolf.jpg)|
+202401180800|ParisBridge|Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)|Info|![](/en-AU/2024/01/202401180800ParisBridge.jpg)|
