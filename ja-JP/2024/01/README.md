@@ -20,3 +20,4 @@
 202401161500|SleepyWolf|バイエルンの森国立公園, ドイツ (© Raimund Linke/Getty Images)|ぐっすり寝ているオオカミ|![](/ja-JP/2024/01/202401161500SleepyWolf.jpg)|
 202401171500|ParisBridge|アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)|華麗な装飾が施された橋|![](/ja-JP/2024/01/202401171500ParisBridge.jpg)|
 202401181500|PlitviceWinter|プリトヴィツェ湖群国立公園, クロアチア (© Massimo_S8/Getty Images)|氷結した湖と滝|![](/ja-JP/2024/01/202401181500PlitviceWinter.jpg)|
+202401191500|Daikan2024|音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)|今日は大寒|![](/ja-JP/2024/01/202401191500Daikan2024.jpg)|
