@@ -19,3 +19,4 @@
 202401160000|LakeLouise|Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)|A little Canadian rest and relaxation|![](/en-GB/2024/01/202401160000LakeLouise.jpg)|
 202401170000|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Wake me when it warms up|![](/en-GB/2024/01/202401170000SleepyWolf.jpg)|
 202401180000|WinnieDaySussex|Ashdown Forest Landscape, East Sussex, UK (© Chris Mole/Alamy Stock Photo)|A place to think, think, think|![](/en-GB/2024/01/202401180000WinnieDaySussex.jpg)|
+202401190000|PlitviceWinter|Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)|Waterfalls turned waterfreeze|![](/en-GB/2024/01/202401190000PlitviceWinter.jpg)|
