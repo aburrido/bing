@@ -21,3 +21,4 @@
 202401172300|ParisBridge|Brücke Alexandre III. in der Dämmerung, Paris, Frankreich (© Sizun Eye/Getty Images)|Unter dem Schutz von Pegasus|![](/de-DE/2024/01/202401172300ParisBridge.jpg)|
 202401182300|PlitviceWinter|Nationalpark Plitvicer Seen, Kroatien (© Massimo_S8/Getty Images)|Eis, Eis, Eis und nochmal Eis|![](/de-DE/2024/01/202401182300PlitviceWinter.jpg)|
 202401192300|MacaroniPenguins|Goldschopfpinguine, Drakestraße, Chile (© Paul Souders/Getty Images)|Ist nicht doch alles Gold was glänzt?|![](/de-DE/2024/01/202401192300MacaroniPenguins.jpg)|
+202401202300|SquirrelNetherlands|Rotes Eurasisches Eichhörnchen, Niederlande (© Ernst Dirksen/Minden Pictures)|Niedlich, nicht wahr?|![](/de-DE/2024/01/202401202300SquirrelNetherlands.jpg)|
