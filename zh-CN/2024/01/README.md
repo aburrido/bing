@@ -21,3 +21,4 @@
 202401171600|ParisBridge|黄昏时分的亚历山大三世桥，巴黎，法国 (© Sizun Eye/Getty Images)|在飞马珀伽索斯的守望之下|![](/zh-CN/2024/01/202401171600ParisBridge.jpg)|
 202401181600|PlitviceWinter|十六湖国家公园，克罗地亚 (© Massimo_S8/Getty Images)|瀑布变“冰瀑”|![](/zh-CN/2024/01/202401181600PlitviceWinter.jpg)|
 202401191600|MacaroniPenguins|马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images)|冰雪极地的马可罗尼企鹅|![](/zh-CN/2024/01/202401191600MacaroniPenguins.jpg)|
+202401201600|SquirrelNetherlands|欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)|树梢上的故事|![](/zh-CN/2024/01/202401201600SquirrelNetherlands.jpg)|
