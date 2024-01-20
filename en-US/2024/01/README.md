@@ -21,3 +21,4 @@
 202401170800|SleepyWolf|Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)|Wake me when it warms up|![](/en-US/2024/01/202401170800SleepyWolf.jpg)|
 202401180800|ParisBridge|Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-US/2024/01/202401180800ParisBridge.jpg)|
 202401190800|PlitviceWinter|Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)|Waterfalls turned waterfreeze|![](/en-US/2024/01/202401190800PlitviceWinter.jpg)|
+202401200800|MacaroniPenguins|Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)|Taking the plunge|![](/en-US/2024/01/202401200800MacaroniPenguins.jpg)|
