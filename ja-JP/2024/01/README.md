@@ -21,3 +21,4 @@
 202401171500|ParisBridge|アレクサンドル 3 世橋, フランス パリ (© Sizun Eye/Getty Images)|華麗な装飾が施された橋|![](/ja-JP/2024/01/202401171500ParisBridge.jpg)|
 202401181500|PlitviceWinter|プリトヴィツェ湖群国立公園, クロアチア (© Massimo_S8/Getty Images)|氷結した湖と滝|![](/ja-JP/2024/01/202401181500PlitviceWinter.jpg)|
 202401191500|Daikan2024|音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)|今日は大寒|![](/ja-JP/2024/01/202401191500Daikan2024.jpg)|
+202401201500|SquirrelNetherlands|木の枝につかまるキタリス, オランダ (© Ernst Dirksen/Minden Pictures)|今日は米国の「リス感謝デー」|![](/ja-JP/2024/01/202401201500SquirrelNetherlands.jpg)|
