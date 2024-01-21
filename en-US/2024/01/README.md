@@ -22,3 +22,4 @@
 202401180800|ParisBridge|Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)|Under the watch of Pegasus|![](/en-US/2024/01/202401180800ParisBridge.jpg)|
 202401190800|PlitviceWinter|Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)|Waterfalls turned waterfreeze|![](/en-US/2024/01/202401190800PlitviceWinter.jpg)|
 202401200800|MacaroniPenguins|Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)|Taking the plunge|![](/en-US/2024/01/202401200800MacaroniPenguins.jpg)|
+202401210800|SquirrelNetherlands|Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)|Tales from the treetops|![](/en-US/2024/01/202401210800SquirrelNetherlands.jpg)|
