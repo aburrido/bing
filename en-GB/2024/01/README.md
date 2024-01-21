@@ -21,3 +21,4 @@
 202401180000|WinnieDaySussex|Ashdown Forest Landscape, East Sussex, UK (© Chris Mole/Alamy Stock Photo)|A place to think, think, think|![](/en-GB/2024/01/202401180000WinnieDaySussex.jpg)|
 202401190000|PlitviceWinter|Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)|Waterfalls turned waterfreeze|![](/en-GB/2024/01/202401190000PlitviceWinter.jpg)|
 202401200000|MacaroniPenguins|Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)|Macaroni and freeze|![](/en-GB/2024/01/202401200000MacaroniPenguins.jpg)|
+202401210000|SquirrelNetherlands|Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)|Tales from the treetops|![](/en-GB/2024/01/202401210000SquirrelNetherlands.jpg)|
