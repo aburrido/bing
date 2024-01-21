@@ -22,3 +22,4 @@
 202401181830|PlitviceWinter|Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)|Waterfalls turned waterfreeze|![](/en-IN/2024/01/202401181830PlitviceWinter.jpg)|
 202401191830|MacaroniPenguins|Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)|Macaroni and freeze|![](/en-IN/2024/01/202401191830MacaroniPenguins.jpg)|
 202401201830|SquirrelNetherlands|Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)|Tales from the treetops|![](/en-IN/2024/01/202401201830SquirrelNetherlands.jpg)|
+202401211830|SantaCruzSunrise|Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)|A magic hour indeed|![](/en-IN/2024/01/202401211830SantaCruzSunrise.jpg)|
