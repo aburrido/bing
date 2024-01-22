@@ -23,3 +23,4 @@
 202401191500|Daikan2024|音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)|今日は大寒|![](/ja-JP/2024/01/202401191500Daikan2024.jpg)|
 202401201500|SquirrelNetherlands|木の枝につかまるキタリス, オランダ (© Ernst Dirksen/Minden Pictures)|今日は米国の「リス感謝デー」|![](/ja-JP/2024/01/202401201500SquirrelNetherlands.jpg)|
 202401211500|SantaCruzSunrise|ウォルトン灯台, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|美しい日の出と灯台|![](/ja-JP/2024/01/202401211500SantaCruzSunrise.jpg)|
+202401221500|MaldivesAtolls|インド洋の環礁, モルディブ (© Amazing Aerial Premium/Shutterstock)|青い海に浮かぶ宝石|![](/ja-JP/2024/01/202401221500MaldivesAtolls.jpg)|
