@@ -23,3 +23,4 @@
 202401192300|MacaroniPenguins|Goldschopfpinguine, Drakestraße, Chile (© Paul Souders/Getty Images)|Ist nicht doch alles Gold was glänzt?|![](/de-DE/2024/01/202401192300MacaroniPenguins.jpg)|
 202401202300|SquirrelNetherlands|Rotes Eurasisches Eichhörnchen, Niederlande (© Ernst Dirksen/Minden Pictures)|Niedlich, nicht wahr?|![](/de-DE/2024/01/202401202300SquirrelNetherlands.jpg)|
 202401212300|RenanusBridge|Beatus-Rhenanus-Brücke über den Rhein, zwischen Straßburg und Kehl, Straßburg, Frankreich (© mauritius images GmbH/Alamy)|Brücke der Einheit?|![](/de-DE/2024/01/202401212300RenanusBridge.jpg)|
+202401222300|MaldivesAtolls|Atolle im Indischen Ozean, Malediven (© Amazing Aerial Premium/Shutterstock)|Die Augen des Indischen Ozeans|![](/de-DE/2024/01/202401222300MaldivesAtolls.jpg)|
