@@ -23,3 +23,4 @@
 202401191600|MacaroniPenguins|马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images)|冰雪极地的马可罗尼企鹅|![](/zh-CN/2024/01/202401191600MacaroniPenguins.jpg)|
 202401201600|SquirrelNetherlands|欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)|树梢上的故事|![](/zh-CN/2024/01/202401201600SquirrelNetherlands.jpg)|
 202401211600|SantaCruzSunrise|冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)|魔幻时刻|![](/zh-CN/2024/01/202401211600SantaCruzSunrise.jpg)|
+202401221600|MaldivesAtolls|印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)|印度洋之眼|![](/zh-CN/2024/01/202401221600MaldivesAtolls.jpg)|
