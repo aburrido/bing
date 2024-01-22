@@ -23,3 +23,4 @@
 202401190500|PlitviceWinter|Parc national des lacs de Plitvice, Croatie (© Massimo_S8/Getty Images)|Un paysage figé dans le temps|![](/fr-CA/2024/01/202401190500PlitviceWinter.jpg)|
 202401200500|MacaroniPenguins|Manchot gorfou doré, passage de Drake, Chili (© Paul Souders/Getty Images)|Allez hop, on plonge!|![](/fr-CA/2024/01/202401200500MacaroniPenguins.jpg)|
 202401210500|SquirrelNetherlands|Écureuil roux, Pays-Bas (© Ernst Dirksen/Minden Pictures)|L’instant mignon!|![](/fr-CA/2024/01/202401210500SquirrelNetherlands.jpg)|
+202401220500|SantaCruzSunrise|Lever du soleil hivernal, phare de Santa Cruz, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|L’heure dorée prisée des photographes|![](/fr-CA/2024/01/202401220500SantaCruzSunrise.jpg)|
