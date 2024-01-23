@@ -24,3 +24,4 @@
 202401202300|SquirrelNetherlands|Écureuil roux, Pays-Bas (© Ernst Dirksen/Minden Pictures)|L’instant mignon !|![](/fr-FR/2024/01/202401202300SquirrelNetherlands.jpg)|
 202401212300|SantaCruzSunrise|Lever du soleil hivernal, phare de Santa Cruz, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|L’heure dorée prisée des photographes|![](/fr-FR/2024/01/202401212300SantaCruzSunrise.jpg)|
 202401222300|MaldivesAtolls|Atolls de l'océan Indien, Maldives (© Amazing Aerial Premium/Shutterstock)|L'œil de l'océan Indien|![](/fr-FR/2024/01/202401222300MaldivesAtolls.jpg)|
+202401232300|IcelandBeach|Plage de Diamant, Islande (© Rachid Dahnoun/Tandem Stills + Motion)|Des diamants flottants !|![](/fr-FR/2024/01/202401232300IcelandBeach.jpg)|
