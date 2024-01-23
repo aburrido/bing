@@ -24,3 +24,4 @@
 202401200800|MacaroniPenguins|Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)|Taking the plunge|![](/en-US/2024/01/202401200800MacaroniPenguins.jpg)|
 202401210800|SquirrelNetherlands|Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)|Tales from the treetops|![](/en-US/2024/01/202401210800SquirrelNetherlands.jpg)|
 202401220800|SantaCruzSunrise|Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)|A beacon from dusk till dawn|![](/en-US/2024/01/202401220800SantaCruzSunrise.jpg)|
+202401230800|MaldivesAtolls|Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)|Eyes of the Indian Ocean|![](/en-US/2024/01/202401230800MaldivesAtolls.jpg)|
