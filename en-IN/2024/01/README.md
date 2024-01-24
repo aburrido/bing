@@ -25,3 +25,4 @@
 202401211830|SantaCruzSunrise|Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)|A magic hour indeed|![](/en-IN/2024/01/202401211830SantaCruzSunrise.jpg)|
 202401221830|MaldivesAtolls|Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)|Eyes of the Indian Ocean|![](/en-IN/2024/01/202401221830MaldivesAtolls.jpg)|
 202401231830|IcelandBeach|Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)|A gem of a place|![](/en-IN/2024/01/202401231830IcelandBeach.jpg)|
+202401241830|AgraFortUP|Agra Fort, Uttar Pradesh (© Roop_Dey/Shutterstock)|Regal fort in focus|![](/en-IN/2024/01/202401241830AgraFortUP.jpg)|
