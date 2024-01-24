@@ -25,3 +25,4 @@
 202401210800|SquirrelNetherlands|Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)|Info|![](/en-AU/2024/01/202401210800SquirrelNetherlands.jpg)|
 202401220800|SantaCruzSunrise|Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2024/01/202401220800SantaCruzSunrise.jpg)|
 202401230800|MaldivesAtolls|Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)|Info|![](/en-AU/2024/01/202401230800MaldivesAtolls.jpg)|
+202401240800|IcelandBeach|Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)|Info|![](/en-AU/2024/01/202401240800IcelandBeach.jpg)|
