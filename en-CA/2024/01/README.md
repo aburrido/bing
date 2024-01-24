@@ -25,3 +25,4 @@
 202401210500|SquirrelNetherlands|Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)|Tales from the treetops|![](/en-CA/2024/01/202401210500SquirrelNetherlands.jpg)|
 202401220500|SantaCruzSunrise|Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)|A magic hour indeed|![](/en-CA/2024/01/202401220500SantaCruzSunrise.jpg)|
 202401230500|MaldivesAtolls|Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)|Eyes of the Indian Ocean|![](/en-CA/2024/01/202401230500MaldivesAtolls.jpg)|
+202401240500|IcelandBeach|Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)|Iced out, literally|![](/en-CA/2024/01/202401240500IcelandBeach.jpg)|
