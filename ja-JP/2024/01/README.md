@@ -25,3 +25,4 @@
 202401211500|SantaCruzSunrise|ウォルトン灯台, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|美しい日の出と灯台|![](/ja-JP/2024/01/202401211500SantaCruzSunrise.jpg)|
 202401221500|MaldivesAtolls|インド洋の環礁, モルディブ (© Amazing Aerial Premium/Shutterstock)|青い海に浮かぶ宝石|![](/ja-JP/2024/01/202401221500MaldivesAtolls.jpg)|
 202401231500|IcelandBeach|ダイヤモンドビーチ, アイスランド (© Rachid Dahnoun/Tandem Stills + Motion)|氷河の塊が散らばる黒い砂浜|![](/ja-JP/2024/01/202401231500IcelandBeach.jpg)|
+202401241500|DwynwensDay|イニス・ランドウィンにある遺跡, イギリス ウェールズ (© Photos by R A Kearton/Getty Images)|今日は聖ドウィンウェンの日|![](/ja-JP/2024/01/202401241500DwynwensDay.jpg)|
