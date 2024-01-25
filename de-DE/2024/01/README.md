@@ -26,3 +26,4 @@
 202401222300|MaldivesAtolls|Atolle im Indischen Ozean, Malediven (© Amazing Aerial Premium/Shutterstock)|Die Augen des Indischen Ozeans|![](/de-DE/2024/01/202401222300MaldivesAtolls.jpg)|
 202401232300|IcelandBeach|Jökulsárlón, Island (© Rachid Dahnoun/Tandem Stills + Motion)|Eisdiamanten|![](/de-DE/2024/01/202401232300IcelandBeach.jpg)|
 202401242300|DwynwensDay|Ruinen der St. Dwynwen's Church, Ynys Llanddwyn, Wales, Vereinigtes Königreich (© Photos by R A Kearton/Getty Images)|Ein Portal zur Vergangenheit|![](/de-DE/2024/01/202401242300DwynwensDay.jpg)|
+202401252300|HawkOwl|Sperbereule (© Remo Savisaar/Alamy Stock Photo)|Das ist keine Nachteule|![](/de-DE/2024/01/202401252300HawkOwl.jpg)|

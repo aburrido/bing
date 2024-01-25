@@ -26,3 +26,4 @@
 202401222300|MaldivesAtolls|Atolls de l'océan Indien, Maldives (© Amazing Aerial Premium/Shutterstock)|L'œil de l'océan Indien|![](/fr-FR/2024/01/202401222300MaldivesAtolls.jpg)|
 202401232300|IcelandBeach|Plage de Diamant, Islande (© Rachid Dahnoun/Tandem Stills + Motion)|Des diamants flottants !|![](/fr-FR/2024/01/202401232300IcelandBeach.jpg)|
 202401242300|DwynwensDay|Ruines de l'église St. Dwynwen, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Photos by R A Kearton/Getty Images)|Un portail vers le passé|![](/fr-FR/2024/01/202401242300DwynwensDay.jpg)|
+202401252300|HawkOwl|La chouette épervière (© Remo Savisaar/Alamy)|Chouette, le jour se lève !|![](/fr-FR/2024/01/202401252300HawkOwl.jpg)|
