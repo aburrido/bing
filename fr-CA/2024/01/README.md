@@ -26,3 +26,4 @@
 202401220500|SantaCruzSunrise|Lever du soleil hivernal, phare de Santa Cruz, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|L’heure dorée prisée des photographes|![](/fr-CA/2024/01/202401220500SantaCruzSunrise.jpg)|
 202401230500|MaldivesAtolls|Atolls de l'océan Indien, Maldives (© Amazing Aerial Premium/Shutterstock)|L'œil de l'océan Indien|![](/fr-CA/2024/01/202401230500MaldivesAtolls.jpg)|
 202401240500|IcelandBeach|Plage de Diamant, Islande (© Rachid Dahnoun/Tandem Stills + Motion)|Des diamants flottants!|![](/fr-CA/2024/01/202401240500IcelandBeach.jpg)|
+202401250500|SnowyOwlQuebec|Un harfang des neiges sur un champ glacé, Québec, Canada (© Marco Pozzi Photographer/Moment/Getty Images)|Prêt pour le décollage?|![](/fr-CA/2024/01/202401250500SnowyOwlQuebec.jpg)|
