@@ -26,3 +26,4 @@
 202401221500|MaldivesAtolls|インド洋の環礁, モルディブ (© Amazing Aerial Premium/Shutterstock)|青い海に浮かぶ宝石|![](/ja-JP/2024/01/202401221500MaldivesAtolls.jpg)|
 202401231500|IcelandBeach|ダイヤモンドビーチ, アイスランド (© Rachid Dahnoun/Tandem Stills + Motion)|氷河の塊が散らばる黒い砂浜|![](/ja-JP/2024/01/202401231500IcelandBeach.jpg)|
 202401241500|DwynwensDay|イニス・ランドウィンにある遺跡, イギリス ウェールズ (© Photos by R A Kearton/Getty Images)|今日は聖ドウィンウェンの日|![](/ja-JP/2024/01/202401241500DwynwensDay.jpg)|
+202401251500|HawkOwl|枝にとまるオナガフクロウ (© Remo Savisaar/Alamy)|珍しい昼行性のフクロウ|![](/ja-JP/2024/01/202401251500HawkOwl.jpg)|
