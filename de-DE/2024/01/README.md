@@ -27,3 +27,4 @@
 202401232300|IcelandBeach|Jökulsárlón, Island (© Rachid Dahnoun/Tandem Stills + Motion)|Eisdiamanten|![](/de-DE/2024/01/202401232300IcelandBeach.jpg)|
 202401242300|DwynwensDay|Ruinen der St. Dwynwen's Church, Ynys Llanddwyn, Wales, Vereinigtes Königreich (© Photos by R A Kearton/Getty Images)|Ein Portal zur Vergangenheit|![](/de-DE/2024/01/202401242300DwynwensDay.jpg)|
 202401252300|HawkOwl|Sperbereule (© Remo Savisaar/Alamy Stock Photo)|Das ist keine Nachteule|![](/de-DE/2024/01/202401252300HawkOwl.jpg)|
+202401262300|WinterCarnival|Eisskulpturen auf dem Saint Paul Winterkarneval, Minnesota, USA (© Joe Mamer Photography/Alamy Stock Photo)|Eine ziemlich coole Skyline|![](/de-DE/2024/01/202401262300WinterCarnival.jpg)|

@@ -27,3 +27,4 @@
 202401232300|IcelandBeach|Plage de Diamant, Islande (© Rachid Dahnoun/Tandem Stills + Motion)|Des diamants flottants !|![](/fr-FR/2024/01/202401232300IcelandBeach.jpg)|
 202401242300|DwynwensDay|Ruines de l'église St. Dwynwen, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Photos by R A Kearton/Getty Images)|Un portail vers le passé|![](/fr-FR/2024/01/202401242300DwynwensDay.jpg)|
 202401252300|HawkOwl|La chouette épervière (© Remo Savisaar/Alamy)|Chouette, le jour se lève !|![](/fr-FR/2024/01/202401252300HawkOwl.jpg)|
+202401262300|WinterCarnival|Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)|Des grattes ciels pas comme les autres|![](/fr-FR/2024/01/202401262300WinterCarnival.jpg)|
