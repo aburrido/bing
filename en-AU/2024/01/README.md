@@ -27,3 +27,4 @@
 202401230800|MaldivesAtolls|Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)|Info|![](/en-AU/2024/01/202401230800MaldivesAtolls.jpg)|
 202401240800|IcelandBeach|Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)|Info|![](/en-AU/2024/01/202401240800IcelandBeach.jpg)|
 202401250800|DwynwensDay|Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales, United Kingdom (© Photos by R A Kearton/Getty Images)|Info|![](/en-AU/2024/01/202401250800DwynwensDay.jpg)|
+202401260800|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Info|![](/en-AU/2024/01/202401260800HawkOwl.jpg)|
