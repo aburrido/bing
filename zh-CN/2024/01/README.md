@@ -27,3 +27,4 @@
 202401231600|IcelandBeach|钻石冰沙滩，冰岛 (© Rachid Dahnoun/Tandem Stills + Motion)|撒了一地的“钻石”|![](/zh-CN/2024/01/202401231600IcelandBeach.jpg)|
 202401241600|DwynwensDay|圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)|通往过去的入口|![](/zh-CN/2024/01/202401241600DwynwensDay.jpg)|
 202401251600|HawkOwl|北鹰鸮 (© Remo Savisaar/Alamy Stock Photo)|不是夜猫子|![](/zh-CN/2024/01/202401251600HawkOwl.jpg)|
+202401261600|ToucanetEmpoleirado|点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)|巴西大自然中的异域之美|![](/zh-CN/2024/01/202401261600ToucanetEmpoleirado.jpg)|
