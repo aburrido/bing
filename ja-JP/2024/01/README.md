@@ -27,3 +27,4 @@
 202401231500|IcelandBeach|ダイヤモンドビーチ, アイスランド (© Rachid Dahnoun/Tandem Stills + Motion)|氷河の塊が散らばる黒い砂浜|![](/ja-JP/2024/01/202401231500IcelandBeach.jpg)|
 202401241500|DwynwensDay|イニス・ランドウィンにある遺跡, イギリス ウェールズ (© Photos by R A Kearton/Getty Images)|今日は聖ドウィンウェンの日|![](/ja-JP/2024/01/202401241500DwynwensDay.jpg)|
 202401251500|HawkOwl|枝にとまるオナガフクロウ (© Remo Savisaar/Alamy)|珍しい昼行性のフクロウ|![](/ja-JP/2024/01/202401251500HawkOwl.jpg)|
+202401261500|WinterCarnival|氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)|セントポール・ウィンターカーニバルが開催中|![](/ja-JP/2024/01/202401261500WinterCarnival.jpg)|
