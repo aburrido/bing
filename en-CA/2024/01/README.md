@@ -27,3 +27,4 @@
 202401230500|MaldivesAtolls|Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)|Eyes of the Indian Ocean|![](/en-CA/2024/01/202401230500MaldivesAtolls.jpg)|
 202401240500|IcelandBeach|Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)|Iced out, literally|![](/en-CA/2024/01/202401240500IcelandBeach.jpg)|
 202401250500|SnowyOwlQuebec|A snowy owl on the icy field, Quebec City, Canada (© Marco Pozzi Photographer/Moment/Getty Images)|Ready for liftoff|![](/en-CA/2024/01/202401250500SnowyOwlQuebec.jpg)|
+202401260500|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-CA/2024/01/202401260500HawkOwl.jpg)|
