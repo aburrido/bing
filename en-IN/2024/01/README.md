@@ -28,3 +28,4 @@
 202401241830|AgraFortUP|Agra Fort, Uttar Pradesh (© Roop_Dey/Shutterstock)|Regal fort in focus|![](/en-IN/2024/01/202401241830AgraFortUP.jpg)|
 202401251830|RepublicDayIN|Illuminated President's Estate of India, New Delhi, India (© PRABHASROY/iStock/Getty Images)|Lights of the capital|![](/en-IN/2024/01/202401251830RepublicDayIN.jpg)|
 202401261830|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-IN/2024/01/202401261830HawkOwl.jpg)|
+202401271830|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-IN/2024/01/202401271830ChannelOutback.jpg)|
