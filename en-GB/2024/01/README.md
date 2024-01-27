@@ -27,3 +27,4 @@
 202401240000|IcelandBeach|Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)|A gem of a place|![](/en-GB/2024/01/202401240000IcelandBeach.jpg)|
 202401250000|BurnsNightAlloway|Burns National Heritage Park, Alloway, Ayrshire, Scotland (© Alister Firth/Alamy Stock Photo)|The sun Burns like a red, red rose|![](/en-GB/2024/01/202401250000BurnsNightAlloway.jpg)|
 202401260000|EurasianBlueTitUK|Eurasian blue tit, United Kingdom (© Anne Coatesy/iStock/Getty Images)|Having a holly good time|![](/en-GB/2024/01/202401260000EurasianBlueTitUK.jpg)|
+202401270000|WinterCarnival|Ice Palace at Saint Paul Winter Carnival, Minnesota, USA (© Joe Mamer Photography/Alamy Stock Photo)|A pretty, cool skyline|![](/en-GB/2024/01/202401270000WinterCarnival.jpg)|
