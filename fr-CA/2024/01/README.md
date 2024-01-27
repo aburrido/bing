@@ -28,3 +28,4 @@
 202401240500|IcelandBeach|Plage de Diamant, Islande (© Rachid Dahnoun/Tandem Stills + Motion)|Des diamants flottants!|![](/fr-CA/2024/01/202401240500IcelandBeach.jpg)|
 202401250500|SnowyOwlQuebec|Un harfang des neiges sur un champ glacé, Québec, Canada (© Marco Pozzi Photographer/Moment/Getty Images)|Prêt pour le décollage?|![](/fr-CA/2024/01/202401250500SnowyOwlQuebec.jpg)|
 202401260500|HawkOwl|La chouette épervière (© Remo Savisaar/Alamy)|Chouette, le jour se lève !|![](/fr-CA/2024/01/202401260500HawkOwl.jpg)|
+202401270500|WinterCarnival|Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)|Des grattes ciels pas comme les autres|![](/fr-CA/2024/01/202401270500WinterCarnival.jpg)|
