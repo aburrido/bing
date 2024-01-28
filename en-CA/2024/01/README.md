@@ -29,3 +29,4 @@
 202401250500|SnowyOwlQuebec|A snowy owl on the icy field, Quebec City, Canada (© Marco Pozzi Photographer/Moment/Getty Images)|Ready for liftoff|![](/en-CA/2024/01/202401250500SnowyOwlQuebec.jpg)|
 202401260500|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-CA/2024/01/202401260500HawkOwl.jpg)|
 202401270500|WinterCarnival|Ice Palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)|A pretty, cool skyline|![](/en-CA/2024/01/202401270500WinterCarnival.jpg)|
+202401280500|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-CA/2024/01/202401280500ChannelOutback.jpg)|

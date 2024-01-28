@@ -29,3 +29,4 @@
 202401250500|SnowyOwlQuebec|Un harfang des neiges sur un champ glacé, Québec, Canada (© Marco Pozzi Photographer/Moment/Getty Images)|Prêt pour le décollage?|![](/fr-CA/2024/01/202401250500SnowyOwlQuebec.jpg)|
 202401260500|HawkOwl|La chouette épervière (© Remo Savisaar/Alamy)|Chouette, le jour se lève !|![](/fr-CA/2024/01/202401260500HawkOwl.jpg)|
 202401270500|WinterCarnival|Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)|Des grattes ciels pas comme les autres|![](/fr-CA/2024/01/202401270500WinterCarnival.jpg)|
+202401280500|ChannelOutback|Channel Country, Outback Queensland, Australie (© Southern Lightscapes-Australia/Getty Images)|Une terre de contraste|![](/fr-CA/2024/01/202401280500ChannelOutback.jpg)|
