@@ -29,3 +29,4 @@
 202401250800|DwynwensDay|Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)|A haven for broken hearts|![](/en-US/2024/01/202401250800DwynwensDay.jpg)|
 202401260800|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-US/2024/01/202401260800HawkOwl.jpg)|
 202401270800|WinterCarnival|Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)|In winter's embrace|![](/en-US/2024/01/202401270800WinterCarnival.jpg)|
+202401280800|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-US/2024/01/202401280800ChannelOutback.jpg)|
