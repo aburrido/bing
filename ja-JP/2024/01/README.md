@@ -29,3 +29,4 @@
 202401251500|HawkOwl|枝にとまるオナガフクロウ (© Remo Savisaar/Alamy)|珍しい昼行性のフクロウ|![](/ja-JP/2024/01/202401251500HawkOwl.jpg)|
 202401261500|WinterCarnival|氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)|セントポール・ウィンターカーニバルが開催中|![](/ja-JP/2024/01/202401261500WinterCarnival.jpg)|
 202401271500|ChannelOutback|チャネル・カントリー, オーストラリア クイーンズランド州 (© Southern Lightscapes-Australia/Getty Images)|多くの水路が走る草原|![](/ja-JP/2024/01/202401271500ChannelOutback.jpg)|
+202401281500|GollingerFalls|ゴーリング滝, オーストリア ザルツブルク州 (© Frank Fischbach/Alamy)|雪に囲まれた滝|![](/ja-JP/2024/01/202401281500GollingerFalls.jpg)|
