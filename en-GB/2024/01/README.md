@@ -28,3 +28,4 @@
 202401250000|BurnsNightAlloway|Burns National Heritage Park, Alloway, Ayrshire, Scotland (© Alister Firth/Alamy Stock Photo)|The sun Burns like a red, red rose|![](/en-GB/2024/01/202401250000BurnsNightAlloway.jpg)|
 202401260000|EurasianBlueTitUK|Eurasian blue tit, United Kingdom (© Anne Coatesy/iStock/Getty Images)|Having a holly good time|![](/en-GB/2024/01/202401260000EurasianBlueTitUK.jpg)|
 202401270000|WinterCarnival|Ice Palace at Saint Paul Winter Carnival, Minnesota, USA (© Joe Mamer Photography/Alamy Stock Photo)|A pretty, cool skyline|![](/en-GB/2024/01/202401270000WinterCarnival.jpg)|
+202401280000|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-GB/2024/01/202401280000ChannelOutback.jpg)|
