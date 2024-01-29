@@ -30,3 +30,4 @@
 202401261600|ToucanetEmpoleirado|点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)|巴西大自然中的异域之美|![](/zh-CN/2024/01/202401261600ToucanetEmpoleirado.jpg)|
 202401271600|ChannelOutback|昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images)|从干涸的沙漠变成田园|![](/zh-CN/2024/01/202401271600ChannelOutback.jpg)|
 202401281600|GollingerFalls|戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)|缓缓下降|![](/zh-CN/2024/01/202401281600GollingerFalls.jpg)|
+202401291600|AlbaceteSpain|艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙 (© Juan Maria Coy Vergara/Getty Images)|西班牙的小瑞士|![](/zh-CN/2024/01/202401291600AlbaceteSpain.jpg)|
