@@ -30,3 +30,4 @@
 202401260800|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-US/2024/01/202401260800HawkOwl.jpg)|
 202401270800|WinterCarnival|Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)|In winter's embrace|![](/en-US/2024/01/202401270800WinterCarnival.jpg)|
 202401280800|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-US/2024/01/202401280800ChannelOutback.jpg)|
+202401290800|GollingerFalls|Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)|An icy descent|![](/en-US/2024/01/202401290800GollingerFalls.jpg)|
