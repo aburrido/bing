@@ -30,3 +30,4 @@
 202401262300|WinterCarnival|Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)|Des grattes ciels pas comme les autres|![](/fr-FR/2024/01/202401262300WinterCarnival.jpg)|
 202401272300|SnowFox|Renard roux, Lac des Truites, Soultzeren, Alsace, France (© gmo-pixel/500px/Getty Images)|Tu veux ma photo ?|![](/fr-FR/2024/01/202401272300SnowFox.jpg)|
 202401282300|GollingerFalls|Cascade de Gollinger, Tennengau, Salzbourg, Autriche (© Frank Fischbach/Alamy)|Une cascade « mozartienne »|![](/fr-FR/2024/01/202401282300GollingerFalls.jpg)|
+202401292300|AlbaceteSpain|Ayna, Sierra del Segura, Albacete, Espagne  (© Juan Maria Coy Vergara/Getty Images)|La petite Suisse espagnole !|![](/fr-FR/2024/01/202401292300AlbaceteSpain.jpg)|
