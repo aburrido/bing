@@ -29,3 +29,4 @@
 202401260000|EurasianBlueTitUK|Eurasian blue tit, United Kingdom (© Anne Coatesy/iStock/Getty Images)|Having a holly good time|![](/en-GB/2024/01/202401260000EurasianBlueTitUK.jpg)|
 202401270000|WinterCarnival|Ice Palace at Saint Paul Winter Carnival, Minnesota, USA (© Joe Mamer Photography/Alamy Stock Photo)|A pretty, cool skyline|![](/en-GB/2024/01/202401270000WinterCarnival.jpg)|
 202401280000|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-GB/2024/01/202401280000ChannelOutback.jpg)|
+202401290000|GollingerFalls|Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy Stock Photo)|A gentle descent|![](/en-GB/2024/01/202401290000GollingerFalls.jpg)|
