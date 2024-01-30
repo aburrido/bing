@@ -31,3 +31,4 @@
 202401272300|ChannelOutback|Channel Country, Outback Queensland, Australien (© Southern Lightscapes-Australia/Getty Images)|Wasser bedeutet Leben|![](/de-DE/2024/01/202401272300ChannelOutback.jpg)|
 202401282300|GollingerFalls|Gollinger Wasserfall, Tennengau, Salzburg, Österreich (© Frank Fischbach/Alamy Stock Photo)|Wunder der Natur|![](/de-DE/2024/01/202401282300GollingerFalls.jpg)|
 202401292300|AlbaceteSpain|Ayna, Sierra del Segura, Albacete, Spanien (© Juan Maria Coy Vergara/Getty Images)|Die kleine Schweiz Spaniens|![](/de-DE/2024/01/202401292300AlbaceteSpain.jpg)|
+202401302300|ZebraMother|Burchell-Zebra Mutter und Fohlen, Rietvlei Nature Reserve, Südafrika (© Richard Du Toit/Minden Pictures)|Kennen Sie diese Gattung der Zebras?|![](/de-DE/2024/01/202401302300ZebraMother.jpg)|
