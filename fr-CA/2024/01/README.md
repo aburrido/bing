@@ -31,3 +31,4 @@
 202401270500|WinterCarnival|Palais de glace du Carnaval d’hiver de Saint Paul, Minnesota, États-Unis (© Joe Mamer Photography/Alamy)|Des grattes ciels pas comme les autres|![](/fr-CA/2024/01/202401270500WinterCarnival.jpg)|
 202401280500|ChannelOutback|Channel Country, Outback Queensland, Australie (© Southern Lightscapes-Australia/Getty Images)|Une terre de contraste|![](/fr-CA/2024/01/202401280500ChannelOutback.jpg)|
 202401290500|GollingerFalls|Cascade de Gollinger, Tennengau, Salzbourg, Autriche (© Frank Fischbach/Alamy)|Une cascade «mozartienne»|![](/fr-CA/2024/01/202401290500GollingerFalls.jpg)|
+202401300500|AlbaceteSpain|Ayna, Sierra del Segura, Albacete, Espagne (© Juan Maria Coy Vergara/Getty Images)|La petite Suisse espagnole!|![](/fr-CA/2024/01/202401300500AlbaceteSpain.jpg)|
