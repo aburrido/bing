@@ -32,3 +32,4 @@
 202401280800|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|Info|![](/en-AU/2024/01/202401280800ChannelOutback.jpg)|
 202401290800|GollingerFalls|Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)|Info|![](/en-AU/2024/01/202401290800GollingerFalls.jpg)|
 202401300800|AlbaceteSpain|Ayna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)|Info|![](/en-AU/2024/01/202401300800AlbaceteSpain.jpg)|
+202401310800|ZebraMother|Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Info|![](/en-AU/2024/01/202401310800ZebraMother.jpg)|
