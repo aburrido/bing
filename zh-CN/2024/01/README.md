@@ -32,3 +32,4 @@
 202401281600|GollingerFalls|戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)|缓缓下降|![](/zh-CN/2024/01/202401281600GollingerFalls.jpg)|
 202401291600|AlbaceteSpain|艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙 (© Juan Maria Coy Vergara/Getty Images)|西班牙的小瑞士|![](/zh-CN/2024/01/202401291600AlbaceteSpain.jpg)|
 202401301600|ZebraMother|布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非 (© Richard Du Toit/Minden Pictures)|条纹造型|![](/zh-CN/2024/01/202401301600ZebraMother.jpg)|
+202401311600|HalbinselJasmund|吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)|发光的雪塔|![](/zh-CN/2024/01/202401311600HalbinselJasmund.jpg)|
