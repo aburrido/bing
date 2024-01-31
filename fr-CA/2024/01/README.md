@@ -32,3 +32,4 @@
 202401280500|ChannelOutback|Channel Country, Outback Queensland, Australie (© Southern Lightscapes-Australia/Getty Images)|Une terre de contraste|![](/fr-CA/2024/01/202401280500ChannelOutback.jpg)|
 202401290500|GollingerFalls|Cascade de Gollinger, Tennengau, Salzbourg, Autriche (© Frank Fischbach/Alamy)|Une cascade «mozartienne»|![](/fr-CA/2024/01/202401290500GollingerFalls.jpg)|
 202401300500|AlbaceteSpain|Ayna, Sierra del Segura, Albacete, Espagne (© Juan Maria Coy Vergara/Getty Images)|La petite Suisse espagnole!|![](/fr-CA/2024/01/202401300500AlbaceteSpain.jpg)|
+202401310500|ZebraMother|Zèbre de Burchell, mère et poulain, réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|La rayure, tendance mode!|![](/fr-CA/2024/01/202401310500ZebraMother.jpg)|

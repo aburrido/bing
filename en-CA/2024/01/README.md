@@ -32,3 +32,4 @@
 202401280500|ChannelOutback|Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)|From parched to pastoral|![](/en-CA/2024/01/202401280500ChannelOutback.jpg)|
 202401290500|GollingerFalls|Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)|A gentle descent|![](/en-CA/2024/01/202401290500GollingerFalls.jpg)|
 202401300500|AlbaceteSpain|Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)|Spain's little Switzerland|![](/en-CA/2024/01/202401300500AlbaceteSpain.jpg)|
+202401310500|ZebraMother|Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Stripe a pose|![](/en-CA/2024/01/202401310500ZebraMother.jpg)|
