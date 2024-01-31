@@ -32,3 +32,4 @@
 202401281830|GollingerFalls|Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)|A gentle descent|![](/en-IN/2024/01/202401281830GollingerFalls.jpg)|
 202401291830|MartyrsDayIndia|The biggest Mahatma Gandhi statue in Pondicherry (© Geraint Rowland Photography/Getty Images)|A sculpted symbol of freedom|![](/en-IN/2024/01/202401291830MartyrsDayIndia.jpg)|
 202401301830|ZebraMother|Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Stripe a pose|![](/en-IN/2024/01/202401301830ZebraMother.jpg)|
+202401311830|AlbaceteSpain|Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)|Spain's little Switzerland|![](/en-IN/2024/01/202401311830AlbaceteSpain.jpg)|
