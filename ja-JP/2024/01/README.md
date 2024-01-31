@@ -32,3 +32,4 @@
 202401281500|GollingerFalls|ゴーリング滝, オーストリア ザルツブルク州 (© Frank Fischbach/Alamy)|雪に囲まれた滝|![](/ja-JP/2024/01/202401281500GollingerFalls.jpg)|
 202401291500|AlbaceteSpain|アイナ, スペイン カスティーリャ・ラ・マンチャ自治州 (© Juan Maria Coy Vergara/Getty Images)|谷間にある小さな村|![](/ja-JP/2024/01/202401291500AlbaceteSpain.jpg)|
 202401301500|ZebraMother|リットフレイ自然保護区, 南アフリカ (© Richard Du Toit/Minden Pictures)|今日は国際シマウマの日|![](/ja-JP/2024/01/202401301500ZebraMother.jpg)|
+202401311500|DevetashkaCave|デヴェタシュカ洞窟, ブルガリア (© Jasmine_K/Shutterstock)|巨大な天然洞窟|![](/ja-JP/2024/01/202401311500DevetashkaCave.jpg)|
