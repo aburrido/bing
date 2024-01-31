@@ -32,3 +32,4 @@
 202401282300|GollingerFalls|Cascade de Gollinger, Tennengau, Salzbourg, Autriche (© Frank Fischbach/Alamy)|Une cascade « mozartienne »|![](/fr-FR/2024/01/202401282300GollingerFalls.jpg)|
 202401292300|AlbaceteSpain|Ayna, Sierra del Segura, Albacete, Espagne  (© Juan Maria Coy Vergara/Getty Images)|La petite Suisse espagnole !|![](/fr-FR/2024/01/202401292300AlbaceteSpain.jpg)|
 202401302300|ZebraMother|Zèbre de Burchell, mère et poulain, réserve naturelle de Rietvlei, Afrique du Sud (© Richard Du Toit/Minden Pictures)|La rayure, tendance mode !|![](/fr-FR/2024/01/202401302300ZebraMother.jpg)|
+202401312300|HalbinselJasmund|Phare de Sassnitz, Rügen, Mecklembourg-Poméranie-Occidentale,  Allemagne (© Christian Back/eStock)|Un phare enchanteur et enneigé|![](/fr-FR/2024/01/202401312300HalbinselJasmund.jpg)|
