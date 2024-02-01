@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202401310800|ZebraMother|Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)|Stripe a pose|![](/en-US/2024/02/202401310800ZebraMother.jpg)|
+202402010800|DizzyGillespie|Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)|Black History Month|![](/en-US/2024/02/202402010800DizzyGillespie.jpg)|
