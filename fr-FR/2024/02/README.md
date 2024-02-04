@@ -4,3 +4,4 @@
 202402012300|Chandeleur|L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)|Faites sauter les crêpes !|![](/fr-FR/2024/02/202402012300Chandeleur.jpg)|
 202402022300|VeniceCarnival|Grand Canal et basilique Santa Maria della Salute, Venise, Italie (© RudyBalasko/Getty Images)|Jeux de masques|![](/fr-FR/2024/02/202402022300VeniceCarnival.jpg)|
 202402032300|DevetashkaCave|Grotte de Devetashka, Devetaki, Bulgarie (© Jasmine_K/Shutterstock)|Le loft de l’âge de pierre !|![](/fr-FR/2024/02/202402032300DevetashkaCave.jpg)|
+202402042300|WesternMonarchs|Papillons monarques, Goleta, Californie, États-Unis (© Craig Rademacher/500px/Getty Images)|Minute, papillon !|![](/fr-FR/2024/02/202402042300WesternMonarchs.jpg)|
