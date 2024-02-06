@@ -6,3 +6,4 @@
 202402030500|VeniceCarnival|Grand Canal et basilique Santa Maria della Salute, Venise, Italie (© RudyBalasko/Getty Images)|Jeux de masques|![](/fr-CA/2024/02/202402030500VeniceCarnival.jpg)|
 202402040500|DevetashkaCave|Grotte de Devetashka, Devetaki, Bulgarie (© Jasmine_K/Shutterstock)|Le loft de l’âge de pierre!|![](/fr-CA/2024/02/202402040500DevetashkaCave.jpg)|
 202402050500|WesternMonarchs|Papillons monarques, Goleta, Californie, États-Unis (© Craig Rademacher/500px/Getty Images)|Minute, papillon!|![](/fr-CA/2024/02/202402050500WesternMonarchs.jpg)|
+||||![](/fr-CA/2024/02/.jpg)|

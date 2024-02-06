@@ -6,3 +6,4 @@
 202402032300|DevetashkaCave|Devetashka-Höhle, Devetaki, Bulgarien (© Jasmine_K/Shutterstock)|Haben Sie Angst vor Fledermäusen?|![](/de-DE/2024/02/202402032300DevetashkaCave.jpg)|
 202402042300|MunichOperaHouse|Innenansicht Münchner Nationaltheater Opernhaus, München, Bayern (© plainpicture/RelaxImages/WRIGHT)|Wunder der Akustik!|![](/de-DE/2024/02/202402042300MunichOperaHouse.jpg)|
 202402052300|LakeTahoeRock|Bonsai Rock, Lake Tahoe, USA (© Jim Patterson/Tandem Stills + Motion)|Bonsais auf Felsen|![](/de-DE/2024/02/202402052300LakeTahoeRock.jpg)|
+||||![](/de-DE/2024/02/.jpg)|

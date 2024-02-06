@@ -6,3 +6,4 @@
 202402031830|DevetashkaCave|Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)|The skylights are a nice touch|![](/en-IN/2024/02/202402031830DevetashkaCave.jpg)|
 202402041830|WesternMonarchs|Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)|Butterfly ballet|![](/en-IN/2024/02/202402041830WesternMonarchs.jpg)|
 202402051830|LakeTahoeRock|Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)|Nature's bonsai|![](/en-IN/2024/02/202402051830LakeTahoeRock.jpg)|
+||||![](/en-IN/2024/02/.jpg)|

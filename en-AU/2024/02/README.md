@@ -6,3 +6,4 @@
 202402030800|VeniceCarnival|Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)|Info|![](/en-AU/2024/02/202402030800VeniceCarnival.jpg)|
 202402040800|DevetashkaCave|Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)|Info|![](/en-AU/2024/02/202402040800DevetashkaCave.jpg)|
 202402050800|WesternMonarchs|Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)|Info|![](/en-AU/2024/02/202402050800WesternMonarchs.jpg)|
+||||![](/en-AU/2024/02/.jpg)|

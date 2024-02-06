@@ -6,3 +6,4 @@
 202402040000|DevetashkaCave|Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)|The skylights are a nice touch|![](/en-GB/2024/02/202402040000DevetashkaCave.jpg)|
 202402050000|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-GB/2024/02/202402050000HawkOwl.jpg)|
 202402060000|LakeTahoeRock|Bonsai Rock, Lake Tahoe, Nevada, USA (© Jim Patterson/Tandem Stills + Motion)|Nature's bonsai|![](/en-GB/2024/02/202402060000LakeTahoeRock.jpg)|
+||||![](/en-GB/2024/02/.jpg)|

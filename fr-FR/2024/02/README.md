@@ -6,3 +6,4 @@
 202402032300|DevetashkaCave|Grotte de Devetashka, Devetaki, Bulgarie (© Jasmine_K/Shutterstock)|Le loft de l’âge de pierre !|![](/fr-FR/2024/02/202402032300DevetashkaCave.jpg)|
 202402042300|WesternMonarchs|Papillons monarques, Goleta, Californie, États-Unis (© Craig Rademacher/500px/Getty Images)|Minute, papillon !|![](/fr-FR/2024/02/202402042300WesternMonarchs.jpg)|
 202402052300|LakeTahoeRock|Bonsai Rock, lac Tahoe, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les bonsaïs de la nature|![](/fr-FR/2024/02/202402052300LakeTahoeRock.jpg)|
+||||![](/fr-FR/2024/02/.jpg)|

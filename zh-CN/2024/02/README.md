@@ -6,3 +6,4 @@
 202402031600|DevetashkaCave|德弗塔什卡洞, Devetaki村庄，保加利亚 (© Jasmine_K/Shutterstock)|雄伟的天然穹顶|![](/zh-CN/2024/02/202402031600DevetashkaCave.jpg)|
 202402041600|LakeBledSunrise|从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images)|唤醒沉睡的湖泊|![](/zh-CN/2024/02/202402041600LakeBledSunrise.jpg)|
 202402051600|LakeTahoeRock|盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)|天然盆景|![](/zh-CN/2024/02/202402051600LakeTahoeRock.jpg)|
+||||![](/zh-CN/2024/02/.jpg)|
