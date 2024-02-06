@@ -7,3 +7,4 @@
 202402042300|MunichOperaHouse|Innenansicht Münchner Nationaltheater Opernhaus, München, Bayern (© plainpicture/RelaxImages/WRIGHT)|Wunder der Akustik!|![](/de-DE/2024/02/202402042300MunichOperaHouse.jpg)|
 202402052300|LakeTahoeRock|Bonsai Rock, Lake Tahoe, USA (© Jim Patterson/Tandem Stills + Motion)|Bonsais auf Felsen|![](/de-DE/2024/02/202402052300LakeTahoeRock.jpg)|
 ||||![](/de-DE/2024/02/.jpg)|
+202402062300|StJamesPool|St. James Tidal Pool, Kapstadt, Südafrika (© AmazingAerialAgency/Adobe)|Kaps und Hoffnungen|![](/de-DE/2024/02/202402062300StJamesPool.jpg)|
