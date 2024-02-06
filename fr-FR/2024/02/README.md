@@ -7,3 +7,4 @@
 202402042300|WesternMonarchs|Papillons monarques, Goleta, Californie, États-Unis (© Craig Rademacher/500px/Getty Images)|Minute, papillon !|![](/fr-FR/2024/02/202402042300WesternMonarchs.jpg)|
 202402052300|LakeTahoeRock|Bonsai Rock, lac Tahoe, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les bonsaïs de la nature|![](/fr-FR/2024/02/202402052300LakeTahoeRock.jpg)|
 ||||![](/fr-FR/2024/02/.jpg)|
+202402062300|StJamesPool|Piscine Tidal, plage St James, Le Cap, Afrique du Sud (© AmazingAerialAgency/Adobe)|Un sanctuaire dans les vagues|![](/fr-FR/2024/02/202402062300StJamesPool.jpg)|
