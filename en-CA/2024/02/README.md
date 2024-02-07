@@ -8,3 +8,4 @@
 202402050500|WesternMonarchs|Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)|Butterfly ballet|![](/en-CA/2024/02/202402050500WesternMonarchs.jpg)|
 ||||![](/en-CA/2024/02/.jpg)|
 202402060500|LakeTahoeRock|Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)|Nature's bonsai|![](/en-CA/2024/02/202402060500LakeTahoeRock.jpg)|
+202402070500|StJamesPool|St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)|Sanctuary in the surf|![](/en-CA/2024/02/202402070500StJamesPool.jpg)|
