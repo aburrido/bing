@@ -8,3 +8,4 @@
 202402051500|LakeTahoeRock|タホ湖, 米国 (© Jim Patterson/Tandem Stills + Motion)|盆栽のように見える岩|![](/ja-JP/2024/02/202402051500LakeTahoeRock.jpg)|
 ||||![](/ja-JP/2024/02/.jpg)|
 202402061500|GrandCanyonVerdon|ヴェルドン峡谷, フランス (© Hemis/Alamy)|幻想的な川霧が湧く峡谷|![](/ja-JP/2024/02/202402061500GrandCanyonVerdon.jpg)|
+202402071500|MtHoodOregon|フッド山, 米国 オレゴン州 (© Inigo Cia/Getty Images)|雪に覆われた「オレゴン富士」|![](/ja-JP/2024/02/202402071500MtHoodOregon.jpg)|
