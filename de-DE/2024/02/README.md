@@ -8,3 +8,4 @@
 202402052300|LakeTahoeRock|Bonsai Rock, Lake Tahoe, USA (© Jim Patterson/Tandem Stills + Motion)|Bonsais auf Felsen|![](/de-DE/2024/02/202402052300LakeTahoeRock.jpg)|
 ||||![](/de-DE/2024/02/.jpg)|
 202402062300|StJamesPool|St. James Tidal Pool, Kapstadt, Südafrika (© AmazingAerialAgency/Adobe)|Kaps und Hoffnungen|![](/de-DE/2024/02/202402062300StJamesPool.jpg)|
+202402072300|MtHoodOregon|Mount Hood, Stratovulkan, Oregon, USA (© Inigo Cia/Getty Images)|Ein schlafender Riese|![](/de-DE/2024/02/202402072300MtHoodOregon.jpg)|

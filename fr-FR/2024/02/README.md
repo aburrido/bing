@@ -8,3 +8,4 @@
 202402052300|LakeTahoeRock|Bonsai Rock, lac Tahoe, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les bonsaïs de la nature|![](/fr-FR/2024/02/202402052300LakeTahoeRock.jpg)|
 ||||![](/fr-FR/2024/02/.jpg)|
 202402062300|StJamesPool|Piscine Tidal, plage St James, Le Cap, Afrique du Sud (© AmazingAerialAgency/Adobe)|Un sanctuaire dans les vagues|![](/fr-FR/2024/02/202402062300StJamesPool.jpg)|
+202402072300|MtHoodOregon|Mont Hood, Oregon, États-Unis (© Inigo Cia/Getty Images)|Un géant endormi|![](/fr-FR/2024/02/202402072300MtHoodOregon.jpg)|
