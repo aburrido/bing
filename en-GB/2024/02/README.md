@@ -7,3 +7,4 @@
 202402050000|HawkOwl|Northern hawk-owl (© Remo Savisaar/Alamy)|Not a night owl|![](/en-GB/2024/02/202402050000HawkOwl.jpg)|
 202402060000|LakeTahoeRock|Bonsai Rock, Lake Tahoe, Nevada, USA (© Jim Patterson/Tandem Stills + Motion)|Nature's bonsai|![](/en-GB/2024/02/202402060000LakeTahoeRock.jpg)|
 ||||![](/en-GB/2024/02/.jpg)|
+202402070000|StJamesPool|St James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)|Sanctuary in the surf|![](/en-GB/2024/02/202402070000StJamesPool.jpg)|
