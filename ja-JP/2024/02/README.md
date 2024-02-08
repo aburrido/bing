@@ -9,3 +9,4 @@
 ||||![](/ja-JP/2024/02/.jpg)|
 202402061500|GrandCanyonVerdon|ヴェルドン峡谷, フランス (© Hemis/Alamy)|幻想的な川霧が湧く峡谷|![](/ja-JP/2024/02/202402061500GrandCanyonVerdon.jpg)|
 202402071500|MtHoodOregon|フッド山, 米国 オレゴン州 (© Inigo Cia/Getty Images)|雪に覆われた「オレゴン富士」|![](/ja-JP/2024/02/202402071500MtHoodOregon.jpg)|
+202402081500|SapporoSnowFest2024|お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)|さっぽろ雪まつりが開催中|![](/ja-JP/2024/02/202402081500SapporoSnowFest2024.jpg)|
