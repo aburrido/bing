@@ -9,3 +9,4 @@
 ||||![](/en-AU/2024/02/.jpg)|
 202402060800|LakeTahoeRock|Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2024/02/202402060800LakeTahoeRock.jpg)|
 202402070800|StJamesPool|St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)|Info|![](/en-AU/2024/02/202402070800StJamesPool.jpg)|
+202402080800|MtHoodOregon|Mount Hood, Oregon (© Inigo Cia/Getty Images)|Info|![](/en-AU/2024/02/202402080800MtHoodOregon.jpg)|
