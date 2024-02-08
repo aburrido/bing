@@ -9,3 +9,4 @@
 ||||![](/en-CA/2024/02/.jpg)|
 202402060500|LakeTahoeRock|Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)|Nature's bonsai|![](/en-CA/2024/02/202402060500LakeTahoeRock.jpg)|
 202402070500|StJamesPool|St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)|Sanctuary in the surf|![](/en-CA/2024/02/202402070500StJamesPool.jpg)|
+202402080500|MtHoodOregon|Mount Hood, Oregon (© Inigo Cia/Getty Images)|A sleeping giant|![](/en-CA/2024/02/202402080500MtHoodOregon.jpg)|
