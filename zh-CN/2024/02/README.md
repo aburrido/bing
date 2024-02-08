@@ -9,3 +9,4 @@
 ||||![](/zh-CN/2024/02/.jpg)|
 202402061600|StJamesPool|圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)|海浪中的避风港|![](/zh-CN/2024/02/202402061600StJamesPool.jpg)|
 202402071600|MtHoodOregon|胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)|沉睡的巨人|![](/zh-CN/2024/02/202402071600MtHoodOregon.jpg)|
+202402081600|ChineseNewYearEve2024|灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)|准备好庆祝了吗？|![](/zh-CN/2024/02/202402081600ChineseNewYearEve2024.jpg)|
