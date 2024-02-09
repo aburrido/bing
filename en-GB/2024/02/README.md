@@ -9,3 +9,4 @@
 ||||![](/en-GB/2024/02/.jpg)|
 202402070000|StJamesPool|St James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)|Sanctuary in the surf|![](/en-GB/2024/02/202402070000StJamesPool.jpg)|
 202402080000|MtHoodOregon|Mount Hood, Oregon, USA (© Inigo Cia/Getty Images)|A sleeping giant|![](/en-GB/2024/02/202402080000MtHoodOregon.jpg)|
+202402090000|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and roll|![](/en-GB/2024/02/202402090000PegadungRocks.jpg)|
