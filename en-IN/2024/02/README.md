@@ -10,3 +10,4 @@
 202402061830|StJamesPool|St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)|Sanctuary in the surf|![](/en-IN/2024/02/202402061830StJamesPool.jpg)|
 202402071830|MtHoodOregon|Mount Hood, Oregon (© Inigo Cia/Getty Images)|A sleeping giant|![](/en-IN/2024/02/202402071830MtHoodOregon.jpg)|
 202402081830|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and roll|![](/en-IN/2024/02/202402081830PegadungRocks.jpg)|
+202402091830|ChinaDragon|Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)|Welcome to the Year of the Dragon!|![](/en-IN/2024/02/202402091830ChinaDragon.jpg)|
