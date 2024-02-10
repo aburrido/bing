@@ -11,3 +11,4 @@
 202402071600|MtHoodOregon|胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)|沉睡的巨人|![](/zh-CN/2024/02/202402071600MtHoodOregon.jpg)|
 202402081600|ChineseNewYearEve2024|灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)|准备好庆祝了吗？|![](/zh-CN/2024/02/202402081600ChineseNewYearEve2024.jpg)|
 202402091600|SpringFestival2024|中国舞狮，大年初一 (© SENEZ/Getty Images)|福起新岁，万事顺意|![](/zh-CN/2024/02/202402091600SpringFestival2024.jpg)|
+202402101600|FolegandrosGreece|乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)|地球上的极乐世界|![](/zh-CN/2024/02/202402101600FolegandrosGreece.jpg)|
