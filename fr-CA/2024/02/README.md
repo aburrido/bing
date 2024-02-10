@@ -11,3 +11,4 @@
 202402070500|StJamesPool|Piscine Tidal, plage St James, Le Cap, Afrique du Sud (© AmazingAerialAgency/Adobe)|Un sanctuaire dans les vagues|![](/fr-CA/2024/02/202402070500StJamesPool.jpg)|
 202402080500|MtHoodOregon|Mont Hood, Oregon, États-Unis (© Inigo Cia/Getty Images)|Un géant endormi|![](/fr-CA/2024/02/202402080500MtHoodOregon.jpg)|
 202402090500|PegadungRocks|Rocher de Pegadung, Lampung, Sumatra, Indonésie (© CK NG/500px/Getty Images)|Pierres qui roulent…|![](/fr-CA/2024/02/202402090500PegadungRocks.jpg)|
+202402100500|ChineseNYParade|Défilé du Nouvel An chinois, Vancouver, Colombie-Britannique, Canada (© Michael Wheatley/Alamy Stock Photo)|Bienvenue dans l'année du Dragon!|![](/fr-CA/2024/02/202402100500ChineseNYParade.jpg)|
