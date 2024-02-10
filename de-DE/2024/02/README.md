@@ -11,3 +11,4 @@
 202402072300|MtHoodOregon|Mount Hood, Stratovulkan, Oregon, USA (© Inigo Cia/Getty Images)|Ein schlafender Riese|![](/de-DE/2024/02/202402072300MtHoodOregon.jpg)|
 202402082300|PegadungRocks|Pegadung-Felsen, Lampung, Sumatra, Indonesien (© CK NG/500px/Getty Images)|Ganz schön auf Zack!|![](/de-DE/2024/02/202402082300PegadungRocks.jpg)|
 202402092300|ChinaDragon|Chinesisches Neujahr, Luzhou, China (© Liu Guoxing/VCG via Getty Images)|Willkommen im Jahr des Drachen!|![](/de-DE/2024/02/202402092300ChinaDragon.jpg)|
+202402102300|FolegandrosGreece|Chora, Insel Folegandros, Kykladen, Griechenland (© Francesco Riccardo Iacomino/Getty Images)|Paradies auf Griechisch|![](/de-DE/2024/02/202402102300FolegandrosGreece.jpg)|
