@@ -11,3 +11,4 @@
 202402080000|MtHoodOregon|Mount Hood, Oregon, USA (© Inigo Cia/Getty Images)|A sleeping giant|![](/en-GB/2024/02/202402080000MtHoodOregon.jpg)|
 202402090000|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and roll|![](/en-GB/2024/02/202402090000PegadungRocks.jpg)|
 202402100000|DarkSkiesFestivalUK|Dunstanburgh Castle, England (© Owen Humphreys/PA Images/Getty Images)|Starstruck|![](/en-GB/2024/02/202402100000DarkSkiesFestivalUK.jpg)|
+202402110000|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on Earth|![](/en-GB/2024/02/202402110000FolegandrosGreece.jpg)|
