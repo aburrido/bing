@@ -12,3 +12,4 @@
 202402081500|SapporoSnowFest2024|お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)|さっぽろ雪まつりが開催中|![](/ja-JP/2024/02/202402081500SapporoSnowFest2024.jpg)|
 202402091500|ChinaDragon|華やかな龍舞, 中国 四川省 瀘州市 (© Liu Guoxing/VCG via Getty Images)|今日は旧正月|![](/ja-JP/2024/02/202402091500ChinaDragon.jpg)|
 202402101500|FolegandrosGreece|フォレガンドロス島, ギリシャ (© Francesco Riccardo Iacomino/Getty Images)|崖の上に建つ町|![](/ja-JP/2024/02/202402101500FolegandrosGreece.jpg)|
+202402111500|GiantTortoise|ガラパゴスゾウガメ, エクアドル (© Tui De Roy/Minden Pictures)|今日はダーウィンの日|![](/ja-JP/2024/02/202402111500GiantTortoise.jpg)|
