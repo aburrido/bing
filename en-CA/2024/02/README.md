@@ -12,3 +12,4 @@
 202402080500|MtHoodOregon|Mount Hood, Oregon (© Inigo Cia/Getty Images)|A sleeping giant|![](/en-CA/2024/02/202402080500MtHoodOregon.jpg)|
 202402090500|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and roll|![](/en-CA/2024/02/202402090500PegadungRocks.jpg)|
 202402100500|ChineseNYParade|Chinese New Year Parade, Vancouver, British Columbia, Canada (© Michael Wheatley/Alamy Stock Photo)|Welcome to the Year of the Dragon!|![](/en-CA/2024/02/202402100500ChineseNYParade.jpg)|
+202402110500|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on Earth|![](/en-CA/2024/02/202402110500FolegandrosGreece.jpg)|
