@@ -12,3 +12,4 @@
 202402081600|ChineseNewYearEve2024|灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)|准备好庆祝了吗？|![](/zh-CN/2024/02/202402081600ChineseNewYearEve2024.jpg)|
 202402091600|SpringFestival2024|中国舞狮，大年初一 (© SENEZ/Getty Images)|福起新岁，万事顺意|![](/zh-CN/2024/02/202402091600SpringFestival2024.jpg)|
 202402101600|FolegandrosGreece|乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)|地球上的极乐世界|![](/zh-CN/2024/02/202402101600FolegandrosGreece.jpg)|
+202402111600|GiantTortoise|阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|甜蜜的火山家园|![](/zh-CN/2024/02/202402111600GiantTortoise.jpg)|
