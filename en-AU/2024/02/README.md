@@ -12,3 +12,4 @@
 202402080800|MtHoodOregon|Mount Hood, Oregon (© Inigo Cia/Getty Images)|Info|![](/en-AU/2024/02/202402080800MtHoodOregon.jpg)|
 202402090800|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Info|![](/en-AU/2024/02/202402090800PegadungRocks.jpg)|
 202402100800|GiantAnteaterBR|Giant anteater in the Pantanal, Brazil (© Pedro Ferreira do Amaral/Getty Images)|Info|![](/en-AU/2024/02/202402100800GiantAnteaterBR.jpg)|
+202402110800|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2024/02/202402110800FolegandrosGreece.jpg)|
