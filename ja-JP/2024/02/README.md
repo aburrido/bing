@@ -13,3 +13,4 @@
 202402091500|ChinaDragon|華やかな龍舞, 中国 四川省 瀘州市 (© Liu Guoxing/VCG via Getty Images)|今日は旧正月|![](/ja-JP/2024/02/202402091500ChinaDragon.jpg)|
 202402101500|FolegandrosGreece|フォレガンドロス島, ギリシャ (© Francesco Riccardo Iacomino/Getty Images)|崖の上に建つ町|![](/ja-JP/2024/02/202402101500FolegandrosGreece.jpg)|
 202402111500|GiantTortoise|ガラパゴスゾウガメ, エクアドル (© Tui De Roy/Minden Pictures)|今日はダーウィンの日|![](/ja-JP/2024/02/202402111500GiantTortoise.jpg)|
+202402121500|MarignyBeads|カラフルなビーズの首飾り, 米国 ルイジアナ州 (© Erik Pronske Photography/Getty Images)|今日はマルディグラの日|![](/ja-JP/2024/02/202402121500MarignyBeads.jpg)|
