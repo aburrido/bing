@@ -13,3 +13,4 @@
 202402092300|ChinaDragon|Chinesisches Neujahr, Luzhou, China (© Liu Guoxing/VCG via Getty Images)|Willkommen im Jahr des Drachen!|![](/de-DE/2024/02/202402092300ChinaDragon.jpg)|
 202402102300|FolegandrosGreece|Chora, Insel Folegandros, Kykladen, Griechenland (© Francesco Riccardo Iacomino/Getty Images)|Paradies auf Griechisch|![](/de-DE/2024/02/202402102300FolegandrosGreece.jpg)|
 202402112300|GiantTortoise|Riesenschildkröten am Vulkan Alcedo, Insel Isabela, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Sanfte Riesen|![](/de-DE/2024/02/202402112300GiantTortoise.jpg)|
+202402122300|MarignyBeads|Mardi Gras im Stadtteil Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)|Helau und Alaaf!|![](/de-DE/2024/02/202402122300MarignyBeads.jpg)|

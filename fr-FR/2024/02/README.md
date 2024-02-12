@@ -13,3 +13,4 @@
 202402092300|ChinaDragon|Nouvel An chinois, Luzhou, Chine (© Liu Guoxing/VCG via Getty Images)|Bienvenue dans l'année du Dragon !|![](/fr-FR/2024/02/202402092300ChinaDragon.jpg)|
 202402102300|FolegandrosGreece|Chora, île de Folegandros, Cyclades, Grèce (© Francesco Riccardo Iacomino/Getty Images)|Un paradis sur terre|![](/fr-FR/2024/02/202402102300FolegandrosGreece.jpg)|
 202402112300|GiantTortoise|Tortues géantes, Volcan Alcedo, île d'Isabela, Galápagos, Équateur (© Tui De Roy/Minden Pictures)|L’île préférée de Darwin|![](/fr-FR/2024/02/202402112300GiantTortoise.jpg)|
+202402122300|MarignyBeads|Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)|Que la fête commence !|![](/fr-FR/2024/02/202402122300MarignyBeads.jpg)|
