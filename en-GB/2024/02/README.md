@@ -12,3 +12,4 @@
 202402090000|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and roll|![](/en-GB/2024/02/202402090000PegadungRocks.jpg)|
 202402100000|DarkSkiesFestivalUK|Dunstanburgh Castle, England (© Owen Humphreys/PA Images/Getty Images)|Starstruck|![](/en-GB/2024/02/202402100000DarkSkiesFestivalUK.jpg)|
 202402110000|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on Earth|![](/en-GB/2024/02/202402110000FolegandrosGreece.jpg)|
+202402120000|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Home sweet volcano|![](/en-GB/2024/02/202402120000GiantTortoise.jpg)|
