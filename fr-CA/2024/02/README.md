@@ -13,3 +13,4 @@
 202402090500|PegadungRocks|Rocher de Pegadung, Lampung, Sumatra, Indonésie (© CK NG/500px/Getty Images)|Pierres qui roulent…|![](/fr-CA/2024/02/202402090500PegadungRocks.jpg)|
 202402100500|ChineseNYParade|Défilé du Nouvel An chinois, Vancouver, Colombie-Britannique, Canada (© Michael Wheatley/Alamy Stock Photo)|Bienvenue dans l'année du Dragon!|![](/fr-CA/2024/02/202402100500ChineseNYParade.jpg)|
 202402110500|FolegandrosGreece|Chora, île de Folegandros, Cyclades, Grèce (© Francesco Riccardo Iacomino/Getty Images)|Un paradis sur terre|![](/fr-CA/2024/02/202402110500FolegandrosGreece.jpg)|
+202402120500|GiantTortoise|Tortues géantes, Volcan Alcedo, île d'Isabela, Galápagos, Équateur (© Tui De Roy/Minden Pictures)|L’île préférée de Darwin|![](/fr-CA/2024/02/202402120500GiantTortoise.jpg)|

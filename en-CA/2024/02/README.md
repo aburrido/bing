@@ -13,3 +13,4 @@
 202402090500|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and roll|![](/en-CA/2024/02/202402090500PegadungRocks.jpg)|
 202402100500|ChineseNYParade|Chinese New Year Parade, Vancouver, British Columbia, Canada (© Michael Wheatley/Alamy Stock Photo)|Welcome to the Year of the Dragon!|![](/en-CA/2024/02/202402100500ChineseNYParade.jpg)|
 202402110500|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on Earth|![](/en-CA/2024/02/202402110500FolegandrosGreece.jpg)|
+202402120500|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Home sweet volcano|![](/en-CA/2024/02/202402120500GiantTortoise.jpg)|
