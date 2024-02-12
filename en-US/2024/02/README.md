@@ -13,3 +13,4 @@
 202402090800|PegadungRocks|Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)|Rocks and rolling surf|![](/en-US/2024/02/202402090800PegadungRocks.jpg)|
 202402100800|ChinaDragon|Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)|Enter the dragons|![](/en-US/2024/02/202402100800ChinaDragon.jpg)|
 202402110800|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on the edge|![](/en-US/2024/02/202402110800FolegandrosGreece.jpg)|
+202402120800|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Giants of science|![](/en-US/2024/02/202402120800GiantTortoise.jpg)|
