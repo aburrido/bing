@@ -14,3 +14,4 @@
 202402102300|FolegandrosGreece|Chora, Insel Folegandros, Kykladen, Griechenland (© Francesco Riccardo Iacomino/Getty Images)|Paradies auf Griechisch|![](/de-DE/2024/02/202402102300FolegandrosGreece.jpg)|
 202402112300|GiantTortoise|Riesenschildkröten am Vulkan Alcedo, Insel Isabela, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Sanfte Riesen|![](/de-DE/2024/02/202402112300GiantTortoise.jpg)|
 202402122300|MarignyBeads|Mardi Gras im Stadtteil Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)|Helau und Alaaf!|![](/de-DE/2024/02/202402122300MarignyBeads.jpg)|
+202402132300|BowingCrane|Mandschurenkranich mit Gefährtin in Hokkaido, Japan (© Steve Bloom Images/Alamy Stock Photo)|Wen fordern Sie zum Tanz auf?|![](/de-DE/2024/02/202402132300BowingCrane.jpg)|
