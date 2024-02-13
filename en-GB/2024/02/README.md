@@ -13,3 +13,4 @@
 202402100000|DarkSkiesFestivalUK|Dunstanburgh Castle, England (© Owen Humphreys/PA Images/Getty Images)|Starstruck|![](/en-GB/2024/02/202402100000DarkSkiesFestivalUK.jpg)|
 202402110000|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on Earth|![](/en-GB/2024/02/202402110000FolegandrosGreece.jpg)|
 202402120000|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Home sweet volcano|![](/en-GB/2024/02/202402120000GiantTortoise.jpg)|
+202402130000|MarignyBeads|Mardi Gras beads in the Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)|Let the good times roll!|![](/en-GB/2024/02/202402130000MarignyBeads.jpg)|
