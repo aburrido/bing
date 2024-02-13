@@ -14,3 +14,4 @@
 202402101600|FolegandrosGreece|乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)|地球上的极乐世界|![](/zh-CN/2024/02/202402101600FolegandrosGreece.jpg)|
 202402111600|GiantTortoise|阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|甜蜜的火山家园|![](/zh-CN/2024/02/202402111600GiantTortoise.jpg)|
 202402121600|MarignyBeads|马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)|及时行乐！|![](/zh-CN/2024/02/202402121600MarignyBeads.jpg)|
+202402131600|BowingCrane|丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)|更好地在一起|![](/zh-CN/2024/02/202402131600BowingCrane.jpg)|
