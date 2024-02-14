@@ -15,3 +15,4 @@
 202402111830|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Home sweet volcano|![](/en-IN/2024/02/202402111830GiantTortoise.jpg)|
 202402121830|MarignyBeads|Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)|Strands of celebration|![](/en-IN/2024/02/202402121830MarignyBeads.jpg)|
 202402131830|VasantPanchamiIN|Vasant Panchmi celebration in Noida, India (© Burhaan Kinu/Hindustan Times via Getty Images)|Offerings for the spring|![](/en-IN/2024/02/202402131830VasantPanchamiIN.jpg)|
+202402141830|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Admire from afar!|![](/en-IN/2024/02/202402141830HippopotamusDay.jpg)|
