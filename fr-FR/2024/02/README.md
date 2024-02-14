@@ -15,3 +15,4 @@
 202402112300|GiantTortoise|Tortues géantes, Volcan Alcedo, île d'Isabela, Galápagos, Équateur (© Tui De Roy/Minden Pictures)|L’île préférée de Darwin|![](/fr-FR/2024/02/202402112300GiantTortoise.jpg)|
 202402122300|MarignyBeads|Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)|Que la fête commence !|![](/fr-FR/2024/02/202402122300MarignyBeads.jpg)|
 202402132300|BowingCrane|Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)|L'amour est un oiseau rebelle|![](/fr-FR/2024/02/202402132300BowingCrane.jpg)|
+202402142300|HippopotamusDay|Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)|Hippo-hourra pour la Journée de l'hippopotame !|![](/fr-FR/2024/02/202402142300HippopotamusDay.jpg)|
