@@ -15,3 +15,4 @@
 202402110800|FolegandrosGreece|Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)|Elysium on the edge|![](/en-US/2024/02/202402110800FolegandrosGreece.jpg)|
 202402120800|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Giants of science|![](/en-US/2024/02/202402120800GiantTortoise.jpg)|
 202402130800|MarignyBeads|Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)|Let the good times roll!|![](/en-US/2024/02/202402130800MarignyBeads.jpg)|
+202402140800|BowingCrane|Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)|The dance of romance|![](/en-US/2024/02/202402140800BowingCrane.jpg)|
