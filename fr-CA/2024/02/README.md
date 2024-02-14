@@ -15,3 +15,4 @@
 202402110500|FolegandrosGreece|Chora, île de Folegandros, Cyclades, Grèce (© Francesco Riccardo Iacomino/Getty Images)|Un paradis sur terre|![](/fr-CA/2024/02/202402110500FolegandrosGreece.jpg)|
 202402120500|GiantTortoise|Tortues géantes, Volcan Alcedo, île d'Isabela, Galápagos, Équateur (© Tui De Roy/Minden Pictures)|L’île préférée de Darwin|![](/fr-CA/2024/02/202402120500GiantTortoise.jpg)|
 202402130500|MarignyBeads|Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)|Que la fête commence!|![](/fr-CA/2024/02/202402130500MarignyBeads.jpg)|
+202402140500|BowingCrane|Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)|L'amour est un oiseau rebelle|![](/fr-CA/2024/02/202402140500BowingCrane.jpg)|
