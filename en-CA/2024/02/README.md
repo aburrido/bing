@@ -16,3 +16,4 @@
 202402120500|GiantTortoise|Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)|Home sweet volcano|![](/en-CA/2024/02/202402120500GiantTortoise.jpg)|
 202402130500|MarignyBeads|Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)|Let the good times roll!|![](/en-CA/2024/02/202402130500MarignyBeads.jpg)|
 202402140500|BowingCrane|Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)|Better together|![](/en-CA/2024/02/202402140500BowingCrane.jpg)|
+202402150500|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Happy Hippo Day!|![](/en-CA/2024/02/202402150500HippopotamusDay.jpg)|
