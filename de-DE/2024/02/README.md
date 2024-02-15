@@ -16,3 +16,4 @@
 202402122300|MarignyBeads|Mardi Gras im Stadtteil Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)|Helau und Alaaf!|![](/de-DE/2024/02/202402122300MarignyBeads.jpg)|
 202402132300|BowingCrane|Mandschurenkranich mit Gefährtin in Hokkaido, Japan (© Steve Bloom Images/Alamy Stock Photo)|Wen fordern Sie zum Tanz auf?|![](/de-DE/2024/02/202402132300BowingCrane.jpg)|
 202402142300|BerlinalePalast|Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)|Der rote Teppich ist ausgerollt!|![](/de-DE/2024/02/202402142300BerlinalePalast.jpg)|
+202402152300|BackyardBird|Ein Wüstenkardinal sitzt auf einem stacheligen Kaktus in Texas, USA (© outtakes/Getty Images)|Jeder Vogel zählt|![](/de-DE/2024/02/202402152300BackyardBird.jpg)|
