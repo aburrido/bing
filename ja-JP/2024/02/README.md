@@ -16,3 +16,4 @@
 202402121500|MarignyBeads|カラフルなビーズの首飾り, 米国 ルイジアナ州 (© Erik Pronske Photography/Getty Images)|今日はマルディグラの日|![](/ja-JP/2024/02/202402121500MarignyBeads.jpg)|
 202402131500|BowingCrane|求愛ダンスを舞うタンチョウ, 北海道 (© Steve Bloom Images/Alamy)|今日はバレンタインデー|![](/ja-JP/2024/02/202402131500BowingCrane.jpg)|
 202402141500|HippopotamusDay|水中から顔をのぞかせるカバ, ザンビア (© Nature Picture Library/Alamy)|今日は世界カバの日|![](/ja-JP/2024/02/202402141500HippopotamusDay.jpg)|
+202402151500|BackyardBird|サボテンにとまるムネアカコウカンチョウ, 米国 テキサス州 (© outtakes/Getty Images)|今日は「鳥を数える日」|![](/ja-JP/2024/02/202402151500BackyardBird.jpg)|
