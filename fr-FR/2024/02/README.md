@@ -17,3 +17,4 @@
 202402132300|BowingCrane|Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)|L'amour est un oiseau rebelle|![](/fr-FR/2024/02/202402132300BowingCrane.jpg)|
 202402142300|HippopotamusDay|Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)|Hippo-hourra pour la Journée de l'hippopotame !|![](/fr-FR/2024/02/202402142300HippopotamusDay.jpg)|
 202402152300|SkiResort|Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)|Comme un air de montagne|![](/fr-FR/2024/02/202402152300SkiResort.jpg)|
+202402162300|BrightonBoxes|Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)|Des cabines mythiques|![](/fr-FR/2024/02/202402162300BrightonBoxes.jpg)|
