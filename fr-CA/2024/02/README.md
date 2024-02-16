@@ -17,3 +17,4 @@
 202402130500|MarignyBeads|Perles de Mardi Gras dans le quartier de Marigny, Nouvelle-Orléans, États-Unis (© Erik Pronske Photography/Getty Images)|Que la fête commence!|![](/fr-CA/2024/02/202402130500MarignyBeads.jpg)|
 202402140500|BowingCrane|Grue du Japon s'inclinant devant son compagnon à Hokkaido, Japon (© Steve Bloom Images/Alamy)|L'amour est un oiseau rebelle|![](/fr-CA/2024/02/202402140500BowingCrane.jpg)|
 202402150500|HippopotamusDay|Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)|Hippo-hourra pour la Journée de l'hippopotame!|![](/fr-CA/2024/02/202402150500HippopotamusDay.jpg)|
+202402160500|BackyardBird|Oiseau cardinal pyrrhuloxia perché sur un cactus épineux au Texas, États-Unis (© outtakes/Getty Images)|Pour que chaque oiseau compte|![](/fr-CA/2024/02/202402160500BackyardBird.jpg)|
