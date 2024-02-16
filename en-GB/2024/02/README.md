@@ -16,3 +16,4 @@
 202402130000|MarignyBeads|Mardi Gras beads in the Marigny, New Orleans, USA (© Erik Pronske Photography/Getty Images)|Let the good times roll!|![](/en-GB/2024/02/202402130000MarignyBeads.jpg)|
 202402140000|BowingCrane|Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)|Better together|![](/en-GB/2024/02/202402140000BowingCrane.jpg)|
 202402150000|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Happy Hippo Day!|![](/en-GB/2024/02/202402150000HippopotamusDay.jpg)|
+202402160000|BackyardBird|Female pyrrhuloxia, Texas, USA (© outtakes/Getty Images)|Dapper in the desert|![](/en-GB/2024/02/202402160000BackyardBird.jpg)|
