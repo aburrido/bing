@@ -17,3 +17,4 @@
 202402130800|Chandeleur|L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)|Info|![](/en-AU/2024/02/202402130800Chandeleur.jpg)|
 202402140800|BowingCrane|Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)|Info|![](/en-AU/2024/02/202402140800BowingCrane.jpg)|
 202402150800|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Info|![](/en-AU/2024/02/202402150800HippopotamusDay.jpg)|
+202402160800|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Info|![](/en-AU/2024/02/202402160800BackyardBird.jpg)|
