@@ -18,3 +18,4 @@
 202402141600|HippopotamusDay|河马妈妈和小河马，南卢安瓜国家公园，赞比亚 (© Nature Picture Library/Alamy Stock Photo)|河马日快乐！|![](/zh-CN/2024/02/202402141600HippopotamusDay.jpg)|
 202402151600|BackyardBird|一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)|让每只鸟都有价值|![](/zh-CN/2024/02/202402151600BackyardBird.jpg)|
 202402161600|LakeDolomites|多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)|自然奇景|![](/zh-CN/2024/02/202402161600LakeDolomites.jpg)|
+202402171600|DominicaWhales|抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)|来一口新鲜空气|![](/zh-CN/2024/02/202402171600DominicaWhales.jpg)|
