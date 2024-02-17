@@ -18,3 +18,4 @@
 202402141830|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Admire from afar!|![](/en-IN/2024/02/202402141830HippopotamusDay.jpg)|
 202402151830|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Dapper in the desert|![](/en-IN/2024/02/202402151830BackyardBird.jpg)|
 202402161830|KailasTempleEllora|Kailasa temple in Ellora caves complex in India (© mazzzur/Getty Images)|A megalithic wonder|![](/en-IN/2024/02/202402161830KailasTempleEllora.jpg)|
+202402171830|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-IN/2024/02/202402171830DominicaWhales.jpg)|
