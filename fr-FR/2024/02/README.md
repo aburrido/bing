@@ -18,3 +18,4 @@
 202402142300|HippopotamusDay|Mère hippopotame et son petit, parc national de South Luangwa, Zambie (© Nature Picture Library/Alamy)|Hippo-hourra pour la Journée de l'hippopotame !|![](/fr-FR/2024/02/202402142300HippopotamusDay.jpg)|
 202402152300|SkiResort|Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)|Comme un air de montagne|![](/fr-FR/2024/02/202402152300SkiResort.jpg)|
 202402162300|BrightonBoxes|Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)|Des cabines mythiques|![](/fr-FR/2024/02/202402162300BrightonBoxes.jpg)|
+202402172300|CarnavalTenerife|Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)|Des couleurs vives toute l'année !|![](/fr-FR/2024/02/202402172300CarnavalTenerife.jpg)|

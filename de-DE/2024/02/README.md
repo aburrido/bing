@@ -18,3 +18,4 @@
 202402142300|BerlinalePalast|Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)|Der rote Teppich ist ausgerollt!|![](/de-DE/2024/02/202402142300BerlinalePalast.jpg)|
 202402152300|BackyardBird|Ein Wüstenkardinal sitzt auf einem stacheligen Kaktus in Texas, USA (© outtakes/Getty Images)|Jeder Vogel zählt|![](/de-DE/2024/02/202402152300BackyardBird.jpg)|
 202402162300|LakeDolomites|Der Pragser Wildsee in den Dolomiten, Südtirol, Italien (© Marco Bottigelli/Getty Images)|Die Perle der Dolomiten|![](/de-DE/2024/02/202402162300LakeDolomites.jpg)|
+202402172300|DominicaWhales|Auftauchende Pottwale, Dominica, Karibik (© Franco Banfi/Minden Pictures)|Tief einatmen!|![](/de-DE/2024/02/202402172300DominicaWhales.jpg)|
