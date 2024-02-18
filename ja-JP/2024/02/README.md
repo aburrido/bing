@@ -19,3 +19,4 @@
 202402151500|BackyardBird|サボテンにとまるムネアカコウカンチョウ, 米国 テキサス州 (© outtakes/Getty Images)|今日は「鳥を数える日」|![](/ja-JP/2024/02/202402151500BackyardBird.jpg)|
 202402161500|PegadungRocks|ペガドゥン・ロック, インドネシア (© CK NG/500px/Getty Images)|サメの歯のような岩|![](/ja-JP/2024/02/202402161500PegadungRocks.jpg)|
 202402171500|DominicaWhales|マッコウクジラ, ドミニカ国 (© Franco Banfi/Minden Pictures)|今日は世界クジラの日|![](/ja-JP/2024/02/202402171500DominicaWhales.jpg)|
+202402181500|Ume2024|乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)|春の使者|![](/ja-JP/2024/02/202402181500Ume2024.jpg)|
