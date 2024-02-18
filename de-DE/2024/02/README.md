@@ -19,3 +19,4 @@
 202402152300|BackyardBird|Ein Wüstenkardinal sitzt auf einem stacheligen Kaktus in Texas, USA (© outtakes/Getty Images)|Jeder Vogel zählt|![](/de-DE/2024/02/202402152300BackyardBird.jpg)|
 202402162300|LakeDolomites|Der Pragser Wildsee in den Dolomiten, Südtirol, Italien (© Marco Bottigelli/Getty Images)|Die Perle der Dolomiten|![](/de-DE/2024/02/202402162300LakeDolomites.jpg)|
 202402172300|DominicaWhales|Auftauchende Pottwale, Dominica, Karibik (© Franco Banfi/Minden Pictures)|Tief einatmen!|![](/de-DE/2024/02/202402172300DominicaWhales.jpg)|
+202402182300|CarnavalTenerife|Luftaufnahme von bunten Häusern an der Küste von Puerto de la Cruz, Teneriffa, Spanien (© Marco Bottigelli/Getty Images)|Wo stehen diese farbigen Häuser?|![](/de-DE/2024/02/202402182300CarnavalTenerife.jpg)|
