@@ -19,3 +19,4 @@
 202402151600|BackyardBird|一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)|让每只鸟都有价值|![](/zh-CN/2024/02/202402151600BackyardBird.jpg)|
 202402161600|LakeDolomites|多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)|自然奇景|![](/zh-CN/2024/02/202402161600LakeDolomites.jpg)|
 202402171600|DominicaWhales|抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)|来一口新鲜空气|![](/zh-CN/2024/02/202402171600DominicaWhales.jpg)|
+202402181600|CarnavalTenerife|鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images)|一年四季都有鲜艳的色彩!|![](/zh-CN/2024/02/202402181600CarnavalTenerife.jpg)|
