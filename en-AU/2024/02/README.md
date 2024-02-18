@@ -19,3 +19,4 @@
 202402150800|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Info|![](/en-AU/2024/02/202402150800HippopotamusDay.jpg)|
 202402160800|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Info|![](/en-AU/2024/02/202402160800BackyardBird.jpg)|
 202402170800|LakeDolomites|The Pragser Wildsee in the Dolomites, South Tyrol, Italy (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/02/202402170800LakeDolomites.jpg)|
+202402180800|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Info|![](/en-AU/2024/02/202402180800DominicaWhales.jpg)|

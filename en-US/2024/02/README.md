@@ -19,3 +19,4 @@
 202402150800|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Happy Hippo Day!|![](/en-US/2024/02/202402150800HippopotamusDay.jpg)|
 202402160800|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Make every bird count|![](/en-US/2024/02/202402160800BackyardBird.jpg)|
 202402170800|AileyUptown|The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)|Celebrating Black history|![](/en-US/2024/02/202402170800AileyUptown.jpg)|
+202402180800|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-US/2024/02/202402180800DominicaWhales.jpg)|
