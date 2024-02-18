@@ -19,3 +19,4 @@
 202402150500|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Happy Hippo Day!|![](/en-CA/2024/02/202402150500HippopotamusDay.jpg)|
 202402160500|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Make every bird count|![](/en-CA/2024/02/202402160500BackyardBird.jpg)|
 202402170500|HalbinselJasmund|Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)|A frozen sentinel|![](/en-CA/2024/02/202402170500HalbinselJasmund.jpg)|
+202402180500|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-CA/2024/02/202402180500DominicaWhales.jpg)|
