@@ -18,3 +18,4 @@
 202402150000|HippopotamusDay|Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)|Happy Hippo Day!|![](/en-GB/2024/02/202402150000HippopotamusDay.jpg)|
 202402160000|BackyardBird|Female pyrrhuloxia, Texas, USA (© outtakes/Getty Images)|Dapper in the desert|![](/en-GB/2024/02/202402160000BackyardBird.jpg)|
 202402170000|WhitbyAbbeyJorvik|Whitby Abbey, North Yorkshire, England (© Kev Hill/Moment/Getty Images)|Where the past comes to life|![](/en-GB/2024/02/202402170000WhitbyAbbeyJorvik.jpg)|
+202402180000|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-GB/2024/02/202402180000DominicaWhales.jpg)|
