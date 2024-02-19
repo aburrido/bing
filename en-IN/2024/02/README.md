@@ -20,3 +20,4 @@
 202402161830|KailasTempleEllora|Kailasa temple in Ellora caves complex in India (© mazzzur/Getty Images)|A megalithic wonder|![](/en-IN/2024/02/202402161830KailasTempleEllora.jpg)|
 202402171830|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-IN/2024/02/202402171830DominicaWhales.jpg)|
 202402181830|CarnavalTenerife|Aerial view of colourful houses on a headland in Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)|Vibrant colours all year round!|![](/en-IN/2024/02/202402181830CarnavalTenerife.jpg)|
+202402191830|PeakDistrictNP|Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-IN/2024/02/202402191830PeakDistrictNP.jpg)|
