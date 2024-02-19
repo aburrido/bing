@@ -20,3 +20,4 @@
 202402161600|LakeDolomites|多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)|自然奇景|![](/zh-CN/2024/02/202402161600LakeDolomites.jpg)|
 202402171600|DominicaWhales|抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)|来一口新鲜空气|![](/zh-CN/2024/02/202402171600DominicaWhales.jpg)|
 202402181600|CarnavalTenerife|鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images)|一年四季都有鲜艳的色彩!|![](/zh-CN/2024/02/202402181600CarnavalTenerife.jpg)|
+202402191600|PeakDistrictNP|Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)|一个供市民休闲娱乐的公园|![](/zh-CN/2024/02/202402191600PeakDistrictNP.jpg)|
