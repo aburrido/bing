@@ -20,3 +20,4 @@
 202402162300|BrightonBoxes|Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)|Des cabines mythiques|![](/fr-FR/2024/02/202402162300BrightonBoxes.jpg)|
 202402172300|CarnavalTenerife|Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)|Des couleurs vives toute l'année !|![](/fr-FR/2024/02/202402172300CarnavalTenerife.jpg)|
 202402182300|DominicaWhales|Groupe de  grand cachalots, île de la Dominique (© Franco Banfi/Minden Pictures)|Les géants des mers|![](/fr-FR/2024/02/202402182300DominicaWhales.jpg)|
+202402192300|PeakDistrictNP|Sommet de Kinder Scout, Parc national du Peak District, Royaume-Uni (© john finney photography/Getty Images)|Un parc citoyen|![](/fr-FR/2024/02/202402192300PeakDistrictNP.jpg)|
