@@ -20,3 +20,4 @@
 202402160500|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Make every bird count|![](/en-CA/2024/02/202402160500BackyardBird.jpg)|
 202402170500|HalbinselJasmund|Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)|A frozen sentinel|![](/en-CA/2024/02/202402170500HalbinselJasmund.jpg)|
 202402180500|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-CA/2024/02/202402180500DominicaWhales.jpg)|
+202402190500|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Toledo's timeless tale|![](/en-CA/2024/02/202402190500TajoRiver.jpg)|

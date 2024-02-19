@@ -20,3 +20,4 @@
 202402160500|BackyardBird|Oiseau cardinal pyrrhuloxia perché sur un cactus épineux au Texas, États-Unis (© outtakes/Getty Images)|Pour que chaque oiseau compte|![](/fr-CA/2024/02/202402160500BackyardBird.jpg)|
 202402170500|HalbinselJasmund|Phare de Sassnitz, Rügen, Mecklembourg-Poméranie-Occidentale,  Allemagne (© Christian Back/eStock)|Un phare enchanteur et enneigé|![](/fr-CA/2024/02/202402170500HalbinselJasmund.jpg)|
 202402180500|CarnavalTenerife|Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)|Des couleurs vives toute l'année!|![](/fr-CA/2024/02/202402180500CarnavalTenerife.jpg)|
+202402190500|DominicaWhales|Groupe de  grand cachalots, île de la Dominique (© Franco Banfi/Minden Pictures)|Les géants des mers|![](/fr-CA/2024/02/202402190500DominicaWhales.jpg)|
