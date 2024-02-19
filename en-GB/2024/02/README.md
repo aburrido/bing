@@ -19,3 +19,4 @@
 202402160000|BackyardBird|Female pyrrhuloxia, Texas, USA (© outtakes/Getty Images)|Dapper in the desert|![](/en-GB/2024/02/202402160000BackyardBird.jpg)|
 202402170000|WhitbyAbbeyJorvik|Whitby Abbey, North Yorkshire, England (© Kev Hill/Moment/Getty Images)|Where the past comes to life|![](/en-GB/2024/02/202402170000WhitbyAbbeyJorvik.jpg)|
 202402180000|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-GB/2024/02/202402180000DominicaWhales.jpg)|
+202402190000|CarnavalTenerife|Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)|Vibrant colours all year round!|![](/en-GB/2024/02/202402190000CarnavalTenerife.jpg)|
