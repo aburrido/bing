@@ -20,3 +20,4 @@
 202402160800|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Make every bird count|![](/en-US/2024/02/202402160800BackyardBird.jpg)|
 202402170800|AileyUptown|The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)|Celebrating Black history|![](/en-US/2024/02/202402170800AileyUptown.jpg)|
 202402180800|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-US/2024/02/202402180800DominicaWhales.jpg)|
+202402190800|LincolnSunset|Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)|A tribute at twilight|![](/en-US/2024/02/202402190800LincolnSunset.jpg)|

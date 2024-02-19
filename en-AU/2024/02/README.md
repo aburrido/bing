@@ -20,3 +20,4 @@
 202402160800|BackyardBird|Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)|Info|![](/en-AU/2024/02/202402160800BackyardBird.jpg)|
 202402170800|LakeDolomites|The Pragser Wildsee in the Dolomites, South Tyrol, Italy (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/02/202402170800LakeDolomites.jpg)|
 202402180800|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Info|![](/en-AU/2024/02/202402180800DominicaWhales.jpg)|
+202402190800|CarnavalTenerife|Aerial view of colourful houses on a headland in Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/02/202402190800CarnavalTenerife.jpg)|
