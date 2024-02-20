@@ -21,3 +21,4 @@
 202402171830|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-IN/2024/02/202402171830DominicaWhales.jpg)|
 202402181830|CarnavalTenerife|Aerial view of colourful houses on a headland in Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)|Vibrant colours all year round!|![](/en-IN/2024/02/202402181830CarnavalTenerife.jpg)|
 202402191830|PeakDistrictNP|Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-IN/2024/02/202402191830PeakDistrictNP.jpg)|
+202402201830|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)|A natural oxymoron|![](/en-IN/2024/02/202402201830YosemiteFirefall.jpg)|
