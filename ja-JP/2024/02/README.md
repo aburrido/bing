@@ -21,3 +21,4 @@
 202402171500|DominicaWhales|マッコウクジラ, ドミニカ国 (© Franco Banfi/Minden Pictures)|今日は世界クジラの日|![](/ja-JP/2024/02/202402171500DominicaWhales.jpg)|
 202402181500|Ume2024|乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)|春の使者|![](/ja-JP/2024/02/202402181500Ume2024.jpg)|
 202402191500|PeakDistrictNP|キンダー・スカウト, イギリス (© john finney photography/Getty Images)|雪に覆われた高原|![](/ja-JP/2024/02/202402191500PeakDistrictNP.jpg)|
+202402201500|YosemiteFirefall|ホーステール滝, 米国 カリフォルニア州 (© Gregory B Cuvelier/Shutterstock)|火の滝|![](/ja-JP/2024/02/202402201500YosemiteFirefall.jpg)|
