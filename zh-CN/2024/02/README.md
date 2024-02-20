@@ -21,3 +21,4 @@
 202402171600|DominicaWhales|抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)|来一口新鲜空气|![](/zh-CN/2024/02/202402171600DominicaWhales.jpg)|
 202402181600|CarnavalTenerife|鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images)|一年四季都有鲜艳的色彩!|![](/zh-CN/2024/02/202402181600CarnavalTenerife.jpg)|
 202402191600|PeakDistrictNP|Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)|一个供市民休闲娱乐的公园|![](/zh-CN/2024/02/202402191600PeakDistrictNP.jpg)|
+202402201600|YosemiteFirefall|火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)|一个天然的矛盾体|![](/zh-CN/2024/02/202402201600YosemiteFirefall.jpg)|
