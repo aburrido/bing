@@ -22,3 +22,4 @@
 202402181600|CarnavalTenerife|鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙 (© Marco Bottigelli/Getty Images)|一年四季都有鲜艳的色彩!|![](/zh-CN/2024/02/202402181600CarnavalTenerife.jpg)|
 202402191600|PeakDistrictNP|Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)|一个供市民休闲娱乐的公园|![](/zh-CN/2024/02/202402191600PeakDistrictNP.jpg)|
 202402201600|YosemiteFirefall|火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)|一个天然的矛盾体|![](/zh-CN/2024/02/202402201600YosemiteFirefall.jpg)|
+202402211600|BrightonBoxes|布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚 (© Prasit photo/Getty Images)|名副其实的“调色板盒子”|![](/zh-CN/2024/02/202402211600BrightonBoxes.jpg)|
