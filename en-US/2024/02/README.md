@@ -22,3 +22,4 @@
 202402180800|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-US/2024/02/202402180800DominicaWhales.jpg)|
 202402190800|LincolnSunset|Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)|A tribute at twilight|![](/en-US/2024/02/202402190800LincolnSunset.jpg)|
 202402200800|PeakDistrictNP|Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-US/2024/02/202402200800PeakDistrictNP.jpg)|
+202402210800|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)|The flaming|![](/en-US/2024/02/202402210800YosemiteFirefall.jpg)|
