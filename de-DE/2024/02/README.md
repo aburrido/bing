@@ -22,3 +22,4 @@
 202402182300|CarnavalTenerife|Luftaufnahme von bunten Häusern an der Küste von Puerto de la Cruz, Teneriffa, Spanien (© Marco Bottigelli/Getty Images)|Wo stehen diese farbigen Häuser?|![](/de-DE/2024/02/202402182300CarnavalTenerife.jpg)|
 202402192300|PeakDistrictNP|Kinder Scout bei Sonnenaufgang, Peak-District-Nationalpark, UK (© john finney photography/Getty Images)|Ein Park mit Geschichte|![](/de-DE/2024/02/202402192300PeakDistrictNP.jpg)|
 202402202300|YosemiteFirefall|Horsetail-Wasserfall, Yosemite-Nationalpark, Kalifornien, USA (© Gregory B Cuvelier/Shutterstock)|Hier fließen die Funken|![](/de-DE/2024/02/202402202300YosemiteFirefall.jpg)|
+202402212300|FrozenSoapBubble|Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)|Zauberhafter Baumschmuck|![](/de-DE/2024/02/202402212300FrozenSoapBubble.jpg)|
