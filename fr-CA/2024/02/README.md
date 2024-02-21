@@ -22,3 +22,4 @@
 202402180500|CarnavalTenerife|Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)|Des couleurs vives toute l'année!|![](/fr-CA/2024/02/202402180500CarnavalTenerife.jpg)|
 202402190500|DominicaWhales|Groupe de  grand cachalots, île de la Dominique (© Franco Banfi/Minden Pictures)|Les géants des mers|![](/fr-CA/2024/02/202402190500DominicaWhales.jpg)|
 202402200500|PeakDistrictNP|Sommet de Kinder Scout, Parc national du Peak District, Royaume-Uni (© john finney photography/Getty Images)|Un parc citoyen|![](/fr-CA/2024/02/202402200500PeakDistrictNP.jpg)|
+202402210500|YosemiteFirefall|Cascade de feu Horsetail Fall, parc national de Yosemite, Californie, États-Unis (© Gregory B Cuvelier/Shutterstock)|L’illusion parfaite|![](/fr-CA/2024/02/202402210500YosemiteFirefall.jpg)|

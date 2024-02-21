@@ -22,3 +22,4 @@
 202402180500|DominicaWhales|Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)|Taking a breather|![](/en-CA/2024/02/202402180500DominicaWhales.jpg)|
 202402190500|TajoRiver|Toledo, Spain (© Carlos Fernandez/Getty Images)|Toledo's timeless tale|![](/en-CA/2024/02/202402190500TajoRiver.jpg)|
 202402200500|PeakDistrictNP|Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-CA/2024/02/202402200500PeakDistrictNP.jpg)|
+202402210500|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)|A natural oxymoron|![](/en-CA/2024/02/202402210500YosemiteFirefall.jpg)|
