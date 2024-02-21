@@ -22,3 +22,4 @@
 202402181500|Ume2024|乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)|春の使者|![](/ja-JP/2024/02/202402181500Ume2024.jpg)|
 202402191500|PeakDistrictNP|キンダー・スカウト, イギリス (© john finney photography/Getty Images)|雪に覆われた高原|![](/ja-JP/2024/02/202402191500PeakDistrictNP.jpg)|
 202402201500|YosemiteFirefall|ホーステール滝, 米国 カリフォルニア州 (© Gregory B Cuvelier/Shutterstock)|火の滝|![](/ja-JP/2024/02/202402201500YosemiteFirefall.jpg)|
+202402211500|BrightonBoxes|ブライトンビーチ, オーストラリア ビクトリア州 (© Prasit photo/Getty Images)|カラフルな小屋が並ぶ海岸|![](/ja-JP/2024/02/202402211500BrightonBoxes.jpg)|
