@@ -23,3 +23,4 @@
 202402190500|DominicaWhales|Groupe de  grand cachalots, île de la Dominique (© Franco Banfi/Minden Pictures)|Les géants des mers|![](/fr-CA/2024/02/202402190500DominicaWhales.jpg)|
 202402200500|PeakDistrictNP|Sommet de Kinder Scout, Parc national du Peak District, Royaume-Uni (© john finney photography/Getty Images)|Un parc citoyen|![](/fr-CA/2024/02/202402200500PeakDistrictNP.jpg)|
 202402210500|YosemiteFirefall|Cascade de feu Horsetail Fall, parc national de Yosemite, Californie, États-Unis (© Gregory B Cuvelier/Shutterstock)|L’illusion parfaite|![](/fr-CA/2024/02/202402210500YosemiteFirefall.jpg)|
+202402220500|BrightonBoxes|Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)|Des cabines mythiques|![](/fr-CA/2024/02/202402220500BrightonBoxes.jpg)|
