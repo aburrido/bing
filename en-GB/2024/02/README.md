@@ -22,3 +22,4 @@
 202402190000|CarnavalTenerife|Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)|Vibrant colours all year round!|![](/en-GB/2024/02/202402190000CarnavalTenerife.jpg)|
 202402200000|PeakDistrictNP|Kinder Scout, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-GB/2024/02/202402200000PeakDistrictNP.jpg)|
 202402210000|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California, USA (© Gregory B Cuvelier/Shutterstock)|A natural oxymoron|![](/en-GB/2024/02/202402210000YosemiteFirefall.jpg)|
+202402220000|BrightonBoxes|Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)|A veritable palette of boxes|![](/en-GB/2024/02/202402220000BrightonBoxes.jpg)|
