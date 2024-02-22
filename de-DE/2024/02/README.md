@@ -23,3 +23,4 @@
 202402192300|PeakDistrictNP|Kinder Scout bei Sonnenaufgang, Peak-District-Nationalpark, UK (© john finney photography/Getty Images)|Ein Park mit Geschichte|![](/de-DE/2024/02/202402192300PeakDistrictNP.jpg)|
 202402202300|YosemiteFirefall|Horsetail-Wasserfall, Yosemite-Nationalpark, Kalifornien, USA (© Gregory B Cuvelier/Shutterstock)|Hier fließen die Funken|![](/de-DE/2024/02/202402202300YosemiteFirefall.jpg)|
 202402212300|FrozenSoapBubble|Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)|Zauberhafter Baumschmuck|![](/de-DE/2024/02/202402212300FrozenSoapBubble.jpg)|
+202402222300|HaghartsinMonastery|Kloster Haghartsin, Dilijan-Nationalpark, Armenien (© Alexey Kharitonov/Shutterstock)|Wo die Adler tanzen|![](/de-DE/2024/02/202402222300HaghartsinMonastery.jpg)|

@@ -23,3 +23,4 @@
 202402192300|PeakDistrictNP|Sommet de Kinder Scout, Parc national du Peak District, Royaume-Uni (© john finney photography/Getty Images)|Un parc citoyen|![](/fr-FR/2024/02/202402192300PeakDistrictNP.jpg)|
 202402202300|YosemiteFirefall|Cascade de feu Horsetail Fall, parc national de Yosemite, Californie, États-Unis (© Gregory B Cuvelier/Shutterstock)|L’illusion parfaite|![](/fr-FR/2024/02/202402202300YosemiteFirefall.jpg)|
 202402212300|MontBlancChamonix|Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)|Une vallée connue dans le monde entier|![](/fr-FR/2024/02/202402212300MontBlancChamonix.jpg)|
+202402222300|HaghartsinMonastery|Monastère de Haghartsin, parc national de Dilijan, Arménie (© Alexey Kharitonov/Shutterstock)|Là où dansent les aigles|![](/fr-FR/2024/02/202402222300HaghartsinMonastery.jpg)|
