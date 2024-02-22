@@ -23,3 +23,4 @@
 202402190800|CarnavalTenerife|Aerial view of colourful houses on a headland in Puerto de la Cruz, Tenerife, Spain (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/02/202402190800CarnavalTenerife.jpg)|
 202402200800|PeakDistrictNP|Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)|Info|![](/en-AU/2024/02/202402200800PeakDistrictNP.jpg)|
 202402210800|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)|Info|![](/en-AU/2024/02/202402210800YosemiteFirefall.jpg)|
+202402220800|BrightonBoxes|Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)|Info|![](/en-AU/2024/02/202402220800BrightonBoxes.jpg)|

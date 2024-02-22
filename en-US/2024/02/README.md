@@ -23,3 +23,4 @@
 202402190800|LincolnSunset|Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)|A tribute at twilight|![](/en-US/2024/02/202402190800LincolnSunset.jpg)|
 202402200800|PeakDistrictNP|Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-US/2024/02/202402200800PeakDistrictNP.jpg)|
 202402210800|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)|The flaming|![](/en-US/2024/02/202402210800YosemiteFirefall.jpg)|
+202402220800|BrightonBoxes|Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)|A bonanza of beach huts|![](/en-US/2024/02/202402220800BrightonBoxes.jpg)|
