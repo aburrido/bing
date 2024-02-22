@@ -23,3 +23,4 @@
 202402191600|PeakDistrictNP|Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)|一个供市民休闲娱乐的公园|![](/zh-CN/2024/02/202402191600PeakDistrictNP.jpg)|
 202402201600|YosemiteFirefall|火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)|一个天然的矛盾体|![](/zh-CN/2024/02/202402201600YosemiteFirefall.jpg)|
 202402211600|BrightonBoxes|布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚 (© Prasit photo/Getty Images)|名副其实的“调色板盒子”|![](/zh-CN/2024/02/202402211600BrightonBoxes.jpg)|
+202402221600|HaghartsinMonastery|Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)|老鹰起舞的地方|![](/zh-CN/2024/02/202402221600HaghartsinMonastery.jpg)|
