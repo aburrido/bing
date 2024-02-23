@@ -24,3 +24,4 @@
 202402201500|YosemiteFirefall|ホーステール滝, 米国 カリフォルニア州 (© Gregory B Cuvelier/Shutterstock)|火の滝|![](/ja-JP/2024/02/202402201500YosemiteFirefall.jpg)|
 202402211500|BrightonBoxes|ブライトンビーチ, オーストラリア ビクトリア州 (© Prasit photo/Getty Images)|カラフルな小屋が並ぶ海岸|![](/ja-JP/2024/02/202402211500BrightonBoxes.jpg)|
 202402221500|Fuji2024|朝焼けに輝く富士山と山中湖, 山梨県 (© magicflute002/Getty Images)|今日は富士山の日|![](/ja-JP/2024/02/202402221500Fuji2024.jpg)|
+202402231500|AlmondBloom|アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)|春に咲き誇る白やピンクの花|![](/ja-JP/2024/02/202402231500AlmondBloom.jpg)|
