@@ -23,3 +23,4 @@
 202402200000|PeakDistrictNP|Kinder Scout, Peak District National Park, England (© john finney photography/Getty Images)|A park for the people|![](/en-GB/2024/02/202402200000PeakDistrictNP.jpg)|
 202402210000|YosemiteFirefall|Firefall at Horsetail Fall, Yosemite National Park, California, USA (© Gregory B Cuvelier/Shutterstock)|A natural oxymoron|![](/en-GB/2024/02/202402210000YosemiteFirefall.jpg)|
 202402220000|BrightonBoxes|Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)|A veritable palette of boxes|![](/en-GB/2024/02/202402220000BrightonBoxes.jpg)|
+202402230000|HaghartsinMonastery|Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)|Where eagles dance|![](/en-GB/2024/02/202402230000HaghartsinMonastery.jpg)|
