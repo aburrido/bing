@@ -25,3 +25,4 @@
 202402210500|YosemiteFirefall|Cascade de feu Horsetail Fall, parc national de Yosemite, Californie, États-Unis (© Gregory B Cuvelier/Shutterstock)|L’illusion parfaite|![](/fr-CA/2024/02/202402210500YosemiteFirefall.jpg)|
 202402220500|BrightonBoxes|Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)|Des cabines mythiques|![](/fr-CA/2024/02/202402220500BrightonBoxes.jpg)|
 202402230500|HaghartsinMonastery|Monastère de Haghartsin, parc national de Dilijan, Arménie (© Alexey Kharitonov/Shutterstock)|Là où dansent les aigles|![](/fr-CA/2024/02/202402230500HaghartsinMonastery.jpg)|
+202402240500|AlmondBloom|Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Murmures de printemps|![](/fr-CA/2024/02/202402240500AlmondBloom.jpg)|
