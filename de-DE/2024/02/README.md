@@ -25,3 +25,4 @@
 202402212300|FrozenSoapBubble|Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)|Zauberhafter Baumschmuck|![](/de-DE/2024/02/202402212300FrozenSoapBubble.jpg)|
 202402222300|HaghartsinMonastery|Kloster Haghartsin, Dilijan-Nationalpark, Armenien (© Alexey Kharitonov/Shutterstock)|Wo die Adler tanzen|![](/de-DE/2024/02/202402222300HaghartsinMonastery.jpg)|
 202402232300|HanselGretelHouse|Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)|Märchen oder Wirklichkeit?|![](/de-DE/2024/02/202402232300HanselGretelHouse.jpg)|
+202402242300|MtPrevostDuncan|Nebel im Cowichan Valley auf Vancouver Island, British Columbia, Kanada (© Kevin Oke/Alamy)|Hinter einer Nebeldecke|![](/de-DE/2024/02/202402242300MtPrevostDuncan.jpg)|
