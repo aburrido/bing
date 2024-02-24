@@ -25,3 +25,4 @@
 202402211600|BrightonBoxes|布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚 (© Prasit photo/Getty Images)|名副其实的“调色板盒子”|![](/zh-CN/2024/02/202402211600BrightonBoxes.jpg)|
 202402221600|HaghartsinMonastery|Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)|老鹰起舞的地方|![](/zh-CN/2024/02/202402221600HaghartsinMonastery.jpg)|
 202402231600|LaternFestival2024|锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)|点亮一盏明灯，愿您万事顺意！|![](/zh-CN/2024/02/202402231600LaternFestival2024.jpg)|
+202402241600|MtPrevostDuncan|考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)|薄雾笼罩|![](/zh-CN/2024/02/202402241600MtPrevostDuncan.jpg)|
