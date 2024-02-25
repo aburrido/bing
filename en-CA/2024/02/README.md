@@ -26,3 +26,4 @@
 202402220500|BrightonBoxes|Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)|A veritable palette of boxes|![](/en-CA/2024/02/202402220500BrightonBoxes.jpg)|
 202402230500|HaghartsinMonastery|Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)|Where eagles dance|![](/en-CA/2024/02/202402230500HaghartsinMonastery.jpg)|
 202402240500|AlmondBloom|Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)|Whispers of spring|![](/en-CA/2024/02/202402240500AlmondBloom.jpg)|
+202402250500|MtPrevostDuncan|Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Behind a blanket of mist|![](/en-CA/2024/02/202402250500MtPrevostDuncan.jpg)|

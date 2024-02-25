@@ -26,3 +26,4 @@
 202402220500|BrightonBoxes|Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)|Des cabines mythiques|![](/fr-CA/2024/02/202402220500BrightonBoxes.jpg)|
 202402230500|HaghartsinMonastery|Monastère de Haghartsin, parc national de Dilijan, Arménie (© Alexey Kharitonov/Shutterstock)|Là où dansent les aigles|![](/fr-CA/2024/02/202402230500HaghartsinMonastery.jpg)|
 202402240500|AlmondBloom|Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Murmures de printemps|![](/fr-CA/2024/02/202402240500AlmondBloom.jpg)|
+202402250500|MtPrevostDuncan|Brume dans la vallée de Cowichan depuis le mont Prevost, Duncan, île de Vancouver, Colombie-Britannique, Canada (© Kevin Oke/Alamy)|Derrière la brume|![](/fr-CA/2024/02/202402250500MtPrevostDuncan.jpg)|
