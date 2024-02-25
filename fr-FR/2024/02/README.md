@@ -26,3 +26,4 @@
 202402222300|HaghartsinMonastery|Monastère de Haghartsin, parc national de Dilijan, Arménie (© Alexey Kharitonov/Shutterstock)|Là où dansent les aigles|![](/fr-FR/2024/02/202402222300HaghartsinMonastery.jpg)|
 202402232300|AgriculturalShow|Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)|La plus grande ferme de France ouvre ses portes !|![](/fr-FR/2024/02/202402232300AgriculturalShow.jpg)|
 202402242300|AlmondBloom|Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Murmures de printemps|![](/fr-FR/2024/02/202402242300AlmondBloom.jpg)|
+202402252300|GrandCanyonWinter|Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)|Un canyon légendaire|![](/fr-FR/2024/02/202402252300GrandCanyonWinter.jpg)|
