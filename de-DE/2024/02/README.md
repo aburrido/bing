@@ -27,3 +27,4 @@
 202402232300|HanselGretelHouse|Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)|Märchen oder Wirklichkeit?|![](/de-DE/2024/02/202402232300HanselGretelHouse.jpg)|
 202402242300|MtPrevostDuncan|Nebel im Cowichan Valley auf Vancouver Island, British Columbia, Kanada (© Kevin Oke/Alamy)|Hinter einer Nebeldecke|![](/de-DE/2024/02/202402242300MtPrevostDuncan.jpg)|
 202402252300|GrandCanyonWinter|Grand-Canyon-Nationalpark, Arizona, USA (© Jeremy Janus/Getty Images)|Schneeweiße Schlucht|![](/de-DE/2024/02/202402252300GrandCanyonWinter.jpg)|
+202402262300|PolarBearCubs|Eisbärenjunge beim Spielen, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)|Ist es nicht kalt, um draußen zu spielen?|![](/de-DE/2024/02/202402262300PolarBearCubs.jpg)|

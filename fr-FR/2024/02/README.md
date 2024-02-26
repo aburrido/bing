@@ -27,3 +27,4 @@
 202402232300|AgriculturalShow|Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)|La plus grande ferme de France ouvre ses portes !|![](/fr-FR/2024/02/202402232300AgriculturalShow.jpg)|
 202402242300|AlmondBloom|Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Murmures de printemps|![](/fr-FR/2024/02/202402242300AlmondBloom.jpg)|
 202402252300|GrandCanyonWinter|Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)|Un canyon légendaire|![](/fr-FR/2024/02/202402252300GrandCanyonWinter.jpg)|
+202402262300|PolarBearCubs|Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)|Une journée glaciale pour jouer !|![](/fr-FR/2024/02/202402262300PolarBearCubs.jpg)|
