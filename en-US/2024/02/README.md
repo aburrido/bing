@@ -27,3 +27,4 @@
 202402230800|HaghartsinMonastery|Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)|Where eagles dance|![](/en-US/2024/02/202402230800HaghartsinMonastery.jpg)|
 202402240800|AlmondBloom|Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)|Whispers of spring|![](/en-US/2024/02/202402240800AlmondBloom.jpg)|
 202402250800|WrightSculpture|'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)|Say it loud|![](/en-US/2024/02/202402250800WrightSculpture.jpg)|
+202402260800|GrandCanyonWinter|Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)|Deeply chasm-matic|![](/en-US/2024/02/202402260800GrandCanyonWinter.jpg)|
