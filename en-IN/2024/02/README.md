@@ -27,3 +27,4 @@
 202402231830|AlmondBloom|Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)|Whispers of spring|![](/en-IN/2024/02/202402231830AlmondBloom.jpg)|
 202402241830|MtPrevostDuncan|Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Behind a blanket of mist|![](/en-IN/2024/02/202402241830MtPrevostDuncan.jpg)|
 202402251830|TigerMom|Tiger family a stroll one early morning at Ranthambhore National Park, Rajasthan, India (© Archna Singh/Shutterstock)|Rulers of roars!|![](/en-IN/2024/02/202402251830TigerMom.jpg)|
+202402261830|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)|An ice day to play|![](/en-IN/2024/02/202402261830PolarBearCubs.jpg)|
