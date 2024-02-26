@@ -26,3 +26,4 @@
 202402230000|HaghartsinMonastery|Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)|Where eagles dance|![](/en-GB/2024/02/202402230000HaghartsinMonastery.jpg)|
 202402240000|AlmondBloom|Almond trees in full bloom, California, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Whispers of spring|![](/en-GB/2024/02/202402240000AlmondBloom.jpg)|
 202402250000|ModicaItaly|Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)|A slice of Sicily|![](/en-GB/2024/02/202402250000ModicaItaly.jpg)|
+202402260000|MtPrevostDuncan|Cowichan Valley, Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Behind a blanket of mist|![](/en-GB/2024/02/202402260000MtPrevostDuncan.jpg)|
