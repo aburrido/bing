@@ -27,3 +27,4 @@
 202402231500|AlmondBloom|アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)|春に咲き誇る白やピンクの花|![](/ja-JP/2024/02/202402231500AlmondBloom.jpg)|
 202402241500|HaghartsinMonastery|ハガルツィン修道院, アルメニア (© Alexey Kharitonov/Shutterstock)|森の中に立つ修道院|![](/ja-JP/2024/02/202402241500HaghartsinMonastery.jpg)|
 202402251500|GrandCanyonWinter|グランドキャニオン国立公園, 米国 アリゾナ州 (© Jeremy Janus/Getty Images)|国立公園指定 105 周年|![](/ja-JP/2024/02/202402251500GrandCanyonWinter.jpg)|
+202402261500|PolarBearCubs|じゃれあうホッキョクグマの赤ちゃん, 米国 アラスカ州 (© Piriya Photography/Getty Images)|今日は国際ホッキョクグマの日|![](/ja-JP/2024/02/202402261500PolarBearCubs.jpg)|
