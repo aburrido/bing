@@ -28,3 +28,4 @@
 202402242300|AlmondBloom|Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Murmures de printemps|![](/fr-FR/2024/02/202402242300AlmondBloom.jpg)|
 202402252300|GrandCanyonWinter|Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)|Un canyon légendaire|![](/fr-FR/2024/02/202402252300GrandCanyonWinter.jpg)|
 202402262300|PolarBearCubs|Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)|Une journée glaciale pour jouer !|![](/fr-FR/2024/02/202402262300PolarBearCubs.jpg)|
+202402272300|BamburghCastleUK|Château de Bamburgh, Northumberland, Angleterre (© Blackbeck/Getty Images)|Un château à découvrir au fil de l'eau|![](/fr-FR/2024/02/202402272300BamburghCastleUK.jpg)|
