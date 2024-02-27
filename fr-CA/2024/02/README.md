@@ -28,3 +28,4 @@
 202402240500|AlmondBloom|Amandiers en fleurs, Californie, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Murmures de printemps|![](/fr-CA/2024/02/202402240500AlmondBloom.jpg)|
 202402250500|MtPrevostDuncan|Brume dans la vallée de Cowichan depuis le mont Prevost, Duncan, île de Vancouver, Colombie-Britannique, Canada (© Kevin Oke/Alamy)|Derrière la brume|![](/fr-CA/2024/02/202402250500MtPrevostDuncan.jpg)|
 202402260500|GrandCanyonWinter|Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)|Un canyon légendaire|![](/fr-CA/2024/02/202402260500GrandCanyonWinter.jpg)|
+202402270500|PolarBearCubs|Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)|Une journée glaciale pour jouer!|![](/fr-CA/2024/02/202402270500PolarBearCubs.jpg)|

@@ -28,3 +28,4 @@
 202402240500|AlmondBloom|Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)|Whispers of spring|![](/en-CA/2024/02/202402240500AlmondBloom.jpg)|
 202402250500|MtPrevostDuncan|Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Behind a blanket of mist|![](/en-CA/2024/02/202402250500MtPrevostDuncan.jpg)|
 202402260500|GrandCanyonWinter|Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)|Deeply chasm-matic|![](/en-CA/2024/02/202402260500GrandCanyonWinter.jpg)|
+202402270500|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)|An ice day to play|![](/en-CA/2024/02/202402270500PolarBearCubs.jpg)|
