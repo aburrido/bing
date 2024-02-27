@@ -28,3 +28,4 @@
 202402241600|MtPrevostDuncan|考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)|薄雾笼罩|![](/zh-CN/2024/02/202402241600MtPrevostDuncan.jpg)|
 202402251600|GrandCanyonWinter|大峡谷国家公园，亚利桑那州，美国 (© Jeremy Janus/Getty Images)|深不见底的鸿沟|![](/zh-CN/2024/02/202402251600GrandCanyonWinter.jpg)|
 202402261600|PolarBearCubs|玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国 (© Piriya Photography/Getty Images)|在冰天雪地里玩耍|![](/zh-CN/2024/02/202402261600PolarBearCubs.jpg)|
+202402271600|BamburghCastleUK|班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images)|随波逐流|![](/zh-CN/2024/02/202402271600BamburghCastleUK.jpg)|
