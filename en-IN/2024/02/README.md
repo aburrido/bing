@@ -29,3 +29,4 @@
 202402251830|TigerMom|Tiger family a stroll one early morning at Ranthambhore National Park, Rajasthan, India (© Archna Singh/Shutterstock)|Rulers of roars!|![](/en-IN/2024/02/202402251830TigerMom.jpg)|
 202402261830|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)|An ice day to play|![](/en-IN/2024/02/202402261830PolarBearCubs.jpg)|
 202402271830|BamburghCastleUK|Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)|Grow with the flow|![](/en-IN/2024/02/202402271830BamburghCastleUK.jpg)|
+202402281830|LeapingSquirrel|Eurasian red squirrel (© Westend61/Getty Images)|Leaping through an extra day|![](/en-IN/2024/02/202402281830LeapingSquirrel.jpg)|
