@@ -29,3 +29,4 @@
 202402251500|GrandCanyonWinter|グランドキャニオン国立公園, 米国 アリゾナ州 (© Jeremy Janus/Getty Images)|国立公園指定 105 周年|![](/ja-JP/2024/02/202402251500GrandCanyonWinter.jpg)|
 202402261500|PolarBearCubs|じゃれあうホッキョクグマの赤ちゃん, 米国 アラスカ州 (© Piriya Photography/Getty Images)|今日は国際ホッキョクグマの日|![](/ja-JP/2024/02/202402261500PolarBearCubs.jpg)|
 202402271500|BamburghCastleUK|バンバラ城, イングランド ノーサンバーランド州 (© Blackbeck/Getty Images)|海に面したお城|![](/ja-JP/2024/02/202402271500BamburghCastleUK.jpg)|
+202402281500|VermilionCliffs|バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)|朱色の断崖絶壁|![](/ja-JP/2024/02/202402281500VermilionCliffs.jpg)|
