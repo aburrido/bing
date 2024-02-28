@@ -29,3 +29,4 @@
 202402250500|MtPrevostDuncan|Brume dans la vallée de Cowichan depuis le mont Prevost, Duncan, île de Vancouver, Colombie-Britannique, Canada (© Kevin Oke/Alamy)|Derrière la brume|![](/fr-CA/2024/02/202402250500MtPrevostDuncan.jpg)|
 202402260500|GrandCanyonWinter|Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)|Un canyon légendaire|![](/fr-CA/2024/02/202402260500GrandCanyonWinter.jpg)|
 202402270500|PolarBearCubs|Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)|Une journée glaciale pour jouer!|![](/fr-CA/2024/02/202402270500PolarBearCubs.jpg)|
+202402280500|BamburghCastleUK|Château de Bamburgh, Northumberland, Angleterre (© Blackbeck/Getty Images)|Un château à découvrir au fil de l'eau|![](/fr-CA/2024/02/202402280500BamburghCastleUK.jpg)|
