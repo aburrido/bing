@@ -29,3 +29,4 @@
 202402250800|MtPrevostDuncan|Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Info|![](/en-AU/2024/02/202402250800MtPrevostDuncan.jpg)|
 202402260800|GrandCanyonWinter|Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)|Info|![](/en-AU/2024/02/202402260800GrandCanyonWinter.jpg)|
 202402270800|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)|Info|![](/en-AU/2024/02/202402270800PolarBearCubs.jpg)|
+202402280800|BamburghCastleUK|Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)|Info|![](/en-AU/2024/02/202402280800BamburghCastleUK.jpg)|
