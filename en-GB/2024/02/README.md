@@ -28,3 +28,4 @@
 202402250000|ModicaItaly|Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)|A slice of Sicily|![](/en-GB/2024/02/202402250000ModicaItaly.jpg)|
 202402260000|MtPrevostDuncan|Cowichan Valley, Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Behind a blanket of mist|![](/en-GB/2024/02/202402260000MtPrevostDuncan.jpg)|
 202402270000|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)|An ice day to play|![](/en-GB/2024/02/202402270000PolarBearCubs.jpg)|
+202402280000|BamburghCastleUK|Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)|Grow with the flow|![](/en-GB/2024/02/202402280000BamburghCastleUK.jpg)|
