@@ -29,3 +29,4 @@
 202402252300|GrandCanyonWinter|Grand-Canyon-Nationalpark, Arizona, USA (© Jeremy Janus/Getty Images)|Schneeweiße Schlucht|![](/de-DE/2024/02/202402252300GrandCanyonWinter.jpg)|
 202402262300|PolarBearCubs|Eisbärenjunge beim Spielen, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)|Ist es nicht kalt, um draußen zu spielen?|![](/de-DE/2024/02/202402262300PolarBearCubs.jpg)|
 202402272300|BamburghCastleUK|Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)|Was will man mehr als ein Schloss am Meer?|![](/de-DE/2024/02/202402272300BamburghCastleUK.jpg)|
+202402282300|LeapingSquirrel|Eurasisches Eichhörnchen (© Westend61/Getty Images)|Wann ist endlich März?|![](/de-DE/2024/02/202402282300LeapingSquirrel.jpg)|
