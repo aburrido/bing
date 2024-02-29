@@ -30,3 +30,4 @@
 202402260500|GrandCanyonWinter|Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)|Deeply chasm-matic|![](/en-CA/2024/02/202402260500GrandCanyonWinter.jpg)|
 202402270500|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)|An ice day to play|![](/en-CA/2024/02/202402270500PolarBearCubs.jpg)|
 202402280500|BamburghCastleUK|Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)|Grow with the flow|![](/en-CA/2024/02/202402280500BamburghCastleUK.jpg)|
+202402290500|LeapingSquirrel|Eurasian red squirrel (© Westend61/Getty Images)|Leaping through an extra day|![](/en-CA/2024/02/202402290500LeapingSquirrel.jpg)|

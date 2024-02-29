@@ -30,3 +30,4 @@
 202402260500|GrandCanyonWinter|Parc national du Grand Canyon, Arizona, États-Unis (© Jeremy Janus/Getty Images)|Un canyon légendaire|![](/fr-CA/2024/02/202402260500GrandCanyonWinter.jpg)|
 202402270500|PolarBearCubs|Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)|Une journée glaciale pour jouer!|![](/fr-CA/2024/02/202402270500PolarBearCubs.jpg)|
 202402280500|BamburghCastleUK|Château de Bamburgh, Northumberland, Angleterre (© Blackbeck/Getty Images)|Un château à découvrir au fil de l'eau|![](/fr-CA/2024/02/202402280500BamburghCastleUK.jpg)|
+202402290500|LeapingSquirrel|Écureuil roux d'Europe (© Westend61/Getty Images)|Un dernier saut avant le mois de mars!|![](/fr-CA/2024/02/202402290500LeapingSquirrel.jpg)|
