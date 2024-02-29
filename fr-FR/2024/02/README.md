@@ -30,3 +30,4 @@
 202402262300|PolarBearCubs|Oursons polaires, Kaktovik, Alaska, États-Unis (© Piriya Photography/Getty Images)|Une journée glaciale pour jouer !|![](/fr-FR/2024/02/202402262300PolarBearCubs.jpg)|
 202402272300|BamburghCastleUK|Château de Bamburgh, Northumberland, Angleterre (© Blackbeck/Getty Images)|Un château à découvrir au fil de l'eau|![](/fr-FR/2024/02/202402272300BamburghCastleUK.jpg)|
 202402282300|LeapingSquirrel|Écureuil roux d'Europe (© Westend61/Getty Images)|Un dernier saut avant le mois de mars !|![](/fr-FR/2024/02/202402282300LeapingSquirrel.jpg)|
+202402292300|Badger|Blaireau européen (© Milan Zygmunt/Shutterstock)|Pas si « blaireau », le blaireau !|![](/fr-FR/2024/02/202402292300Badger.jpg)|
