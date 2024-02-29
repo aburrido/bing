@@ -29,3 +29,4 @@
 202402260000|MtPrevostDuncan|Cowichan Valley, Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)|Behind a blanket of mist|![](/en-GB/2024/02/202402260000MtPrevostDuncan.jpg)|
 202402270000|PolarBearCubs|Polar bear cubs playing, Kaktovik, Alaska, USA (© Piriya Photography/Getty Images)|An ice day to play|![](/en-GB/2024/02/202402270000PolarBearCubs.jpg)|
 202402280000|BamburghCastleUK|Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)|Grow with the flow|![](/en-GB/2024/02/202402280000BamburghCastleUK.jpg)|
+202402290000|LeapingSquirrel|Eurasian red squirrel (© Westend61/Getty Images)|Leaping through an extra day|![](/en-GB/2024/02/202402290000LeapingSquirrel.jpg)|
