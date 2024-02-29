@@ -30,3 +30,4 @@
 202402261600|PolarBearCubs|玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国 (© Piriya Photography/Getty Images)|在冰天雪地里玩耍|![](/zh-CN/2024/02/202402261600PolarBearCubs.jpg)|
 202402271600|BamburghCastleUK|班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images)|随波逐流|![](/zh-CN/2024/02/202402271600BamburghCastleUK.jpg)|
 202402281600|LeapingSquirrel|欧亚红松鼠 (© Westend61/Getty Images)|多过一天|![](/zh-CN/2024/02/202402281600LeapingSquirrel.jpg)|
+202402291600|Schmetterlingswiese|德国草地上的蝴蝶 (© Albert Fertl/Getty Images)|蝶舞翩跹|![](/zh-CN/2024/02/202402291600Schmetterlingswiese.jpg)|
