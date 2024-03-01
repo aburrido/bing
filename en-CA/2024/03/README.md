@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202402290500|LeapingSquirrel|Eurasian red squirrel (© Westend61/Getty Images)|Leaping through an extra day|![](/en-CA/2024/03/202402290500LeapingSquirrel.jpg)|
+202403010500|WheatonRiverYukon|Sunset colours over the icy Wheaton River, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)|Are there any visits from Aurora yet?|![](/en-CA/2024/03/202403010500WheatonRiverYukon.jpg)|
