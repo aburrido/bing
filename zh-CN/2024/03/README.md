@@ -4,3 +4,4 @@
 202403011600|ModicaItaly|莫迪卡，西西里岛，意大利 (© Sandro Bisaro/Getty Images)|西西里岛的风光|![](/zh-CN/2024/03/202403011600ModicaItaly.jpg)|
 202403021600|KrugerLeopard|树上的豹子，克鲁格国家公园，南非 (© Tonino De Marco/Minden Pictures)|一位浑身斑点的杂技演员|![](/zh-CN/2024/03/202403021600KrugerLeopard.jpg)|
 202403031600|ArenalCostaRica|从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images)|睡美人|![](/zh-CN/2024/03/202403031600ArenalCostaRica.jpg)|
+202403041600|BangkokCircle|曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock)|陷入循环之中？|![](/zh-CN/2024/03/202403041600BangkokCircle.jpg)|
