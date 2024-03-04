@@ -5,3 +5,4 @@
 202403022300|KrugerLeopard|Leopard auf einem Baum, Kruger-Nationalpark, Südafrika (© Tonino De Marco/Minden Pictures)|Der Leopard auf seinem Thron|![](/de-DE/2024/03/202403022300KrugerLeopard.jpg)|
 ||||![](/de-DE/2024/03/.jpg)|
 202403032300|ArenalCostaRica|Vulkan Arenal in Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)|Eine schlafende Schönheit|![](/de-DE/2024/03/202403032300ArenalCostaRica.jpg)|
+202403042300|BangkokCircle|Schnellstraße in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Schnellstraße zur Erleuchtung|![](/de-DE/2024/03/202403042300BangkokCircle.jpg)|
