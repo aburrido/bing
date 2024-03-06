@@ -6,3 +6,4 @@
 202403030500|KrugerLeopard|Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)|A dappled acrobat|![](/en-CA/2024/03/202403030500KrugerLeopard.jpg)|
 202403040500|ArenalCostaRica|Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)|A sleeping beauty|![](/en-CA/2024/03/202403040500ArenalCostaRica.jpg)|
 202403050500|BangkokCircle|Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Stuck in a loop?|![](/en-CA/2024/03/202403050500BangkokCircle.jpg)|
+202403060500|WahclellaFalls|Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)|Get your splash on|![](/en-CA/2024/03/202403060500WahclellaFalls.jpg)|
