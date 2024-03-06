@@ -7,3 +7,4 @@
 202403032300|ArenalCostaRica|Vulkan Arenal in Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)|Eine schlafende Schönheit|![](/de-DE/2024/03/202403032300ArenalCostaRica.jpg)|
 202403042300|BangkokCircle|Schnellstraße in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Schnellstraße zur Erleuchtung|![](/de-DE/2024/03/202403042300BangkokCircle.jpg)|
 202403052300|WahclellaFalls|Wahclella-Fälle in der Columbia Fluss-Schlucht, Oregon, USA (© Eric Vogt/Tandem Stills + Motion)|Lust auf eine Spritztour?|![](/de-DE/2024/03/202403052300WahclellaFalls.jpg)|
+202403062300|TarragonaSpain|Felsen von Benet, Parc Natural dels Ports, Katalonien, Spanien (© Sergi Boixader/Alamy Stock Photo)|Neue Horizonte entdecken|![](/de-DE/2024/03/202403062300TarragonaSpain.jpg)|
