@@ -8,3 +8,4 @@
 202403042300|BangkokCircle|Schnellstraße in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Schnellstraße zur Erleuchtung|![](/de-DE/2024/03/202403042300BangkokCircle.jpg)|
 202403052300|WahclellaFalls|Wahclella-Fälle in der Columbia Fluss-Schlucht, Oregon, USA (© Eric Vogt/Tandem Stills + Motion)|Lust auf eine Spritztour?|![](/de-DE/2024/03/202403052300WahclellaFalls.jpg)|
 202403062300|TarragonaSpain|Felsen von Benet, Parc Natural dels Ports, Katalonien, Spanien (© Sergi Boixader/Alamy Stock Photo)|Neue Horizonte entdecken|![](/de-DE/2024/03/202403062300TarragonaSpain.jpg)|
+202403072300|TateLightUp|Tate Modern am Weltfrauentag, London, England (© Stephen Chung/Alamy Stock Photo)|Alle Zeichen stehen auf Gleichberechtigung|![](/de-DE/2024/03/202403072300TateLightUp.jpg)|
