@@ -7,3 +7,4 @@
 202403040800|ArenalCostaRica|Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)|A sleeping beauty|![](/en-US/2024/03/202403040800ArenalCostaRica.jpg)|
 202403050800|BangkokCircle|Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Stuck in a loop?|![](/en-US/2024/03/202403050800BangkokCircle.jpg)|
 202403060800|WahclellaFalls|Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)|Get your splash on|![](/en-US/2024/03/202403060800WahclellaFalls.jpg)|
+202403070800|TarragonaSpain|Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)|Reaching new heights|![](/en-US/2024/03/202403070800TarragonaSpain.jpg)|

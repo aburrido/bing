@@ -8,3 +8,4 @@
 202403050800|BangkokCircle|Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Info|![](/en-AU/2024/03/202403050800BangkokCircle.jpg)|
 ||||![](/en-AU/2024/03/.jpg)|
 202403060800|WahclellaFalls|Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)|Info|![](/en-AU/2024/03/202403060800WahclellaFalls.jpg)|
+202403070800|TarragonaSpain|Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)|Info|![](/en-AU/2024/03/202403070800TarragonaSpain.jpg)|
