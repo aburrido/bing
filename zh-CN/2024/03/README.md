@@ -7,3 +7,4 @@
 202403041600|BangkokCircle|曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock)|陷入循环之中？|![](/zh-CN/2024/03/202403041600BangkokCircle.jpg)|
 202403051600|WahclellaFalls|Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)|尽情地嬉戏玩水吧！|![](/zh-CN/2024/03/202403051600WahclellaFalls.jpg)|
 202403061600|TarragonaSpain|Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)|攀登新的高峰|![](/zh-CN/2024/03/202403061600TarragonaSpain.jpg)|
+202403071600|IguazuFalls|伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)|世界新七大自然奇观之一|![](/zh-CN/2024/03/202403071600IguazuFalls.jpg)|
