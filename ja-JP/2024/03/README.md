@@ -8,3 +8,4 @@
 202403051500|WahclellaFalls|ワクレラ滝, 米国 オレゴン州 (© Eric Vogt/Tandem Stills + Motion)|緑に囲まれた滝|![](/ja-JP/2024/03/202403051500WahclellaFalls.jpg)|
 202403061500|TarragonaSpain|エルス・ポート自然公園, スペイン カタルーニャ州 (© Sergi Boixader/Alamy)|巨大な城のように見える岩山|![](/ja-JP/2024/03/202403061500TarragonaSpain.jpg)|
 202403071500|TateLightUp|テート・モダン, イギリス ロンドン (© Stephen Chung/Alamy Stock Photo)|今日は国際女性デー|![](/ja-JP/2024/03/202403071500TateLightUp.jpg)|
+202403081500|BistiBlue|ビスティ・デナジン荒野, 米国 ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)|異世界のような荒地|![](/ja-JP/2024/03/202403081500BistiBlue.jpg)|
