@@ -8,3 +8,4 @@
 202403050500|BangkokCircle|Rond-point et autoroute à Bangkok, Thaïlande (© Avigator Fortuner/Shutterstock)|Vous tournez « en boucle »?|![](/fr-CA/2024/03/202403050500BangkokCircle.jpg)|
 202403060500|WahclellaFalls|Cascade de Wahclella dans les gorges du fleuve Columbia, Oregon, États-Unis (© Eric Vogt/Tandem Stills + Motion)|Un petit plongeon?|![](/fr-CA/2024/03/202403060500WahclellaFalls.jpg)|
 202403070500|TarragonaSpain|Roques de Benet, parc naturel Els Ports, Catalogne, Espagne (© Sergi Boixader/Alamy)|En route vers les sommets!|![](/fr-CA/2024/03/202403070500TarragonaSpain.jpg)|
+202403080500|TateLightUp|Musée Tate Modern illuminé à l'occasion de la Journée internationale des femmes, Londres, Angleterre (© Stephen Chung/Alamy Stock Photo)|Liberté, Égalité, Sororité|![](/fr-CA/2024/03/202403080500TateLightUp.jpg)|
