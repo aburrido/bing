@@ -8,3 +8,4 @@
 202403050800|BangkokCircle|Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)|Stuck in a loop?|![](/en-US/2024/03/202403050800BangkokCircle.jpg)|
 202403060800|WahclellaFalls|Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)|Get your splash on|![](/en-US/2024/03/202403060800WahclellaFalls.jpg)|
 202403070800|TarragonaSpain|Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)|Reaching new heights|![](/en-US/2024/03/202403070800TarragonaSpain.jpg)|
+202403080800|TateLightUp|Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)|Right to shine|![](/en-US/2024/03/202403080800TateLightUp.jpg)|

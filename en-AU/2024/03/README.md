@@ -9,3 +9,4 @@
 ||||![](/en-AU/2024/03/.jpg)|
 202403060800|WahclellaFalls|Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)|Info|![](/en-AU/2024/03/202403060800WahclellaFalls.jpg)|
 202403070800|TarragonaSpain|Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)|Info|![](/en-AU/2024/03/202403070800TarragonaSpain.jpg)|
+202403080800|IguazuFalls|Aerial view of Iguazú Falls, Foz do Iguaçu, Brazil (© Nido Huebl/Shutterstock)|Info|![](/en-AU/2024/03/202403080800IguazuFalls.jpg)|
