@@ -9,3 +9,4 @@
 202403061500|TarragonaSpain|エルス・ポート自然公園, スペイン カタルーニャ州 (© Sergi Boixader/Alamy)|巨大な城のように見える岩山|![](/ja-JP/2024/03/202403061500TarragonaSpain.jpg)|
 202403071500|TateLightUp|テート・モダン, イギリス ロンドン (© Stephen Chung/Alamy Stock Photo)|今日は国際女性デー|![](/ja-JP/2024/03/202403071500TateLightUp.jpg)|
 202403081500|BistiBlue|ビスティ・デナジン荒野, 米国 ニューメキシコ州 (© Ian Shive/Tandem Stills + Motion)|異世界のような荒地|![](/ja-JP/2024/03/202403081500BistiBlue.jpg)|
+202403091500|BeaumontClock|サン・ジャシント・ビルの大時計, 米国 テキサス州 (© Richard T. Nowitz/Getty Images)|今日からは海外の夏時間|![](/ja-JP/2024/03/202403091500BeaumontClock.jpg)|
