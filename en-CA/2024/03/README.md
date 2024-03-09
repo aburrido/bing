@@ -9,3 +9,4 @@
 202403060500|WahclellaFalls|Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)|Get your splash on|![](/en-CA/2024/03/202403060500WahclellaFalls.jpg)|
 202403070500|TarragonaSpain|Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)|Reaching new heights|![](/en-CA/2024/03/202403070500TarragonaSpain.jpg)|
 202403080500|TateLightUp|Tate Modern lit up on International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)|Right to shine|![](/en-CA/2024/03/202403080500TateLightUp.jpg)|
+202403090500|BistiBlue|Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)|Transformed by time|![](/en-CA/2024/03/202403090500BistiBlue.jpg)|

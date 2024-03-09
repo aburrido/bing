@@ -9,3 +9,4 @@
 202403060500|WahclellaFalls|Cascade de Wahclella dans les gorges du fleuve Columbia, Oregon, États-Unis (© Eric Vogt/Tandem Stills + Motion)|Un petit plongeon?|![](/fr-CA/2024/03/202403060500WahclellaFalls.jpg)|
 202403070500|TarragonaSpain|Roques de Benet, parc naturel Els Ports, Catalogne, Espagne (© Sergi Boixader/Alamy)|En route vers les sommets!|![](/fr-CA/2024/03/202403070500TarragonaSpain.jpg)|
 202403080500|TateLightUp|Musée Tate Modern illuminé à l'occasion de la Journée internationale des femmes, Londres, Angleterre (© Stephen Chung/Alamy Stock Photo)|Liberté, Égalité, Sororité|![](/fr-CA/2024/03/202403080500TateLightUp.jpg)|
+202403090500|BistiBlue|Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)|Un paysage figé par le temps|![](/fr-CA/2024/03/202403090500BistiBlue.jpg)|
