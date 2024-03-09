@@ -9,3 +9,4 @@
 202403061600|TarragonaSpain|Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙 (© Sergi Boixader/Alamy Stock Photo)|攀登新的高峰|![](/zh-CN/2024/03/202403061600TarragonaSpain.jpg)|
 202403071600|IguazuFalls|伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)|世界新七大自然奇观之一|![](/zh-CN/2024/03/202403071600IguazuFalls.jpg)|
 202403081600|BistiBlue|比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)|因时间而改变|![](/zh-CN/2024/03/202403081600BistiBlue.jpg)|
+202403091600|BeaumontClock|圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)|是时候调整时间了|![](/zh-CN/2024/03/202403091600BeaumontClock.jpg)|
