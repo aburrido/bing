@@ -10,3 +10,4 @@
 202403062300|TarragonaSpain|Felsen von Benet, Parc Natural dels Ports, Katalonien, Spanien (© Sergi Boixader/Alamy Stock Photo)|Neue Horizonte entdecken|![](/de-DE/2024/03/202403062300TarragonaSpain.jpg)|
 202403072300|TateLightUp|Tate Modern am Weltfrauentag, London, England (© Stephen Chung/Alamy Stock Photo)|Alle Zeichen stehen auf Gleichberechtigung|![](/de-DE/2024/03/202403072300TateLightUp.jpg)|
 202403082300|BistiBlue|Bisti/De-Na-Zin unberührte Wildnis, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Zeit: Ewiger Fluss der Veränderung|![](/de-DE/2024/03/202403082300BistiBlue.jpg)|
+202403092300|AstrologicalClock|Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)|Die Zeitmacherin von Ulm|![](/de-DE/2024/03/202403092300AstrologicalClock.jpg)|
