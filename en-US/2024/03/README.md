@@ -10,3 +10,4 @@
 202403070800|TarragonaSpain|Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)|Reaching new heights|![](/en-US/2024/03/202403070800TarragonaSpain.jpg)|
 202403080800|TateLightUp|Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)|Right to shine|![](/en-US/2024/03/202403080800TateLightUp.jpg)|
 202403090800|BistiBlue|Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)|Transformed by time|![](/en-US/2024/03/202403090800BistiBlue.jpg)|
+202403100700|BeaumontClock|San Jacinto Building's mechanical clock, Beaumont, Texas (© Richard T. Nowitz/Getty Images)|Time to change the time|![](/en-US/2024/03/202403100700BeaumontClock.jpg)|
