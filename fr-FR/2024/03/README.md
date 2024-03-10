@@ -10,3 +10,4 @@
 202403072300|TateLightUp|Musée Tate Modern illuminé à l'occasion de la Journée internationale des femmes, Londres, Angleterre (© Stephen Chung/Alamy Stock Photo)|Liberté, Égalité, Sororité|![](/fr-FR/2024/03/202403072300TateLightUp.jpg)|
 202403082300|BistiBlue|Région sauvage de Bisti/De-Na-Zin, Nouveau-Mexique, États-Unis (© Ian Shive/Tandem Stills + Motion)|Un paysage figé par le temps|![](/fr-FR/2024/03/202403082300BistiBlue.jpg)|
 202403092300|MontBlancGlacier|La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)|Un glacier en danger|![](/fr-FR/2024/03/202403092300MontBlancGlacier.jpg)|
+202403102300|SleepyKoala|Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)|Une petite sieste ?|![](/fr-FR/2024/03/202403102300SleepyKoala.jpg)|

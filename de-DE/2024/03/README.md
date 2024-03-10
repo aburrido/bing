@@ -11,3 +11,4 @@
 202403072300|TateLightUp|Tate Modern am Weltfrauentag, London, England (© Stephen Chung/Alamy Stock Photo)|Alle Zeichen stehen auf Gleichberechtigung|![](/de-DE/2024/03/202403072300TateLightUp.jpg)|
 202403082300|BistiBlue|Bisti/De-Na-Zin unberührte Wildnis, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Zeit: Ewiger Fluss der Veränderung|![](/de-DE/2024/03/202403082300BistiBlue.jpg)|
 202403092300|AstrologicalClock|Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)|Die Zeitmacherin von Ulm|![](/de-DE/2024/03/202403092300AstrologicalClock.jpg)|
+202403102300|SleepyKoala|Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)|Wovon träumt der Koala?|![](/de-DE/2024/03/202403102300SleepyKoala.jpg)|
