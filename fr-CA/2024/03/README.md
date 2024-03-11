@@ -11,3 +11,4 @@
 202403080500|TateLightUp|Musée Tate Modern illuminé à l'occasion de la Journée internationale des femmes, Londres, Angleterre (© Stephen Chung/Alamy Stock Photo)|Liberté, Égalité, Sororité|![](/fr-CA/2024/03/202403080500TateLightUp.jpg)|
 202403090500|BistiBlue|Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)|Un paysage figé par le temps|![](/fr-CA/2024/03/202403090500BistiBlue.jpg)|
 202403100500|BeaumontClock|Horloge de San Jacinto, Beaumont, Texas, États-Unis (© Richard T. Nowitz/Getty Images)|Il est l’heure… de changer l’heure!|![](/fr-CA/2024/03/202403100500BeaumontClock.jpg)|
+202403110400|SleepyKoala|Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)|Une petite sieste?|![](/fr-CA/2024/03/202403110400SleepyKoala.jpg)|
