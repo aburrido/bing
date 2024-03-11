@@ -11,3 +11,4 @@
 202403081600|BistiBlue|比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)|因时间而改变|![](/zh-CN/2024/03/202403081600BistiBlue.jpg)|
 202403091600|BeaumontClock|圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)|是时候调整时间了|![](/zh-CN/2024/03/202403091600BeaumontClock.jpg)|
 202403101600|ProseccoItaly|Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利 (© Richard T. Nowitz/Getty Images)|醉人的山峦|![](/zh-CN/2024/03/202403101600ProseccoItaly.jpg)|
+202403111600|BryceSnow|布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)|峡谷的守护者|![](/zh-CN/2024/03/202403111600BryceSnow.jpg)|
