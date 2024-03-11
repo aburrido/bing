@@ -10,3 +10,4 @@
 202403080000|TateLightUp|Tate Modern lit up on International Women's Day, London (© Stephen Chung/Alamy Stock Photo)|Right to shine|![](/en-GB/2024/03/202403080000TateLightUp.jpg)|
 202403090000|BistiBlue|Bisti/De-Na-Zin Wilderness, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Transformed by time|![](/en-GB/2024/03/202403090000BistiBlue.jpg)|
 202403100000|MotheringSundayMuteSwan|Mute swan mother and cygnet, Stanpit Marsh, England (© LecartPhotos/Alamy Stock Photo)|All aboard the mothership|![](/en-GB/2024/03/202403100000MotheringSundayMuteSwan.jpg)|
+202403110000|SleepyKoala|A sleeping koala, Australia (© Anton Rogozin/Getty Images)|Sweet dreams are made of leaves|![](/en-GB/2024/03/202403110000SleepyKoala.jpg)|
