@@ -12,3 +12,4 @@
 202403082300|BistiBlue|Bisti/De-Na-Zin unberührte Wildnis, New Mexico, USA (© Ian Shive/Tandem Stills + Motion)|Zeit: Ewiger Fluss der Veränderung|![](/de-DE/2024/03/202403082300BistiBlue.jpg)|
 202403092300|AstrologicalClock|Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)|Die Zeitmacherin von Ulm|![](/de-DE/2024/03/202403092300AstrologicalClock.jpg)|
 202403102300|SleepyKoala|Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)|Wovon träumt der Koala?|![](/de-DE/2024/03/202403102300SleepyKoala.jpg)|
+202403112300|BryceSnow|Bryce-Canyon-Nationalpark, Utah, USA (© Jim Patterson/Tandem Stills + Motion)|Die Wächter des Canyons|![](/de-DE/2024/03/202403112300BryceSnow.jpg)|
