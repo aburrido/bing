@@ -12,3 +12,4 @@
 202403091500|BeaumontClock|サン・ジャシント・ビルの大時計, 米国 テキサス州 (© Richard T. Nowitz/Getty Images)|今日からは海外の夏時間|![](/ja-JP/2024/03/202403091500BeaumontClock.jpg)|
 202403101500|Earthquake2024|追悼イベントの灯籠, 宮城県 名取市 (© Satoshi Takahashi/Getty Images)|東日本大震災から 13 年|![](/ja-JP/2024/03/202403101500Earthquake2024.jpg)|
 202403111500|OmizutoriNew|東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)|今日はお水取りの日|![](/ja-JP/2024/03/202403111500OmizutoriNew.jpg)|
+202403121500|MagadiFlamingos|マガディ湖, ケニア (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|湖の上空を舞うコフラミンゴの群れ|![](/ja-JP/2024/03/202403121500MagadiFlamingos.jpg)|
