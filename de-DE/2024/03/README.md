@@ -13,3 +13,4 @@
 202403092300|AstrologicalClock|Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)|Die Zeitmacherin von Ulm|![](/de-DE/2024/03/202403092300AstrologicalClock.jpg)|
 202403102300|SleepyKoala|Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)|Wovon träumt der Koala?|![](/de-DE/2024/03/202403102300SleepyKoala.jpg)|
 202403112300|BryceSnow|Bryce-Canyon-Nationalpark, Utah, USA (© Jim Patterson/Tandem Stills + Motion)|Die Wächter des Canyons|![](/de-DE/2024/03/202403112300BryceSnow.jpg)|
+202403122300|MagadiFlamingos|Zwergflamingos im Flug über den Magadisee, Kenia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Erkennen Sie die Vogelart?|![](/de-DE/2024/03/202403122300MagadiFlamingos.jpg)|

@@ -12,3 +12,4 @@
 202403092300|MontBlancGlacier|La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)|Un glacier en danger|![](/fr-FR/2024/03/202403092300MontBlancGlacier.jpg)|
 202403102300|SleepyKoala|Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)|Une petite sieste ?|![](/fr-FR/2024/03/202403102300SleepyKoala.jpg)|
 202403112300|BryceSnow|Parc national de Bryce Canyon, Utah, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les gardiens du canyon|![](/fr-FR/2024/03/202403112300BryceSnow.jpg)|
+202403122300|MagadiFlamingos|Flamants nains survolant le lac Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le monde vu à vol d’oiseau|![](/fr-FR/2024/03/202403122300MagadiFlamingos.jpg)|
