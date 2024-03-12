@@ -12,3 +12,4 @@
 202403090500|BistiBlue|Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)|Transformed by time|![](/en-CA/2024/03/202403090500BistiBlue.jpg)|
 202403100500|BeaumontClock|San Jacinto Building's mechanical clock, Beaumont, Texas (© Richard T. Nowitz/Getty Images)|Time to change the time|![](/en-CA/2024/03/202403100500BeaumontClock.jpg)|
 202403110400|SleepyKoala|A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)|Sweet dreams are made of leaves|![](/en-CA/2024/03/202403110400SleepyKoala.jpg)|
+202403120400|BryceSnow|Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)|Guardians of the canyon|![](/en-CA/2024/03/202403120400BryceSnow.jpg)|
