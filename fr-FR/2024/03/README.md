@@ -13,3 +13,4 @@
 202403102300|SleepyKoala|Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)|Une petite sieste ?|![](/fr-FR/2024/03/202403102300SleepyKoala.jpg)|
 202403112300|BryceSnow|Parc national de Bryce Canyon, Utah, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les gardiens du canyon|![](/fr-FR/2024/03/202403112300BryceSnow.jpg)|
 202403122300|MagadiFlamingos|Flamants nains survolant le lac Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le monde vu à vol d’oiseau|![](/fr-FR/2024/03/202403122300MagadiFlamingos.jpg)|
+202403132300|AyutthayaTree|Wat Phra Ngam, Parc d'Ayutthaya, Thaïlande (© boonchai wedmakawand/Alamy)|3,14 raisons de fêter cette journée !|![](/fr-FR/2024/03/202403132300AyutthayaTree.jpg)|

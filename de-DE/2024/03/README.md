@@ -14,3 +14,4 @@
 202403102300|SleepyKoala|Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)|Wovon träumt der Koala?|![](/de-DE/2024/03/202403102300SleepyKoala.jpg)|
 202403112300|BryceSnow|Bryce-Canyon-Nationalpark, Utah, USA (© Jim Patterson/Tandem Stills + Motion)|Die Wächter des Canyons|![](/de-DE/2024/03/202403112300BryceSnow.jpg)|
 202403122300|MagadiFlamingos|Zwergflamingos im Flug über den Magadisee, Kenia (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Erkennen Sie die Vogelart?|![](/de-DE/2024/03/202403122300MagadiFlamingos.jpg)|
+202403132300|AyutthayaTree|Wat Phra Ngam, Geschichtspark Ayutthaya, Thailand (© boonchai wedmakawand/Alamy Stock Photo)|Pi mal Daumen|![](/de-DE/2024/03/202403132300AyutthayaTree.jpg)|
