@@ -13,3 +13,4 @@
 202403101830|SleepyKoala|A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)|Sweet dreams are made of leaves|![](/en-IN/2024/03/202403101830SleepyKoala.jpg)|
 202403111830|BryceSnow|Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)|Guardians of the canyon|![](/en-IN/2024/03/202403111830BryceSnow.jpg)|
 202403121830|MagadiFlamingos|Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bird's-eye view|![](/en-IN/2024/03/202403121830MagadiFlamingos.jpg)|
+202403131830|AyutthayaTree|Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)|Branches of wisdom|![](/en-IN/2024/03/202403131830AyutthayaTree.jpg)|
