@@ -13,3 +13,4 @@
 202403101600|ProseccoItaly|Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利 (© Richard T. Nowitz/Getty Images)|醉人的山峦|![](/zh-CN/2024/03/202403101600ProseccoItaly.jpg)|
 202403111600|BryceSnow|布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)|峡谷的守护者|![](/zh-CN/2024/03/202403111600BryceSnow.jpg)|
 202403121600|MagadiFlamingos|小红鹳飞越马加迪湖,肯尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|鸟瞰|![](/zh-CN/2024/03/202403121600MagadiFlamingos.jpg)|
+202403131600|AyutthayaTree|Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)|一个π|![](/zh-CN/2024/03/202403131600AyutthayaTree.jpg)|
