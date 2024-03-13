@@ -12,3 +12,4 @@
 202403100000|MotheringSundayMuteSwan|Mute swan mother and cygnet, Stanpit Marsh, England (© LecartPhotos/Alamy Stock Photo)|All aboard the mothership|![](/en-GB/2024/03/202403100000MotheringSundayMuteSwan.jpg)|
 202403110000|SleepyKoala|A sleeping koala, Australia (© Anton Rogozin/Getty Images)|Sweet dreams are made of leaves|![](/en-GB/2024/03/202403110000SleepyKoala.jpg)|
 202403120000|BryceSnow|Bryce Canyon National Park, Utah, USA (© Jim Patterson/Tandem Stills + Motion)|Guardians of the canyon|![](/en-GB/2024/03/202403120000BryceSnow.jpg)|
+202403130000|MagadiFlamingos|Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bird's-eye view|![](/en-GB/2024/03/202403130000MagadiFlamingos.jpg)|
