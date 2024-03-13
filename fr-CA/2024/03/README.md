@@ -13,3 +13,4 @@
 202403100500|BeaumontClock|Horloge de San Jacinto, Beaumont, Texas, États-Unis (© Richard T. Nowitz/Getty Images)|Il est l’heure… de changer l’heure!|![](/fr-CA/2024/03/202403100500BeaumontClock.jpg)|
 202403110400|SleepyKoala|Un koala dormant sur un Eucalyptus, Australie (© Anton Rogozin/Getty Images)|Une petite sieste?|![](/fr-CA/2024/03/202403110400SleepyKoala.jpg)|
 202403120400|BryceSnow|Parc national de Bryce Canyon, Utah, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les gardiens du canyon|![](/fr-CA/2024/03/202403120400BryceSnow.jpg)|
+202403130400|MagadiFlamingos|Flamants nains survolant le lac Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le monde vu à vol d’oiseau|![](/fr-CA/2024/03/202403130400MagadiFlamingos.jpg)|

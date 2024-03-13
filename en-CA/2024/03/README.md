@@ -13,3 +13,4 @@
 202403100500|BeaumontClock|San Jacinto Building's mechanical clock, Beaumont, Texas (© Richard T. Nowitz/Getty Images)|Time to change the time|![](/en-CA/2024/03/202403100500BeaumontClock.jpg)|
 202403110400|SleepyKoala|A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)|Sweet dreams are made of leaves|![](/en-CA/2024/03/202403110400SleepyKoala.jpg)|
 202403120400|BryceSnow|Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)|Guardians of the canyon|![](/en-CA/2024/03/202403120400BryceSnow.jpg)|
+202403130400|MagadiFlamingos|Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bird's-eye view|![](/en-CA/2024/03/202403130400MagadiFlamingos.jpg)|
