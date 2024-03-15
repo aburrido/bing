@@ -16,3 +16,4 @@
 202403131500|AyutthayaTree|アユタヤ歴史公園にある菩提樹, タイ (© boonchai wedmakawand/Alamy)|今日は円周率の日|![](/ja-JP/2024/03/202403131500AyutthayaTree.jpg)|
 202403141500|AnzaBorregoBloom|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Stephen Matera/Tandem Stills + Motion)|花々が咲き誇る砂漠|![](/ja-JP/2024/03/202403141500AnzaBorregoBloom.jpg)|
 ||||![](/ja-JP/2024/03/.jpg)|
+202403151500|BambooPanda|竹を食べるジャイアントパンダ, 中国 成都市 (© Suzi Eszterhas/Minden Pictures)|今日はナショナルパンダデー|![](/ja-JP/2024/03/202403151500BambooPanda.jpg)|
