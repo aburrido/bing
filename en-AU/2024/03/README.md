@@ -16,3 +16,4 @@
 202403120700|BryceSnow|Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2024/03/202403120700BryceSnow.jpg)|
 202403130700|MagadiFlamingos|Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2024/03/202403130700MagadiFlamingos.jpg)|
 202403140700|AyutthayaTree|Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)|Info|![](/en-AU/2024/03/202403140700AyutthayaTree.jpg)|
+202403150700|AnzaBorregoBloom|Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)|Info|![](/en-AU/2024/03/202403150700AnzaBorregoBloom.jpg)|
