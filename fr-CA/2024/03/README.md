@@ -15,3 +15,4 @@
 202403120400|BryceSnow|Parc national de Bryce Canyon, Utah, États-Unis (© Jim Patterson/Tandem Stills + Motion)|Les gardiens du canyon|![](/fr-CA/2024/03/202403120400BryceSnow.jpg)|
 202403130400|MagadiFlamingos|Flamants nains survolant le lac Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le monde vu à vol d’oiseau|![](/fr-CA/2024/03/202403130400MagadiFlamingos.jpg)|
 202403140400|AyutthayaTree|Wat Phra Ngam, Parc d'Ayutthaya, Thaïlande (© boonchai wedmakawand/Alamy)|3,14 raisons de fêter cette journée!|![](/fr-CA/2024/03/202403140400AyutthayaTree.jpg)|
+202403150400|TulipAbbotsford|Champs de tulipes dans la vallée du Fraser, Abbotsford, Colombie-Britannique, Canada (© LeonU/Getty Images)|Explosion printannière|![](/fr-CA/2024/03/202403150400TulipAbbotsford.jpg)|

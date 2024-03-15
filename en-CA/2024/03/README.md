@@ -16,3 +16,4 @@
 202403130400|MagadiFlamingos|Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bird's-eye view|![](/en-CA/2024/03/202403130400MagadiFlamingos.jpg)|
 202403140400|AyutthayaTree|Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)|A piece of pi|![](/en-CA/2024/03/202403140400AyutthayaTree.jpg)|
 ||||![](/en-CA/2024/03/.jpg)|
+202403150400|TulipAbbotsford|Colourful tulip fields in Fraser Valley, Abbotsford, BC, Canada (© LeonU/Getty Images)|A splash of spring|![](/en-CA/2024/03/202403150400TulipAbbotsford.jpg)|
