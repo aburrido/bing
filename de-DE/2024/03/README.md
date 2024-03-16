@@ -17,3 +17,4 @@
 202403132300|AyutthayaTree|Wat Phra Ngam, Geschichtspark Ayutthaya, Thailand (© boonchai wedmakawand/Alamy Stock Photo)|Pi mal Daumen|![](/de-DE/2024/03/202403132300AyutthayaTree.jpg)|
 202403142300|AvenueLimeTrees|Lindenallee, baumgesäumter Fußweg durch den Park im Frühling (© AVTG/Getty Images)|Grün, soweit das Auge reicht|![](/de-DE/2024/03/202403142300AvenueLimeTrees.jpg)|
 202403152300|BambooPanda|Großer Panda nascht Bambus, Chengdu, China (© Suzi Eszterhas/Minden Pictures)|Etwas von der Rolle?|![](/de-DE/2024/03/202403152300BambooPanda.jpg)|
+202403162300|StFiniansBay|St. Finian's Bay, Grafschaft Kerry, Irland (© Atlantide Phototravel/Getty Images)|Grün, grün, grün ist alles, was ich habe|![](/de-DE/2024/03/202403162300StFiniansBay.jpg)|
