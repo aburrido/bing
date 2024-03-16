@@ -16,3 +16,4 @@
 202403130700|MagadiFlamingos|Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Bird's-eye view|![](/en-US/2024/03/202403130700MagadiFlamingos.jpg)|
 202403140700|AyutthayaTree|Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)|A piece of pi|![](/en-US/2024/03/202403140700AyutthayaTree.jpg)|
 202403150700|AnzaBorregoBloom|Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)|Where is this colorful desert?|![](/en-US/2024/03/202403150700AnzaBorregoBloom.jpg)|
+202403160700|BambooPanda|Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)|Somewhat bamboo-zled|![](/en-US/2024/03/202403160700BambooPanda.jpg)|
