@@ -18,3 +18,4 @@
 ||||![](/fr-FR/2024/03/.jpg)|
 202403152300|BambooPanda|Panda géant mangeant du bambou, Chengdu, Chine (© Suzi Eszterhas/Minden Pictures)|Un petit bambou et ça repart !|![](/fr-FR/2024/03/202403152300BambooPanda.jpg)|
 202403162300|StFiniansBay|Finian's Bay, Comté de Kerry, Irlande (© Atlantide Phototravel/Getty Images)|Attention au lutin !|![](/fr-FR/2024/03/202403162300StFiniansBay.jpg)|
+202403172300|ElephantRock|Rocher de l'éléphant, Al-Ula, Arabie Saoudite (© Lubo Ivanko/Shutterstock)|L’éléphant du désert|![](/fr-FR/2024/03/202403172300ElephantRock.jpg)|
