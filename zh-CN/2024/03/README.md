@@ -18,3 +18,4 @@
 ||||![](/zh-CN/2024/03/.jpg)|
 202403151600|BambooPanda|正在吃竹子的大熊猫，中国成都 (© Suzi Eszterhas/Minden Pictures)|被竹子包围了|![](/zh-CN/2024/03/202403151600BambooPanda.jpg)|
 202403161600|StFiniansBay|圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images)|今天，让我们穿绿衣裳吧！|![](/zh-CN/2024/03/202403161600StFiniansBay.jpg)|
+202403171600|ElephantRock|大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)|温柔的“沙丘巨人”|![](/zh-CN/2024/03/202403171600ElephantRock.jpg)|
