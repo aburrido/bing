@@ -18,3 +18,4 @@
 ||||![](/en-GB/2024/03/.jpg)|
 202403160000|BambooPanda|Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)|Somewhat bamboo-zled|![](/en-GB/2024/03/202403160000BambooPanda.jpg)|
 202403170000|StFiniansBay|St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)|Let's wear green today!|![](/en-GB/2024/03/202403170000StFiniansBay.jpg)|
+202403180000|ElephantRock|Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)|Gentle giant of the dunes|![](/en-GB/2024/03/202403180000ElephantRock.jpg)|
