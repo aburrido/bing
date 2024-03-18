@@ -19,3 +19,4 @@
 202403150700|AnzaBorregoBloom|Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)|Info|![](/en-AU/2024/03/202403150700AnzaBorregoBloom.jpg)|
 202403160700|EurasianBlueTitUK|Eurasian blue tit, United Kingdom (© Anne Coatesy/iStock/Getty Images)|Info|![](/en-AU/2024/03/202403160700EurasianBlueTitUK.jpg)|
 202403170700|StFiniansBay|St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)|Info|![](/en-AU/2024/03/202403170700StFiniansBay.jpg)|
+202403180700|ElephantRock|Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)|Info|![](/en-AU/2024/03/202403180700ElephantRock.jpg)|
