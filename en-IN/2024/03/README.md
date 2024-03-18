@@ -18,3 +18,4 @@
 202403151830|BambooPanda|Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)|Somewhat bamboo-zled|![](/en-IN/2024/03/202403151830BambooPanda.jpg)|
 202403161830|PambanBridge|Dhanushkodi, Rameshwaram harbour, Pamban bridge and near by areas (© gulfu photography/Getty Images)|Sea-scape serendipity|![](/en-IN/2024/03/202403161830PambanBridge.jpg)|
 202403171830|ElephantRock|Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)|Gentle giant of the dunes|![](/en-IN/2024/03/202403171830ElephantRock.jpg)|
+202403181830|SpringFrog|Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)|Hop into the green!|![](/en-IN/2024/03/202403181830SpringFrog.jpg)|
