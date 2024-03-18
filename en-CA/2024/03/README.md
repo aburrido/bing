@@ -19,3 +19,4 @@
 202403150400|TulipAbbotsford|Colourful tulip fields in Fraser Valley, Abbotsford, BC, Canada (© LeonU/Getty Images)|A splash of spring|![](/en-CA/2024/03/202403150400TulipAbbotsford.jpg)|
 202403160400|BambooPanda|Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)|Somewhat bamboo-zled|![](/en-CA/2024/03/202403160400BambooPanda.jpg)|
 202403170400|StFiniansBay|St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)|Let's wear green today!|![](/en-CA/2024/03/202403170400StFiniansBay.jpg)|
+202403180400|ElephantRock|Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)|Gentle giant of the dunes|![](/en-CA/2024/03/202403180400ElephantRock.jpg)|

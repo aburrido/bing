@@ -18,3 +18,4 @@
 202403150400|TulipAbbotsford|Champs de tulipes dans la vallée du Fraser, Abbotsford, Colombie-Britannique, Canada (© LeonU/Getty Images)|Explosion printannière|![](/fr-CA/2024/03/202403150400TulipAbbotsford.jpg)|
 202403160400|BambooPanda|Panda géant mangeant du bambou, Chengdu, Chine (© Suzi Eszterhas/Minden Pictures)|Un petit bambou et ça repart!|![](/fr-CA/2024/03/202403160400BambooPanda.jpg)|
 202403170400|StFiniansBay|Finian's Bay, Comté de Kerry, Irlande (© Atlantide Phototravel/Getty Images)|Attention au lutin!|![](/fr-CA/2024/03/202403170400StFiniansBay.jpg)|
+202403180400|ElephantRock|Rocher de l'éléphant, Al-Ula, Arabie Saoudite (© Lubo Ivanko/Shutterstock)|L’éléphant du désert|![](/fr-CA/2024/03/202403180400ElephantRock.jpg)|
