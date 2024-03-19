@@ -20,3 +20,4 @@
 202403162300|StFiniansBay|St. Finian's Bay, Grafschaft Kerry, Irland (© Atlantide Phototravel/Getty Images)|Grün, grün, grün ist alles, was ich habe|![](/de-DE/2024/03/202403162300StFiniansBay.jpg)|
 202403172300|ElephantRock|Elephant Rock, Al-ʿUla, Saudi-Arabien (© Lubo Ivanko/Shutterstock)|Sanfter Riese der Dünen|![](/de-DE/2024/03/202403172300ElephantRock.jpg)|
 202403182300|SpringCaveDale|Cave Dale und Peveril Castle in Castleton, Peak-District-Nationalpark, Derbyshire, England (© James Osmond/Alamy)|Eine Burgruine im Herzen Englands|![](/de-DE/2024/03/202403182300SpringCaveDale.jpg)|
+202403192300|SpringFrog|Laubfrosch auf Blatt (© Tetsuya Tanooka/DEEPOL by plainpicture)|Endlich ist er da!|![](/de-DE/2024/03/202403192300SpringFrog.jpg)|
