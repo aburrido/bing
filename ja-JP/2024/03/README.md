@@ -20,3 +20,4 @@
 202403161500|StFiniansBay|ケリー県, アイルランド (© Atlantide Phototravel/Getty Images)|今日は聖パトリックの祝日|![](/ja-JP/2024/03/202403161500StFiniansBay.jpg)|
 202403171500|ElephantRock|アルウラにあるエレファントロック, サウジアラビア (© Lubo Ivanko/Shutterstock)|巨大な象の形をした岩山|![](/ja-JP/2024/03/202403171500ElephantRock.jpg)|
 202403181500|BryceSnow|ブライスキャニオン国立公園, 米国 ユタ州 (© Jim Patterson/Tandem Stills + Motion)|岩の尖塔が無数に並ぶ絶景|![](/ja-JP/2024/03/202403181500BryceSnow.jpg)|
+202403191500|MtPrevostDuncan|カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)|霧に包まれる渓谷|![](/ja-JP/2024/03/202403191500MtPrevostDuncan.jpg)|
