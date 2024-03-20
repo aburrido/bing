@@ -21,3 +21,4 @@
 202403171600|ElephantRock|大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)|温柔的“沙丘巨人”|![](/zh-CN/2024/03/202403171600ElephantRock.jpg)|
 202403181600|AlmondBloom|盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)|春日私语|![](/zh-CN/2024/03/202403181600AlmondBloom.jpg)|
 202403191600|Springequinox2024|鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)|粉嫩的春日美景|![](/zh-CN/2024/03/202403191600Springequinox2024.jpg)|
+202403201600|BwindiNationalForest|布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)|森林多美好呀！|![](/zh-CN/2024/03/202403201600BwindiNationalForest.jpg)|
