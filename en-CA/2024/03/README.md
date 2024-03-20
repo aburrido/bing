@@ -21,3 +21,4 @@
 202403170400|StFiniansBay|St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)|Let's wear green today!|![](/en-CA/2024/03/202403170400StFiniansBay.jpg)|
 202403180400|ElephantRock|Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)|Gentle giant of the dunes|![](/en-CA/2024/03/202403180400ElephantRock.jpg)|
 202403190400|SpringFrog|Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)|Hop into spring!|![](/en-CA/2024/03/202403190400SpringFrog.jpg)|
+202403200400|SpringCaveDale|Cave Dale and Peveril Castle in Castleton, Peak District National Park, Derbyshire, England (© James Osmond/Alamy)|A gorge-ous walk|![](/en-CA/2024/03/202403200400SpringCaveDale.jpg)|
