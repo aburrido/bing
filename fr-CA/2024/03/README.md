@@ -21,3 +21,4 @@
 202403180400|ElephantRock|Rocher de l'éléphant, Al-Ula, Arabie Saoudite (© Lubo Ivanko/Shutterstock)|L’éléphant du désert|![](/fr-CA/2024/03/202403180400ElephantRock.jpg)|
 202403190400|SpringFrog|Grenouille rainette sur une feuille (© Tetsuya Tanooka/DEEPOL by plainpicture)|Vive le printemps!|![](/fr-CA/2024/03/202403190400SpringFrog.jpg)|
 202403200400|SpringCaveDale|Cave Dale et château de Peveril à Castleton, Derbyshire Peak District, Angleterre (© James Osmond/Alamy)|Une promenade dans les gorges|![](/fr-CA/2024/03/202403200400SpringCaveDale.jpg)|
+202403210400|BwindiNationalForest|Forêt Impénétrable de Bwindi, Ouganda (© Art Wolfe/DanitaDelimont.com)|Le refuge du gorille|![](/fr-CA/2024/03/202403210400BwindiNationalForest.jpg)|
