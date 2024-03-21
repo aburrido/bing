@@ -22,3 +22,4 @@
 202403182300|SpringFrog|Grenouille rainette sur une feuille (© Tetsuya Tanooka/DEEPOL by plainpicture)|Vive le printemps !|![](/fr-FR/2024/03/202403182300SpringFrog.jpg)|
 202403192300|ChateauIf|Château d'If, Calanques, Marseille, Bouches du Rhône (© MOIRENC Camille/Hemis/Alamy Stock Photo)|Les rives de la vengeance du comte|![](/fr-FR/2024/03/202403192300ChateauIf.jpg)|
 202403202300|BwindiNationalForest|Forêt Impénétrable de Bwindi, Ouganda (© Art Wolfe/DanitaDelimont.com)|Le refuge du gorille|![](/fr-FR/2024/03/202403202300BwindiNationalForest.jpg)|
+202403212300|WaikatoWater|Blue Spring, sentier de Te Waihou, Nouvelle-Zélande (© Ian Beattie/Alamy)|L'eau, un bien rare et précieux|![](/fr-FR/2024/03/202403212300WaikatoWater.jpg)|
