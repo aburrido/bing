@@ -22,3 +22,4 @@
 202403181500|BryceSnow|ブライスキャニオン国立公園, 米国 ユタ州 (© Jim Patterson/Tandem Stills + Motion)|岩の尖塔が無数に並ぶ絶景|![](/ja-JP/2024/03/202403181500BryceSnow.jpg)|
 202403191500|MtPrevostDuncan|カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)|霧に包まれる渓谷|![](/ja-JP/2024/03/202403191500MtPrevostDuncan.jpg)|
 202403201500|BwindiNationalForest|ブウィンディ原生国立公園, ウガンダ (© Art Wolfe/DanitaDelimont.com)|今日は国際森林デー|![](/ja-JP/2024/03/202403201500BwindiNationalForest.jpg)|
+202403211500|WaikatoWater|テ・ワイホウ・ウォークウェイ, ニュージーランド  (© Ian Beattie/Alamy)|今日は世界水の日|![](/ja-JP/2024/03/202403211500WaikatoWater.jpg)|
