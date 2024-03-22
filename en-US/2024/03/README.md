@@ -22,3 +22,4 @@
 202403190700|SpringFrog|Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)|Hop into spring!|![](/en-US/2024/03/202403190700SpringFrog.jpg)|
 202403200700|CherryBlossomsDC|The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)|Cherry trees spring to life|![](/en-US/2024/03/202403200700CherryBlossomsDC.jpg)|
 202403210700|BwindiNationalForest|Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)|Celebrating forests|![](/en-US/2024/03/202403210700BwindiNationalForest.jpg)|
+202403220700|WaikatoWater|Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)|'Water' we celebrating?|![](/en-US/2024/03/202403220700WaikatoWater.jpg)|
