@@ -23,3 +23,4 @@
 202403192300|SpringFrog|Laubfrosch auf Blatt (© Tetsuya Tanooka/DEEPOL by plainpicture)|Endlich ist er da!|![](/de-DE/2024/03/202403192300SpringFrog.jpg)|
 202403202300|BwindiNationalForest|Bwindi-Regenwald, Uganda (© Art Wolfe/DanitaDelimont.com)|Wald geborgener Aufenthalt|![](/de-DE/2024/03/202403202300BwindiNationalForest.jpg)|
 202403212300|WaikatoWater|Blue Spring, Te Waihou Walkway, Neuseeland (© Ian Beattie/Alamy Stock Photo)|Lebensstrom am Weltwassertag|![](/de-DE/2024/03/202403212300WaikatoWater.jpg)|
+202403222300|AmazonClouds|Große Ambosswolken über dem Amazonas in Brasilien (© NASA)|Mutter Erde|![](/de-DE/2024/03/202403222300AmazonClouds.jpg)|
