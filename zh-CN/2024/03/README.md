@@ -23,3 +23,4 @@
 202403191600|Springequinox2024|鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)|粉嫩的春日美景|![](/zh-CN/2024/03/202403191600Springequinox2024.jpg)|
 202403201600|BwindiNationalForest|布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)|森林多美好呀！|![](/zh-CN/2024/03/202403201600BwindiNationalForest.jpg)|
 202403211600|WaikatoWater|蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)|我们在庆祝“水”？|![](/zh-CN/2024/03/202403211600WaikatoWater.jpg)|
+202403221600|AmazonClouds|巴西亚马逊上空巨大的砧状云 (© NASA)|造雾|![](/zh-CN/2024/03/202403221600AmazonClouds.jpg)|
