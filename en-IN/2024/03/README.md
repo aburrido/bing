@@ -22,3 +22,4 @@
 202403191830|SpringCaveDale|Cave Dale and Peveril Castle in Castleton, Peak District National Park, Derbyshire, England (© James Osmond/Alamy)|A gorge-ous walk|![](/en-IN/2024/03/202403191830SpringCaveDale.jpg)|
 202403201830|BwindiNationalForest|Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)|Woodn't it be nice|![](/en-IN/2024/03/202403201830BwindiNationalForest.jpg)|
 202403211830|WaikatoWater|Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)|'Water' we celebrating?|![](/en-IN/2024/03/202403211830WaikatoWater.jpg)|
+202403221830|AmazonClouds|Large anvil clouds above the Amazon in Brazil (© NASA)|Making a fog-cast|![](/en-IN/2024/03/202403221830AmazonClouds.jpg)|
