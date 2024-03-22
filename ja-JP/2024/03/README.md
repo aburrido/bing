@@ -23,3 +23,4 @@
 202403191500|MtPrevostDuncan|カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)|霧に包まれる渓谷|![](/ja-JP/2024/03/202403191500MtPrevostDuncan.jpg)|
 202403201500|BwindiNationalForest|ブウィンディ原生国立公園, ウガンダ (© Art Wolfe/DanitaDelimont.com)|今日は国際森林デー|![](/ja-JP/2024/03/202403201500BwindiNationalForest.jpg)|
 202403211500|WaikatoWater|テ・ワイホウ・ウォークウェイ, ニュージーランド  (© Ian Beattie/Alamy)|今日は世界水の日|![](/ja-JP/2024/03/202403211500WaikatoWater.jpg)|
+202403221500|AmazonClouds|アマゾン上空の積乱雲, ブラジル (© NASA)|今日は世界気象デー|![](/ja-JP/2024/03/202403221500AmazonClouds.jpg)|
