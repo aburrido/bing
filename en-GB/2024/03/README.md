@@ -23,3 +23,4 @@
 202403200000|SpringFrog|Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)|Hop into spring!|![](/en-GB/2024/03/202403200000SpringFrog.jpg)|
 202403210000|BwindiNationalForest|Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)|Woodn't it be nice|![](/en-GB/2024/03/202403210000BwindiNationalForest.jpg)|
 202403220000|WaikatoWater|Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)|'Water' we celebrating?|![](/en-GB/2024/03/202403220000WaikatoWater.jpg)|
+202403230000|AmazonClouds|Large anvil clouds above the Amazon in Brazil (© NASA)|Making a fog-cast|![](/en-GB/2024/03/202403230000AmazonClouds.jpg)|
