@@ -24,3 +24,4 @@
 202403201600|BwindiNationalForest|布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)|森林多美好呀！|![](/zh-CN/2024/03/202403201600BwindiNationalForest.jpg)|
 202403211600|WaikatoWater|蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)|我们在庆祝“水”？|![](/zh-CN/2024/03/202403211600WaikatoWater.jpg)|
 202403221600|AmazonClouds|巴西亚马逊上空巨大的砧状云 (© NASA)|造雾|![](/zh-CN/2024/03/202403221600AmazonClouds.jpg)|
+202403231600|WhiteEyes|樱花树枝上的灰胸绣眼鸟，韩国 (© TigerSeo/Getty Images)|你能挪过去一点吗?|![](/zh-CN/2024/03/202403231600WhiteEyes.jpg)|
