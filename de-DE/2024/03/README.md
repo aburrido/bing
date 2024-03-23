@@ -24,3 +24,4 @@
 202403202300|BwindiNationalForest|Bwindi-Regenwald, Uganda (© Art Wolfe/DanitaDelimont.com)|Wald geborgener Aufenthalt|![](/de-DE/2024/03/202403202300BwindiNationalForest.jpg)|
 202403212300|WaikatoWater|Blue Spring, Te Waihou Walkway, Neuseeland (© Ian Beattie/Alamy Stock Photo)|Lebensstrom am Weltwassertag|![](/de-DE/2024/03/202403212300WaikatoWater.jpg)|
 202403222300|AmazonClouds|Große Ambosswolken über dem Amazonas in Brasilien (© NASA)|Mutter Erde|![](/de-DE/2024/03/202403222300AmazonClouds.jpg)|
+202403232300|ViewFieldsBavaria|Blick auf Felder, Luftaufnahme, Bayern (© Westend61 GmbH/Alamy)|Farbenspiel der Felder|![](/de-DE/2024/03/202403232300ViewFieldsBavaria.jpg)|

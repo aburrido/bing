@@ -24,3 +24,4 @@
 202403202300|BwindiNationalForest|Forêt Impénétrable de Bwindi, Ouganda (© Art Wolfe/DanitaDelimont.com)|Le refuge du gorille|![](/fr-FR/2024/03/202403202300BwindiNationalForest.jpg)|
 202403212300|WaikatoWater|Blue Spring, sentier de Te Waihou, Nouvelle-Zélande (© Ian Beattie/Alamy)|L'eau, un bien rare et précieux|![](/fr-FR/2024/03/202403212300WaikatoWater.jpg)|
 202403222300|AmazonClouds|Gros nuages en forme d'enclume au-dessus de l'Amazonie au Brésil (© NASA)|Vive la météo !|![](/fr-FR/2024/03/202403222300AmazonClouds.jpg)|
+202403232300|WhiteEyes|Zostérops du Japon sur une branche de cerisier en fleur, Corée du Sud (© TigerSeo/Getty Images)|Prêt pour l’atterrissage !|![](/fr-FR/2024/03/202403232300WhiteEyes.jpg)|
