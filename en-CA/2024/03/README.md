@@ -25,3 +25,4 @@
 202403210400|BwindiNationalForest|Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)|Woodn't it be nice|![](/en-CA/2024/03/202403210400BwindiNationalForest.jpg)|
 202403220400|WaikatoWater|Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)|'Water' we celebrating?|![](/en-CA/2024/03/202403220400WaikatoWater.jpg)|
 202403230400|AmazonClouds|Large anvil clouds above the Amazon in Brazil (© NASA)|Making a fog-cast|![](/en-CA/2024/03/202403230400AmazonClouds.jpg)|
+202403240400|WhiteEyes|Silvereyes on a cherry blossom branch, South Korea (© TigerSeo/Getty Images)|Could you scoot over a little, please?|![](/en-CA/2024/03/202403240400WhiteEyes.jpg)|
