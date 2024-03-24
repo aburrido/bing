@@ -25,3 +25,4 @@
 202403211600|WaikatoWater|蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)|我们在庆祝“水”？|![](/zh-CN/2024/03/202403211600WaikatoWater.jpg)|
 202403221600|AmazonClouds|巴西亚马逊上空巨大的砧状云 (© NASA)|造雾|![](/zh-CN/2024/03/202403221600AmazonClouds.jpg)|
 202403231600|WhiteEyes|樱花树枝上的灰胸绣眼鸟，韩国 (© TigerSeo/Getty Images)|你能挪过去一点吗?|![](/zh-CN/2024/03/202403231600WhiteEyes.jpg)|
+202403241600|TulipAbbotsford|弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大 (© LeonU/Getty Images)|春意盎然|![](/zh-CN/2024/03/202403241600TulipAbbotsford.jpg)|
