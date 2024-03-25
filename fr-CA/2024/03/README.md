@@ -26,3 +26,4 @@
 202403230400|AmazonClouds|Gros nuages en forme d'enclume au-dessus de l'Amazonie au Brésil (© NASA)|Vive la météo!|![](/fr-CA/2024/03/202403230400AmazonClouds.jpg)|
 202403240400|WhiteEyes|Zostérops du Japon sur une branche de cerisier en fleur, Corée du Sud (© TigerSeo/Getty Images)|Prêt pour l’atterrissage!|![](/fr-CA/2024/03/202403240400WhiteEyes.jpg)|
 202403250400|ColorfulHoli|Fête des couleurs de Holi, Inde (© Avishek Das/SOPA Images/LightRocket via Getty Images)|La fête des couleurs du printemps|![](/fr-CA/2024/03/202403250400ColorfulHoli.jpg)|
+||||![](/fr-CA/2024/03/.jpg)|
