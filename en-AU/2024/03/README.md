@@ -26,3 +26,4 @@
 202403220700|WaikatoWater|Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)|Info|![](/en-AU/2024/03/202403220700WaikatoWater.jpg)|
 202403230700|AmazonClouds|Large anvil clouds above the Amazon in Brazil (© NASA)|Info|![](/en-AU/2024/03/202403230700AmazonClouds.jpg)|
 202403240700|WhiteEyes|Silvereyes on a cherry blossom branch, South Korea (© TigerSeo/Getty Images)|Info|![](/en-AU/2024/03/202403240700WhiteEyes.jpg)|
+202403250700|TulipAbbotsford|Tulip fields in Fraser Valley, Abbotsford, British Columbia, Canada (© LeonU/Getty Images)|Info|![](/en-AU/2024/03/202403250700TulipAbbotsford.jpg)|
