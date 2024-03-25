@@ -26,3 +26,4 @@
 202403222300|AmazonClouds|Große Ambosswolken über dem Amazonas in Brasilien (© NASA)|Mutter Erde|![](/de-DE/2024/03/202403222300AmazonClouds.jpg)|
 202403232300|ViewFieldsBavaria|Blick auf Felder, Luftaufnahme, Bayern (© Westend61 GmbH/Alamy)|Farbenspiel der Felder|![](/de-DE/2024/03/202403232300ViewFieldsBavaria.jpg)|
 202403242300|ColorfulHoli|Hinduistische Gläubige spielen mit bunten Pulvern während Holi, Indien (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Kunterbuntes Fest|![](/de-DE/2024/03/202403242300ColorfulHoli.jpg)|
+202403252300|HangRaiVietnam|Meerwasser fällt in Kaskaden über ein altes Korallenriff, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|Wasserperlen im Tanz|![](/de-DE/2024/03/202403252300HangRaiVietnam.jpg)|

@@ -26,3 +26,4 @@
 202403222300|AmazonClouds|Gros nuages en forme d'enclume au-dessus de l'Amazonie au Brésil (© NASA)|Vive la météo !|![](/fr-FR/2024/03/202403222300AmazonClouds.jpg)|
 202403232300|WhiteEyes|Zostérops du Japon sur une branche de cerisier en fleur, Corée du Sud (© TigerSeo/Getty Images)|Prêt pour l’atterrissage !|![](/fr-FR/2024/03/202403232300WhiteEyes.jpg)|
 202403242300|ProcrastinationDay|Une biche dans un champ de colza, lac de Serre-Ponçon, Chorges, Hautes-Alpes, France (© Alain Bachellier/Getty Images)|La procrastination à l'honneur !|![](/fr-FR/2024/03/202403242300ProcrastinationDay.jpg)|
+202403252300|HangRaiVietnam|Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|L’une des plus belles baies du Viêt Nam|![](/fr-FR/2024/03/202403252300HangRaiVietnam.jpg)|
