@@ -26,3 +26,4 @@
 202403220400|WaikatoWater|Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)|'Water' we celebrating?|![](/en-CA/2024/03/202403220400WaikatoWater.jpg)|
 202403230400|AmazonClouds|Large anvil clouds above the Amazon in Brazil (© NASA)|Making a fog-cast|![](/en-CA/2024/03/202403230400AmazonClouds.jpg)|
 202403240400|WhiteEyes|Silvereyes on a cherry blossom branch, South Korea (© TigerSeo/Getty Images)|Could you scoot over a little, please?|![](/en-CA/2024/03/202403240400WhiteEyes.jpg)|
+202403250400|ColorfulHoli|Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Painting the town|![](/en-CA/2024/03/202403250400ColorfulHoli.jpg)|
