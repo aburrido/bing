@@ -27,3 +27,4 @@
 202403231600|WhiteEyes|樱花树枝上的灰胸绣眼鸟，韩国 (© TigerSeo/Getty Images)|你能挪过去一点吗?|![](/zh-CN/2024/03/202403231600WhiteEyes.jpg)|
 202403241600|TulipAbbotsford|弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大 (© LeonU/Getty Images)|春意盎然|![](/zh-CN/2024/03/202403241600TulipAbbotsford.jpg)|
 202403251600|HangRaiVietnam|海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)|潮汐探戈|![](/zh-CN/2024/03/202403251600HangRaiVietnam.jpg)|
+202403261600|TeatroColon|布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)|戏剧成为关注的焦点|![](/zh-CN/2024/03/202403261600TeatroColon.jpg)|
