@@ -27,3 +27,4 @@
 202403240400|WhiteEyes|Zostérops du Japon sur une branche de cerisier en fleur, Corée du Sud (© TigerSeo/Getty Images)|Prêt pour l’atterrissage!|![](/fr-CA/2024/03/202403240400WhiteEyes.jpg)|
 202403250400|ColorfulHoli|Fête des couleurs de Holi, Inde (© Avishek Das/SOPA Images/LightRocket via Getty Images)|La fête des couleurs du printemps|![](/fr-CA/2024/03/202403250400ColorfulHoli.jpg)|
 ||||![](/fr-CA/2024/03/.jpg)|
+202403260400|HangRaiVietnam|Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|L’une des plus belles baies du Viêt Nam|![](/fr-CA/2024/03/202403260400HangRaiVietnam.jpg)|
