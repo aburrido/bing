@@ -27,3 +27,4 @@
 202403241830|ColorfulHoli|Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Painting the town|![](/en-IN/2024/03/202403241830ColorfulHoli.jpg)|
 ||||![](/en-IN/2024/03/.jpg)|
 202403251830|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-IN/2024/03/202403251830HangRaiVietnam.jpg)|
+202403261830|AmerFortJaipur|An evening at the Amber Fort, near Jaipur, India (© Amith Nag Photography/Getty Images)|Into the golden dusk|![](/en-IN/2024/03/202403261830AmerFortJaipur.jpg)|
