@@ -26,3 +26,4 @@
 202403230000|AmazonClouds|Large anvil clouds above the Amazon in Brazil (© NASA)|Making a fog-cast|![](/en-GB/2024/03/202403230000AmazonClouds.jpg)|
 202403240000|WhiteEyes|Silvereyes on a cherry blossom branch, South Korea (© TigerSeo/Getty Images)|Could you scoot over a little, please?|![](/en-GB/2024/03/202403240000WhiteEyes.jpg)|
 202403250000|ColorfulHoli|Hindu devotees play with colourful powders during Holi, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Painting the town|![](/en-GB/2024/03/202403250000ColorfulHoli.jpg)|
+202403260000|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-GB/2024/03/202403260000HangRaiVietnam.jpg)|
