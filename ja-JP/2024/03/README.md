@@ -27,3 +27,4 @@
 202403231500|AntelopeBotswana|オカバンゴ・デルタ, ボツワナ (© Ibrahim Suha Derbent/Getty Images)|湿原を横切るリーチュエの群れ|![](/ja-JP/2024/03/202403231500AntelopeBotswana.jpg)|
 202403241500|ColorfulHoli|カラフルな色粉を投げ合う様子, インド (© Avishek Das/SOPA Images/LightRocket via Getty Images)|今日はホーリー祭|![](/ja-JP/2024/03/202403241500ColorfulHoli.jpg)|
 202403251500|CherryBlossom2024|目黒川沿いの桜, 東京 (© twomeows/Getty Images)|ライトアップされた桜|![](/ja-JP/2024/03/202403251500CherryBlossom2024.jpg)|
+202403261500|TeatroColon|テアトロ・コロン, アルゼンチン (© Wei Hao Ho/Alamy)|今日は世界演劇の日|![](/ja-JP/2024/03/202403261500TeatroColon.jpg)|
