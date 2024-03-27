@@ -27,3 +27,4 @@
 202403240000|WhiteEyes|Silvereyes on a cherry blossom branch, South Korea (© TigerSeo/Getty Images)|Could you scoot over a little, please?|![](/en-GB/2024/03/202403240000WhiteEyes.jpg)|
 202403250000|ColorfulHoli|Hindu devotees play with colourful powders during Holi, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Painting the town|![](/en-GB/2024/03/202403250000ColorfulHoli.jpg)|
 202403260000|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-GB/2024/03/202403260000HangRaiVietnam.jpg)|
+202403270000|TeatroColon|The Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy Stock Photo)|Theatre takes centre stage|![](/en-GB/2024/03/202403270000TeatroColon.jpg)|
