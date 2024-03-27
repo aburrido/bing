@@ -28,3 +28,4 @@
 202403240700|WhiteEyes|Silvereyes on a cherry blossom branch, South Korea (© TigerSeo/Getty Images)|Info|![](/en-AU/2024/03/202403240700WhiteEyes.jpg)|
 202403250700|TulipAbbotsford|Tulip fields in Fraser Valley, Abbotsford, British Columbia, Canada (© LeonU/Getty Images)|Info|![](/en-AU/2024/03/202403250700TulipAbbotsford.jpg)|
 202403260700|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|Info|![](/en-AU/2024/03/202403260700HangRaiVietnam.jpg)|
+202403270700|TeaPlantation|Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)|Info|![](/en-AU/2024/03/202403270700TeaPlantation.jpg)|

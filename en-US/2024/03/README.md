@@ -28,3 +28,4 @@
 202403250700|ColorfulHoli|Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Painting the town|![](/en-US/2024/03/202403250700ColorfulHoli.jpg)|
 ||||![](/en-US/2024/03/.jpg)|
 202403260700|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-US/2024/03/202403260700HangRaiVietnam.jpg)|
+202403270700|TeatroColon|Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)|Theater takes center stage|![](/en-US/2024/03/202403270700TeatroColon.jpg)|
