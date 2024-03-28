@@ -29,3 +29,4 @@
 202403251500|CherryBlossom2024|目黒川沿いの桜, 東京 (© twomeows/Getty Images)|ライトアップされた桜|![](/ja-JP/2024/03/202403251500CherryBlossom2024.jpg)|
 202403261500|TeatroColon|テアトロ・コロン, アルゼンチン (© Wei Hao Ho/Alamy)|今日は世界演劇の日|![](/ja-JP/2024/03/202403261500TeatroColon.jpg)|
 202403271500|HangRaiVietnam|ハンライ, ベトナム (© Thang Tat Nguyen/Getty Images)|海岸沿いの岩場|![](/ja-JP/2024/03/202403271500HangRaiVietnam.jpg)|
+202403281500|SouthStackLight|サウススタック灯台, イギリス (© mariotlr/Getty Images)|夕暮れに映える灯台|![](/ja-JP/2024/03/202403281500SouthStackLight.jpg)|
