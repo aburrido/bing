@@ -29,3 +29,4 @@
 202403250400|ColorfulHoli|Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)|Painting the town|![](/en-CA/2024/03/202403250400ColorfulHoli.jpg)|
 202403260400|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-CA/2024/03/202403260400HangRaiVietnam.jpg)|
 202403270400|TeatroColon|Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)|Theatre takes centre stage|![](/en-CA/2024/03/202403270400TeatroColon.jpg)|
+202403280400|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|A path through the petals|![](/en-CA/2024/03/202403280400ShanghaiBlossoms.jpg)|

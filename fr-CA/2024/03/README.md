@@ -29,3 +29,4 @@
 ||||![](/fr-CA/2024/03/.jpg)|
 202403260400|HangRaiVietnam|Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|L’une des plus belles baies du Viêt Nam|![](/fr-CA/2024/03/202403260400HangRaiVietnam.jpg)|
 202403270400|TeatroColon|Théâtre Colón à Buenos Aires, Argentine (© Wei Hao Ho/Alamy)|La vie est une pièce de théâtre|![](/fr-CA/2024/03/202403270400TeatroColon.jpg)|
+202403280400|ShanghaiBlossoms|Cerisiers en fleurs à Shanghai, Chine (© Yaorusheng/Getty Images)|Symphonie florale|![](/fr-CA/2024/03/202403280400ShanghaiBlossoms.jpg)|
