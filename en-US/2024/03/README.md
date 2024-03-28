@@ -29,3 +29,4 @@
 ||||![](/en-US/2024/03/.jpg)|
 202403260700|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-US/2024/03/202403260700HangRaiVietnam.jpg)|
 202403270700|TeatroColon|Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)|Theater takes center stage|![](/en-US/2024/03/202403270700TeatroColon.jpg)|
+202403280700|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|A path through the petals|![](/en-US/2024/03/202403280700ShanghaiBlossoms.jpg)|
