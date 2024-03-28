@@ -29,3 +29,4 @@
 202403251600|HangRaiVietnam|海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)|潮汐探戈|![](/zh-CN/2024/03/202403251600HangRaiVietnam.jpg)|
 202403261600|TeatroColon|布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)|戏剧成为关注的焦点|![](/zh-CN/2024/03/202403261600TeatroColon.jpg)|
 202403271600|ShanghaiBlossoms|上海的樱花，中国 (© Yaorusheng/Getty Images)|花香满径|![](/zh-CN/2024/03/202403271600ShanghaiBlossoms.jpg)|
+202403281600|SouthStackLight|日落时的南斯塔克灯塔，霍利希德，威尔士，英国 (© mariotlr/Getty Images)|潮涨潮落，灯火通明|![](/zh-CN/2024/03/202403281600SouthStackLight.jpg)|
