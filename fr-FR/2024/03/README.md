@@ -29,3 +29,4 @@
 202403252300|HangRaiVietnam|Eau de mer en cascade sur un ancien récif corallien, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|L’une des plus belles baies du Viêt Nam|![](/fr-FR/2024/03/202403252300HangRaiVietnam.jpg)|
 202403262300|TeatroColon|Théâtre Colón à Buenos Aires, Argentine (© Wei Hao Ho/Alamy)|La vie est une pièce de théâtre|![](/fr-FR/2024/03/202403262300TeatroColon.jpg)|
 202403272300|ShanghaiBlossoms|Cerisiers en fleurs à Shanghai, Chine (© Yaorusheng/Getty Images)|Symphonie florale|![](/fr-FR/2024/03/202403272300ShanghaiBlossoms.jpg)|
+202403282300|SouthStackLight|Phare de South Stack au coucher du soleil, Holyhead, Pays de Galles, Royaume-Uni (© mariotlr/Getty Images)|Le gardien de la mer|![](/fr-FR/2024/03/202403282300SouthStackLight.jpg)|

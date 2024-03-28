@@ -29,3 +29,4 @@
 202403252300|HangRaiVietnam|Meerwasser fällt in Kaskaden über ein altes Korallenriff, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|Wasserperlen im Tanz|![](/de-DE/2024/03/202403252300HangRaiVietnam.jpg)|
 202403262300|TeatroColon|Teatro Colón in Buenos Aires, Argentinien (© Wei Hao Ho/Alamy Stock Photo)|Theater, Tango und Leidenschaft|![](/de-DE/2024/03/202403262300TeatroColon.jpg)|
 202403272300|ShanghaiBlossoms|Kirschblüten in Shanghai, China (© Yaorusheng/Getty Images)|Der Weg der Blütenblätter|![](/de-DE/2024/03/202403272300ShanghaiBlossoms.jpg)|
+202403282300|SouthStackLight|South Stack Leuchtturm bei Sonnenuntergang, Holyhead, Wales, UK (© mariotlr/Getty Images)|Leuchtfeuer der Abenddämmerung|![](/de-DE/2024/03/202403282300SouthStackLight.jpg)|
