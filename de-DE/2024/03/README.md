@@ -30,3 +30,4 @@
 202403262300|TeatroColon|Teatro Colón in Buenos Aires, Argentinien (© Wei Hao Ho/Alamy Stock Photo)|Theater, Tango und Leidenschaft|![](/de-DE/2024/03/202403262300TeatroColon.jpg)|
 202403272300|ShanghaiBlossoms|Kirschblüten in Shanghai, China (© Yaorusheng/Getty Images)|Der Weg der Blütenblätter|![](/de-DE/2024/03/202403272300ShanghaiBlossoms.jpg)|
 202403282300|SouthStackLight|South Stack Leuchtturm bei Sonnenuntergang, Holyhead, Wales, UK (© mariotlr/Getty Images)|Leuchtfeuer der Abenddämmerung|![](/de-DE/2024/03/202403282300SouthStackLight.jpg)|
+202403292300|PalazzoFarnese|„Vanishing Point“, des Straßenkünstlers JR bedeckt die Fassade des Palazzo Farnese, Rom, Italien (© Fabrizio Troiani/Alamy Stock Photo)|Stilistischer Synkretismus?|![](/de-DE/2024/03/202403292300PalazzoFarnese.jpg)|
