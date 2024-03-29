@@ -29,3 +29,4 @@
 202403260000|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|A tidal tango|![](/en-GB/2024/03/202403260000HangRaiVietnam.jpg)|
 202403270000|TeatroColon|The Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy Stock Photo)|Theatre takes centre stage|![](/en-GB/2024/03/202403270000TeatroColon.jpg)|
 202403280000|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|A path through the petals|![](/en-GB/2024/03/202403280000ShanghaiBlossoms.jpg)|
+202403290000|SouthStackLight|South Stack Lighthouse, Holyhead, Wales (© mariotlr/Getty Images)|High tides and bright lights|![](/en-GB/2024/03/202403290000SouthStackLight.jpg)|
