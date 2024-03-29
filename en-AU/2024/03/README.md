@@ -30,3 +30,4 @@
 202403260700|HangRaiVietnam|Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)|Info|![](/en-AU/2024/03/202403260700HangRaiVietnam.jpg)|
 202403270700|TeaPlantation|Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)|Info|![](/en-AU/2024/03/202403270700TeaPlantation.jpg)|
 202403280700|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|Info|![](/en-AU/2024/03/202403280700ShanghaiBlossoms.jpg)|
+202403290700|SouthStackLight|South Stack Lighthouse at sunset, Holyhead, Wales, UK (© mariotlr/Getty Images)|Info|![](/en-AU/2024/03/202403290700SouthStackLight.jpg)|
