@@ -30,3 +30,4 @@
 202403261600|TeatroColon|布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)|戏剧成为关注的焦点|![](/zh-CN/2024/03/202403261600TeatroColon.jpg)|
 202403271600|ShanghaiBlossoms|上海的樱花，中国 (© Yaorusheng/Getty Images)|花香满径|![](/zh-CN/2024/03/202403271600ShanghaiBlossoms.jpg)|
 202403281600|SouthStackLight|日落时的南斯塔克灯塔，霍利希德，威尔士，英国 (© mariotlr/Getty Images)|潮涨潮落，灯火通明|![](/zh-CN/2024/03/202403281600SouthStackLight.jpg)|
+202403291600|SleepySloth|睡在号角树上的褐喉树懒，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)|来自“颠倒世界”的问候|![](/zh-CN/2024/03/202403291600SleepySloth.jpg)|
