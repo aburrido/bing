@@ -31,3 +31,4 @@
 202403270400|TeatroColon|Théâtre Colón à Buenos Aires, Argentine (© Wei Hao Ho/Alamy)|La vie est une pièce de théâtre|![](/fr-CA/2024/03/202403270400TeatroColon.jpg)|
 202403280400|ShanghaiBlossoms|Cerisiers en fleurs à Shanghai, Chine (© Yaorusheng/Getty Images)|Symphonie florale|![](/fr-CA/2024/03/202403280400ShanghaiBlossoms.jpg)|
 202403290400|SouthStackLight|Phare de South Stack au coucher du soleil, Holyhead, Pays de Galles, Royaume-Uni (© mariotlr/Getty Images)|Le gardien de la mer|![](/fr-CA/2024/03/202403290400SouthStackLight.jpg)|
+202403300400|SleepySloth|Paresseux à gorge brune dormant dans un arbre cécropia, Costa Rica (© Juan Carlos Vindas/Getty Images)|La tête à l’envers!|![](/fr-CA/2024/03/202403300400SleepySloth.jpg)|
