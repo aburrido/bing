@@ -30,3 +30,4 @@
 202403270000|TeatroColon|The Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy Stock Photo)|Theatre takes centre stage|![](/en-GB/2024/03/202403270000TeatroColon.jpg)|
 202403280000|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|A path through the petals|![](/en-GB/2024/03/202403280000ShanghaiBlossoms.jpg)|
 202403290000|SouthStackLight|South Stack Lighthouse, Holyhead, Wales (© mariotlr/Getty Images)|High tides and bright lights|![](/en-GB/2024/03/202403290000SouthStackLight.jpg)|
+202403300000|SleepySloth|Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)|Hello from the upside-down!|![](/en-GB/2024/03/202403300000SleepySloth.jpg)|
