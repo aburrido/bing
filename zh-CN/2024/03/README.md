@@ -31,3 +31,4 @@
 202403271600|ShanghaiBlossoms|上海的樱花，中国 (© Yaorusheng/Getty Images)|花香满径|![](/zh-CN/2024/03/202403271600ShanghaiBlossoms.jpg)|
 202403281600|SouthStackLight|日落时的南斯塔克灯塔，霍利希德，威尔士，英国 (© mariotlr/Getty Images)|潮涨潮落，灯火通明|![](/zh-CN/2024/03/202403281600SouthStackLight.jpg)|
 202403291600|SleepySloth|睡在号角树上的褐喉树懒，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)|来自“颠倒世界”的问候|![](/zh-CN/2024/03/202403291600SleepySloth.jpg)|
+202403301600|ArdeAlba|潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images)|纯洁与优雅的象征|![](/zh-CN/2024/03/202403301600ArdeAlba.jpg)|
