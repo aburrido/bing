@@ -32,3 +32,4 @@
 202403280400|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|A path through the petals|![](/en-CA/2024/03/202403280400ShanghaiBlossoms.jpg)|
 202403290400|SouthStackLight|South Stack Lighthouse at sunset, Holyhead, Wales, UK (© mariotlr/Getty Images)|High tides and bright lights|![](/en-CA/2024/03/202403290400SouthStackLight.jpg)|
 202403300400|SleepySloth|Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)|Hello from the upside-down!|![](/en-CA/2024/03/202403300400SleepySloth.jpg)|
+202403310400|HungarianEggs|Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)|Egg-cellent craftmanship|![](/en-CA/2024/03/202403310400HungarianEggs.jpg)|
