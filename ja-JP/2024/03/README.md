@@ -32,3 +32,4 @@
 202403281500|SouthStackLight|サウススタック灯台, イギリス (© mariotlr/Getty Images)|夕暮れに映える灯台|![](/ja-JP/2024/03/202403281500SouthStackLight.jpg)|
 202403291500|SleepySloth|セクロピアの木で眠るナマケモノ, コスタリカ (© Juan Carlos Vindas/Getty Images)|ゆったりのんびり暮らす動物|![](/ja-JP/2024/03/202403291500SleepySloth.jpg)|
 202403301500|HungarianEggs|カラフルにペイントされたイースターエッグ, ハンガリー (© ATTILA KISBENEDEK/AFP/Getty Images)|今日は復活祭|![](/ja-JP/2024/03/202403301500HungarianEggs.jpg)|
+202403311500|PalazzoFarnese|パラッツォ・ファルネーゼのだまし絵, イタリア (© Fabrizio Troiani/Alamy)|今日はエイプリルフール|![](/ja-JP/2024/03/202403311500PalazzoFarnese.jpg)|
