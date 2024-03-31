@@ -32,3 +32,4 @@
 202403282300|SouthStackLight|Phare de South Stack au coucher du soleil, Holyhead, Pays de Galles, Royaume-Uni (© mariotlr/Getty Images)|Le gardien de la mer|![](/fr-FR/2024/03/202403282300SouthStackLight.jpg)|
 202403292300|SleepySloth|Paresseux à gorge brune dormant dans un arbre cécropia, Costa Rica (© Juan Carlos Vindas/Getty Images)|La tête à l’envers !|![](/fr-FR/2024/03/202403292300SleepySloth.jpg)|
 202403302300|HungarianEggs|Œufs de Pâques réalisés par Tünde Csuhaj, Szekszárd, Hongrie (© ATTILA KISBENEDEK/AFP/Getty Images)|La chasse aux œufs est ouverte !|![](/fr-FR/2024/03/202403302300HungarianEggs.jpg)|
+202403312200|PalazzoFarnese|L'œuvre « Vanishing Point » de l'artiste de rue français JR sur la façade du Palais Farnèse, Rome, Italie (© Fabrizio Troiani/Alamy)|Gare au poisson d’avril !|![](/fr-FR/2024/03/202403312200PalazzoFarnese.jpg)|
