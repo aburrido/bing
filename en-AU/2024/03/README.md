@@ -32,3 +32,4 @@
 202403280700|ShanghaiBlossoms|Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)|Info|![](/en-AU/2024/03/202403280700ShanghaiBlossoms.jpg)|
 202403290700|SouthStackLight|South Stack Lighthouse at sunset, Holyhead, Wales, UK (© mariotlr/Getty Images)|Info|![](/en-AU/2024/03/202403290700SouthStackLight.jpg)|
 202403300700|SleepySloth|Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)|Info|![](/en-AU/2024/03/202403300700SleepySloth.jpg)|
+202403310700|ArdeAlba|Great egret in the Pantanal, Brazil (© Geraldi Corsi/Getty Images)|Info|![](/en-AU/2024/03/202403310700ArdeAlba.jpg)|
