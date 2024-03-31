@@ -32,3 +32,4 @@
 202403290000|SouthStackLight|South Stack Lighthouse, Holyhead, Wales (© mariotlr/Getty Images)|High tides and bright lights|![](/en-GB/2024/03/202403290000SouthStackLight.jpg)|
 202403300000|SleepySloth|Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)|Hello from the upside-down!|![](/en-GB/2024/03/202403300000SleepySloth.jpg)|
 202403310000|HungarianEggs|Easter eggs by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)|Egg-cellent craftmanship|![](/en-GB/2024/03/202403310000HungarianEggs.jpg)|
+202403312300|PalazzoFarnese|'Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)|Don't believe your eyes|![](/en-GB/2024/03/202403312300PalazzoFarnese.jpg)|
