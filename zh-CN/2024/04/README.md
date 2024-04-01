@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202403311600|MontBlancGlacier|勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy)|岌岌可危的冰川|![](/zh-CN/2024/04/202403311600MontBlancGlacier.jpg)|
 ||||![](/zh-CN/2024/04/.jpg)|
+202404011600|JutlandSpring|日德兰半岛的山毛榉树和野生海葵 ，丹麦 (© Nick Brundle Photography/Getty Images)|一缕阳光下的林地|![](/zh-CN/2024/04/202404011600JutlandSpring.jpg)|
