@@ -4,3 +4,4 @@
 ||||![](/fr-FR/2024/04/.jpg)|
 202404012200|JutlandSpring|Hêtres et anémones sauvages, Jutland, Danemark (© Nick Brundle Photography/Getty Images)|Petit rayon de soleil printanier|![](/fr-FR/2024/04/202404012200JutlandSpring.jpg)|
 202404022200|ChambordCastle|Château de Chambord, Vallée de la Loire, France (© Susanne Kremer/Huber/eStock Photo)|Entre Renaissance et ingéniosité|![](/fr-FR/2024/04/202404022200ChambordCastle.jpg)|
+202404032200|AntelopeBotswana|Troupeau de cobes de lechwe rouge traversant la plaine marécageuse du delta de l'Okavango, Botswana (© Ibrahim Suha Derbent/Getty Images)|Les vagabonds des marais|![](/fr-FR/2024/04/202404032200AntelopeBotswana.jpg)|
