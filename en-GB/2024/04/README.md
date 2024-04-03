@@ -4,3 +4,4 @@
 ||||![](/en-GB/2024/04/.jpg)|
 202404012300|JutlandSpring|Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Beneath a ray of light|![](/en-GB/2024/04/202404012300JutlandSpring.jpg)|
 202404022300|NewcastleUponTyneUK|Newcastle Upon Tyne, England (© Allan Baxter/The Image Bank/Getty Images)|Once upon a 'Tyne'|![](/en-GB/2024/04/202404022300NewcastleUponTyneUK.jpg)|
+202404032300|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-GB/2024/04/202404032300AntelopeBotswana.jpg)|
