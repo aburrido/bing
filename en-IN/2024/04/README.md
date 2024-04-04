@@ -5,3 +5,4 @@
 202404011830|JutlandSpring|Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Beneath a ray of light|![](/en-IN/2024/04/202404011830JutlandSpring.jpg)|
 202404021830|TeaPlantation|Tea plantation near Munnar, Kerala (© Peter Zelei Images/Moment/Getty Images)|A serene Tea-rrain|![](/en-IN/2024/04/202404021830TeaPlantation.jpg)|
 202404031830|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-IN/2024/04/202404031830AntelopeBotswana.jpg)|
+202404041830|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|A dive into the blue|![](/en-IN/2024/04/202404041830BahamasSpace.jpg)|
