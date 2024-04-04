@@ -4,3 +4,4 @@
 ||||![](/fr-CA/2024/04/.jpg)|
 202404020400|JutlandSpring|Hêtres et anémones sauvages, Jutland, Danemark (© Nick Brundle Photography/Getty Images)|Petit rayon de soleil printanier|![](/fr-CA/2024/04/202404020400JutlandSpring.jpg)|
 202404030400|PacificRimNationalPark|Îles Broken Group, réserve de parc national Pacific Rim, île de Vancouver, Colombie-Britannique (© Ron Watts/Design Pics/Getty Images)|L’endroit idéal pour se perdre|![](/fr-CA/2024/04/202404030400PacificRimNationalPark.jpg)|
+202404040400|AntelopeBotswana|Troupeau de cobes de lechwe rouge traversant la plaine marécageuse du delta de l'Okavango, Botswana (© Ibrahim Suha Derbent/Getty Images)|Les vagabonds des marais|![](/fr-CA/2024/04/202404040400AntelopeBotswana.jpg)|
