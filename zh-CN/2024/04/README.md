@@ -6,3 +6,4 @@
 202404021600|KyrgyzstanRainbow|At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)|希望彩虹留在这里|![](/zh-CN/2024/04/202404021600KyrgyzstanRainbow.jpg)|
 202404031600|AntelopeBotswana|红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images)|沼泽地上的漫游者|![](/zh-CN/2024/04/202404031600AntelopeBotswana.jpg)|
 202404041600|BahamasSpace|从国际空间站拍摄的巴哈马群岛 (© NASA)|潜入碧海|![](/zh-CN/2024/04/202404041600BahamasSpace.jpg)|
+202404051600|JapanHimeji|姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)|皇家景观|![](/zh-CN/2024/04/202404051600JapanHimeji.jpg)|
