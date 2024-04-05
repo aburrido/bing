@@ -6,3 +6,4 @@
 202404020700|JutlandSpring|Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)|Info|![](/en-AU/2024/04/202404020700JutlandSpring.jpg)|
 202404030700|KyrgyzstanRainbow|A rainbow in At-Bashy District, Kakshaal Too mountains, Naryn Region, Kyrgyzstan (© Emad aljumah/Getty Images)|Info|![](/en-AU/2024/04/202404030700KyrgyzstanRainbow.jpg)|
 202404040700|AntelopeBotswana|Lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Info|![](/en-AU/2024/04/202404040700AntelopeBotswana.jpg)|
+202404050700|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|Info|![](/en-AU/2024/04/202404050700BahamasSpace.jpg)|
