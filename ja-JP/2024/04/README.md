@@ -6,3 +6,4 @@
 202404021500|KyrgyzstanRainbow|カクシャール・ツー山にかかる虹, キルギス (© Emad aljumah/Getty Images)|今日は米国の「虹を見つける日」|![](/ja-JP/2024/04/202404021500KyrgyzstanRainbow.jpg)|
 202404031500|YoshinoyamaSpring|吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)|今日は清明|![](/ja-JP/2024/04/202404031500YoshinoyamaSpring.jpg)|
 202404041500|BahamasSpace|バハマ諸島, バハマ (© NASA)|カリブ海の宝石|![](/ja-JP/2024/04/202404041500BahamasSpace.jpg)|
+202404051500|JapanHimeji|姫路城, 兵庫県 姫路市 (© Julian Elliott Photography/Getty Images)|今日は「城の日」|![](/ja-JP/2024/04/202404051500JapanHimeji.jpg)|
