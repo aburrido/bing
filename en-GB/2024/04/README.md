@@ -6,3 +6,4 @@
 202404022300|NewcastleUponTyneUK|Newcastle Upon Tyne, England (© Allan Baxter/The Image Bank/Getty Images)|Once upon a 'Tyne'|![](/en-GB/2024/04/202404022300NewcastleUponTyneUK.jpg)|
 202404032300|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-GB/2024/04/202404032300AntelopeBotswana.jpg)|
 202404042300|BahamasSpace|The Bahamas pictured from the International Space Station (© NASA)|A dive into the blue|![](/en-GB/2024/04/202404042300BahamasSpace.jpg)|
+202404052300|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-GB/2024/04/202404052300JapanHimeji.jpg)|
