@@ -6,3 +6,4 @@
 202404021830|TeaPlantation|Tea plantation near Munnar, Kerala (© Peter Zelei Images/Moment/Getty Images)|A serene Tea-rrain|![](/en-IN/2024/04/202404021830TeaPlantation.jpg)|
 202404031830|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-IN/2024/04/202404031830AntelopeBotswana.jpg)|
 202404041830|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|A dive into the blue|![](/en-IN/2024/04/202404041830BahamasSpace.jpg)|
+202404051830|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-IN/2024/04/202404051830JapanHimeji.jpg)|
