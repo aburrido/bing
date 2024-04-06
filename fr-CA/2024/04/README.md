@@ -6,3 +6,4 @@
 202404030400|PacificRimNationalPark|Îles Broken Group, réserve de parc national Pacific Rim, île de Vancouver, Colombie-Britannique (© Ron Watts/Design Pics/Getty Images)|L’endroit idéal pour se perdre|![](/fr-CA/2024/04/202404030400PacificRimNationalPark.jpg)|
 202404040400|AntelopeBotswana|Troupeau de cobes de lechwe rouge traversant la plaine marécageuse du delta de l'Okavango, Botswana (© Ibrahim Suha Derbent/Getty Images)|Les vagabonds des marais|![](/fr-CA/2024/04/202404040400AntelopeBotswana.jpg)|
 202404050400|BahamasSpace|Les Bahamas vues depuis la Station spatiale internationale (© NASA)|Le Grand Bleu|![](/fr-CA/2024/04/202404050400BahamasSpace.jpg)|
+202404060400|JapanHimeji|Château de Himeji, Hyōgo, Japon (© Julian Elliott Photography/Getty Images)|Une vue royale|![](/fr-CA/2024/04/202404060400JapanHimeji.jpg)|

@@ -6,3 +6,4 @@
 202404030400|PacificRimNationalPark|Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia (© Ron Watts/Design Pics/Getty Images)|Not all who wander are lost|![](/en-CA/2024/04/202404030400PacificRimNationalPark.jpg)|
 202404040400|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-CA/2024/04/202404040400AntelopeBotswana.jpg)|
 202404050400|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|A dive into the blue|![](/en-CA/2024/04/202404050400BahamasSpace.jpg)|
+202404060400|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-CA/2024/04/202404060400JapanHimeji.jpg)|
