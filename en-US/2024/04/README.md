@@ -7,3 +7,4 @@
 202404030700|KyrgyzstanRainbow|A rainbow in At-Bashy District  , Kakshaal Too Mountains, Naryn Province, Kyrgyzstan (© Emad aljumah/Getty Images)|Wish hue were here|![](/en-US/2024/04/202404030700KyrgyzstanRainbow.jpg)|
 202404040700|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-US/2024/04/202404040700AntelopeBotswana.jpg)|
 202404050700|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|A dive into the blue|![](/en-US/2024/04/202404050700BahamasSpace.jpg)|
+202404060700|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-US/2024/04/202404060700JapanHimeji.jpg)|
