@@ -7,3 +7,4 @@
 202404031600|AntelopeBotswana|红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images)|沼泽地上的漫游者|![](/zh-CN/2024/04/202404031600AntelopeBotswana.jpg)|
 202404041600|BahamasSpace|从国际空间站拍摄的巴哈马群岛 (© NASA)|潜入碧海|![](/zh-CN/2024/04/202404041600BahamasSpace.jpg)|
 202404051600|JapanHimeji|姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)|皇家景观|![](/zh-CN/2024/04/202404051600JapanHimeji.jpg)|
+202404061600|BeaverDenali|奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images)|看，我是树枝整理师！|![](/zh-CN/2024/04/202404061600BeaverDenali.jpg)|
