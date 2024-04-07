@@ -8,3 +8,4 @@
 202404042300|BahamasSpace|The Bahamas pictured from the International Space Station (© NASA)|A dive into the blue|![](/en-GB/2024/04/202404042300BahamasSpace.jpg)|
 202404052300|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-GB/2024/04/202404052300JapanHimeji.jpg)|
 202404062300|BeaverDenali|North American beaver in a pond near Wonder Lake, Denali National Park, Alaska, USA (© Paul Souders/Getty Images)|Look, I'm a branch manager!|![](/en-GB/2024/04/202404062300BeaverDenali.jpg)|
+202404072300|LlansteffanCastleWales|Llansteffan Castle, Carmarthenshire, Wales (© Roy Shakespeare/Loop Images Ltd/Alamy Stock Photo)|If these walls could talk...|![](/en-GB/2024/04/202404072300LlansteffanCastleWales.jpg)|
