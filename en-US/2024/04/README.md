@@ -8,3 +8,4 @@
 202404040700|AntelopeBotswana|Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)|Wanderers of the wetlands|![](/en-US/2024/04/202404040700AntelopeBotswana.jpg)|
 202404050700|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|A dive into the blue|![](/en-US/2024/04/202404050700BahamasSpace.jpg)|
 202404060700|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-US/2024/04/202404060700JapanHimeji.jpg)|
+202404070700|BeaverDenali|North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)|Look, I'm a branch manager!|![](/en-US/2024/04/202404070700BeaverDenali.jpg)|
