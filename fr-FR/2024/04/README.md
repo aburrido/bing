@@ -8,3 +8,4 @@
 202404042200|BahamasSpace|Les Bahamas vues depuis la Station spatiale internationale (© NASA)|Le Grand Bleu|![](/fr-FR/2024/04/202404042200BahamasSpace.jpg)|
 202404052200|JapanHimeji|Château de Himeji, Hyōgo, Japon (© Julian Elliott Photography/Getty Images)|Une vue royale|![](/fr-FR/2024/04/202404052200JapanHimeji.jpg)|
 202404062200|BeaverDenali|Castor du Canada dans un étang près du lac Wonder, parc national de Denali, Alaska, États-Unis (© Paul Souders/Getty Images)|Un castor branché !|![](/fr-FR/2024/04/202404062200BeaverDenali.jpg)|
+202404072200|HedgehogMeadow|Hérisson dans un jardin de pissenlits, Bad Driburg, Allemagne (© Oksana Schmidt/Getty Images)|Qui s’y frotte, s’y pique !|![](/fr-FR/2024/04/202404072200HedgehogMeadow.jpg)|
