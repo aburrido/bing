@@ -8,3 +8,4 @@
 202404041500|BahamasSpace|バハマ諸島, バハマ (© NASA)|カリブ海の宝石|![](/ja-JP/2024/04/202404041500BahamasSpace.jpg)|
 202404051500|JapanHimeji|姫路城, 兵庫県 姫路市 (© Julian Elliott Photography/Getty Images)|今日は「城の日」|![](/ja-JP/2024/04/202404051500JapanHimeji.jpg)|
 202404061500|BeaverDenali|デナリ国立公園のアメリカビーバー, 米国 アラスカ州  (© Paul Souders/Getty Images)|今日は国際ビーバーデー|![](/ja-JP/2024/04/202404061500BeaverDenali.jpg)|
+202404071500|SpringApple|リンゴの果樹園, ドイツ (© Smileus/Getty Images)|春に白い花が咲く木|![](/ja-JP/2024/04/202404071500SpringApple.jpg)|
