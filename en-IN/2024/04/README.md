@@ -9,3 +9,4 @@
 202404051830|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-IN/2024/04/202404051830JapanHimeji.jpg)|
 202404061830|BeaverDenali|North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)|Look, I'm a branch manager!|![](/en-IN/2024/04/202404061830BeaverDenali.jpg)|
 202404071830|OwlSiblings|Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)|Owl be there for you!|![](/en-IN/2024/04/202404071830OwlSiblings.jpg)|
+202404081830|SpringCub|American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)|Have I been sleeping too long?|![](/en-IN/2024/04/202404081830SpringCub.jpg)|
