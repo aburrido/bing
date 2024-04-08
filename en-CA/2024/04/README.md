@@ -8,3 +8,4 @@
 202404050400|BahamasSpace|The Bahamas photographed from the International Space Station (© NASA)|A dive into the blue|![](/en-CA/2024/04/202404050400BahamasSpace.jpg)|
 202404060400|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-CA/2024/04/202404060400JapanHimeji.jpg)|
 202404070400|BeaverDenali|North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)|Look, I'm a branch manager!|![](/en-CA/2024/04/202404070400BeaverDenali.jpg)|
+202404080400|SolarEclipseOregon|Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)|Gaze up, skywatchers!|![](/en-CA/2024/04/202404080400SolarEclipseOregon.jpg)|

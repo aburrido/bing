@@ -8,3 +8,4 @@
 202404050400|BahamasSpace|Les Bahamas vues depuis la Station spatiale internationale (© NASA)|Le Grand Bleu|![](/fr-CA/2024/04/202404050400BahamasSpace.jpg)|
 202404060400|JapanHimeji|Château de Himeji, Hyōgo, Japon (© Julian Elliott Photography/Getty Images)|Une vue royale|![](/fr-CA/2024/04/202404060400JapanHimeji.jpg)|
 202404070400|BeaverDenali|Castor du Canada dans un étang près du lac Wonder, parc national de Denali, Alaska, États-Unis (© Paul Souders/Getty Images)|Un castor branché!|![](/fr-CA/2024/04/202404070400BeaverDenali.jpg)|
+202404080400|SolarEclipseOregon|Éclipse solaire totale photographiée depuis Madras, Oregon, États-Unis, le 21 août 2017 (© NASA/Aubrey Gemignani)|Levez les yeux au ciel!|![](/fr-CA/2024/04/202404080400SolarEclipseOregon.jpg)|
