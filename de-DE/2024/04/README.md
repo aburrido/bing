@@ -9,3 +9,4 @@
 202404052200|JapanHimeji|Himeji Burg, Himeji, Hyōgo Präfektur, Japan (© Julian Elliott Photography/Getty Images)|Morgenländische Burg|![](/de-DE/2024/04/202404052200JapanHimeji.jpg)|
 202404062200|BeaverDenali|Kanadischer Biber in einem Teich in der Nähe des Wonder Lake, Denali-Nationalpark, Alaska, USA (© Paul Souders/Getty Images)|Biber vs. Bieber: Wer ist putziger?|![](/de-DE/2024/04/202404062200BeaverDenali.jpg)|
 202404072200|HedgehogMeadow|Braunbrustigel in einem Garten mit Löwenzahn, Bad Driburg, Nordrhein-Westfalen (© Oksana Schmidt/Getty Images)|Gelbe Träume auf grüner Flur|![](/de-DE/2024/04/202404072200HedgehogMeadow.jpg)|
+202404082200|SkagitValleyTulips|Tulpenfelder im Frühling, Skagit Valley, Washington, USA (© Claudia Cooper/Getty Images)|Auf Zehenspitzen durch Tulpenfelder|![](/de-DE/2024/04/202404082200SkagitValleyTulips.jpg)|
