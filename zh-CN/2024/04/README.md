@@ -10,3 +10,4 @@
 202404061600|BeaverDenali|奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images)|看，我是树枝整理师！|![](/zh-CN/2024/04/202404061600BeaverDenali.jpg)|
 202404071600|HedgehogMeadow|欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)|闻闻春天的气息|![](/zh-CN/2024/04/202404071600HedgehogMeadow.jpg)|
 202404081600|SkagitValleyTulips|郁金香田，斯卡吉特山谷，华盛顿州，美国 (© Claudia Cooper/Getty Images)|踮起脚尖，穿过郁金香|![](/zh-CN/2024/04/202404081600SkagitValleyTulips.jpg)|
+202404091600|OwlSiblings|洞穴附近的穴小鸮雏鸟，怀俄明州，美国 (© Danita Delimont/Getty Images)|猫头鹰在你身边！|![](/zh-CN/2024/04/202404091600OwlSiblings.jpg)|
