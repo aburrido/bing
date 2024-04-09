@@ -10,3 +10,4 @@
 202404060700|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|Info|![](/en-AU/2024/04/202404060700JapanHimeji.jpg)|
 202404070700|BeaverDenali|North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)|Info|![](/en-AU/2024/04/202404070700BeaverDenali.jpg)|
 202404080700|HedgehogMeadow|European hedgehog in a garden with dandelions, Bad Driburg, Germany (© Oksana Schmidt/Getty Images)|Info|![](/en-AU/2024/04/202404080700HedgehogMeadow.jpg)|
+202404090700|SkagitValleyTulips|Tulip fields in spring, Skagit Valley, Washington, USA (© Claudia Cooper/Getty Images)|Info|![](/en-AU/2024/04/202404090700SkagitValleyTulips.jpg)|

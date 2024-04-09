@@ -10,3 +10,4 @@
 202404060700|JapanHimeji|Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)|A royal view|![](/en-US/2024/04/202404060700JapanHimeji.jpg)|
 202404070700|BeaverDenali|North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)|Look, I'm a branch manager!|![](/en-US/2024/04/202404070700BeaverDenali.jpg)|
 202404080700|SolarEclipseOregon|Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)|Enter the eclipse|![](/en-US/2024/04/202404080700SolarEclipseOregon.jpg)|
+202404090700|SkagitValleyTulips|Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)|Tiptoe through the tulips|![](/en-US/2024/04/202404090700SkagitValleyTulips.jpg)|
