@@ -10,3 +10,4 @@
 202404062200|BeaverDenali|Castor du Canada dans un étang près du lac Wonder, parc national de Denali, Alaska, États-Unis (© Paul Souders/Getty Images)|Un castor branché !|![](/fr-FR/2024/04/202404062200BeaverDenali.jpg)|
 202404072200|HedgehogMeadow|Hérisson dans un jardin de pissenlits, Bad Driburg, Allemagne (© Oksana Schmidt/Getty Images)|Qui s’y frotte, s’y pique !|![](/fr-FR/2024/04/202404072200HedgehogMeadow.jpg)|
 202404082200|SkagitValleyTulips|Champs de tulipes au printemps, Skagit Valley, Washington, États-Unis (© Claudia Cooper/Getty Images)|Tulipe ou pas tulipe ?|![](/fr-FR/2024/04/202404082200SkagitValleyTulips.jpg)|
+202404092200|OwlSiblings|Oisillons de chevêches des terriers, Wyoming, États-Unis (© Danita Delimont/Getty Images)|Une chouette famille !|![](/fr-FR/2024/04/202404092200OwlSiblings.jpg)|

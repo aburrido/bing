@@ -10,3 +10,4 @@
 202404062200|BeaverDenali|Kanadischer Biber in einem Teich in der Nähe des Wonder Lake, Denali-Nationalpark, Alaska, USA (© Paul Souders/Getty Images)|Biber vs. Bieber: Wer ist putziger?|![](/de-DE/2024/04/202404062200BeaverDenali.jpg)|
 202404072200|HedgehogMeadow|Braunbrustigel in einem Garten mit Löwenzahn, Bad Driburg, Nordrhein-Westfalen (© Oksana Schmidt/Getty Images)|Gelbe Träume auf grüner Flur|![](/de-DE/2024/04/202404072200HedgehogMeadow.jpg)|
 202404082200|SkagitValleyTulips|Tulpenfelder im Frühling, Skagit Valley, Washington, USA (© Claudia Cooper/Getty Images)|Auf Zehenspitzen durch Tulpenfelder|![](/de-DE/2024/04/202404082200SkagitValleyTulips.jpg)|
+202404092200|OwlSiblings|Kaninchenkäuze in der Nähe einer Höhle, Wyoming, USA (© Danita Delimont/Getty Images)|Ich deins, du meins, zusammen eins|![](/de-DE/2024/04/202404092200OwlSiblings.jpg)|
