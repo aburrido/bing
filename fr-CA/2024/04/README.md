@@ -10,3 +10,4 @@
 202404070400|BeaverDenali|Castor du Canada dans un étang près du lac Wonder, parc national de Denali, Alaska, États-Unis (© Paul Souders/Getty Images)|Un castor branché!|![](/fr-CA/2024/04/202404070400BeaverDenali.jpg)|
 202404080400|SolarEclipseOregon|Éclipse solaire totale photographiée depuis Madras, Oregon, États-Unis, le 21 août 2017 (© NASA/Aubrey Gemignani)|Levez les yeux au ciel!|![](/fr-CA/2024/04/202404080400SolarEclipseOregon.jpg)|
 202404090400|WhistlerWSSF|Massif montagneux de Whistler, Colombie-Britannique, Canada (© Insight Photography/Design Pics/Getty Images)|Vive la glisse!|![](/fr-CA/2024/04/202404090400WhistlerWSSF.jpg)|
+202404100400|OwlSiblings|Oisillons de chevêches des terriers, Wyoming, États-Unis (© Danita Delimont/Getty Images)|Une chouette famille!|![](/fr-CA/2024/04/202404100400OwlSiblings.jpg)|
