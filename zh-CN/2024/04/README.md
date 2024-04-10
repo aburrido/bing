@@ -11,3 +11,4 @@
 202404071600|HedgehogMeadow|欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)|闻闻春天的气息|![](/zh-CN/2024/04/202404071600HedgehogMeadow.jpg)|
 202404081600|SkagitValleyTulips|郁金香田，斯卡吉特山谷，华盛顿州，美国 (© Claudia Cooper/Getty Images)|踮起脚尖，穿过郁金香|![](/zh-CN/2024/04/202404081600SkagitValleyTulips.jpg)|
 202404091600|OwlSiblings|洞穴附近的穴小鸮雏鸟，怀俄明州，美国 (© Danita Delimont/Getty Images)|猫头鹰在你身边！|![](/zh-CN/2024/04/202404091600OwlSiblings.jpg)|
+202404101600|DragonWaterfall|丘伦梅鲁瀑布鸟瞰图，委内瑞拉 (© AirPano LLC/Amazing Aerial Agency)|把梦想变成现实！|![](/zh-CN/2024/04/202404101600DragonWaterfall.jpg)|
