@@ -12,3 +12,4 @@
 202404080700|SolarEclipseOregon|Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)|Enter the eclipse|![](/en-US/2024/04/202404080700SolarEclipseOregon.jpg)|
 202404090700|SkagitValleyTulips|Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)|Tiptoe through the tulips|![](/en-US/2024/04/202404090700SkagitValleyTulips.jpg)|
 202404100700|OwlSiblings|Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)|Owl be there for you!|![](/en-US/2024/04/202404100700OwlSiblings.jpg)|
+202404110700|DragonWaterfall|Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Don't just dream it, stream it!|![](/en-US/2024/04/202404110700DragonWaterfall.jpg)|
