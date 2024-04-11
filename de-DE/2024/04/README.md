@@ -12,3 +12,4 @@
 202404082200|SkagitValleyTulips|Tulpenfelder im Frühling, Skagit Valley, Washington, USA (© Claudia Cooper/Getty Images)|Auf Zehenspitzen durch Tulpenfelder|![](/de-DE/2024/04/202404082200SkagitValleyTulips.jpg)|
 202404092200|OwlSiblings|Kaninchenkäuze in der Nähe einer Höhle, Wyoming, USA (© Danita Delimont/Getty Images)|Ich deins, du meins, zusammen eins|![](/de-DE/2024/04/202404092200OwlSiblings.jpg)|
 202404102200|DragonWaterfall|Luftaufnahme des Wasserfalls Churún-Merú, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Wasserwalzer: Tanz am Wasserfall|![](/de-DE/2024/04/202404102200DragonWaterfall.jpg)|
+202404112200|SunsetArchesNP|Abendlicht über dem North Window, Arches-Nationalpark, Utah, USA (© Anthony Heflin/Shutterstock)|Faszinierende Bögen|![](/de-DE/2024/04/202404112200SunsetArchesNP.jpg)|
