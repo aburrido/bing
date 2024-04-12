@@ -13,3 +13,4 @@
 202404091500|OwlSiblings|アナホリフクロウ, 米国 ワイオミング州 (© Danita Delimont/Getty Images)|今日は兄弟姉妹の日|![](/ja-JP/2024/04/202404091500OwlSiblings.jpg)|
 202404101500|DragonWaterfall|チュルン・メルー滝, ベネズエラ (© AirPano LLC/Amazing Aerial Agency)|見事な直瀑|![](/ja-JP/2024/04/202404101500DragonWaterfall.jpg)|
 202404111500|SunsetArchesNP|アーチーズ国立公園, 米国 ユタ州 (© Anthony Heflin/Shutterstock)|幻想的な自然のアート|![](/ja-JP/2024/04/202404111500SunsetArchesNP.jpg)|
+202404121500|ShibaZakura2024|富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)|今日から富士芝桜まつり|![](/ja-JP/2024/04/202404121500ShibaZakura2024.jpg)|
