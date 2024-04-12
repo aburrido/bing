@@ -13,3 +13,4 @@
 202404091830|DragonWaterfall|Aerial view of Churun-Meru (Dragon) waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Don't just dream it, stream it!|![](/en-IN/2024/04/202404091830DragonWaterfall.jpg)|
 202404101830|EidPrayers|Muslims gather to offer prayers during Eid al-Fitr at Jama Masjid in New Delhi (© MONEY SHARMA/Getty Images)|A silhouette of festivities|![](/en-IN/2024/04/202404101830EidPrayers.jpg)|
 202404111830|SunsetArchesNP|Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)|A work of arch|![](/en-IN/2024/04/202404111830SunsetArchesNP.jpg)|
+202404121830|SpringApple|Apple trees in spring, Germany (© Smileus/Getty Images)|Canopy of blossoms|![](/en-IN/2024/04/202404121830SpringApple.jpg)|
