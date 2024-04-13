@@ -14,3 +14,4 @@
 202404100700|OwlSiblings|Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)|Owl be there for you!|![](/en-US/2024/04/202404100700OwlSiblings.jpg)|
 202404110700|DragonWaterfall|Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Don't just dream it, stream it!|![](/en-US/2024/04/202404110700DragonWaterfall.jpg)|
 202404120700|SunsetArchesNP|Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)|A work of arch|![](/en-US/2024/04/202404120700SunsetArchesNP.jpg)|
+202404130700|SpringApple|Apple trees in spring, Germany (© Smileus/Getty Images)|Canopy of blossoms|![](/en-US/2024/04/202404130700SpringApple.jpg)|
