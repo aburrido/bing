@@ -14,3 +14,4 @@
 202404102300|DragonWaterfall|Aerial view of the Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Don't just dream it, stream it!|![](/en-GB/2024/04/202404102300DragonWaterfall.jpg)|
 202404112300|SunsetArchesNP|North Window with Turret Arch in the distance, Arches National Park, Utah, USA (© Anthony Heflin/Shutterstock)|A work of arch|![](/en-GB/2024/04/202404112300SunsetArchesNP.jpg)|
 202404122300|GrandNationalDayUK|The Grand National at Aintree Racecourse, England (© Tim Goode/Pool/Getty Images)|Just horsing around|![](/en-GB/2024/04/202404122300GrandNationalDayUK.jpg)|
+202404132300|BowlingBallCali|Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)|Rock 'n' bowl|![](/en-GB/2024/04/202404132300BowlingBallCali.jpg)|
