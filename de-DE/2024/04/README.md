@@ -14,3 +14,4 @@
 202404102200|DragonWaterfall|Luftaufnahme des Wasserfalls Churún-Merú, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Wasserwalzer: Tanz am Wasserfall|![](/de-DE/2024/04/202404102200DragonWaterfall.jpg)|
 202404112200|SunsetArchesNP|Abendlicht über dem North Window, Arches-Nationalpark, Utah, USA (© Anthony Heflin/Shutterstock)|Faszinierende Bögen|![](/de-DE/2024/04/202404112200SunsetArchesNP.jpg)|
 202404122200|SpringApple|Apfelbäume im Frühling, Deutschland (© Smileus/Getty Images)|Göttliches Licht auf verbotene Früchte?|![](/de-DE/2024/04/202404122200SpringApple.jpg)|
+202404132200|WeenerPrimroses|Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)|Blumenteppich|![](/de-DE/2024/04/202404132200WeenerPrimroses.jpg)|
