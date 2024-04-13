@@ -14,3 +14,4 @@
 202404101600|DragonWaterfall|丘伦梅鲁瀑布鸟瞰图，委内瑞拉 (© AirPano LLC/Amazing Aerial Agency)|把梦想变成现实！|![](/zh-CN/2024/04/202404101600DragonWaterfall.jpg)|
 202404111600|SunsetArchesNP|拱门国家公园，犹他州，美国 (© Anthony Heflin/Shutterstock)|一座天然拱门|![](/zh-CN/2024/04/202404111600SunsetArchesNP.jpg)|
 202404121600|SpringApple|春天的苹果树，德国 (© Smileus/Getty Images)|花开正满枝|![](/zh-CN/2024/04/202404121600SpringApple.jpg)|
+202404131600|BowlingBallCali|保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images)|岩石保龄球|![](/zh-CN/2024/04/202404131600BowlingBallCali.jpg)|
