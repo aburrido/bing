@@ -14,3 +14,4 @@
 202404101830|EidPrayers|Muslims gather to offer prayers during Eid al-Fitr at Jama Masjid in New Delhi (© MONEY SHARMA/Getty Images)|A silhouette of festivities|![](/en-IN/2024/04/202404101830EidPrayers.jpg)|
 202404111830|SunsetArchesNP|Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)|A work of arch|![](/en-IN/2024/04/202404111830SunsetArchesNP.jpg)|
 202404121830|SpringApple|Apple trees in spring, Germany (© Smileus/Getty Images)|Canopy of blossoms|![](/en-IN/2024/04/202404121830SpringApple.jpg)|
+202404131830|BowlingBallCali|Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)|Rock 'n' bowl|![](/en-IN/2024/04/202404131830BowlingBallCali.jpg)|
