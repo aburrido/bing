@@ -15,3 +15,4 @@
 202404111500|SunsetArchesNP|アーチーズ国立公園, 米国 ユタ州 (© Anthony Heflin/Shutterstock)|幻想的な自然のアート|![](/ja-JP/2024/04/202404111500SunsetArchesNP.jpg)|
 202404121500|ShibaZakura2024|富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)|今日から富士芝桜まつり|![](/ja-JP/2024/04/202404121500ShibaZakura2024.jpg)|
 202404131500|BowlingBallCali|ボーリングボール・ビーチ, 米国 カリフォルニア州 (© Melo Qiao/Getty Images)|真ん丸な岩が並ぶ海岸|![](/ja-JP/2024/04/202404131500BowlingBallCali.jpg)|
+202404141500|RedBallBelgium|アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)|今日は世界芸術の日|![](/ja-JP/2024/04/202404141500RedBallBelgium.jpg)|
