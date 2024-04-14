@@ -14,3 +14,4 @@
 202404110400|DragonWaterfall|Vue aérienne de la cascade de Churun-Meru, Venezuela (© AirPano LLC/Amazing Aerial Agency)|Une chute vertigineuse|![](/fr-CA/2024/04/202404110400DragonWaterfall.jpg)|
 202404120400|SunsetArchesNP|Lumière du soir sur la North Window avec l'arche Turret en fond, Parc national des Arches, Utah, États-Unis (© Anthony Heflin/Shutterstock)|Un parc « archi » bien!|![](/fr-CA/2024/04/202404120400SunsetArchesNP.jpg)|
 202404130400|SakuraDaysJapanFair|Cerisiers en fleur, parc Queen Elizabeth, Vancouver, Canada (© Yun Han Xu/Moment Open/Getty Images)|La beauté du Printemps|![](/fr-CA/2024/04/202404130400SakuraDaysJapanFair.jpg)|
+202404140400|BowlingBallCali|Coucher de soleil sur la plage de Bowling Ball, Californie, États-Unis (© Melo Qiao/Getty Images)|Un bowling à la plage?|![](/fr-CA/2024/04/202404140400BowlingBallCali.jpg)|
