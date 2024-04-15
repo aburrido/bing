@@ -16,3 +16,4 @@
 202404122200|LyonGastronomy|Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)|À vos couverts !|![](/fr-FR/2024/04/202404122200LyonGastronomy.jpg)|
 202404132200|BowlingBallCali|Coucher de soleil sur la plage de Bowling Ball, Californie, États-Unis (© Melo Qiao/Getty Images)|Un bowling à la plage ?|![](/fr-FR/2024/04/202404132200BowlingBallCali.jpg)|
 202404142200|RedBallBelgium|Le RedBall Project, œuvre d’art itinérante, Gare centrale, Anvers, Belgique (© Brit Worgan/Getty Images)|Faites bondir votre créativité !|![](/fr-FR/2024/04/202404142200RedBallBelgium.jpg)|
+202404152200|UnionSquareNYC|Union Square dans le sud de Manhattan au crépuscule, New York, États-Unis (© Sean Pavone/Getty Images)|La ville qui ne dort jamais|![](/fr-FR/2024/04/202404152200UnionSquareNYC.jpg)|
