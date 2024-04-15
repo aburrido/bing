@@ -16,3 +16,4 @@
 202404121830|SpringApple|Apple trees in spring, Germany (© Smileus/Getty Images)|Canopy of blossoms|![](/en-IN/2024/04/202404121830SpringApple.jpg)|
 202404131830|BowlingBallCali|Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)|Rock 'n' bowl|![](/en-IN/2024/04/202404131830BowlingBallCali.jpg)|
 202404141830|RedBallBelgium|The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)|Bouncing into creativity|![](/en-IN/2024/04/202404141830RedBallBelgium.jpg)|
+202404151830|UnionSquareNYC|Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-IN/2024/04/202404151830UnionSquareNYC.jpg)|
