@@ -16,3 +16,4 @@
 202404120700|SunsetArchesNP|Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah, USA (© Anthony Heflin/Shutterstock)|Info|![](/en-AU/2024/04/202404120700SunsetArchesNP.jpg)|
 202404130700|SpringApple|Apple trees in spring, Germany (© Smileus/Getty Images)|Info|![](/en-AU/2024/04/202404130700SpringApple.jpg)|
 202404140700|BowlingBallCali|Sunset on Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)|Info|![](/en-AU/2024/04/202404140700BowlingBallCali.jpg)|
+202404150700|ChambordCastle|Château de Chambord, Centre-Val de Loire, France (© Susanne Kremer/eStock Photo)|Info|![](/en-AU/2024/04/202404150700ChambordCastle.jpg)|

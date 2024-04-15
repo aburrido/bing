@@ -16,3 +16,4 @@
 202404120700|SunsetArchesNP|Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)|A work of arch|![](/en-US/2024/04/202404120700SunsetArchesNP.jpg)|
 202404130700|SpringApple|Apple trees in spring, Germany (© Smileus/Getty Images)|Canopy of blossoms|![](/en-US/2024/04/202404130700SpringApple.jpg)|
 202404140700|BowlingBallCali|Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)|Rock 'n' bowl|![](/en-US/2024/04/202404140700BowlingBallCali.jpg)|
+202404150700|RedBallBelgium|The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)|Bouncing into creativity|![](/en-US/2024/04/202404150700RedBallBelgium.jpg)|
