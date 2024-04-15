@@ -16,3 +16,4 @@
 202404122300|GrandNationalDayUK|The Grand National at Aintree Racecourse, England (© Tim Goode/Pool/Getty Images)|Just horsing around|![](/en-GB/2024/04/202404122300GrandNationalDayUK.jpg)|
 202404132300|BowlingBallCali|Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)|Rock 'n' bowl|![](/en-GB/2024/04/202404132300BowlingBallCali.jpg)|
 202404142300|RedBallBelgium|The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)|Bouncing into creativity|![](/en-GB/2024/04/202404142300RedBallBelgium.jpg)|
+202404152300|UnionSquareNYC|Union Square in Lower Manhattan, New York, USA (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-GB/2024/04/202404152300UnionSquareNYC.jpg)|
