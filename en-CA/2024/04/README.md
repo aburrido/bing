@@ -16,3 +16,4 @@
 202404130400|SakuraDaysJapanFair|Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)|Canopy of blossoms|![](/en-CA/2024/04/202404130400SakuraDaysJapanFair.jpg)|
 202404140400|BowlingBallCali|Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)|Rock 'n' bowl|![](/en-CA/2024/04/202404140400BowlingBallCali.jpg)|
 202404150400|RedBallBelgium|The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)|Bouncing into creativity|![](/en-CA/2024/04/202404150400RedBallBelgium.jpg)|
+202404160400|UnionSquareNYC|Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-CA/2024/04/202404160400UnionSquareNYC.jpg)|
