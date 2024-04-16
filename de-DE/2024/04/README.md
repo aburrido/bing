@@ -17,3 +17,4 @@
 202404132200|WeenerPrimroses|Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)|Blumenteppich|![](/de-DE/2024/04/202404132200WeenerPrimroses.jpg)|
 202404142200|RedBallBelgium|Die Kunstinstallation RedBall Project, Bahnhof Antwerpen-Centraal, Belgien (© Brit Worgan/Getty Images)|Kreativität, Kunst und Kultur|![](/de-DE/2024/04/202404142200RedBallBelgium.jpg)|
 202404152200|UnionSquareNYC|Union Square in Lower Manhattan, New York City, USA (© Sean Pavone/Getty Images)|Großer Platz, großer Apfel|![](/de-DE/2024/04/202404152200UnionSquareNYC.jpg)|
+202404162200|SpringCub|Amerikanisches Schwarzbärenjunges im Frühling, Shenandoah-Nationalpark, Virginia, USA (© Scott Suriano/Getty Images)|Ist denn schon Frühling?|![](/de-DE/2024/04/202404162200SpringCub.jpg)|
