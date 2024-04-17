@@ -18,3 +18,4 @@
 202404140700|BowlingBallCali|Sunset on Bowling Ball Beach, Mendocino County, California, USA (© Melo Qiao/Getty Images)|Info|![](/en-AU/2024/04/202404140700BowlingBallCali.jpg)|
 202404150700|ChambordCastle|Château de Chambord, Centre-Val de Loire, France (© Susanne Kremer/eStock Photo)|Info|![](/en-AU/2024/04/202404150700ChambordCastle.jpg)|
 202404160700|UnionSquareNYC|Union Square in lower Manhattan at twilight, New York, USA (© Sean Pavone/Getty Images)|Info|![](/en-AU/2024/04/202404160700UnionSquareNYC.jpg)|
+202404170700|SpringCub|American black bear cub in spring, Shenandoah National Park, Virginia, USA (© Scott Suriano/Getty Images)|Info|![](/en-AU/2024/04/202404170700SpringCub.jpg)|
