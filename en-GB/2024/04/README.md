@@ -18,3 +18,4 @@
 202404142300|RedBallBelgium|The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)|Bouncing into creativity|![](/en-GB/2024/04/202404142300RedBallBelgium.jpg)|
 202404152300|UnionSquareNYC|Union Square in Lower Manhattan, New York, USA (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-GB/2024/04/202404152300UnionSquareNYC.jpg)|
 202404162300|SpringCub|American black bear cub in spring, Shenandoah National Park, Virginia, USA (© Scott Suriano/Getty Images)|Have I been sleeping too long?|![](/en-GB/2024/04/202404162300SpringCub.jpg)|
+202404172300|AvilaSpain|Medieval city walls, Ávila, Spain (© Scott Suriano/Getty Images)|Wall of fame|![](/en-GB/2024/04/202404172300AvilaSpain.jpg)|
