@@ -17,3 +17,4 @@
 202404140400|BowlingBallCali|Coucher de soleil sur la plage de Bowling Ball, Californie, États-Unis (© Melo Qiao/Getty Images)|Un bowling à la plage?|![](/fr-CA/2024/04/202404140400BowlingBallCali.jpg)|
 202404150400|RedBallBelgium|Le RedBall Project, œuvre d’art itinérante, Gare centrale, Anvers, Belgique (© Brit Worgan/Getty Images)|Faites bondir votre créativité!|![](/fr-CA/2024/04/202404150400RedBallBelgium.jpg)|
 202404160400|UnionSquareNYC|Union Square dans le sud de Manhattan au crépuscule, New York, États-Unis (© Sean Pavone/Getty Images)|La ville qui ne dort jamais|![](/fr-CA/2024/04/202404160400UnionSquareNYC.jpg)|
+202404170400|SpringCub|Ours noir, Parc national de Shenandoah, Virginie, États-Unis (© Scott Suriano/Getty Images)|Dur, dur, le réveil!|![](/fr-CA/2024/04/202404170400SpringCub.jpg)|
