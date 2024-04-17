@@ -18,3 +18,4 @@
 202404141830|RedBallBelgium|The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)|Bouncing into creativity|![](/en-IN/2024/04/202404141830RedBallBelgium.jpg)|
 202404151830|UnionSquareNYC|Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-IN/2024/04/202404151830UnionSquareNYC.jpg)|
 202404161830|RamaNavami|Ram Mandir, Ayodhya, Uttar Pradesh (© Ritesh Shukla/Stringer/Getty Images)|A spiritual retreat|![](/en-IN/2024/04/202404161830RamaNavami.jpg)|
+202404171830|AvilaSpain|Mediaeval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)|Wall of fame|![](/en-IN/2024/04/202404171830AvilaSpain.jpg)|
