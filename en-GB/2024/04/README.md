@@ -19,3 +19,4 @@
 202404152300|UnionSquareNYC|Union Square in Lower Manhattan, New York, USA (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-GB/2024/04/202404152300UnionSquareNYC.jpg)|
 202404162300|SpringCub|American black bear cub in spring, Shenandoah National Park, Virginia, USA (© Scott Suriano/Getty Images)|Have I been sleeping too long?|![](/en-GB/2024/04/202404162300SpringCub.jpg)|
 202404172300|AvilaSpain|Medieval city walls, Ávila, Spain (© Scott Suriano/Getty Images)|Wall of fame|![](/en-GB/2024/04/202404172300AvilaSpain.jpg)|
+202404182300|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-GB/2024/04/202404182300OrkneyStones.jpg)|
