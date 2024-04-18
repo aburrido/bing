@@ -19,3 +19,4 @@
 202404151830|UnionSquareNYC|Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)|Lights, camera, New York!|![](/en-IN/2024/04/202404151830UnionSquareNYC.jpg)|
 202404161830|RamaNavami|Ram Mandir, Ayodhya, Uttar Pradesh (© Ritesh Shukla/Stringer/Getty Images)|A spiritual retreat|![](/en-IN/2024/04/202404161830RamaNavami.jpg)|
 202404171830|AvilaSpain|Mediaeval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)|Wall of fame|![](/en-IN/2024/04/202404171830AvilaSpain.jpg)|
+202404181830|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-IN/2024/04/202404181830OrkneyStones.jpg)|
