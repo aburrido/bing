@@ -19,3 +19,4 @@
 202404151500|UnionSquareNYC|ユニオンスクエア, 米国 ニューヨーク (© Sean Pavone/Getty Images)|活気に満ちた公園|![](/ja-JP/2024/04/202404151500UnionSquareNYC.jpg)|
 202404161500|SpringCub|シェナンドー国立公園, 米国 バージニア州 (© Scott Suriano/Getty Images)|アメリカグマの赤ちゃん|![](/ja-JP/2024/04/202404161500SpringCub.jpg)|
 202404171500|AvilaSpain|アビラの城壁, スペイン (© Alberto Loyo/Getty Images)|今日は世界遺産の日|![](/ja-JP/2024/04/202404171500AvilaSpain.jpg)|
+202404181500|OrkneyStones|リング・オブ・ブロッガー, スコットランド (© Paul Williams - FunkyStock/Getty Images)|環状列石の遺跡群|![](/ja-JP/2024/04/202404181500OrkneyStones.jpg)|
