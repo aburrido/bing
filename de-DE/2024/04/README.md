@@ -20,3 +20,4 @@
 202404162200|SpringCub|Amerikanisches Schwarzbärenjunges im Frühling, Shenandoah-Nationalpark, Virginia, USA (© Scott Suriano/Getty Images)|Ist denn schon Frühling?|![](/de-DE/2024/04/202404162200SpringCub.jpg)|
 202404172200|AvilaSpain|Mittelalterliche Stadtmauern, Ávila, Spanien (© Scott Suriano/Getty Images)|Wall of fame|![](/de-DE/2024/04/202404172200AvilaSpain.jpg)|
 202404182200|OrkneyStones|Der Ring von Brodgar, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)|Antike Rituale und Heidenfeste|![](/de-DE/2024/04/202404182200OrkneyStones.jpg)|
+202404192200|YellowstoneGeyser|Grand Prismatic Spring bei Sonnenaufgang, Yellowstone-Nationalpark, Wyoming, USA (© XIN WANG/Getty Images)|Ins Blaue hinein?|![](/de-DE/2024/04/202404192200YellowstoneGeyser.jpg)|
