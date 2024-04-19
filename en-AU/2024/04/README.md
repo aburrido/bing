@@ -20,3 +20,4 @@
 202404160700|UnionSquareNYC|Union Square in lower Manhattan at twilight, New York, USA (© Sean Pavone/Getty Images)|Info|![](/en-AU/2024/04/202404160700UnionSquareNYC.jpg)|
 202404170700|SpringCub|American black bear cub in spring, Shenandoah National Park, Virginia, USA (© Scott Suriano/Getty Images)|Info|![](/en-AU/2024/04/202404170700SpringCub.jpg)|
 202404180700|AvilaSpain|Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)|Info|![](/en-AU/2024/04/202404180700AvilaSpain.jpg)|
+202404190700|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|Info|![](/en-AU/2024/04/202404190700OrkneyStones.jpg)|
