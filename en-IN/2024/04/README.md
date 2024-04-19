@@ -20,3 +20,4 @@
 202404161830|RamaNavami|Ram Mandir, Ayodhya, Uttar Pradesh (© Ritesh Shukla/Stringer/Getty Images)|A spiritual retreat|![](/en-IN/2024/04/202404161830RamaNavami.jpg)|
 202404171830|AvilaSpain|Mediaeval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)|Wall of fame|![](/en-IN/2024/04/202404171830AvilaSpain.jpg)|
 202404181830|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-IN/2024/04/202404181830OrkneyStones.jpg)|
+202404191830|YellowstoneGeyser|Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)|Hot springs and hiking boots|![](/en-IN/2024/04/202404191830YellowstoneGeyser.jpg)|
