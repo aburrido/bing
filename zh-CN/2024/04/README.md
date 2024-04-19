@@ -20,3 +20,4 @@
 202404161600|SpringCub|春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images)|我是不是睡得太久了？|![](/zh-CN/2024/04/202404161600SpringCub.jpg)|
 202404171600|AvilaSpain|中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)|名誉之墙|![](/zh-CN/2024/04/202404171600AvilaSpain.jpg)|
 202404181600|OrkneyStones|布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)|历史的轮回|![](/zh-CN/2024/04/202404181600OrkneyStones.jpg)|
+202404191600|YellowstoneGeyser|日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)|保存，保护，享受！|![](/zh-CN/2024/04/202404191600YellowstoneGeyser.jpg)|
