@@ -21,3 +21,4 @@
 202404172200|MonumentsDay|Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)|Une journée monumentale|![](/fr-FR/2024/04/202404172200MonumentsDay.jpg)|
 202404182200|OrkneyStones|Le cercle de Brodgar, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)|La boucle est bouclée !|![](/fr-FR/2024/04/202404182200OrkneyStones.jpg)|
 202404192200|YellowstoneGeyser|Le Grand Prismatic Spring au lever du soleil, parc national de Yellowstone, Wyoming, États-Unis (© XIN WANG/Getty Images)|Une ode aux terres sauvages|![](/fr-FR/2024/04/202404192200YellowstoneGeyser.jpg)|
+202404202200|ChauseyIslands|Îles Chausey, Normandie, France (© Tuul & Bruno Morandi/Getty Images)|La plus caribéenne des îles anglo-normandes|![](/fr-FR/2024/04/202404202200ChauseyIslands.jpg)|
