@@ -21,3 +21,4 @@
 202404170700|SpringCub|American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)|Have I been sleeping too long?|![](/en-US/2024/04/202404170700SpringCub.jpg)|
 202404180700|AvilaSpain|Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)|Wall of fame|![](/en-US/2024/04/202404180700AvilaSpain.jpg)|
 202404190700|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-US/2024/04/202404190700OrkneyStones.jpg)|
+202404200700|YellowstoneGeyser|Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)|Preserve, protect, enjoy!|![](/en-US/2024/04/202404200700YellowstoneGeyser.jpg)|
