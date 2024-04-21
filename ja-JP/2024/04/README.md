@@ -22,3 +22,4 @@
 202404181500|OrkneyStones|リング・オブ・ブロッガー, スコットランド (© Paul Williams - FunkyStock/Getty Images)|環状列石の遺跡群|![](/ja-JP/2024/04/202404181500OrkneyStones.jpg)|
 202404191500|YellowstoneGeyser|イエローストーン国立公園の熱水泉, 米国 ワイオミング州 (© XIN WANG/Getty Images)|今日から米国の国立公園週間|![](/ja-JP/2024/04/202404191500YellowstoneGeyser.jpg)|
 202404201500|CadesCove|グレート・スモーキー山脈国立公園, 米国 テネシー州 (© Richard Bernabe/Shutterstock)|霧のかかる渓谷の道|![](/ja-JP/2024/04/202404201500CadesCove.jpg)|
+202404211500|EarthDayTurtle|アオウミガメ, 米国 カリフォルニア州 サンディエゴ (© Ralph Pace/Minden Pictures)|今日は地球の日|![](/ja-JP/2024/04/202404211500EarthDayTurtle.jpg)|
