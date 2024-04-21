@@ -22,3 +22,4 @@
 202404182300|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-GB/2024/04/202404182300OrkneyStones.jpg)|
 202404192300|YellowstoneGeyser|Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming, USA (© XIN WANG/Getty Images)|Preserve, protect, enjoy!|![](/en-GB/2024/04/202404192300YellowstoneGeyser.jpg)|
 202404202300|LondonMarathon2017|London Marathon in London on April 23, 2017 (© CHRIS J RATCLIFFE/Stringer/AFP/Getty Images)|A real spring in their step|![](/en-GB/2024/04/202404202300LondonMarathon2017.jpg)|
+202404212300|EarthDayTurtle|Green sea turtle, San Diego, California, USA (© Ralph Pace/Minden Pictures)|What are we shell-ebrating?|![](/en-GB/2024/04/202404212300EarthDayTurtle.jpg)|
