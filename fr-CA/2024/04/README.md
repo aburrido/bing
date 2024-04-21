@@ -21,3 +21,4 @@
 202404180400|AvilaSpain|La muraille d'Avila, Espagne (© Alberto Loyo/Getty Images)|Une journée monumentale|![](/fr-CA/2024/04/202404180400AvilaSpain.jpg)|
 202404190400|OrkneyStones|Le cercle de Brodgar, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)|La boucle est bouclée!|![](/fr-CA/2024/04/202404190400OrkneyStones.jpg)|
 202404200400|YellowstoneGeyser|Le Grand Prismatic Spring au lever du soleil, parc national de Yellowstone, Wyoming, États-Unis (© XIN WANG/Getty Images)|Une ode aux terres sauvages|![](/fr-CA/2024/04/202404200400YellowstoneGeyser.jpg)|
+202404210400|CadesCove|Sparks Lane à Cades Cove, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Richard Bernabe/Shutterstock)|À la croisée des chemins|![](/fr-CA/2024/04/202404210400CadesCove.jpg)|

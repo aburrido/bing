@@ -21,3 +21,4 @@
 202404180400|AvilaSpain|Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)|Wall of fame|![](/en-CA/2024/04/202404180400AvilaSpain.jpg)|
 202404190400|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-CA/2024/04/202404190400OrkneyStones.jpg)|
 202404200400|YellowstoneGeyser|Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)|Preserve, protect, enjoy!|![](/en-CA/2024/04/202404200400YellowstoneGeyser.jpg)|
+202404210400|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)|The road not taken|![](/en-CA/2024/04/202404210400CadesCove.jpg)|
