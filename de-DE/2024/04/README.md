@@ -22,3 +22,4 @@
 202404182200|OrkneyStones|Der Ring von Brodgar, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)|Antike Rituale und Heidenfeste|![](/de-DE/2024/04/202404182200OrkneyStones.jpg)|
 202404192200|YellowstoneGeyser|Grand Prismatic Spring bei Sonnenaufgang, Yellowstone-Nationalpark, Wyoming, USA (© XIN WANG/Getty Images)|Ins Blaue hinein?|![](/de-DE/2024/04/202404192200YellowstoneGeyser.jpg)|
 202404202200|CologneFlowerBed|Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)|Blumenbeet oder Blumenbett?|![](/de-DE/2024/04/202404202200CologneFlowerBed.jpg)|
+202404212200|EarthDayTurtle|Grüne Meeresschildkröte, San Diego, Kalifornien, USA (© Ralph Pace/Minden Pictures)|Planet vs. Plastik|![](/de-DE/2024/04/202404212200EarthDayTurtle.jpg)|
