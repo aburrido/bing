@@ -22,3 +22,4 @@
 202404181830|OrkneyStones|The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|History has come full circle|![](/en-IN/2024/04/202404181830OrkneyStones.jpg)|
 202404191830|YellowstoneGeyser|Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)|Hot springs and hiking boots|![](/en-IN/2024/04/202404191830YellowstoneGeyser.jpg)|
 202404201830|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)|The road not taken|![](/en-IN/2024/04/202404201830CadesCove.jpg)|
+202404211830|EarthDayTurtle|Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)|What are we shell-ebrating?|![](/en-IN/2024/04/202404211830EarthDayTurtle.jpg)|
