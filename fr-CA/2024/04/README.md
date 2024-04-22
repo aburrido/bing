@@ -22,3 +22,4 @@
 202404190400|OrkneyStones|Le cercle de Brodgar, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)|La boucle est bouclée!|![](/fr-CA/2024/04/202404190400OrkneyStones.jpg)|
 202404200400|YellowstoneGeyser|Le Grand Prismatic Spring au lever du soleil, parc national de Yellowstone, Wyoming, États-Unis (© XIN WANG/Getty Images)|Une ode aux terres sauvages|![](/fr-CA/2024/04/202404200400YellowstoneGeyser.jpg)|
 202404210400|CadesCove|Sparks Lane à Cades Cove, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Richard Bernabe/Shutterstock)|À la croisée des chemins|![](/fr-CA/2024/04/202404210400CadesCove.jpg)|
+202404220400|EarthDayTurtle|Tortue verte, San Diego, Californie, États-Unis (© Ralph Pace/Minden Pictures)|Protégeons notre planète!|![](/fr-CA/2024/04/202404220400EarthDayTurtle.jpg)|
