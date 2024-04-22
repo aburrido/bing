@@ -23,3 +23,4 @@
 202404191600|YellowstoneGeyser|日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)|保存，保护，享受！|![](/zh-CN/2024/04/202404191600YellowstoneGeyser.jpg)|
 202404201600|CadesCove|Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)|未选择的路|![](/zh-CN/2024/04/202404201600CadesCove.jpg)|
 202404211600|EarthDayTurtle|绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)|我们在庆祝什么?|![](/zh-CN/2024/04/202404211600EarthDayTurtle.jpg)|
+202404221600|TrinityDublin|三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images)|预订已满！|![](/zh-CN/2024/04/202404221600TrinityDublin.jpg)|
