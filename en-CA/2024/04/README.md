@@ -23,3 +23,4 @@
 202404200400|YellowstoneGeyser|Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)|Preserve, protect, enjoy!|![](/en-CA/2024/04/202404200400YellowstoneGeyser.jpg)|
 202404210400|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)|The road not taken|![](/en-CA/2024/04/202404210400CadesCove.jpg)|
 202404220400|EarthDayTurtle|Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)|What are we shell-ebrating?|![](/en-CA/2024/04/202404220400EarthDayTurtle.jpg)|
+202404230400|TrinityDublin|Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)|Fully booked!|![](/en-CA/2024/04/202404230400TrinityDublin.jpg)|

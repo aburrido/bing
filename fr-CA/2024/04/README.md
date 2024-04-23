@@ -23,3 +23,4 @@
 202404200400|YellowstoneGeyser|Le Grand Prismatic Spring au lever du soleil, parc national de Yellowstone, Wyoming, États-Unis (© XIN WANG/Getty Images)|Une ode aux terres sauvages|![](/fr-CA/2024/04/202404200400YellowstoneGeyser.jpg)|
 202404210400|CadesCove|Sparks Lane à Cades Cove, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Richard Bernabe/Shutterstock)|À la croisée des chemins|![](/fr-CA/2024/04/202404210400CadesCove.jpg)|
 202404220400|EarthDayTurtle|Tortue verte, San Diego, Californie, États-Unis (© Ralph Pace/Minden Pictures)|Protégeons notre planète!|![](/fr-CA/2024/04/202404220400EarthDayTurtle.jpg)|
+202404230400|TrinityDublin|Bibliothèque du Trinity College de Dublin, Irlande (© Lukas Bischoff/Getty Images)|Le pouvoir des livres|![](/fr-CA/2024/04/202404230400TrinityDublin.jpg)|
