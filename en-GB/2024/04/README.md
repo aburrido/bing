@@ -24,3 +24,4 @@
 202404202300|LondonMarathon2017|London Marathon in London on April 23, 2017 (© CHRIS J RATCLIFFE/Stringer/AFP/Getty Images)|A real spring in their step|![](/en-GB/2024/04/202404202300LondonMarathon2017.jpg)|
 202404212300|EarthDayTurtle|Green sea turtle, San Diego, California, USA (© Ralph Pace/Minden Pictures)|What are we shell-ebrating?|![](/en-GB/2024/04/202404212300EarthDayTurtle.jpg)|
 202404222300|SaintGeorgePaoloUccello|Painting titled 'Saint George and the Dragon' by Paolo Uccello (© Photo 12/Universal Images Group via Getty Images)|Happy Saint George's Day!|![](/en-GB/2024/04/202404222300SaintGeorgePaoloUccello.jpg)|
+202404232300|TrilliumOntario|White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Hey, how's it growing today?|![](/en-GB/2024/04/202404232300TrilliumOntario.jpg)|
