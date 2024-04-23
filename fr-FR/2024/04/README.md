@@ -24,3 +24,4 @@
 202404202200|ChauseyIslands|Îles Chausey, Normandie, France (© Tuul & Bruno Morandi/Getty Images)|La plus caribéenne des îles anglo-normandes|![](/fr-FR/2024/04/202404202200ChauseyIslands.jpg)|
 202404212200|EarthDayTurtle|Tortue verte, San Diego, Californie, États-Unis (© Ralph Pace/Minden Pictures)|Protégeons notre planète !|![](/fr-FR/2024/04/202404212200EarthDayTurtle.jpg)|
 202404222200|TrinityDublin|Bibliothèque du Trinity College de Dublin, Irlande (© Lukas Bischoff/Getty Images)|Le pouvoir des livres|![](/fr-FR/2024/04/202404222200TrinityDublin.jpg)|
+202404232200|TrilliumOntario|Floraison du trille blanc, Ontario, Canada (© Jun Zhang/Getty Images)|Le tournesol des bois !|![](/fr-FR/2024/04/202404232200TrilliumOntario.jpg)|
