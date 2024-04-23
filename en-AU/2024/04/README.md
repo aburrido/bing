@@ -25,3 +25,4 @@
 202404210700|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee, USA (© Richard Bernabe/Shutterstock)|Info|![](/en-AU/2024/04/202404210700CadesCove.jpg)|
 202404220700|EarthDayTurtle|Green sea turtle, San Diego, California, USA (© Ralph Pace/Minden Pictures)|Info|![](/en-AU/2024/04/202404220700EarthDayTurtle.jpg)|
 202404230700|TrinityDublin|Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)|Info|![](/en-AU/2024/04/202404230700TrinityDublin.jpg)|
+202404230700|DolomitesSeiserAlm|Seiser Alm in the Dolomites, South Tyrol, Italy (© Achim Thomae/Getty Images)|Info|![](/en-AU/2024/04/202404230700DolomitesSeiserAlm.jpg)|
