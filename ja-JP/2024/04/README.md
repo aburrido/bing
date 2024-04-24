@@ -25,3 +25,4 @@
 202404211500|EarthDayTurtle|アオウミガメ, 米国 カリフォルニア州 サンディエゴ (© Ralph Pace/Minden Pictures)|今日は地球の日|![](/ja-JP/2024/04/202404211500EarthDayTurtle.jpg)|
 202404221500|TrinityDublin|トリニティ・カレッジ図書館, アイルランド (© Lukas Bischoff/Getty Images)|今日は世界本の日|![](/ja-JP/2024/04/202404221500TrinityDublin.jpg)|
 202404231500|TrilliumOntario|北米のエンレイソウ, カナダ オンタリオ州 (© Jun Zhang/Getty Images)|白い三弁花を咲かせる多年草|![](/ja-JP/2024/04/202404231500TrilliumOntario.jpg)|
+202404241500|PenguinDirections|氷山の上に立つアデリーペンギン, 南極大陸 (© Patrick J. Endres/Getty Images)|今日は世界ペンギンの日|![](/ja-JP/2024/04/202404241500PenguinDirections.jpg)|
