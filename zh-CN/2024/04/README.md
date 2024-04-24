@@ -25,3 +25,4 @@
 202404211600|EarthDayTurtle|绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)|我们在庆祝什么?|![](/zh-CN/2024/04/202404211600EarthDayTurtle.jpg)|
 202404221600|TrinityDublin|三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images)|预订已满！|![](/zh-CN/2024/04/202404221600TrinityDublin.jpg)|
 202404231600|TrilliumOntario|盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images)|嘿，今天长势如何？|![](/zh-CN/2024/04/202404231600TrilliumOntario.jpg)|
+202404241600|PenguinDirections|南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)|很高兴在这里见到你们！|![](/zh-CN/2024/04/202404241600PenguinDirections.jpg)|
