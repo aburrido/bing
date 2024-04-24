@@ -25,3 +25,4 @@
 202404212200|EarthDayTurtle|Grüne Meeresschildkröte, San Diego, Kalifornien, USA (© Ralph Pace/Minden Pictures)|Planet vs. Plastik|![](/de-DE/2024/04/202404212200EarthDayTurtle.jpg)|
 202404222200|TrinityDublin|Bibliothek des Trinity College Dublin, Irland (© Lukas Bischoff/Getty Images)|Alles ausgebucht|![](/de-DE/2024/04/202404222200TrinityDublin.jpg)|
 202404232200|TrilliumOntario|Blühende Waldlilien in Ontario, Kanada (© Jun Zhang/Getty Images)|Wo Blumen blühen, lächelt die Welt|![](/de-DE/2024/04/202404232200TrilliumOntario.jpg)|
+202404242200|KalalochTree|Kalaloch Tree, Kalaloch, Olympic-Nationalpark, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)|Baum des Lebens|![](/de-DE/2024/04/202404242200KalalochTree.jpg)|
