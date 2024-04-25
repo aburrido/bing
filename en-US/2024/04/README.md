@@ -26,3 +26,4 @@
 202404220700|EarthDayTurtle|Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)|What are we shell-ebrating?|![](/en-US/2024/04/202404220700EarthDayTurtle.jpg)|
 202404230700|TrinityDublin|Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)|Fully booked!|![](/en-US/2024/04/202404230700TrinityDublin.jpg)|
 202404240700|TrilliumOntario|White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Hey, how's it growing today?|![](/en-US/2024/04/202404240700TrilliumOntario.jpg)|
+202404250700|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-US/2024/04/202404250700PenguinDirections.jpg)|
