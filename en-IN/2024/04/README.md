@@ -26,3 +26,4 @@
 202404221830|TrinityDublin|Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)|Fully booked!|![](/en-IN/2024/04/202404221830TrinityDublin.jpg)|
 202404231830|TrilliumOntario|White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Hey, how's it growing today?|![](/en-IN/2024/04/202404231830TrilliumOntario.jpg)|
 202404241830|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-IN/2024/04/202404241830PenguinDirections.jpg)|
+202404251830|MangroveIslands|Aerial view of mangrove islands near Kundapura, Karnataka (© Amith Nag Photography/Getty Images)|Between land and sea|![](/en-IN/2024/04/202404251830MangroveIslands.jpg)|
