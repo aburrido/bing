@@ -26,3 +26,4 @@
 202404222200|TrinityDublin|Bibliothèque du Trinity College de Dublin, Irlande (© Lukas Bischoff/Getty Images)|Le pouvoir des livres|![](/fr-FR/2024/04/202404222200TrinityDublin.jpg)|
 202404232200|TrilliumOntario|Floraison du trille blanc, Ontario, Canada (© Jun Zhang/Getty Images)|Le tournesol des bois !|![](/fr-FR/2024/04/202404232200TrilliumOntario.jpg)|
 202404242200|PenguinDirections|Manchots Adélie sur un iceberg, Antarctique (© Patrick J. Endres/Getty Images)|Alors, tu viens ou pas ?|![](/fr-FR/2024/04/202404242200PenguinDirections.jpg)|
+202404252200|KalalochTree|Arbre de Kalaloch, alias l'arbre de vie, plage de Kalaloch, parc national olympique, Washington, États-Unis (© Abbie Warnock-Matthews/Shutterstock)|L’arbre qui se bat tous les jours contre la mort|![](/fr-FR/2024/04/202404252200KalalochTree.jpg)|
