@@ -26,3 +26,4 @@
 202404222300|SaintGeorgePaoloUccello|Painting titled 'Saint George and the Dragon' by Paolo Uccello (© Photo 12/Universal Images Group via Getty Images)|Happy Saint George's Day!|![](/en-GB/2024/04/202404222300SaintGeorgePaoloUccello.jpg)|
 202404232300|TrilliumOntario|White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Hey, how's it growing today?|![](/en-GB/2024/04/202404232300TrilliumOntario.jpg)|
 202404242300|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-GB/2024/04/202404242300PenguinDirections.jpg)|
+202404252300|KalalochTree|Kalaloch Tree, aka the tree of life, Kalaloch Beach, Olympic National Park, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)|Taking root|![](/en-GB/2024/04/202404252300KalalochTree.jpg)|
