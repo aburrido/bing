@@ -25,3 +25,4 @@
 202404220400|EarthDayTurtle|Tortue verte, San Diego, Californie, États-Unis (© Ralph Pace/Minden Pictures)|Protégeons notre planète!|![](/fr-CA/2024/04/202404220400EarthDayTurtle.jpg)|
 202404230400|TrinityDublin|Bibliothèque du Trinity College de Dublin, Irlande (© Lukas Bischoff/Getty Images)|Le pouvoir des livres|![](/fr-CA/2024/04/202404230400TrinityDublin.jpg)|
 202404240400|TrilliumOntario|Floraison du trille blanc, Ontario, Canada (© Jun Zhang/Getty Images)|Le tournesol des bois !|![](/fr-CA/2024/04/202404240400TrilliumOntario.jpg)|
+202404250400|PenguinDirections|Manchots Adélie sur un iceberg, Antarctique (© Patrick J. Endres/Getty Images)|Alors, tu viens ou pas ?|![](/fr-CA/2024/04/202404250400PenguinDirections.jpg)|
