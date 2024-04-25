@@ -26,3 +26,4 @@
 202404221600|TrinityDublin|三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images)|预订已满！|![](/zh-CN/2024/04/202404221600TrinityDublin.jpg)|
 202404231600|TrilliumOntario|盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images)|嘿，今天长势如何？|![](/zh-CN/2024/04/202404231600TrilliumOntario.jpg)|
 202404241600|PenguinDirections|南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)|很高兴在这里见到你们！|![](/zh-CN/2024/04/202404241600PenguinDirections.jpg)|
+202404251600|KalalochTree|卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国 (© Abbie Warnock-Matthews/Shutterstock)|这棵树是个快乐的家伙！|![](/zh-CN/2024/04/202404251600KalalochTree.jpg)|
