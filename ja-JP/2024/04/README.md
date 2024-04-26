@@ -27,3 +27,4 @@
 202404231500|TrilliumOntario|北米のエンレイソウ, カナダ オンタリオ州 (© Jun Zhang/Getty Images)|白い三弁花を咲かせる多年草|![](/ja-JP/2024/04/202404231500TrilliumOntario.jpg)|
 202404241500|PenguinDirections|氷山の上に立つアデリーペンギン, 南極大陸 (© Patrick J. Endres/Getty Images)|今日は世界ペンギンの日|![](/ja-JP/2024/04/202404241500PenguinDirections.jpg)|
 202404251500|KalalochTree|オリンピック国立公園にある不思議な木, 米国 ワシントン州 (© Abbie Warnock-Matthews/Shutterstock)|今日はアーバーデー|![](/ja-JP/2024/04/202404251500KalalochTree.jpg)|
+202404261500|LeucisticHummingbird|アンナハチドリの白変種, 米国 カリフォルニア州 (© yhelfman/Getty Images)|今日は米国のバードウォッチングの日|![](/ja-JP/2024/04/202404261500LeucisticHummingbird.jpg)|
