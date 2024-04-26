@@ -28,3 +28,4 @@
 202404230700|DolomitesSeiserAlm|Seiser Alm in the Dolomites, South Tyrol, Italy (© Achim Thomae/Getty Images)|Info|![](/en-AU/2024/04/202404230700DolomitesSeiserAlm.jpg)|
 202404240700|TrilliumOntario|White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Info|![](/en-AU/2024/04/202404240700TrilliumOntario.jpg)|
 202404250700|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|Info|![](/en-AU/2024/04/202404250700PenguinDirections.jpg)|
+202404260700|KalalochTree|Kalaloch Tree of Life, Kalaloch Beach, Olympic National Park, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)|Info|![](/en-AU/2024/04/202404260700KalalochTree.jpg)|

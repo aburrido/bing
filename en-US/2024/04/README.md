@@ -27,3 +27,4 @@
 202404230700|TrinityDublin|Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)|Fully booked!|![](/en-US/2024/04/202404230700TrinityDublin.jpg)|
 202404240700|TrilliumOntario|White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Hey, how's it growing today?|![](/en-US/2024/04/202404240700TrilliumOntario.jpg)|
 202404250700|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-US/2024/04/202404250700PenguinDirections.jpg)|
+202404260700|KalalochTree|Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)|For tree's a jolly good fellow|![](/en-US/2024/04/202404260700KalalochTree.jpg)|
