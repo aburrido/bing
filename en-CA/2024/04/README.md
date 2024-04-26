@@ -26,3 +26,4 @@
 202404230400|TrinityDublin|Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)|Fully booked!|![](/en-CA/2024/04/202404230400TrinityDublin.jpg)|
 202404240400|TrilliumOntario|White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)|Hey, how's it growing today?|![](/en-CA/2024/04/202404240400TrilliumOntario.jpg)|
 202404250400|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-CA/2024/04/202404250400PenguinDirections.jpg)|
+202404260400|ValDiFunes|Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)|Small town life, elevated|![](/en-CA/2024/04/202404260400ValDiFunes.jpg)|
