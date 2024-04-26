@@ -27,3 +27,4 @@
 202404232200|TrilliumOntario|Blühende Waldlilien in Ontario, Kanada (© Jun Zhang/Getty Images)|Wo Blumen blühen, lächelt die Welt|![](/de-DE/2024/04/202404232200TrilliumOntario.jpg)|
 202404242200|KalalochTree|Kalaloch Tree, Kalaloch, Olympic-Nationalpark, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)|Baum des Lebens|![](/de-DE/2024/04/202404242200KalalochTree.jpg)|
 202404252200|PenguinDirections|Adeliepinguine auf einem Eisberg, Antarktis (© Patrick J. Endres/Getty Images)|Wer watschelt vergnügt durchs Leben?|![](/de-DE/2024/04/202404252200PenguinDirections.jpg)|
+202404262200|LeucisticHummingbird|Annakolibri im Australischen Garten, UCSC Arboretum, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)|Schneller, als das Auge erlaubt|![](/de-DE/2024/04/202404262200LeucisticHummingbird.jpg)|
