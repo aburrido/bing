@@ -28,3 +28,4 @@
 202404241600|PenguinDirections|南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)|很高兴在这里见到你们！|![](/zh-CN/2024/04/202404241600PenguinDirections.jpg)|
 202404251600|KalalochTree|卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国 (© Abbie Warnock-Matthews/Shutterstock)|这棵树是个快乐的家伙！|![](/zh-CN/2024/04/202404251600KalalochTree.jpg)|
 202404261600|LeucisticHummingbird|澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国 (© yhelfman/Getty Images)|观鸟的时间到了！|![](/zh-CN/2024/04/202404261600LeucisticHummingbird.jpg)|
+202404271600|GuadalupeTexas|瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)|去公园走走吧！|![](/zh-CN/2024/04/202404271600GuadalupeTexas.jpg)|
