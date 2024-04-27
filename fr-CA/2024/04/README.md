@@ -27,3 +27,4 @@
 202404240400|TrilliumOntario|Floraison du trille blanc, Ontario, Canada (© Jun Zhang/Getty Images)|Le tournesol des bois !|![](/fr-CA/2024/04/202404240400TrilliumOntario.jpg)|
 202404250400|PenguinDirections|Manchots Adélie sur un iceberg, Antarctique (© Patrick J. Endres/Getty Images)|Alors, tu viens ou pas ?|![](/fr-CA/2024/04/202404250400PenguinDirections.jpg)|
 202404260400|MisoolRajaAmpat|Misool, îles Raja Ampat, Indonésie (© Giordano Cipriani/Getty Images)|Les reflets du paradis|![](/fr-CA/2024/04/202404260400MisoolRajaAmpat.jpg)|
+202404270400|LeucisticHummingbird|Colibri d'Anna leucistique, UC Santa Cruz Arboretum, Californie, États-Unis (© yhelfman/Getty Images)|Un colibri « décoloré »|![](/fr-CA/2024/04/202404270400LeucisticHummingbird.jpg)|
