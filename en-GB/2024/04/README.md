@@ -29,3 +29,4 @@
 202404252300|KalalochTree|Kalaloch Tree, aka the tree of life, Kalaloch Beach, Olympic National Park, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)|Taking root|![](/en-GB/2024/04/202404252300KalalochTree.jpg)|
 202404262300|LeucisticHummingbird|Leucistic Anna's Hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California, USA (© yhelfman/Getty Images)|Stop, it's hummer time!|![](/en-GB/2024/04/202404262300LeucisticHummingbird.jpg)|
 202404272300|GuadalupeTexas|El Capitan in Guadalupe Mountains National Park, Texas, USA (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-GB/2024/04/202404272300GuadalupeTexas.jpg)|
+202404282300|TulouFujian|Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)|In perfect shape|![](/en-GB/2024/04/202404282300TulouFujian.jpg)|
