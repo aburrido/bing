@@ -29,3 +29,4 @@
 202404252200|KalalochTree|Arbre de Kalaloch, alias l'arbre de vie, plage de Kalaloch, parc national olympique, Washington, États-Unis (© Abbie Warnock-Matthews/Shutterstock)|L’arbre qui se bat tous les jours contre la mort|![](/fr-FR/2024/04/202404252200KalalochTree.jpg)|
 202404262200|Canigou|L'abbaye Saint-Martin du Canigou, Casteil, Occitanie, France (© Cyril Gosselin/Getty Images)|Une abbaye millénaire|![](/fr-FR/2024/04/202404262200Canigou.jpg)|
 202404272200|GuadalupeTexas|El Capitan au lever du soleil, parc national des Guadalupe Mountains, Texas, États-Unis (© Adam Mowery/Tandem Stills + Motion)|Il était une fois, le désert|![](/fr-FR/2024/04/202404272200GuadalupeTexas.jpg)|
+202404282200|TulouFujian|Architectures traditionnelles Tulou de Fujian, province de Fujian, Chine (© Hongjie Han/Getty Images)|Une interaction équilibrée et respectueuse|![](/fr-FR/2024/04/202404282200TulouFujian.jpg)|

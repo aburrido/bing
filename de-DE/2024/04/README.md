@@ -29,3 +29,4 @@
 202404252200|PenguinDirections|Adeliepinguine auf einem Eisberg, Antarktis (© Patrick J. Endres/Getty Images)|Wer watschelt vergnügt durchs Leben?|![](/de-DE/2024/04/202404252200PenguinDirections.jpg)|
 202404262200|LeucisticHummingbird|Annakolibri im Australischen Garten, UCSC Arboretum, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)|Schneller, als das Auge erlaubt|![](/de-DE/2024/04/202404262200LeucisticHummingbird.jpg)|
 202404272200|GuadalupeTexas|El Capitan bei Sonnenaufgang im Guadalupe-Mountains-Nationalpark, Texas, USA (© Adam Mowery/Tandem Stills + Motion)|„Wild Wild West“?|![](/de-DE/2024/04/202404272200GuadalupeTexas.jpg)|
+202404282200|TulouFujian|Fujian Tulou, historische und kulturhistorische Gebäude in der Provinz Fujian, China (© Hongjie Han/Getty Images)|Chinesische Erdgebäude|![](/de-DE/2024/04/202404282200TulouFujian.jpg)|
