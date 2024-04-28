@@ -29,3 +29,4 @@
 202404251830|MangroveIslands|Aerial view of mangrove islands near Kundapura, Karnataka (© Amith Nag Photography/Getty Images)|Between land and sea|![](/en-IN/2024/04/202404251830MangroveIslands.jpg)|
 202404261830|LeucisticHummingbird|Leucistic Anna's hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California (© yhelfman/Getty Images)|Stop, it's hummer time!|![](/en-IN/2024/04/202404261830LeucisticHummingbird.jpg)|
 202404271830|GuadalupeTexas|El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-IN/2024/04/202404271830GuadalupeTexas.jpg)|
+202404281830|TulouFujian|Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)|In perfect shape|![](/en-IN/2024/04/202404281830TulouFujian.jpg)|
