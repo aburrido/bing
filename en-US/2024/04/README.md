@@ -29,3 +29,4 @@
 202404250700|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-US/2024/04/202404250700PenguinDirections.jpg)|
 202404260700|KalalochTree|Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)|For tree's a jolly good fellow|![](/en-US/2024/04/202404260700KalalochTree.jpg)|
 202404270700|LeucisticHummingbird|Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)|Stop! Hummer time|![](/en-US/2024/04/202404270700LeucisticHummingbird.jpg)|
+202404280700|GuadalupeTexas|El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-US/2024/04/202404280700GuadalupeTexas.jpg)|
