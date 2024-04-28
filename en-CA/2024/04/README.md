@@ -28,3 +28,4 @@
 202404250400|PenguinDirections|Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)|It's ice to meet you all here!|![](/en-CA/2024/04/202404250400PenguinDirections.jpg)|
 202404260400|ValDiFunes|Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)|Small town life, elevated|![](/en-CA/2024/04/202404260400ValDiFunes.jpg)|
 202404270400|LeucisticHummingbird|Leucistic Anna's hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California (© yhelfman/Getty Images)|Stop, it's hummer time!|![](/en-CA/2024/04/202404270400LeucisticHummingbird.jpg)|
+202404280400|GuadalupeTexas|El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-CA/2024/04/202404280400GuadalupeTexas.jpg)|
