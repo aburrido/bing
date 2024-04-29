@@ -30,3 +30,4 @@
 202404261500|LeucisticHummingbird|アンナハチドリの白変種, 米国 カリフォルニア州 (© yhelfman/Getty Images)|今日は米国のバードウォッチングの日|![](/ja-JP/2024/04/202404261500LeucisticHummingbird.jpg)|
 202404271500|GuadalupeTexas|グアダルーペ山脈国立公園, 米国 テキサス州 (© Adam Mowery/Tandem Stills + Motion)|エル・キャピタンの岩山と砂漠|![](/ja-JP/2024/04/202404271500GuadalupeTexas.jpg)|
 202404281500|TulouFujian|福建土楼の鳥瞰図, 中国 福建省 (© Hongjie Han/Getty Images)|木材と土壁で造られた円形の家屋|![](/ja-JP/2024/04/202404281500TulouFujian.jpg)|
+202404291500|CheetahRain|ンゴロンゴロ保全地域, タンザニア  (© Paul Souders/Getty Images)|雨の中のチーター|![](/ja-JP/2024/04/202404291500CheetahRain.jpg)|
