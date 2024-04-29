@@ -29,3 +29,4 @@
 202404260400|MisoolRajaAmpat|Misool, îles Raja Ampat, Indonésie (© Giordano Cipriani/Getty Images)|Les reflets du paradis|![](/fr-CA/2024/04/202404260400MisoolRajaAmpat.jpg)|
 202404270400|LeucisticHummingbird|Colibri d'Anna leucistique, UC Santa Cruz Arboretum, Californie, États-Unis (© yhelfman/Getty Images)|Un colibri « décoloré »|![](/fr-CA/2024/04/202404270400LeucisticHummingbird.jpg)|
 202404280400|GuadalupeTexas|El Capitan au lever du soleil, parc national des Guadalupe Mountains, Texas, États-Unis (© Adam Mowery/Tandem Stills + Motion)|Il était une fois, le désert|![](/fr-CA/2024/04/202404280400GuadalupeTexas.jpg)|
+202404290400|TulouFujian|Architectures traditionnelles Tulou de Fujian, province de Fujian, Chine (© Hongjie Han/Getty Images)|Une interaction équilibrée et respectueuse|![](/fr-CA/2024/04/202404290400TulouFujian.jpg)|
