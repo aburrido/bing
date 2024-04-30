@@ -31,3 +31,4 @@
 202404271600|GuadalupeTexas|瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)|去公园走走吧！|![](/zh-CN/2024/04/202404271600GuadalupeTexas.jpg)|
 202404281600|TulouFujian|福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)|被保存得很好的古建筑|![](/zh-CN/2024/04/202404281600TulouFujian.jpg)|
 202404291600|CheetahRain|清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚 (© Paul Souders/Getty Images)|“草原大喵”的完美速度|![](/zh-CN/2024/04/202404291600CheetahRain.jpg)|
+202404301600|HawaiianLei|夏威夷花环 (© Jotika Pun/Shutterstock)|夏威夷的花环节|![](/zh-CN/2024/04/202404301600HawaiianLei.jpg)|
