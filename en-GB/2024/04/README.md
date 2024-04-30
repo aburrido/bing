@@ -31,3 +31,4 @@
 202404272300|GuadalupeTexas|El Capitan in Guadalupe Mountains National Park, Texas, USA (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-GB/2024/04/202404272300GuadalupeTexas.jpg)|
 202404282300|TulouFujian|Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)|In perfect shape|![](/en-GB/2024/04/202404282300TulouFujian.jpg)|
 202404292300|CheetahRain|Cheetah, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|Purr-fect speed|![](/en-GB/2024/04/202404292300CheetahRain.jpg)|
+202404302300|HawaiianLei|Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)|'May Day is Lei Day in Hawaii Nei'|![](/en-GB/2024/04/202404302300HawaiianLei.jpg)|
