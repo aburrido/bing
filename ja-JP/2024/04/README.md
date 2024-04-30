@@ -31,3 +31,4 @@
 202404271500|GuadalupeTexas|グアダルーペ山脈国立公園, 米国 テキサス州 (© Adam Mowery/Tandem Stills + Motion)|エル・キャピタンの岩山と砂漠|![](/ja-JP/2024/04/202404271500GuadalupeTexas.jpg)|
 202404281500|TulouFujian|福建土楼の鳥瞰図, 中国 福建省 (© Hongjie Han/Getty Images)|木材と土壁で造られた円形の家屋|![](/ja-JP/2024/04/202404281500TulouFujian.jpg)|
 202404291500|CheetahRain|ンゴロンゴロ保全地域, タンザニア  (© Paul Souders/Getty Images)|雨の中のチーター|![](/ja-JP/2024/04/202404291500CheetahRain.jpg)|
+202404301500|TeaGarden2024|和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)|今日は八十八夜|![](/ja-JP/2024/04/202404301500TeaGarden2024.jpg)|
