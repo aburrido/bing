@@ -31,3 +31,4 @@
 202404272200|GuadalupeTexas|El Capitan au lever du soleil, parc national des Guadalupe Mountains, Texas, États-Unis (© Adam Mowery/Tandem Stills + Motion)|Il était une fois, le désert|![](/fr-FR/2024/04/202404272200GuadalupeTexas.jpg)|
 202404282200|TulouFujian|Architectures traditionnelles Tulou de Fujian, province de Fujian, Chine (© Hongjie Han/Getty Images)|Une interaction équilibrée et respectueuse|![](/fr-FR/2024/04/202404282200TulouFujian.jpg)|
 202404292200|CheetahRain|Guépard sous la pluie, plaines de Ndutu, zone de conservation du Ngorongoro, Tanzanie (© Paul Souders/Getty Images)|Le Speedy Gonzales de la savane|![](/fr-FR/2024/04/202404292200CheetahRain.jpg)|
+202404302200|HawaiianLei|Colliers de fleurs hawaïens (© Jotika Pun/Shutterstock)|Des colliers venus du Paradis|![](/fr-FR/2024/04/202404302200HawaiianLei.jpg)|
