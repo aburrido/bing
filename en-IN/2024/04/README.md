@@ -31,3 +31,4 @@
 202404271830|GuadalupeTexas|El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-IN/2024/04/202404271830GuadalupeTexas.jpg)|
 202404281830|TulouFujian|Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)|In perfect shape|![](/en-IN/2024/04/202404281830TulouFujian.jpg)|
 202404291830|CheetahRain|Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|Purr-fect speed|![](/en-IN/2024/04/202404291830CheetahRain.jpg)|
+202404301830|MaharashtraDayIN|Maharashtra, Mumbai, Victoria Terminus railway station (© Tuul & Bruno Morandi/Getty Images)|Ticket to nostalgia|![](/en-IN/2024/04/202404301830MaharashtraDayIN.jpg)|
