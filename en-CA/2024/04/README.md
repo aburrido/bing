@@ -30,3 +30,4 @@
 202404270400|LeucisticHummingbird|Leucistic Anna's hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California (© yhelfman/Getty Images)|Stop, it's hummer time!|![](/en-CA/2024/04/202404270400LeucisticHummingbird.jpg)|
 202404280400|GuadalupeTexas|El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)|Let's park here|![](/en-CA/2024/04/202404280400GuadalupeTexas.jpg)|
 202404290400|TulouFujian|Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)|In perfect shape|![](/en-CA/2024/04/202404290400TulouFujian.jpg)|
+202404300400|CheetahRain|Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)|Purr-fect speed|![](/en-CA/2024/04/202404300400CheetahRain.jpg)|

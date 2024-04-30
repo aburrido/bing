@@ -30,3 +30,4 @@
 202404270400|LeucisticHummingbird|Colibri d'Anna leucistique, UC Santa Cruz Arboretum, Californie, États-Unis (© yhelfman/Getty Images)|Un colibri « décoloré »|![](/fr-CA/2024/04/202404270400LeucisticHummingbird.jpg)|
 202404280400|GuadalupeTexas|El Capitan au lever du soleil, parc national des Guadalupe Mountains, Texas, États-Unis (© Adam Mowery/Tandem Stills + Motion)|Il était une fois, le désert|![](/fr-CA/2024/04/202404280400GuadalupeTexas.jpg)|
 202404290400|TulouFujian|Architectures traditionnelles Tulou de Fujian, province de Fujian, Chine (© Hongjie Han/Getty Images)|Une interaction équilibrée et respectueuse|![](/fr-CA/2024/04/202404290400TulouFujian.jpg)|
+202404300400|CheetahRain|Guépard sous la pluie, plaines de Ndutu, zone de conservation du Ngorongoro, Tanzanie (© Paul Souders/Getty Images)|Le Speedy Gonzales de la savane|![](/fr-CA/2024/04/202404300400CheetahRain.jpg)|
