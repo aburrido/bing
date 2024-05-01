@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202404302200|HawaiianLei|Colliers de fleurs hawaïens (© Jotika Pun/Shutterstock)|Des colliers venus du Paradis|![](/fr-FR/2024/05/202404302200HawaiianLei.jpg)|
 ||||![](/fr-FR/2024/05/.jpg)|
+202405012200|CratersOfTheMoon|Coulée de lave du Dragon Bleu, Monument national des Cratères de la Lune, Idaho, États-Unis (© Alan Majchrowicz/Getty Images)|De la Terre à la Lune|![](/fr-FR/2024/05/202405012200CratersOfTheMoon.jpg)|
