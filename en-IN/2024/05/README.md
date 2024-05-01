@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202404301830|MaharashtraDayIN|Maharashtra, Mumbai, Victoria Terminus railway station (© Tuul & Bruno Morandi/Getty Images)|Ticket to nostalgia|![](/en-IN/2024/05/202404301830MaharashtraDayIN.jpg)|
 ||||![](/en-IN/2024/05/.jpg)|
+202405011830|CratersOfTheMoon|Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)|To the moon and back|![](/en-IN/2024/05/202405011830CratersOfTheMoon.jpg)|
