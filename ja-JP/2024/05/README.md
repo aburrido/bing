@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202404301500|TeaGarden2024|和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)|今日は八十八夜|![](/ja-JP/2024/05/202404301500TeaGarden2024.jpg)|
 ||||![](/ja-JP/2024/05/.jpg)|
+202405011500|CratersOfTheMoon|月のクレーター国立公園, 米国 アイダホ州 (© Alan Majchrowicz/Getty Images)|月面と思わせるユニークな風景|![](/ja-JP/2024/05/202405011500CratersOfTheMoon.jpg)|
