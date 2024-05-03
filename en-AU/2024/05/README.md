@@ -4,3 +4,4 @@
 ||||![](/en-AU/2024/05/.jpg)|
 202405010700|HawaiianLei|Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)|Info|![](/en-AU/2024/05/202405010700HawaiianLei.jpg)|
 202405020700|CratersOfTheMoon|Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho, USA (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2024/05/202405020700CratersOfTheMoon.jpg)|
+202405030700|SonoranSpring|Brittlebushes blooming in springtime, Sonoran Desert, Arizona, USA (© Charles Harker/Getty Images)|Info|![](/en-AU/2024/05/202405030700SonoranSpring.jpg)|
