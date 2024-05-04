@@ -4,3 +4,4 @@
 ||||![](/fr-CA/2024/05/.jpg)|
 202405020400|CratersOfTheMoon|Coulée de lave du Dragon Bleu, Monument national des Cratères de la Lune, Idaho, États-Unis (© Alan Majchrowicz/Getty Images)|De la Terre à la Lune|![](/fr-CA/2024/05/202405020400CratersOfTheMoon.jpg)|
 202405030400|SonoranSpring|Encelia farinose en fleur dans le désert de Sonora, Arizona, États-Unis (© Charles Harker/Getty Images)|Les fleurs du désert|![](/fr-CA/2024/05/202405030400SonoranSpring.jpg)|
+202405040400|JediMonastery|Ruines d'un ancien monastère sur l'île de Skellig Michael, Irlande (© MNStudio/Getty Images)|Que la force soit avec vous!|![](/fr-CA/2024/05/202405040400JediMonastery.jpg)|
