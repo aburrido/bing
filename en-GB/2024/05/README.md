@@ -5,3 +5,4 @@
 202405012300|CratersOfTheMoon|Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho, USA (© Alan Majchrowicz/Getty Images)|To the moon and back|![](/en-GB/2024/05/202405012300CratersOfTheMoon.jpg)|
 202405022300|SonoranSpring|Brittlebushes blooming in springtime, Sonoran Desert, Arizona, USA (© Charles Harker/Getty Images)|Even the hottest places are cool!|![](/en-GB/2024/05/202405022300SonoranSpring.jpg)|
 202405032300|BrightonPierFestival|Brighton Palace Pier, Brighton, England (© Michael Jewes/iStock/Getty Images)|Where art meets culture|![](/en-GB/2024/05/202405032300BrightonPierFestival.jpg)|
+202405042300|SanMiguelAllende|Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)|Cheers to Mexico!|![](/en-GB/2024/05/202405042300SanMiguelAllende.jpg)|
