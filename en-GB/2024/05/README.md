@@ -6,3 +6,4 @@
 202405022300|SonoranSpring|Brittlebushes blooming in springtime, Sonoran Desert, Arizona, USA (© Charles Harker/Getty Images)|Even the hottest places are cool!|![](/en-GB/2024/05/202405022300SonoranSpring.jpg)|
 202405032300|BrightonPierFestival|Brighton Palace Pier, Brighton, England (© Michael Jewes/iStock/Getty Images)|Where art meets culture|![](/en-GB/2024/05/202405032300BrightonPierFestival.jpg)|
 202405042300|SanMiguelAllende|Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)|Cheers to Mexico!|![](/en-GB/2024/05/202405042300SanMiguelAllende.jpg)|
+202405052300|JediMonastery|The ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)|Not your rogue-ular monastery|![](/en-GB/2024/05/202405052300JediMonastery.jpg)|
