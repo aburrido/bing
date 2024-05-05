@@ -6,3 +6,4 @@
 202405021600|SonoranSpring|春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images)|最热的地方也有凉爽之处|![](/zh-CN/2024/05/202405021600SonoranSpring.jpg)|
 202405031600|JediMonastery|斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)|愿原力与你同在！|![](/zh-CN/2024/05/202405031600JediMonastery.jpg)|
 202405041600|SanMiguelAllende|圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥 (© Mint Images/Getty Images)|为墨西哥干杯!|![](/zh-CN/2024/05/202405041600SanMiguelAllende.jpg)|
+202405051600|TheRoachesPeakDistrict|罗奇斯山脊，英格兰峰区 (© George W Johnson/Getty Images)|峰区一瞥|![](/zh-CN/2024/05/202405051600TheRoachesPeakDistrict.jpg)|
