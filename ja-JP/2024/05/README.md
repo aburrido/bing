@@ -6,3 +6,4 @@
 202405021500|SonoranSpring|ソノラ砂漠, 米国 アリゾナ州 (© Charles Harker/Getty Images)|春に咲くブリトルブッシュ|![](/ja-JP/2024/05/202405021500SonoranSpring.jpg)|
 202405031500|JediMonastery|シュケリッグ・ヴィヒルの古代修道院跡 , アイルランド (© MNStudio/Getty Images)|今日はスター・ウォーズの日|![](/ja-JP/2024/05/202405031500JediMonastery.jpg)|
 202405041500|ChildrenDay2024|大歩危峡に泳ぐ鯉のぼり, 徳島県 (© fz750/Getty Images)|今日は「こどもの日」|![](/ja-JP/2024/05/202405041500ChildrenDay2024.jpg)|
+202405051500|TheRoachesPeakDistrict|ピークディストリクト国立公園, イギリス (© George W Johnson/Getty Images)|ローチと呼ばれる岩の尾根|![](/ja-JP/2024/05/202405051500TheRoachesPeakDistrict.jpg)|
