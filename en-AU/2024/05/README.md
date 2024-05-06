@@ -7,3 +7,4 @@
 202405030700|SonoranSpring|Brittlebushes blooming in springtime, Sonoran Desert, Arizona, USA (© Charles Harker/Getty Images)|Info|![](/en-AU/2024/05/202405030700SonoranSpring.jpg)|
 202405040700|JediMonastery|The ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)|Info|![](/en-AU/2024/05/202405040700JediMonastery.jpg)|
 202405050700|SanMiguelAllende|Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)|Info|![](/en-AU/2024/05/202405050700SanMiguelAllende.jpg)|
+202405060700|RiverNekarHeidelberg|Heidelberg on the river Neckar in Baden-Württemberg, Germany (© Juergen Sack/Getty Images)|Info|![](/en-AU/2024/05/202405060700RiverNekarHeidelberg.jpg)|
