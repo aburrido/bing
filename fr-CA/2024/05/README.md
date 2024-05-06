@@ -6,3 +6,4 @@
 202405030400|SonoranSpring|Encelia farinose en fleur dans le désert de Sonora, Arizona, États-Unis (© Charles Harker/Getty Images)|Les fleurs du désert|![](/fr-CA/2024/05/202405030400SonoranSpring.jpg)|
 202405040400|JediMonastery|Ruines d'un ancien monastère sur l'île de Skellig Michael, Irlande (© MNStudio/Getty Images)|Que la force soit avec vous!|![](/fr-CA/2024/05/202405040400JediMonastery.jpg)|
 202405050400|SanMiguelAllende|Colonnade à San Miguel de Allende, Guanajuato, Mexique (© Mint Images/Getty Images)|Viva Mexico!|![](/fr-CA/2024/05/202405050400SanMiguelAllende.jpg)|
+202405060400|TheRoachesPeakDistrict|Les Roaches, Peak District, Angleterre (© George W Johnson/Getty Images)|Un paysage qui tombe à pic!|![](/fr-CA/2024/05/202405060400TheRoachesPeakDistrict.jpg)|
