@@ -8,3 +8,4 @@
 202405042200|SanMiguelAllende|Colonnade à San Miguel de Allende, Guanajuato, Mexique (© Mint Images/Getty Images)|Viva Mexico !|![](/fr-FR/2024/05/202405042200SanMiguelAllende.jpg)|
 202405052200|TheRoachesPeakDistrict|Les Roaches, Peak District, Angleterre (© George W Johnson/Getty Images)|Un paysage qui tombe à pic !|![](/fr-FR/2024/05/202405052200TheRoachesPeakDistrict.jpg)|
 202405062200|LittleDuckling|Un caneton nageant dans une prairie d'eau, Suffolk, Angleterre (© Nick Hurst/Getty Images)|Trempé comme un canard !|![](/fr-FR/2024/05/202405062200LittleDuckling.jpg)|
+202405072200|PortMarseille|Vue du Château d'If et des îles du Frioul depuis le port de Marseille, France (© Sergii Figurnyi/Alamy)|En attendant la flamme|![](/fr-FR/2024/05/202405072200PortMarseille.jpg)|
