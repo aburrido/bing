@@ -8,3 +8,4 @@
 202405040700|JediMonastery|Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)|May the Fourth be with you!|![](/en-US/2024/05/202405040700JediMonastery.jpg)|
 202405050700|SanMiguelAllende|Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)|Happy Cinco de Mayo!|![](/en-US/2024/05/202405050700SanMiguelAllende.jpg)|
 202405060700|TheRoachesPeakDistrict|The Roaches, Peak District, England (© George W Johnson/Getty Images)|Where is this rocky ridge?|![](/en-US/2024/05/202405060700TheRoachesPeakDistrict.jpg)|
+202405070700|LittleDuckling|A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)|Light as a feather|![](/en-US/2024/05/202405070700LittleDuckling.jpg)|
