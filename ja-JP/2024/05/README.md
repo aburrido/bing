@@ -8,3 +8,4 @@
 202405041500|ChildrenDay2024|大歩危峡に泳ぐ鯉のぼり, 徳島県 (© fz750/Getty Images)|今日は「こどもの日」|![](/ja-JP/2024/05/202405041500ChildrenDay2024.jpg)|
 202405051500|TheRoachesPeakDistrict|ピークディストリクト国立公園, イギリス (© George W Johnson/Getty Images)|ローチと呼ばれる岩の尾根|![](/ja-JP/2024/05/202405051500TheRoachesPeakDistrict.jpg)|
 202405061500|BlueCityIndia|ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)|ブルーに彩られた町|![](/ja-JP/2024/05/202405061500BlueCityIndia.jpg)|
+202405071500|PortMarseille|マルセイユの街並みとシャトー・ディフ, フランス (© Sergii Figurnyi/Alamy)|五輪の聖火がマルセイユに到着|![](/ja-JP/2024/05/202405071500PortMarseille.jpg)|
