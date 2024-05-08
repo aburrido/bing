@@ -9,3 +9,4 @@
 202405052200|TheRoachesPeakDistrict|The Roaches, Peak District, Vereinigtes Königreich (© George W Johnson/Getty Images)|Ein Blick in den Peak District|![](/de-DE/2024/05/202405052200TheRoachesPeakDistrict.jpg)|
 202405062200|SuspensionBridge|Titan RT - Fußgänger-Hängebrücke über Rappbodetalsperre und Rappbode im Nationalpark Harz, Sachsen-Anhalt (© Sander Meertins/Getty Images)|Brücken verbinden, Distanzen überwinden|![](/de-DE/2024/05/202405062200SuspensionBridge.jpg)|
 202405072200|PortMarseille|Blick auf das Château d'If im Hafen von Marseille, Frankreich (© Sergii Figurnyi/Alamy)|Die Spiele sind eröffnet|![](/de-DE/2024/05/202405072200PortMarseille.jpg)|
+202405082200|EmirganPark|Tulpen im Emirgan-Park in Istanbul, Türkei (© Ozbalci/Getty Images)|Orientalische Blumenteppiche|![](/de-DE/2024/05/202405082200EmirganPark.jpg)|
