@@ -10,3 +10,4 @@
 202405060700|TheRoachesPeakDistrict|The Roaches, Peak District, England (© George W Johnson/Getty Images)|Where is this rocky ridge?|![](/en-US/2024/05/202405060700TheRoachesPeakDistrict.jpg)|
 202405070700|LittleDuckling|A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)|Light as a feather|![](/en-US/2024/05/202405070700LittleDuckling.jpg)|
 202405080700|PortMarseille|View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)|Awaiting the Olympic torch|![](/en-US/2024/05/202405080700PortMarseille.jpg)|
+202405090700|EmirganPark|Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)|Tulips gone wild!|![](/en-US/2024/05/202405090700EmirganPark.jpg)|
