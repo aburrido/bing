@@ -9,3 +9,4 @@
 202405060400|TheRoachesPeakDistrict|The Roaches, Peak District, England (© George W Johnson/Getty Images)|A peek into the Peak District|![](/en-CA/2024/05/202405060400TheRoachesPeakDistrict.jpg)|
 202405070400|LittleDuckling|A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)|Of yellow fluff and water stuff|![](/en-CA/2024/05/202405070400LittleDuckling.jpg)|
 202405080400|PortMarseille|View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)|(S)port perspective|![](/en-CA/2024/05/202405080400PortMarseille.jpg)|
+202405090400|MisoolRajaAmpat|Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)|The islands are calling!|![](/en-CA/2024/05/202405090400MisoolRajaAmpat.jpg)|
