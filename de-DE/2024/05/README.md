@@ -10,3 +10,4 @@
 202405062200|SuspensionBridge|Titan RT - Fußgänger-Hängebrücke über Rappbodetalsperre und Rappbode im Nationalpark Harz, Sachsen-Anhalt (© Sander Meertins/Getty Images)|Brücken verbinden, Distanzen überwinden|![](/de-DE/2024/05/202405062200SuspensionBridge.jpg)|
 202405072200|PortMarseille|Blick auf das Château d'If im Hafen von Marseille, Frankreich (© Sergii Figurnyi/Alamy)|Die Spiele sind eröffnet|![](/de-DE/2024/05/202405072200PortMarseille.jpg)|
 202405082200|EmirganPark|Tulpen im Emirgan-Park in Istanbul, Türkei (© Ozbalci/Getty Images)|Orientalische Blumenteppiche|![](/de-DE/2024/05/202405082200EmirganPark.jpg)|
+202405092200|MisoolRajaAmpat|Misool, Raja Ampat, Archipel, Indonesien (© Giordano Cipriani/Getty Images)|Ruf der Inseln|![](/de-DE/2024/05/202405092200MisoolRajaAmpat.jpg)|
