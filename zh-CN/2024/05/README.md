@@ -10,3 +10,4 @@
 202405061600|LittleDuckling|一只小鸭子在水草地上游泳，萨福克郡，英国 (© Nick Hurst/Getty Images)|水影里的小黄鸭|![](/zh-CN/2024/05/202405061600LittleDuckling.jpg)|
 202405071600|PortMarseille|伊夫堡，马赛，法国 (© Sergii Figurnyi/Alamy)|海港景色|![](/zh-CN/2024/05/202405071600PortMarseille.jpg)|
 202405081600|EmirganPark|埃米尔甘公园的郁金香，伊斯坦布尔，土耳其 (© Ozbalci/Getty Images)|恣意绽放的郁金香|![](/zh-CN/2024/05/202405081600EmirganPark.jpg)|
+202405091600|MisoolRajaAmpat|米苏尔岛，拉贾安帕群岛，印度尼西亚 (© Giordano Cipriani/Getty Images)|岛屿在召唤！|![](/zh-CN/2024/05/202405091600MisoolRajaAmpat.jpg)|
