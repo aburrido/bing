@@ -10,3 +10,4 @@
 202405061500|BlueCityIndia|ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)|ブルーに彩られた町|![](/ja-JP/2024/05/202405061500BlueCityIndia.jpg)|
 202405071500|PortMarseille|マルセイユの街並みとシャトー・ディフ, フランス (© Sergii Figurnyi/Alamy)|五輪の聖火がマルセイユに到着|![](/ja-JP/2024/05/202405071500PortMarseille.jpg)|
 202405081500|EmirganPark|エミルギャン公園, トルコ (© Ozbalci/Getty Images)|色とりどりのチューリップ|![](/ja-JP/2024/05/202405081500EmirganPark.jpg)|
+202405091500|MisoolRajaAmpat|ミソール島, インドネシア  (© Giordano Cipriani/Getty Images)|穏やかな海と青空|![](/ja-JP/2024/05/202405091500MisoolRajaAmpat.jpg)|
