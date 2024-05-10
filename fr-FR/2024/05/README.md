@@ -11,3 +11,4 @@
 202405072200|PortMarseille|Vue du Château d'If et des îles du Frioul depuis le port de Marseille, France (© Sergii Figurnyi/Alamy)|En attendant la flamme|![](/fr-FR/2024/05/202405072200PortMarseille.jpg)|
 202405082200|EmirganPark|Tulipes au parc Emirgan à Istanbul, Turquie (© Ozbalci/Getty Images)|Explosion de tulipes|![](/fr-FR/2024/05/202405082200EmirganPark.jpg)|
 202405092200|MisoolRajaAmpat|Misool, îles Raja Ampat, Indonésie (© Giordano Cipriani/Getty Images)|Les reflets du paradis|![](/fr-FR/2024/05/202405092200MisoolRajaAmpat.jpg)|
+202405102200|TexasIndigoBunting|Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)|Cet oiseau vous est familier ?|![](/fr-FR/2024/05/202405102200TexasIndigoBunting.jpg)|
