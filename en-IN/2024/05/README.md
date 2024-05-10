@@ -11,3 +11,4 @@
 202405071830|PortMarseille|View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)|(S)port perspective|![](/en-IN/2024/05/202405071830PortMarseille.jpg)|
 202405081830|EmirganPark|Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)|Tulips gone wild!|![](/en-IN/2024/05/202405081830EmirganPark.jpg)|
 202405091830|MisoolRajaAmpat|Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)|The islands are calling!|![](/en-IN/2024/05/202405091830MisoolRajaAmpat.jpg)|
+202405101830|TexasIndigoBunting|An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)|Tweeting 'bon voyage'|![](/en-IN/2024/05/202405101830TexasIndigoBunting.jpg)|
