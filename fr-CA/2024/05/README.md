@@ -11,3 +11,4 @@
 202405080400|PortMarseille|Vue du Château d'If et des îles du Frioul depuis le port de Marseille, France (© Sergii Figurnyi/Alamy)|En attendant la flamme|![](/fr-CA/2024/05/202405080400PortMarseille.jpg)|
 202405090400|EmirganPark|Tulipes au parc Emirgan à Istanbul, Turquie (© Ozbalci/Getty Images)|Explosion de tulipes|![](/fr-CA/2024/05/202405090400EmirganPark.jpg)|
 202405100400|OttawaTulipFest|Tulipes devant la Colline du Parlement pendant le festival des tulipes, Ottawa (© Danielle Donders/Moment/Getty Images)|Un monde de tulipes|![](/fr-CA/2024/05/202405100400OttawaTulipFest.jpg)|
+202405110400|TexasIndigoBunting|Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)|Cet oiseau vous est-il familier?|![](/fr-CA/2024/05/202405110400TexasIndigoBunting.jpg)|
