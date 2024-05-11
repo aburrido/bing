@@ -12,3 +12,4 @@
 202405080700|PortMarseille|View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)|Awaiting the Olympic torch|![](/en-US/2024/05/202405080700PortMarseille.jpg)|
 202405090700|EmirganPark|Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)|Tulips gone wild!|![](/en-US/2024/05/202405090700EmirganPark.jpg)|
 202405100700|MisoolRajaAmpat|Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)|The islands are calling!|![](/en-US/2024/05/202405100700MisoolRajaAmpat.jpg)|
+202405110700|TexasIndigoBunting|An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)|Tweeting 'bon voyage'|![](/en-US/2024/05/202405110700TexasIndigoBunting.jpg)|
