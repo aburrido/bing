@@ -12,3 +12,4 @@
 202405081600|EmirganPark|埃米尔甘公园的郁金香，伊斯坦布尔，土耳其 (© Ozbalci/Getty Images)|恣意绽放的郁金香|![](/zh-CN/2024/05/202405081600EmirganPark.jpg)|
 202405091600|MisoolRajaAmpat|米苏尔岛，拉贾安帕群岛，印度尼西亚 (© Giordano Cipriani/Getty Images)|岛屿在召唤！|![](/zh-CN/2024/05/202405091600MisoolRajaAmpat.jpg)|
 202405101600|TexasIndigoBunting|树枝上栖息的靛蓝彩鹀，德克萨斯州 (© Jeff R Clow/Getty Images)|小蓝鸟一路顺风|![](/zh-CN/2024/05/202405101600TexasIndigoBunting.jpg)|
+202405111600|GuanacoMother|潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷 (© Gabriel Rojo/Minden Pictures)|放牧和饲养|![](/zh-CN/2024/05/202405111600GuanacoMother.jpg)|
