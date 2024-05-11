@@ -12,3 +12,4 @@
 202405082200|EmirganPark|Tulipes au parc Emirgan à Istanbul, Turquie (© Ozbalci/Getty Images)|Explosion de tulipes|![](/fr-FR/2024/05/202405082200EmirganPark.jpg)|
 202405092200|MisoolRajaAmpat|Misool, îles Raja Ampat, Indonésie (© Giordano Cipriani/Getty Images)|Les reflets du paradis|![](/fr-FR/2024/05/202405092200MisoolRajaAmpat.jpg)|
 202405102200|TexasIndigoBunting|Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)|Cet oiseau vous est familier ?|![](/fr-FR/2024/05/202405102200TexasIndigoBunting.jpg)|
+202405112200|CamargueFlamingos|Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)|De drôles de bêtes !|![](/fr-FR/2024/05/202405112200CamargueFlamingos.jpg)|
