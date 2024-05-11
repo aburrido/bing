@@ -12,3 +12,4 @@
 202405081500|EmirganPark|エミルギャン公園, トルコ (© Ozbalci/Getty Images)|色とりどりのチューリップ|![](/ja-JP/2024/05/202405081500EmirganPark.jpg)|
 202405091500|MisoolRajaAmpat|ミソール島, インドネシア  (© Giordano Cipriani/Getty Images)|穏やかな海と青空|![](/ja-JP/2024/05/202405091500MisoolRajaAmpat.jpg)|
 202405101500|TexasIndigoBunting|枝にとまるルリノジコ, 米国 テキサス州 (© Jeff R Clow/Getty Images)|今日は世界渡り鳥の日|![](/ja-JP/2024/05/202405101500TexasIndigoBunting.jpg)|
+202405111500|GuanacoMother|グアナコの母子, アルゼンチン ラ・パンパ州 (© Gabriel Rojo/Minden Pictures)|今日は母の日|![](/ja-JP/2024/05/202405111500GuanacoMother.jpg)|
