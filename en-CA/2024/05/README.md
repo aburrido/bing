@@ -12,3 +12,4 @@
 202405090400|MisoolRajaAmpat|Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)|The islands are calling!|![](/en-CA/2024/05/202405090400MisoolRajaAmpat.jpg)|
 202405100400|OttawaTulipFest|Tulips in front of the Parliament Buildings during the Tulip Festival in Ottawa (© Danielle Donders/Moment/Getty Images)|A world of tulips|![](/en-CA/2024/05/202405100400OttawaTulipFest.jpg)|
 202405110400|TexasIndigoBunting|An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)|Tweeting 'bon voyage'|![](/en-CA/2024/05/202405110400TexasIndigoBunting.jpg)|
+202405120400|GuanacoMother|Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)|Grazing and raising|![](/en-CA/2024/05/202405120400GuanacoMother.jpg)|
