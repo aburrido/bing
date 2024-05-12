@@ -13,3 +13,4 @@
 202405092200|MisoolRajaAmpat|Misool, Raja Ampat, Archipel, Indonesien (© Giordano Cipriani/Getty Images)|Ruf der Inseln|![](/de-DE/2024/05/202405092200MisoolRajaAmpat.jpg)|
 202405102200|BlueCityIndia|Die „Blaue Stadt“ Jodhpur, Rajasthan, Indien (© cinoby/Getty Images)|Ein blaues Wunder der anderen Art|![](/de-DE/2024/05/202405102200BlueCityIndia.jpg)|
 202405112200|GuanacoMother|Guanako-Weibchen und neugeborenes Baby im Grasland, La Pampa, Argentinien (© Gabriel Rojo/Minden Pictures)|Fröhlichen Muttertag!|![](/de-DE/2024/05/202405112200GuanacoMother.jpg)|
+202405122200|NamibiaCanyon|Fischfluss-Canyon, Namibia (© R. M. Nunes/Getty Images)|Weite Himmel, unendliche Schluchten|![](/de-DE/2024/05/202405122200NamibiaCanyon.jpg)|
