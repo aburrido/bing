@@ -14,3 +14,4 @@
 202405101600|TexasIndigoBunting|树枝上栖息的靛蓝彩鹀，德克萨斯州 (© Jeff R Clow/Getty Images)|小蓝鸟一路顺风|![](/zh-CN/2024/05/202405101600TexasIndigoBunting.jpg)|
 202405111600|GuanacoMother|潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷 (© Gabriel Rojo/Minden Pictures)|放牧和饲养|![](/zh-CN/2024/05/202405111600GuanacoMother.jpg)|
 202405121600|NamibiaCanyon|鱼河大峡谷，纳米比亚 (© R. M. Nunes/Getty Images)|鱼眼视角|![](/zh-CN/2024/05/202405121600NamibiaCanyon.jpg)|
+202405131600|CarlsbadNP|通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)|“深渊”探险|![](/zh-CN/2024/05/202405131600CarlsbadNP.jpg)|
