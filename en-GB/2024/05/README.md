@@ -14,3 +14,4 @@
 202405102300|TexasIndigoBunting|An indigo bunting perched on a branch, Texas, USA (© Jeff R Clow/Getty Images)|Tweeting 'bon voyage'|![](/en-GB/2024/05/202405102300TexasIndigoBunting.jpg)|
 202405112300|SkiddawMassifUK|Skiddaw, Lake District National Park, England (© James Whitesmith/Alamy Stock Photo)|Quiet reflection|![](/en-GB/2024/05/202405112300SkiddawMassifUK.jpg)|
 202405122300|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|A fisheye view|![](/en-GB/2024/05/202405122300NamibiaCanyon.jpg)|
+202405132300|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico, USA (© Doug Meek/Getty Images)|Rocking in the deep|![](/en-GB/2024/05/202405132300CarlsbadNP.jpg)|
