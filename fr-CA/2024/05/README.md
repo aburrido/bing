@@ -13,3 +13,4 @@
 202405100400|OttawaTulipFest|Tulipes devant la Colline du Parlement pendant le festival des tulipes, Ottawa (© Danielle Donders/Moment/Getty Images)|Un monde de tulipes|![](/fr-CA/2024/05/202405100400OttawaTulipFest.jpg)|
 202405110400|TexasIndigoBunting|Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)|Cet oiseau vous est-il familier?|![](/fr-CA/2024/05/202405110400TexasIndigoBunting.jpg)|
 202405120400|GuanacoMother|Guanaco femelle et son nouveau-né dans une prairie, province de La Pampa, Argentine (© Gabriel Rojo/Minden Pictures)|Bonne fête à toutes les mamans!|![](/fr-CA/2024/05/202405120400GuanacoMother.jpg)|
+202405130400|NamibiaCanyon|Canyon de la rivière Fish, Namibie (© R. M. Nunes/Getty Images)|Le deuxième plus grand canyon du monde|![](/fr-CA/2024/05/202405130400NamibiaCanyon.jpg)|
