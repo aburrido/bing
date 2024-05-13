@@ -14,3 +14,4 @@
 202405102200|TexasIndigoBunting|Passerin indigo, perché sur une branche, Texas, États-Unis (© Jeff R Clow/Getty Images)|Cet oiseau vous est familier ?|![](/fr-FR/2024/05/202405102200TexasIndigoBunting.jpg)|
 202405112200|CamargueFlamingos|Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)|De drôles de bêtes !|![](/fr-FR/2024/05/202405112200CamargueFlamingos.jpg)|
 202405122200|NamibiaCanyon|Canyon de la rivière Fish, Namibie (© R. M. Nunes/Getty Images)|Le deuxième plus grand canyon du monde|![](/fr-FR/2024/05/202405122200NamibiaCanyon.jpg)|
+202405132200|CarlsbadNP|Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)|Voyage au centre de la Terre|![](/fr-FR/2024/05/202405132200CarlsbadNP.jpg)|
