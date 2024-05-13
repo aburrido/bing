@@ -14,3 +14,4 @@
 202405100700|MisoolRajaAmpat|Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)|Info|![](/en-AU/2024/05/202405100700MisoolRajaAmpat.jpg)|
 202405110700|TexasIndigoBunting|An indigo bunting perched on a branch, Texas, USA (© Jeff R Clow/Getty Images)|Info|![](/en-AU/2024/05/202405110700TexasIndigoBunting.jpg)|
 202405120700|GuanacoMother|Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)|Info|![](/en-AU/2024/05/202405120700GuanacoMother.jpg)|
+202405130700|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|Info|![](/en-AU/2024/05/202405130700NamibiaCanyon.jpg)|
