@@ -14,3 +14,4 @@
 202405110400|TexasIndigoBunting|An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)|Tweeting 'bon voyage'|![](/en-CA/2024/05/202405110400TexasIndigoBunting.jpg)|
 202405120400|GuanacoMother|Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)|Grazing and raising|![](/en-CA/2024/05/202405120400GuanacoMother.jpg)|
 202405130400|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|A fisheye view|![](/en-CA/2024/05/202405130400NamibiaCanyon.jpg)|
+202405140400|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)|Rocking in the deep|![](/en-CA/2024/05/202405140400CarlsbadNP.jpg)|
