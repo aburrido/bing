@@ -15,3 +15,4 @@
 202405120400|GuanacoMother|Guanaco femelle et son nouveau-né dans une prairie, province de La Pampa, Argentine (© Gabriel Rojo/Minden Pictures)|Bonne fête à toutes les mamans!|![](/fr-CA/2024/05/202405120400GuanacoMother.jpg)|
 202405130400|NamibiaCanyon|Canyon de la rivière Fish, Namibie (© R. M. Nunes/Getty Images)|Le deuxième plus grand canyon du monde|![](/fr-CA/2024/05/202405130400NamibiaCanyon.jpg)|
 202405140400|CarlsbadNP|Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)|Voyage au centre de la Terre|![](/fr-CA/2024/05/202405140400CarlsbadNP.jpg)|
+202405150400|BlueCityIndia|La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)|Ce rêve bleu|![](/fr-CA/2024/05/202405150400BlueCityIndia.jpg)|
