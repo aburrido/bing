@@ -16,3 +16,4 @@
 202405120700|GuanacoMother|Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)|Info|![](/en-AU/2024/05/202405120700GuanacoMother.jpg)|
 202405130700|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|Info|![](/en-AU/2024/05/202405130700NamibiaCanyon.jpg)|
 202405140700|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico, USA (© Doug Meek/Getty Images)|Info|![](/en-AU/2024/05/202405140700CarlsbadNP.jpg)|
+202405150700|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Info|![](/en-AU/2024/05/202405150700BlueCityIndia.jpg)|
