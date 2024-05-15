@@ -16,3 +16,4 @@
 202405122200|NamibiaCanyon|Fischfluss-Canyon, Namibia (© R. M. Nunes/Getty Images)|Weite Himmel, unendliche Schluchten|![](/de-DE/2024/05/202405122200NamibiaCanyon.jpg)|
 202405132200|CarlsbadNP|Gang der in den Big Room führt, Carlsbad-Caverns-Nationalpark, New Mexico, USA (© Doug Meek/Getty Images)|Geologische Größe|![](/de-DE/2024/05/202405132200CarlsbadNP.jpg)|
 202405142200|RiverNekarHeidelberg|Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)|Deutsches Postkartenidyll|![](/de-DE/2024/05/202405142200RiverNekarHeidelberg.jpg)|
+202405152200|DayOfLight|„Gefühle sind Fakten“, Künstler Olafur Eliasson und Architekt Ma Yansong, Peking, China (© Feng Li/Getty Images News)|Eine neue Dimension?|![](/de-DE/2024/05/202405152200DayOfLight.jpg)|
