@@ -16,3 +16,4 @@
 202405122300|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|A fisheye view|![](/en-GB/2024/05/202405122300NamibiaCanyon.jpg)|
 202405132300|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico, USA (© Doug Meek/Getty Images)|Rocking in the deep|![](/en-GB/2024/05/202405132300CarlsbadNP.jpg)|
 202405142300|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Lost in a blue-tiful land|![](/en-GB/2024/05/202405142300BlueCityIndia.jpg)|
+202405152300|DayOfLight|'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)|Photon pavilion|![](/en-GB/2024/05/202405152300DayOfLight.jpg)|
