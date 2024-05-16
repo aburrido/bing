@@ -17,3 +17,4 @@
 202405131500|CarlsbadNP|カールズバッド洞窟群国立公園, 米国 ニューメキシコ州 (© Doug Meek/Getty Images)|神秘的な鍾乳洞|![](/ja-JP/2024/05/202405131500CarlsbadNP.jpg)|
 202405141500|AoiMatsuri2024|下鴨神社, 京都 (© beibaoke/Shutterstock)|今日は葵祭|![](/ja-JP/2024/05/202405141500AoiMatsuri2024.jpg)|
 202405151500|DayOfLight|ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)|今日は光の国際デー|![](/ja-JP/2024/05/202405151500DayOfLight.jpg)|
+202405161500|TarangireElephants|タランギーレ国立公園のアフリカゾウ, タンザニア (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日は米国の「絶滅危惧種の日」|![](/ja-JP/2024/05/202405161500TarangireElephants.jpg)|
