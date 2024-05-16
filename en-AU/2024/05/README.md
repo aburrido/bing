@@ -17,3 +17,4 @@
 202405130700|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|Info|![](/en-AU/2024/05/202405130700NamibiaCanyon.jpg)|
 202405140700|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico, USA (© Doug Meek/Getty Images)|Info|![](/en-AU/2024/05/202405140700CarlsbadNP.jpg)|
 202405150700|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Info|![](/en-AU/2024/05/202405150700BlueCityIndia.jpg)|
+202405160700|ReconquistaVigo|The Rande Bridge in Vigo, Spain (© Julio Conde/Getty Images)|Info|![](/en-AU/2024/05/202405160700ReconquistaVigo.jpg)|

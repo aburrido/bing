@@ -17,3 +17,4 @@
 202405130700|NamibiaCanyon|Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)|Africa’s grandest canyon|![](/en-US/2024/05/202405130700NamibiaCanyon.jpg)|
 202405140700|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)|Rocking in the deep|![](/en-US/2024/05/202405140700CarlsbadNP.jpg)|
 202405150700|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Above the Blue City|![](/en-US/2024/05/202405150700BlueCityIndia.jpg)|
+202405160700|DayOfLight|'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)|Into the light|![](/en-US/2024/05/202405160700DayOfLight.jpg)|
