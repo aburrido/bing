@@ -17,3 +17,4 @@
 202405132200|CarlsbadNP|Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)|Voyage au centre de la Terre|![](/fr-FR/2024/05/202405132200CarlsbadNP.jpg)|
 202405142200|BlueCityIndia|La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)|Ce rêve bleu|![](/fr-FR/2024/05/202405142200BlueCityIndia.jpg)|
 202405152200|DayOfLight|Œuvre « Feelings Are Facts », par l'artiste Olafur Eliasson et l'architecte Ma Yansong, Pékin, Chine (© Feng Li/Getty Images News)|Journée Internationale de la Lumière|![](/fr-FR/2024/05/202405152200DayOfLight.jpg)|
+202405162200|TarangireElephants|Une famille d'éléphants d'Afrique dans le parc national de Tarangire, en Tanzanie (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Une famille « éléphantesque » !|![](/fr-FR/2024/05/202405162200TarangireElephants.jpg)|
