@@ -16,3 +16,4 @@
 202405130400|NamibiaCanyon|Canyon de la rivière Fish, Namibie (© R. M. Nunes/Getty Images)|Le deuxième plus grand canyon du monde|![](/fr-CA/2024/05/202405130400NamibiaCanyon.jpg)|
 202405140400|CarlsbadNP|Parc national des grottes de Carlsbad, Nouveau-Mexique, États-Unis (© Doug Meek/Getty Images)|Voyage au centre de la Terre|![](/fr-CA/2024/05/202405140400CarlsbadNP.jpg)|
 202405150400|BlueCityIndia|La ville bleue de Jodhpur, Inde (© cinoby/Getty Images)|Ce rêve bleu|![](/fr-CA/2024/05/202405150400BlueCityIndia.jpg)|
+202405160400|DayOfLight|Œuvre « Feelings Are Facts », par l'artiste Olafur Eliasson et l'architecte Ma Yansong, Pékin, Chine (© Feng Li/Getty Images News)|Et la lumière fut!|![](/fr-CA/2024/05/202405160400DayOfLight.jpg)|
