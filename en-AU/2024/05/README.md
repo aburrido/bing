@@ -18,3 +18,4 @@
 202405140700|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico, USA (© Doug Meek/Getty Images)|Info|![](/en-AU/2024/05/202405140700CarlsbadNP.jpg)|
 202405150700|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Info|![](/en-AU/2024/05/202405150700BlueCityIndia.jpg)|
 202405160700|ReconquistaVigo|The Rande Bridge in Vigo, Spain (© Julio Conde/Getty Images)|Info|![](/en-AU/2024/05/202405160700ReconquistaVigo.jpg)|
+202405170700|TarangireElephants|A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2024/05/202405170700TarangireElephants.jpg)|

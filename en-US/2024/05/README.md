@@ -18,3 +18,4 @@
 202405140700|CarlsbadNP|Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)|Rocking in the deep|![](/en-US/2024/05/202405140700CarlsbadNP.jpg)|
 202405150700|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Above the Blue City|![](/en-US/2024/05/202405150700BlueCityIndia.jpg)|
 202405160700|DayOfLight|'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)|Into the light|![](/en-US/2024/05/202405160700DayOfLight.jpg)|
+202405170700|TarangireElephants|A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Today is not 'irrelephant'|![](/en-US/2024/05/202405170700TarangireElephants.jpg)|
