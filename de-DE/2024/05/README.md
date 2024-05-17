@@ -18,3 +18,4 @@
 202405142200|RiverNekarHeidelberg|Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)|Deutsches Postkartenidyll|![](/de-DE/2024/05/202405142200RiverNekarHeidelberg.jpg)|
 202405152200|DayOfLight|„Gefühle sind Fakten“, Künstler Olafur Eliasson und Architekt Ma Yansong, Peking, China (© Feng Li/Getty Images News)|Eine neue Dimension?|![](/de-DE/2024/05/202405152200DayOfLight.jpg)|
 202405162200|TarangireElephants|Eine Familie afrikanischer Elefanten im Tarangire-Nationalpark, Tansania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Fröhliche Familie|![](/de-DE/2024/05/202405162200TarangireElephants.jpg)|
+202405172200|VernazzaItaly|Vernazza, Cinque Terre, Ligurien, Italien (© Roberto Moiola/Sysaworld/Getty Images)|5 Erden, 5 Juwelen|![](/de-DE/2024/05/202405172200VernazzaItaly.jpg)|
