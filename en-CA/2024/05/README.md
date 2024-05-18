@@ -18,3 +18,4 @@
 202405150400|BlueCityIndia|The Blue City of Jodhpur, India (© cinoby/Getty Images)|Lost in a blue-tiful land|![](/en-CA/2024/05/202405150400BlueCityIndia.jpg)|
 202405160400|DayOfLight|'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)|Photon pavilion|![](/en-CA/2024/05/202405160400DayOfLight.jpg)|
 202405170400|TarangireElephants|A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Today is not 'irrelephant'|![](/en-CA/2024/05/202405170400TarangireElephants.jpg)|
+202405180400|MuseumWhale|Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)|Tail of the whale|![](/en-CA/2024/05/202405180400MuseumWhale.jpg)|
