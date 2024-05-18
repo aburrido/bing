@@ -19,3 +19,4 @@
 202405152200|DayOfLight|„Gefühle sind Fakten“, Künstler Olafur Eliasson und Architekt Ma Yansong, Peking, China (© Feng Li/Getty Images News)|Eine neue Dimension?|![](/de-DE/2024/05/202405152200DayOfLight.jpg)|
 202405162200|TarangireElephants|Eine Familie afrikanischer Elefanten im Tarangire-Nationalpark, Tansania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Fröhliche Familie|![](/de-DE/2024/05/202405162200TarangireElephants.jpg)|
 202405172200|VernazzaItaly|Vernazza, Cinque Terre, Ligurien, Italien (© Roberto Moiola/Sysaworld/Getty Images)|5 Erden, 5 Juwelen|![](/de-DE/2024/05/202405172200VernazzaItaly.jpg)|
+202405182200|NefertitiMuseum|Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)|Welches Museum besuchen Sie heute?|![](/de-DE/2024/05/202405182200NefertitiMuseum.jpg)|
