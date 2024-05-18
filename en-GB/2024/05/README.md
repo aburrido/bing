@@ -19,3 +19,4 @@
 202405152300|DayOfLight|'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)|Photon pavilion|![](/en-GB/2024/05/202405152300DayOfLight.jpg)|
 202405162300|TarangireElephants|A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Today is not 'irrelephant'|![](/en-GB/2024/05/202405162300TarangireElephants.jpg)|
 202405172300|MuseumWhale|Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)|Tail of the whale|![](/en-GB/2024/05/202405172300MuseumWhale.jpg)|
+202405182300|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Where history meets the sea|![](/en-GB/2024/05/202405182300VernazzaItaly.jpg)|
