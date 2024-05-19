@@ -20,3 +20,4 @@
 202405162300|TarangireElephants|A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Today is not 'irrelephant'|![](/en-GB/2024/05/202405162300TarangireElephants.jpg)|
 202405172300|MuseumWhale|Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)|Tail of the whale|![](/en-GB/2024/05/202405172300MuseumWhale.jpg)|
 202405182300|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Where history meets the sea|![](/en-GB/2024/05/202405182300VernazzaItaly.jpg)|
+202405192300|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|I can't bee-lieve it!|![](/en-GB/2024/05/202405192300HoneycombBee.jpg)|
