@@ -20,3 +20,4 @@
 202405161600|TarangireElephants|塔兰吉雷国家公园的非洲象家族，坦桑尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今天不是无关紧要的一天|![](/zh-CN/2024/05/202405161600TarangireElephants.jpg)|
 202405171600|PacificRimNationalPark|破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大 (© Ron Watts/Design Pics/Getty Images)|流浪者未必都是迷路人|![](/zh-CN/2024/05/202405171600PacificRimNationalPark.jpg)|
 202405181600|VernazzaItaly|韦尔纳扎村，五渔村，利古里亚，意大利 (© Roberto Moiola/Sysaworld/Getty Images)|历史与大海的交汇处|![](/zh-CN/2024/05/202405181600VernazzaItaly.jpg)|
+202405191600|HoneycombBee|蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)|我简直不敢相信！|![](/zh-CN/2024/05/202405191600HoneycombBee.jpg)|
