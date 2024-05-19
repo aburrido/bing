@@ -20,3 +20,4 @@
 202405162200|TarangireElephants|Eine Familie afrikanischer Elefanten im Tarangire-Nationalpark, Tansania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Fröhliche Familie|![](/de-DE/2024/05/202405162200TarangireElephants.jpg)|
 202405172200|VernazzaItaly|Vernazza, Cinque Terre, Ligurien, Italien (© Roberto Moiola/Sysaworld/Getty Images)|5 Erden, 5 Juwelen|![](/de-DE/2024/05/202405172200VernazzaItaly.jpg)|
 202405182200|NefertitiMuseum|Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)|Welches Museum besuchen Sie heute?|![](/de-DE/2024/05/202405182200NefertitiMuseum.jpg)|
+202405192200|HoneycombBee|Biene bei der Pflege einer Wabe (© Simun Ascic/Alamy Stock Photo)|Summende Symmetrie|![](/de-DE/2024/05/202405192200HoneycombBee.jpg)|
