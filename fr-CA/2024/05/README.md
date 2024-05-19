@@ -19,3 +19,4 @@
 202405160400|DayOfLight|Œuvre « Feelings Are Facts », par l'artiste Olafur Eliasson et l'architecte Ma Yansong, Pékin, Chine (© Feng Li/Getty Images News)|Et la lumière fut!|![](/fr-CA/2024/05/202405160400DayOfLight.jpg)|
 202405170400|TarangireElephants|Une famille d'éléphants d'Afrique dans le parc national de Tarangire, en Tanzanie (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Une famille « éléphantesque »!|![](/fr-CA/2024/05/202405170400TarangireElephants.jpg)|
 202405180400|MuseumWhale|Squelette de baleine bleue appelé Hope, Natural History Museum, Londres, Angleterre (© Bailey-Cooper Photography/Alamy)|Courez au musée!|![](/fr-CA/2024/05/202405180400MuseumWhale.jpg)|
+202405190400|VernazzaItaly|Village de Vernazza, Cinque Terre, Ligurie, Italie (© Roberto Moiola/Sysaworld/Getty Images)|Là où l'histoire rencontre la mer|![](/fr-CA/2024/05/202405190400VernazzaItaly.jpg)|
