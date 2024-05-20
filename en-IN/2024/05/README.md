@@ -21,3 +21,4 @@
 202405171830|MuseumWhale|Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)|Tail of the whale|![](/en-IN/2024/05/202405171830MuseumWhale.jpg)|
 202405181830|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Where history meets the sea|![](/en-IN/2024/05/202405181830VernazzaItaly.jpg)|
 202405191830|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|I can't bee-lieve it!|![](/en-IN/2024/05/202405191830HoneycombBee.jpg)|
+202405201830|MalaysiaTea|Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)|A brew-tea-ful day|![](/en-IN/2024/05/202405201830MalaysiaTea.jpg)|
