@@ -21,3 +21,4 @@
 202405171500|Museum2024|日本科学未来館, 東京都 江東区 (© cowardlion/Shutterstock)|今日は国際博物館の日|![](/ja-JP/2024/05/202405171500Museum2024.jpg)|
 202405181500|VernazzaItaly|ヴェルナッツァ, イタリア リグーリア州 (© Roberto Moiola/Sysaworld/Getty Images)|断崖絶壁に建つカラフルな集落|![](/ja-JP/2024/05/202405181500VernazzaItaly.jpg)|
 202405191500|HoneycombBee|巣を作っているミツバチ (© Simun Ascic/Alamy)|今日は世界ミツバチの日|![](/ja-JP/2024/05/202405191500HoneycombBee.jpg)|
+202405201500|MalaysiaTea|キャメロンハイランドの茶畑, マレーシア (© alex cheong/Getty Images)|今日は国際お茶の日|![](/ja-JP/2024/05/202405201500MalaysiaTea.jpg)|
