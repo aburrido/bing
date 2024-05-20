@@ -21,3 +21,4 @@
 202405170700|TarangireElephants|A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2024/05/202405170700TarangireElephants.jpg)|
 202405180700|PacificRimNationalPark|Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia, Canada (© Ron Watts/Design Pics/Getty Images)|Info|![](/en-AU/2024/05/202405180700PacificRimNationalPark.jpg)|
 202405190700|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Info|![](/en-AU/2024/05/202405190700VernazzaItaly.jpg)|
+202405200700|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|Info|![](/en-AU/2024/05/202405200700HoneycombBee.jpg)|
