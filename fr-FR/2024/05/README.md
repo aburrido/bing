@@ -21,3 +21,4 @@
 202405172200|MuseumWhale|Squelette de baleine bleue appelé Hope, Natural History Museum, Londres, Angleterre (© Bailey-Cooper Photography/Alamy)|Courez au musée !|![](/fr-FR/2024/05/202405172200MuseumWhale.jpg)|
 202405182200|VernazzaItaly|Village de Vernazza, Cinque Terre, Ligurie, Italie (© Roberto Moiola/Sysaworld/Getty Images)|Là où l'histoire rencontre la mer|![](/fr-FR/2024/05/202405182200VernazzaItaly.jpg)|
 202405192200|HoneycombBee|Abeille travaillant dans un nid (© Simun Ascic/Alamy)|La vie secrète des abeilles|![](/fr-FR/2024/05/202405192200HoneycombBee.jpg)|
+202405202200|MalaysiaTea|Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)|Un paysage qui inspire la séréni-thé|![](/fr-FR/2024/05/202405202200MalaysiaTea.jpg)|
