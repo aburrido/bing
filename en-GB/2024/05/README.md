@@ -21,3 +21,4 @@
 202405172300|MuseumWhale|Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)|Tail of the whale|![](/en-GB/2024/05/202405172300MuseumWhale.jpg)|
 202405182300|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Where history meets the sea|![](/en-GB/2024/05/202405182300VernazzaItaly.jpg)|
 202405192300|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|I can't bee-lieve it!|![](/en-GB/2024/05/202405192300HoneycombBee.jpg)|
+202405202300|ChelseaFlowerUK|A woman with a floral hat at the RHS Chelsea Flower Show 2014 (© Bettina Strenske/Alamy Stock Photo)|A peony for your thoughts|![](/en-GB/2024/05/202405202300ChelseaFlowerUK.jpg)|
