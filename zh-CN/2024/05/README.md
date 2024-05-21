@@ -22,3 +22,4 @@
 202405181600|VernazzaItaly|韦尔纳扎村，五渔村，利古里亚，意大利 (© Roberto Moiola/Sysaworld/Getty Images)|历史与大海的交汇处|![](/zh-CN/2024/05/202405181600VernazzaItaly.jpg)|
 202405191600|HoneycombBee|蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)|我简直不敢相信！|![](/zh-CN/2024/05/202405191600HoneycombBee.jpg)|
 202405201600|MalaysiaTea|卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)|充满茶香的一天|![](/zh-CN/2024/05/202405201600MalaysiaTea.jpg)|
+202405211600|SnowGumTasmania|塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images)|深入了解生物多样性|![](/zh-CN/2024/05/202405211600SnowGumTasmania.jpg)|
