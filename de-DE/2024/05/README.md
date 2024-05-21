@@ -22,3 +22,4 @@
 202405182200|NefertitiMuseum|Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)|Welches Museum besuchen Sie heute?|![](/de-DE/2024/05/202405182200NefertitiMuseum.jpg)|
 202405192200|HoneycombBee|Biene bei der Pflege einer Wabe (© Simun Ascic/Alamy Stock Photo)|Summende Symmetrie|![](/de-DE/2024/05/202405192200HoneycombBee.jpg)|
 202405202200|MalaysiaTea|Teeplantagen Cameron Highlands, Malaysia (© alex cheong/Getty Images)|Hoch die Tassen!|![](/de-DE/2024/05/202405202200MalaysiaTea.jpg)|
+202405212200|SnowGumTasmania|Tasmanischer Schnee-Eukalyptus (Eucalyptus pauciflora), Mount-Field-Nationalpark, Tasmanien, Australien (© Ignacio Palacios/Getty Images)|Tanz der Bäume|![](/de-DE/2024/05/202405212200SnowGumTasmania.jpg)|
