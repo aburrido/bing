@@ -21,3 +21,4 @@
 202405180400|MuseumWhale|Squelette de baleine bleue appelé Hope, Natural History Museum, Londres, Angleterre (© Bailey-Cooper Photography/Alamy)|Courez au musée!|![](/fr-CA/2024/05/202405180400MuseumWhale.jpg)|
 202405190400|VernazzaItaly|Village de Vernazza, Cinque Terre, Ligurie, Italie (© Roberto Moiola/Sysaworld/Getty Images)|Là où l'histoire rencontre la mer|![](/fr-CA/2024/05/202405190400VernazzaItaly.jpg)|
 202405200400|OttawaParliamentHill|Colline du Parlement à Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)|L'anniversaire de la reine Victoria|![](/fr-CA/2024/05/202405200400OttawaParliamentHill.jpg)|
+202405210400|MalaysiaTea|Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)|Un paysage qui inspire la séréni-thé|![](/fr-CA/2024/05/202405210400MalaysiaTea.jpg)|
