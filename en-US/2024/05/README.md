@@ -22,3 +22,4 @@
 202405180700|MuseumWhale|Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)|Tail of the whale|![](/en-US/2024/05/202405180700MuseumWhale.jpg)|
 202405190700|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Where history meets the sea|![](/en-US/2024/05/202405190700VernazzaItaly.jpg)|
 202405200700|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|Keeping buzzy|![](/en-US/2024/05/202405200700HoneycombBee.jpg)|
+202405210700|MalaysiaTea|Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)|A brew-tea-ful day|![](/en-US/2024/05/202405210700MalaysiaTea.jpg)|
