@@ -23,3 +23,4 @@
 202405192300|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|I can't bee-lieve it!|![](/en-GB/2024/05/202405192300HoneycombBee.jpg)|
 202405202300|ChelseaFlowerUK|A woman with a floral hat at the RHS Chelsea Flower Show 2014 (© Bettina Strenske/Alamy Stock Photo)|A peony for your thoughts|![](/en-GB/2024/05/202405202300ChelseaFlowerUK.jpg)|
 202405212300|SnowGumTasmania|Tasmanian snow gum (Eucalyptus pauciflora), Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|Dive into diversity|![](/en-GB/2024/05/202405212300SnowGumTasmania.jpg)|
+202405222300|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Looking for a shell-ter|![](/en-GB/2024/05/202405222300IndianStarTortoise.jpg)|
