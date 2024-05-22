@@ -23,3 +23,4 @@
 202405192200|HoneycombBee|Abeille travaillant dans un nid (© Simun Ascic/Alamy)|La vie secrète des abeilles|![](/fr-FR/2024/05/202405192200HoneycombBee.jpg)|
 202405202200|MalaysiaTea|Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)|Un paysage qui inspire la séréni-thé|![](/fr-FR/2024/05/202405202200MalaysiaTea.jpg)|
 202405212200|SnowGumTasmania|Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)|L’équilibre délicat de la nature|![](/fr-FR/2024/05/202405212200SnowGumTasmania.jpg)|
+202405222200|IndianStarTortoise|Tortue étoilée d’Inde, Sri Lanka (© Robin Chittenden/Minden Pictures)|Quand les carapaces passent…|![](/fr-FR/2024/05/202405222200IndianStarTortoise.jpg)|
