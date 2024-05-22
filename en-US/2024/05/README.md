@@ -23,3 +23,4 @@
 202405190700|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Where history meets the sea|![](/en-US/2024/05/202405190700VernazzaItaly.jpg)|
 202405200700|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|Keeping buzzy|![](/en-US/2024/05/202405200700HoneycombBee.jpg)|
 202405210700|MalaysiaTea|Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)|A brew-tea-ful day|![](/en-US/2024/05/202405210700MalaysiaTea.jpg)|
+202405220700|SnowGumTasmania|Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|A beacon of biodiversity|![](/en-US/2024/05/202405220700SnowGumTasmania.jpg)|

@@ -23,3 +23,4 @@
 202405190700|VernazzaItaly|Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)|Info|![](/en-AU/2024/05/202405190700VernazzaItaly.jpg)|
 202405200700|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|Info|![](/en-AU/2024/05/202405200700HoneycombBee.jpg)|
 202405210700|ChapadaDiamantinaBahia|Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)|Info|![](/en-AU/2024/05/202405210700ChapadaDiamantinaBahia.jpg)|
+202405220700|SnowGumTasmania|Tasmanian snow gum, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|Info|![](/en-AU/2024/05/202405220700SnowGumTasmania.jpg)|
