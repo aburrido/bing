@@ -23,3 +23,4 @@
 202405200400|OttawaParliamentHill|Colline du Parlement à Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)|L'anniversaire de la reine Victoria|![](/fr-CA/2024/05/202405200400OttawaParliamentHill.jpg)|
 202405210400|MalaysiaTea|Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)|Un paysage qui inspire la séréni-thé|![](/fr-CA/2024/05/202405210400MalaysiaTea.jpg)|
 202405220400|SnowGumTasmania|Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)|L’équilibre délicat de la nature|![](/fr-CA/2024/05/202405220400SnowGumTasmania.jpg)|
+202405230400|IndianStarTortoise|Tortue étoilée d’Inde, Sri Lanka (© Robin Chittenden/Minden Pictures)|Quand les carapaces passent…|![](/fr-CA/2024/05/202405230400IndianStarTortoise.jpg)|

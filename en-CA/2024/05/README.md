@@ -23,3 +23,4 @@
 202405200400|OttawaParliamentHill|Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)|Celebrating Queen Victoria's birthday|![](/en-CA/2024/05/202405200400OttawaParliamentHill.jpg)|
 202405210400|MalaysiaTea|Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)|A brew-tea-ful day|![](/en-CA/2024/05/202405210400MalaysiaTea.jpg)|
 202405220400|SnowGumTasmania|Tasmanian snow gum, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|Dive into diversity|![](/en-CA/2024/05/202405220400SnowGumTasmania.jpg)|
+202405230400|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Looking for a shell-ter|![](/en-CA/2024/05/202405230400IndianStarTortoise.jpg)|
