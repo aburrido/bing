@@ -24,3 +24,4 @@
 202405201830|MalaysiaTea|Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)|A brew-tea-ful day|![](/en-IN/2024/05/202405201830MalaysiaTea.jpg)|
 202405211830|SnowGumTasmania|Tasmanian snow gum, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|Dive into diversity|![](/en-IN/2024/05/202405211830SnowGumTasmania.jpg)|
 202405221830|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Looking for a shell-ter|![](/en-IN/2024/05/202405221830IndianStarTortoise.jpg)|
+202405231830|OrdesaNationalPark|Añisclo gorge, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|All the way to the top|![](/en-IN/2024/05/202405231830OrdesaNationalPark.jpg)|
