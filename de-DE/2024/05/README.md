@@ -24,3 +24,4 @@
 202405202200|MalaysiaTea|Teeplantagen Cameron Highlands, Malaysia (© alex cheong/Getty Images)|Hoch die Tassen!|![](/de-DE/2024/05/202405202200MalaysiaTea.jpg)|
 202405212200|SnowGumTasmania|Tasmanischer Schnee-Eukalyptus (Eucalyptus pauciflora), Mount-Field-Nationalpark, Tasmanien, Australien (© Ignacio Palacios/Getty Images)|Tanz der Bäume|![](/de-DE/2024/05/202405212200SnowGumTasmania.jpg)|
 202405222200|IndianStarTortoise|Indische Sternschildkröte, Sri Lanka (© Robin Chittenden/Minden Pictures)|Überall ein Haus, überall zu Hause?|![](/de-DE/2024/05/202405222200IndianStarTortoise.jpg)|
+202405232200|OrdesaNationalPark|Añisclo-Schlucht, Nationalpark Ordesa y Monte Perdido, Huesca, Spanien (© Marisa Estivill/Shutterstock)|Bis zur Spitze|![](/de-DE/2024/05/202405232200OrdesaNationalPark.jpg)|
