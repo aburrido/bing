@@ -24,3 +24,4 @@
 202405200700|HoneycombBee|Bee tending a honeycomb (© Simun Ascic/Alamy)|Info|![](/en-AU/2024/05/202405200700HoneycombBee.jpg)|
 202405210700|ChapadaDiamantinaBahia|Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)|Info|![](/en-AU/2024/05/202405210700ChapadaDiamantinaBahia.jpg)|
 202405220700|SnowGumTasmania|Tasmanian snow gum, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|Info|![](/en-AU/2024/05/202405220700SnowGumTasmania.jpg)|
+202405230700|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Info|![](/en-AU/2024/05/202405230700IndianStarTortoise.jpg)|

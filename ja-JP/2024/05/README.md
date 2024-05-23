@@ -24,3 +24,4 @@
 202405201500|MalaysiaTea|キャメロンハイランドの茶畑, マレーシア (© alex cheong/Getty Images)|今日は国際お茶の日|![](/ja-JP/2024/05/202405201500MalaysiaTea.jpg)|
 202405211500|SkyTree2024|夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)|スカイツリー開業から 12 年|![](/ja-JP/2024/05/202405211500SkyTree2024.jpg)|
 202405221500|IndianStarTortoise|インドホシガメ, スリランカ (© Robin Chittenden/Minden Pictures)|今日は世界カメの日|![](/ja-JP/2024/05/202405221500IndianStarTortoise.jpg)|
+202405231500|OrdesaNationalPark|オルデサ・イ・モンテ・ペルディード国立公園, スペイン (© Marisa Estivill/Shutterstock)|今日はヨーロッパの公園の日|![](/ja-JP/2024/05/202405231500OrdesaNationalPark.jpg)|
