@@ -25,3 +25,4 @@
 202405211600|SnowGumTasmania|塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images)|深入了解生物多样性|![](/zh-CN/2024/05/202405211600SnowGumTasmania.jpg)|
 202405221600|IndianStarTortoise|印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures)|寻找一个“庇护所”|![](/zh-CN/2024/05/202405221600IndianStarTortoise.jpg)|
 202405231600|OrdesaNationalPark|阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙 (© Marisa Estivill/Shutterstock)|一路到顶峰|![](/zh-CN/2024/05/202405231600OrdesaNationalPark.jpg)|
+202405241600|MoroccoBenhaddou|阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)|沙丘守护者|![](/zh-CN/2024/05/202405241600MoroccoBenhaddou.jpg)|
