@@ -25,3 +25,4 @@
 202405212300|SnowGumTasmania|Tasmanian snow gum (Eucalyptus pauciflora), Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|Dive into diversity|![](/en-GB/2024/05/202405212300SnowGumTasmania.jpg)|
 202405222300|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Looking for a shell-ter|![](/en-GB/2024/05/202405222300IndianStarTortoise.jpg)|
 202405232300|OrdesaNationalPark|Añisclo gorge, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|All the way to the top|![](/en-GB/2024/05/202405232300OrdesaNationalPark.jpg)|
+202405242300|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-GB/2024/05/202405242300MoroccoBenhaddou.jpg)|
