@@ -24,3 +24,4 @@
 202405210400|MalaysiaTea|Plantation de thé des Cameron Highlands, Malaisie (© alex cheong/Getty Images)|Un paysage qui inspire la séréni-thé|![](/fr-CA/2024/05/202405210400MalaysiaTea.jpg)|
 202405220400|SnowGumTasmania|Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)|L’équilibre délicat de la nature|![](/fr-CA/2024/05/202405220400SnowGumTasmania.jpg)|
 202405230400|IndianStarTortoise|Tortue étoilée d’Inde, Sri Lanka (© Robin Chittenden/Minden Pictures)|Quand les carapaces passent…|![](/fr-CA/2024/05/202405230400IndianStarTortoise.jpg)|
+202405240400|OrdesaNationalPark|Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)|Un labyrinthique de roche, de forêt et d’eau|![](/fr-CA/2024/05/202405240400OrdesaNationalPark.jpg)|
