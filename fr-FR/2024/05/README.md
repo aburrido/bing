@@ -25,3 +25,4 @@
 202405212200|SnowGumTasmania|Eucalyptus coccifera, parc national de Mount Field, Tasmanie, Australie (© Ignacio Palacios/Getty Images)|L’équilibre délicat de la nature|![](/fr-FR/2024/05/202405212200SnowGumTasmania.jpg)|
 202405222200|IndianStarTortoise|Tortue étoilée d’Inde, Sri Lanka (© Robin Chittenden/Minden Pictures)|Quand les carapaces passent…|![](/fr-FR/2024/05/202405222200IndianStarTortoise.jpg)|
 202405232200|OrdesaNationalPark|Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)|Un labyrinthique de roche, de forêt et d’eau|![](/fr-FR/2024/05/202405232200OrdesaNationalPark.jpg)|
+202405242200|MoroccoBenhaddou|Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)|Les gardiens des dunes|![](/fr-FR/2024/05/202405242200MoroccoBenhaddou.jpg)|
