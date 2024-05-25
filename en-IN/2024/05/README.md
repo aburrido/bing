@@ -26,3 +26,4 @@
 202405221830|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Looking for a shell-ter|![](/en-IN/2024/05/202405221830IndianStarTortoise.jpg)|
 202405231830|OrdesaNationalPark|Añisclo gorge, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|All the way to the top|![](/en-IN/2024/05/202405231830OrdesaNationalPark.jpg)|
 202405241830|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-IN/2024/05/202405241830MoroccoBenhaddou.jpg)|
+202405251830|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|Wild and free|![](/en-IN/2024/05/202405251830MethowWildflowers.jpg)|
