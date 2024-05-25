@@ -26,3 +26,4 @@
 202405221600|IndianStarTortoise|印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures)|寻找一个“庇护所”|![](/zh-CN/2024/05/202405221600IndianStarTortoise.jpg)|
 202405231600|OrdesaNationalPark|阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙 (© Marisa Estivill/Shutterstock)|一路到顶峰|![](/zh-CN/2024/05/202405231600OrdesaNationalPark.jpg)|
 202405241600|MoroccoBenhaddou|阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)|沙丘守护者|![](/zh-CN/2024/05/202405241600MoroccoBenhaddou.jpg)|
+202405251600|MethowWildflowers|香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images)|野性与自由|![](/zh-CN/2024/05/202405251600MethowWildflowers.jpg)|
