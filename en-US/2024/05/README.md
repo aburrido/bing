@@ -26,3 +26,4 @@
 202405220700|SnowGumTasmania|Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)|A beacon of biodiversity|![](/en-US/2024/05/202405220700SnowGumTasmania.jpg)|
 202405230700|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Looking for a shell-ter|![](/en-US/2024/05/202405230700IndianStarTortoise.jpg)|
 202405240700|OrdesaNationalPark|Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|All the way to the top|![](/en-US/2024/05/202405240700OrdesaNationalPark.jpg)|
+202405250700|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-US/2024/05/202405250700MoroccoBenhaddou.jpg)|
