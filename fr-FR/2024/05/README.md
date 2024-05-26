@@ -27,3 +27,4 @@
 202405232200|OrdesaNationalPark|Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)|Un labyrinthique de roche, de forêt et d’eau|![](/fr-FR/2024/05/202405232200OrdesaNationalPark.jpg)|
 202405242200|MoroccoBenhaddou|Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)|Les gardiens des dunes|![](/fr-FR/2024/05/202405242200MoroccoBenhaddou.jpg)|
 202405252200|MonacoGP|Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)|Un Grand Prix mythique|![](/fr-FR/2024/05/202405252200MonacoGP.jpg)|
+202405262200|Guiana|Bébé tortue olivâtre quittant le nid pour rejoindre l'océan, plage de Remire-Montjoly, Cayenne, Guyanne (© Brusini Aurélien/hemis.fr)|C’est le grand départ !|![](/fr-FR/2024/05/202405262200Guiana.jpg)|

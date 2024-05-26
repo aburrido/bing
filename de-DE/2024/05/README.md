@@ -27,3 +27,4 @@
 202405232200|OrdesaNationalPark|Añisclo-Schlucht, Nationalpark Ordesa y Monte Perdido, Huesca, Spanien (© Marisa Estivill/Shutterstock)|Bis zur Spitze|![](/de-DE/2024/05/202405232200OrdesaNationalPark.jpg)|
 202405242200|MoroccoBenhaddou|Aït-Ben-Haddou, Marokko (© Grant Faint/Getty Images)|Wüstenwächter des Wüstenzaubers|![](/de-DE/2024/05/202405242200MoroccoBenhaddou.jpg)|
 202405252200|ElbeSandstone|Elbsandsteingebirge und Basteibrücke im Nationalpark Sächsische Schweiz, Sachsen (© Harald Nachtmann/Getty Images)|Zwischen Himmel und Erde|![](/de-DE/2024/05/202405252200ElbeSandstone.jpg)|
+202405262200|SestriLevante|Baia del Silenzio in Sestri Levante, Ligurien, Italien (© StevanZZ/Getty Images)|Sonne und Meer, Italien ich liebe dich sehr!|![](/de-DE/2024/05/202405262200SestriLevante.jpg)|
