@@ -27,3 +27,4 @@
 202405230700|IndianStarTortoise|Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)|Info|![](/en-AU/2024/05/202405230700IndianStarTortoise.jpg)|
 202405240700|OrdesaNationalPark|Añisclo gorge, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|Info|![](/en-AU/2024/05/202405240700OrdesaNationalPark.jpg)|
 202405250700|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Info|![](/en-AU/2024/05/202405250700MoroccoBenhaddou.jpg)|
+202405260700|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington, US (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2024/05/202405260700MethowWildflowers.jpg)|
