@@ -27,3 +27,4 @@
 202405231830|OrdesaNationalPark|Añisclo gorge, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|All the way to the top|![](/en-IN/2024/05/202405231830OrdesaNationalPark.jpg)|
 202405241830|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-IN/2024/05/202405241830MoroccoBenhaddou.jpg)|
 202405251830|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|Wild and free|![](/en-IN/2024/05/202405251830MethowWildflowers.jpg)|
+202405261830|ShivaDarasuram|Airavatesvara Temple at Darasuram, Tamil Nadu, built by Chola kings (© Narayan Kumar Photography/Shutterstock)|Chronicled carvings|![](/en-IN/2024/05/202405261830ShivaDarasuram.jpg)|
