@@ -27,3 +27,4 @@
 202405231500|OrdesaNationalPark|オルデサ・イ・モンテ・ペルディード国立公園, スペイン (© Marisa Estivill/Shutterstock)|今日はヨーロッパの公園の日|![](/ja-JP/2024/05/202405231500OrdesaNationalPark.jpg)|
 202405241500|MoroccoBenhaddou|アイット・ベン・ハドゥ, モロッコ (© Grant Faint/Getty Images)|サハラ砂漠の端にある要塞村|![](/ja-JP/2024/05/202405241500MoroccoBenhaddou.jpg)|
 202405251500|MethowWildflowers|メソウ・バレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)|ルピナスとバルサムルートが織りなすコントラスト|![](/ja-JP/2024/05/202405251500MethowWildflowers.jpg)|
+202405261500|HedgehogMeadow|ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)|庭の小さな番人|![](/ja-JP/2024/05/202405261500HedgehogMeadow.jpg)|
