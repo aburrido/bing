@@ -28,3 +28,4 @@
 202405240700|OrdesaNationalPark|Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)|All the way to the top|![](/en-US/2024/05/202405240700OrdesaNationalPark.jpg)|
 202405250700|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-US/2024/05/202405250700MoroccoBenhaddou.jpg)|
 202405260700|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|The hills are alive|![](/en-US/2024/05/202405260700MethowWildflowers.jpg)|
+202405270700|MemorialFlags|Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)|Memorial Day|![](/en-US/2024/05/202405270700MemorialFlags.jpg)|
