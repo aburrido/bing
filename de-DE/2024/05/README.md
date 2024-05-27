@@ -28,3 +28,4 @@
 202405242200|MoroccoBenhaddou|Aït-Ben-Haddou, Marokko (© Grant Faint/Getty Images)|Wüstenwächter des Wüstenzaubers|![](/de-DE/2024/05/202405242200MoroccoBenhaddou.jpg)|
 202405252200|ElbeSandstone|Elbsandsteingebirge und Basteibrücke im Nationalpark Sächsische Schweiz, Sachsen (© Harald Nachtmann/Getty Images)|Zwischen Himmel und Erde|![](/de-DE/2024/05/202405252200ElbeSandstone.jpg)|
 202405262200|SestriLevante|Baia del Silenzio in Sestri Levante, Ligurien, Italien (© StevanZZ/Getty Images)|Sonne und Meer, Italien ich liebe dich sehr!|![](/de-DE/2024/05/202405262200SestriLevante.jpg)|
+202405272200|MeteoraMonastery|Kloster Rousanou, Meteora, Thessalien, Griechenland (© Marius Roman/Getty Images)|So hoch wie noch nie|![](/de-DE/2024/05/202405272200MeteoraMonastery.jpg)|

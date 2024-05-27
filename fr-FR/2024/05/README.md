@@ -28,3 +28,4 @@
 202405242200|MoroccoBenhaddou|Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)|Les gardiens des dunes|![](/fr-FR/2024/05/202405242200MoroccoBenhaddou.jpg)|
 202405252200|MonacoGP|Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)|Un Grand Prix mythique|![](/fr-FR/2024/05/202405252200MonacoGP.jpg)|
 202405262200|Guiana|Bébé tortue olivâtre quittant le nid pour rejoindre l'océan, plage de Remire-Montjoly, Cayenne, Guyanne (© Brusini Aurélien/hemis.fr)|C’est le grand départ !|![](/fr-FR/2024/05/202405262200Guiana.jpg)|
+202405272200|MeteoraMonastery|Monastère de Roussanou, Météores, Thessalie, Grèce (© Marius Roman/Getty Images)|Toujours plus haut|![](/fr-FR/2024/05/202405272200MeteoraMonastery.jpg)|
