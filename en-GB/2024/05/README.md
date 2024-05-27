@@ -28,3 +28,4 @@
 202405242300|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-GB/2024/05/202405242300MoroccoBenhaddou.jpg)|
 202405252300|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington, USA (© Alan Majchrowicz/Getty Images)|Wild and free|![](/en-GB/2024/05/202405252300MethowWildflowers.jpg)|
 202405262300|HayFestival2024|Second-hand books at the Hay Festival, Hay-on-Wye, Wales (© Christopher Furlong/Staff/Getty Images News)|Good scribes only|![](/en-GB/2024/05/202405262300HayFestival2024.jpg)|
+202405272300|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-GB/2024/05/202405272300MeteoraMonastery.jpg)|
