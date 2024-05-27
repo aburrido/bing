@@ -27,3 +27,4 @@
 202405240400|OrdesaNationalPark|Canyon d'Anisclo, Parc national d'Ordesa et Monte Perdido, Huesca, Espagne (© Marisa Estivill/Shutterstock)|Un labyrinthique de roche, de forêt et d’eau|![](/fr-CA/2024/05/202405240400OrdesaNationalPark.jpg)|
 202405250400|MoroccoBenhaddou|Ksar d’Aït Benhaddou, Maroc (© Grant Faint/Getty Images)|Les gardiens des dunes|![](/fr-CA/2024/05/202405250400MoroccoBenhaddou.jpg)|
 202405260400|MethowWildflowers|Balsamorhize à feuilles sagittées et lupins, Methow Valley, North Cascades, Washington, États-Unis (© Alan Majchrowicz/Getty Images)|Libre et sauvage|![](/fr-CA/2024/05/202405260400MethowWildflowers.jpg)|
+202405270400|MinganArchipelago|Réserve du parc national de l'Archipel-de-Mingan, Québec, Canada (© Instants/E+/Getty Images)|À l'épreuve du temps|![](/fr-CA/2024/05/202405270400MinganArchipelago.jpg)|
