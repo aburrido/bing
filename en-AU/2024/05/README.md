@@ -29,3 +29,4 @@
 202405250700|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Info|![](/en-AU/2024/05/202405250700MoroccoBenhaddou.jpg)|
 202405260700|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington, US (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2024/05/202405260700MethowWildflowers.jpg)|
 202405270700|SestriLevante|Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)|Info|![](/en-AU/2024/05/202405270700SestriLevante.jpg)|
+202405280700|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|Info|![](/en-AU/2024/05/202405280700MeteoraMonastery.jpg)|

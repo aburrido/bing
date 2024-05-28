@@ -29,3 +29,4 @@
 202405250700|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-US/2024/05/202405250700MoroccoBenhaddou.jpg)|
 202405260700|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|The hills are alive|![](/en-US/2024/05/202405260700MethowWildflowers.jpg)|
 202405270700|MemorialFlags|Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)|Memorial Day|![](/en-US/2024/05/202405270700MemorialFlags.jpg)|
+202405280700|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-US/2024/05/202405280700MeteoraMonastery.jpg)|
