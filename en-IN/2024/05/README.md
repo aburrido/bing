@@ -29,3 +29,4 @@
 202405251830|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|Wild and free|![](/en-IN/2024/05/202405251830MethowWildflowers.jpg)|
 202405261830|ShivaDarasuram|Airavatesvara Temple at Darasuram, Tamil Nadu, built by Chola kings (© Narayan Kumar Photography/Shutterstock)|Chronicled carvings|![](/en-IN/2024/05/202405261830ShivaDarasuram.jpg)|
 202405271830|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-IN/2024/05/202405271830MeteoraMonastery.jpg)|
+202405281830|MullOtter|Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)|'Otter' you looking at?|![](/en-IN/2024/05/202405281830MullOtter.jpg)|
