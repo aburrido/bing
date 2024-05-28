@@ -29,3 +29,4 @@
 202405251600|MethowWildflowers|香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images)|野性与自由|![](/zh-CN/2024/05/202405251600MethowWildflowers.jpg)|
 202405261600|SestriLevante|塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)|我们去乘船吧！|![](/zh-CN/2024/05/202405261600SestriLevante.jpg)|
 202405271600|MeteoraMonastery|罗萨诺修道院，迈泰奥拉，色萨利 ，希腊 (© Marius Roman/Getty Images)|屹立于世界之巅|![](/zh-CN/2024/05/202405271600MeteoraMonastery.jpg)|
+202405281600|MullOtter|青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛 (© Neil Henderson/Alamy Stock Photo)|水獭在看什么？|![](/zh-CN/2024/05/202405281600MullOtter.jpg)|
