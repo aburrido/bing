@@ -28,3 +28,4 @@
 202405250400|MoroccoBenhaddou|Aït Benhaddou, Morocco (© Grant Faint/Getty Images)|Guardians of the dunes|![](/en-CA/2024/05/202405250400MoroccoBenhaddou.jpg)|
 202405260400|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|Wild and free|![](/en-CA/2024/05/202405260400MethowWildflowers.jpg)|
 202405270400|MinganArchipelago|Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)|Standing the test of time|![](/en-CA/2024/05/202405270400MinganArchipelago.jpg)|
+202405280400|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-CA/2024/05/202405280400MeteoraMonastery.jpg)|
