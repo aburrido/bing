@@ -29,3 +29,4 @@
 202405260400|MethowWildflowers|Balsamorhize à feuilles sagittées et lupins, Methow Valley, North Cascades, Washington, États-Unis (© Alan Majchrowicz/Getty Images)|Libre et sauvage|![](/fr-CA/2024/05/202405260400MethowWildflowers.jpg)|
 202405270400|MinganArchipelago|Réserve du parc national de l'Archipel-de-Mingan, Québec, Canada (© Instants/E+/Getty Images)|À l'épreuve du temps|![](/fr-CA/2024/05/202405270400MinganArchipelago.jpg)|
 202405280400|MeteoraMonastery|Monastère de Roussanou, Météores, Thessalie, Grèce (© Marius Roman/Getty Images)|Toujours plus haut|![](/fr-CA/2024/05/202405280400MeteoraMonastery.jpg)|
+202405290400|MullOtter|Loutre d'Europe, Loch Spelve, île de Mull, Écosse (© Neil Henderson/Alamy)|Vous voulez ma photo?|![](/fr-CA/2024/05/202405290400MullOtter.jpg)|

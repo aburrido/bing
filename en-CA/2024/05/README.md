@@ -29,3 +29,4 @@
 202405260400|MethowWildflowers|Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)|Wild and free|![](/en-CA/2024/05/202405260400MethowWildflowers.jpg)|
 202405270400|MinganArchipelago|Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)|Standing the test of time|![](/en-CA/2024/05/202405270400MinganArchipelago.jpg)|
 202405280400|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-CA/2024/05/202405280400MeteoraMonastery.jpg)|
+202405290400|MullOtter|Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)|'Otter' you looking at?|![](/en-CA/2024/05/202405290400MullOtter.jpg)|
