@@ -30,3 +30,4 @@
 202405261830|ShivaDarasuram|Airavatesvara Temple at Darasuram, Tamil Nadu, built by Chola kings (© Narayan Kumar Photography/Shutterstock)|Chronicled carvings|![](/en-IN/2024/05/202405261830ShivaDarasuram.jpg)|
 202405271830|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-IN/2024/05/202405271830MeteoraMonastery.jpg)|
 202405281830|MullOtter|Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)|'Otter' you looking at?|![](/en-IN/2024/05/202405281830MullOtter.jpg)|
+202405291830|Everglades90th|A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)|'Everglad' to be here 'Everglad' to be here|![](/en-IN/2024/05/202405291830Everglades90th.jpg)|
