@@ -30,3 +30,4 @@
 202405262300|HayFestival2024|Second-hand books at the Hay Festival, Hay-on-Wye, Wales (© Christopher Furlong/Staff/Getty Images News)|Good scribes only|![](/en-GB/2024/05/202405262300HayFestival2024.jpg)|
 202405272300|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|On top of the world|![](/en-GB/2024/05/202405272300MeteoraMonastery.jpg)|
 202405282300|MullOtter|Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)|'Otter' you looking at?|![](/en-GB/2024/05/202405282300MullOtter.jpg)|
+202405292300|Everglades90th|A stand of slash pines and sawgrass prairie, Everglades National Park, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)|'Everglad' to be here|![](/en-GB/2024/05/202405292300Everglades90th.jpg)|
