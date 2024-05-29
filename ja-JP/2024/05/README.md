@@ -30,3 +30,4 @@
 202405261500|HedgehogMeadow|ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)|庭の小さな番人|![](/ja-JP/2024/05/202405261500HedgehogMeadow.jpg)|
 202405271500|MeteoraMonastery|ルサヌ修道院, ギリシャ (© Marius Roman/Getty Images)|切り立つ岩の上に建てられた修道院|![](/ja-JP/2024/05/202405271500MeteoraMonastery.jpg)|
 202405281500|MullOtter|ユーラシアカワウソ, スコットランド (© Neil Henderson/Alamy)|今日は世界カワウソの日|![](/ja-JP/2024/05/202405281500MullOtter.jpg)|
+202405291500|Everglades90th|エバーグレーズ国立公園, 米国 フロリダ州 (© Jonathan Gewirtz/Tandem Stills + Motion)|米国最大の亜熱帯原生地帯|![](/ja-JP/2024/05/202405291500Everglades90th.jpg)|
