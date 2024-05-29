@@ -30,3 +30,4 @@
 202405262200|SestriLevante|Baia del Silenzio in Sestri Levante, Ligurien, Italien (© StevanZZ/Getty Images)|Sonne und Meer, Italien ich liebe dich sehr!|![](/de-DE/2024/05/202405262200SestriLevante.jpg)|
 202405272200|MeteoraMonastery|Kloster Rousanou, Meteora, Thessalien, Griechenland (© Marius Roman/Getty Images)|So hoch wie noch nie|![](/de-DE/2024/05/202405272200MeteoraMonastery.jpg)|
 202405282200|MullOtter|Europäischer Fischotter, Loch Spelve, Isle of Mull, Schottland (© Neil Henderson/Alamy Stock Photo)|Putzig und lustig|![](/de-DE/2024/05/202405282200MullOtter.jpg)|
+202405292200|Everglades90th|Sumpf-Kiefer, Everglades-Nationalpark, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)|Naturjuwel|![](/de-DE/2024/05/202405292200Everglades90th.jpg)|
