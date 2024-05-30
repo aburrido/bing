@@ -31,3 +31,4 @@
 202405272200|MeteoraMonastery|Monastère de Roussanou, Météores, Thessalie, Grèce (© Marius Roman/Getty Images)|Toujours plus haut|![](/fr-FR/2024/05/202405272200MeteoraMonastery.jpg)|
 202405282200|MullOtter|Loutre d'Europe, Loch Spelve, île de Mull, Écosse (© Neil Henderson/Alamy)|Vous voulez ma photo ?|![](/fr-FR/2024/05/202405282200MullOtter.jpg)|
 202405292200|Everglades90th|Pins sylvestres, parc national des Everglades, Floride, États-Unis (© Jonathan Gewirtz/Tandem Stills + Motion)|Le plus grand écosystème subtropical américain|![](/fr-FR/2024/05/202405292200Everglades90th.jpg)|
+202405302200|YorkshireDalesNP|Gunnerside, Swaledale, Parc national des Yorkshire Dales, Angleterre (© Derek Croucher/Alamy)|Du vert à perte de vue|![](/fr-FR/2024/05/202405302200YorkshireDalesNP.jpg)|
