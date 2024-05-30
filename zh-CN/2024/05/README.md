@@ -31,3 +31,4 @@
 202405271600|MeteoraMonastery|罗萨诺修道院，迈泰奥拉，色萨利 ，希腊 (© Marius Roman/Getty Images)|屹立于世界之巅|![](/zh-CN/2024/05/202405271600MeteoraMonastery.jpg)|
 202405281600|MullOtter|青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛 (© Neil Henderson/Alamy Stock Photo)|水獭在看什么？|![](/zh-CN/2024/05/202405281600MullOtter.jpg)|
 202405291600|Everglades90th|一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国 (© Jonathan Gewirtz/Tandem Stills + Motion)|欢迎来到大沼泽地|![](/zh-CN/2024/05/202405291600Everglades90th.jpg)|
+202405301600|YorkshireDalesNP|冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo)|绿意盎然的宜人之地|![](/zh-CN/2024/05/202405301600YorkshireDalesNP.jpg)|
