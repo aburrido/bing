@@ -32,3 +32,4 @@
 202405282300|MullOtter|Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)|'Otter' you looking at?|![](/en-GB/2024/05/202405282300MullOtter.jpg)|
 202405292300|Everglades90th|A stand of slash pines and sawgrass prairie, Everglades National Park, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)|'Everglad' to be here|![](/en-GB/2024/05/202405292300Everglades90th.jpg)|
 202405302300|YorkshireDalesNP|Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)|A green and pleasant land|![](/en-GB/2024/05/202405302300YorkshireDalesNP.jpg)|
+202405312300|PrideMonthSF|San Francisco City Hall lit up in rainbow lights for Pride, California, USA (© Josh Edelson/AFP via Getty Images)|Pride, no prejudice|![](/en-GB/2024/05/202405312300PrideMonthSF.jpg)|
