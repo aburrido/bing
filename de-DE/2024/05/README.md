@@ -32,3 +32,4 @@
 202405282200|MullOtter|Europäischer Fischotter, Loch Spelve, Isle of Mull, Schottland (© Neil Henderson/Alamy Stock Photo)|Putzig und lustig|![](/de-DE/2024/05/202405282200MullOtter.jpg)|
 202405292200|Everglades90th|Sumpf-Kiefer, Everglades-Nationalpark, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)|Naturjuwel|![](/de-DE/2024/05/202405292200Everglades90th.jpg)|
 202405302200|YorkshireDalesNP|Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy Stock Photo)|Ein Paradies in Grün|![](/de-DE/2024/05/202405302200YorkshireDalesNP.jpg)|
+202405312200|PrideMonthSF|Das Rathaus von San Francisco erstrahlt in Regenbogenfarben anlässlich der Pride, Kalifornien, USA (© Josh Edelson/AFP via Getty Images)|Stolz, kein Vorurteil|![](/de-DE/2024/05/202405312200PrideMonthSF.jpg)|
