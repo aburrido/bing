@@ -32,3 +32,4 @@
 202405281500|MullOtter|ユーラシアカワウソ, スコットランド (© Neil Henderson/Alamy)|今日は世界カワウソの日|![](/ja-JP/2024/05/202405281500MullOtter.jpg)|
 202405291500|Everglades90th|エバーグレーズ国立公園, 米国 フロリダ州 (© Jonathan Gewirtz/Tandem Stills + Motion)|米国最大の亜熱帯原生地帯|![](/ja-JP/2024/05/202405291500Everglades90th.jpg)|
 202405301500|YorkshireDalesNP|ヨークシャー・デイルズ国立公園, イングランド (© Derek Croucher/Alamy)|緑豊かな田園地帯|![](/ja-JP/2024/05/202405301500YorkshireDalesNP.jpg)|
+202405311500|PrideMonthSF|虹色に輝くサンフランシスコ市庁舎, 米国 カリフォルニア州 (© Josh Edelson/AFP via Getty Images)|今月はプライド月間|![](/ja-JP/2024/05/202405311500PrideMonthSF.jpg)|
