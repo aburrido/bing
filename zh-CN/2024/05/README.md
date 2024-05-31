@@ -32,3 +32,4 @@
 202405281600|MullOtter|青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛 (© Neil Henderson/Alamy Stock Photo)|水獭在看什么？|![](/zh-CN/2024/05/202405281600MullOtter.jpg)|
 202405291600|Everglades90th|一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国 (© Jonathan Gewirtz/Tandem Stills + Motion)|欢迎来到大沼泽地|![](/zh-CN/2024/05/202405291600Everglades90th.jpg)|
 202405301600|YorkshireDalesNP|冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo)|绿意盎然的宜人之地|![](/zh-CN/2024/05/202405301600YorkshireDalesNP.jpg)|
+202405311600|CancaoDoExilio|帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images)|带你游花园|![](/zh-CN/2024/05/202405311600CancaoDoExilio.jpg)|
