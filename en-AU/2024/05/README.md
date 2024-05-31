@@ -32,3 +32,4 @@
 202405280700|MeteoraMonastery|Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)|Info|![](/en-AU/2024/05/202405280700MeteoraMonastery.jpg)|
 202405290700|MullOtter|Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)|Info|![](/en-AU/2024/05/202405290700MullOtter.jpg)|
 202405300700|Everglades90th|A stand of slash pines and sawgrass prairie, Everglades National Park, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)|Info|![](/en-AU/2024/05/202405300700Everglades90th.jpg)|
+202405310700|YorkshireDalesNP|Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)|Info|![](/en-AU/2024/05/202405310700YorkshireDalesNP.jpg)|
