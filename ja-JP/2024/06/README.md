@@ -5,3 +5,4 @@
 202406021500|CopenhagenBicycles|世界一の自転車都市コペンハーゲン, デンマーク (© Alphotographic/Getty Images)|今日は世界自転車デー|![](/ja-JP/2024/06/202406021500CopenhagenBicycles.jpg)|
 202406031500|ChestnutBeeEater|バルディア国立公園, ネパール (© PACO COMO/Shutterstock)|枝に止まるチャガシラハチクイ|![](/ja-JP/2024/06/202406031500ChestnutBeeEater.jpg)|
 ||||![](/ja-JP/2024/06/.jpg)|
+202406041500|MadagascarRiver|マソアラ国立公園, マダガスカル (© Dennis van de Water/Shutterstock)|今日は世界環境デー|![](/ja-JP/2024/06/202406041500MadagascarRiver.jpg)|
