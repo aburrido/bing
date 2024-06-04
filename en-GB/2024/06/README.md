@@ -4,3 +4,4 @@
 202406012300|SestriLevante|Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)|Let's go for a boat ride!|![](/en-GB/2024/06/202406012300SestriLevante.jpg)|
 202406022300|CopenhagenBicycles|Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)|'Two' tyred for a ride|![](/en-GB/2024/06/202406022300CopenhagenBicycles.jpg)|
 202406032300|ChestnutBeeEater|Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)|Birds of a feather…|![](/en-GB/2024/06/202406032300ChestnutBeeEater.jpg)|
+202406042300|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|Happy b-earth-day!|![](/en-GB/2024/06/202406042300MadagascarRiver.jpg)|
