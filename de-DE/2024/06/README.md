@@ -4,3 +4,4 @@
 202406012200|MenRuz|Leuchtturm Ploumanac'h, Côtes-d'Armor, Frankreich (© Christian Handl/Getty Images)|Ein Licht in der Nacht|![](/de-DE/2024/06/202406012200MenRuz.jpg)|
 202406022200|CopenhagenBicycles|Fahrräder in Kopenhagen, Dänemark (© Alphotographic/Getty Images)|Das Glück hat zwei Räder|![](/de-DE/2024/06/202406022200CopenhagenBicycles.jpg)|
 202406032200|ChestnutBeeEater|Bienenfresser, Bardia-Nationalpark, Nepal (© PACO COMO/Shutterstock)|Gleich und gleich gesellt sich gern|![](/de-DE/2024/06/202406032200ChestnutBeeEater.jpg)|
+||||![](/de-DE/2024/06/.jpg)|
