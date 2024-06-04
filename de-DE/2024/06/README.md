@@ -5,3 +5,4 @@
 202406022200|CopenhagenBicycles|Fahrräder in Kopenhagen, Dänemark (© Alphotographic/Getty Images)|Das Glück hat zwei Räder|![](/de-DE/2024/06/202406022200CopenhagenBicycles.jpg)|
 202406032200|ChestnutBeeEater|Bienenfresser, Bardia-Nationalpark, Nepal (© PACO COMO/Shutterstock)|Gleich und gleich gesellt sich gern|![](/de-DE/2024/06/202406032200ChestnutBeeEater.jpg)|
 ||||![](/de-DE/2024/06/.jpg)|
+202406042200|MadagascarRiver|Masoala-Nationalpark in Madagaskar (© Dennis van de Water/Shutterstock)|Herzlichen Glückwunsch, liebe Erde!|![](/de-DE/2024/06/202406042200MadagascarRiver.jpg)|
