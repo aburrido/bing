@@ -6,3 +6,4 @@
 202406032200|ChestnutBeeEater|Bienenfresser, Bardia-Nationalpark, Nepal (© PACO COMO/Shutterstock)|Gleich und gleich gesellt sich gern|![](/de-DE/2024/06/202406032200ChestnutBeeEater.jpg)|
 ||||![](/de-DE/2024/06/.jpg)|
 202406042200|MadagascarRiver|Masoala-Nationalpark in Madagaskar (© Dennis van de Water/Shutterstock)|Herzlichen Glückwunsch, liebe Erde!|![](/de-DE/2024/06/202406042200MadagascarRiver.jpg)|
+202406052200|RossfeldRoad|Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)|Ein Blick in die Alpenlandschaft|![](/de-DE/2024/06/202406052200RossfeldRoad.jpg)|
