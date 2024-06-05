@@ -4,3 +4,4 @@
 202406020400|Annahummingbird|Colibri d'Anna femelle, Canada (© Devonyu/iStock/Getty Images)|Petit mais costaud!|![](/fr-CA/2024/06/202406020400Annahummingbird.jpg)|
 202406030400|CopenhagenBicycles|Vélos à Copenhague, Danemark (© Alphotographic/Getty Images)|C’est le moment de perdre les pédales!|![](/fr-CA/2024/06/202406030400CopenhagenBicycles.jpg)|
 202406040400|ChestnutBeeEater|Guêpiers de Leschenault, Parc National de Bardia, Népal (© PACO COMO/Shutterstock)|L’union fait le plumage!|![](/fr-CA/2024/06/202406040400ChestnutBeeEater.jpg)|
+202406050400|MadagascarRiver|Parc National de Masoala à Madagascar (© Dennis van de Water/Shutterstock)|Planète verte, avenir Serein|![](/fr-CA/2024/06/202406050400MadagascarRiver.jpg)|
