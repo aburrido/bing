@@ -5,3 +5,4 @@
 202406021830|JaswantThadaIN|Jaswant Thada and Mehrangarh Fort in Jodhpur city in Rajasthan, India (© Jackyenjoyphotography/Getty Images)|Fort-unately majestic|![](/en-IN/2024/06/202406021830JaswantThadaIN.jpg)|
 202406031830|ChestnutBeeEater|Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)|Birds of a feather…|![](/en-IN/2024/06/202406031830ChestnutBeeEater.jpg)|
 202406041830|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|Happy b-earth-day!|![](/en-IN/2024/06/202406041830MadagascarRiver.jpg)|
+202406051830|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|Monumental tribute|![](/en-IN/2024/06/202406051830LesBravesNormandy.jpg)|
