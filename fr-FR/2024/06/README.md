@@ -6,3 +6,4 @@
 202406032200|ChestnutBeeEater|Guêpiers de Leschenault, Parc National de Bardia, Népal (© PACO COMO/Shutterstock)|L’union fait le plumage !|![](/fr-FR/2024/06/202406032200ChestnutBeeEater.jpg)|
 202406042200|MadagascarRiver|Parc National de Masoala à Madagascar (© Dennis van de Water/Shutterstock)|Planète verte, avenir Serein|![](/fr-FR/2024/06/202406042200MadagascarRiver.jpg)|
 202406052200|LesBravesNormandy|Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)|Devoir de Mémoire|![](/fr-FR/2024/06/202406052200LesBravesNormandy.jpg)|
+202406062200|HumpbackFamily|Famille de baleines à bosse, Dutch Harbor, Alaska, États-Unis (© Jude Newkirk/Amazing Aerial Agency)|Vagues d’espoir|![](/fr-FR/2024/06/202406062200HumpbackFamily.jpg)|
