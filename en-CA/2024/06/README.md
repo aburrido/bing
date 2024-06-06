@@ -5,3 +5,4 @@
 202406030400|CopenhagenBicycles|Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)|'Two' tyred for a ride|![](/en-CA/2024/06/202406030400CopenhagenBicycles.jpg)|
 202406040400|ChestnutBeeEater|Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)|Birds of a feather…|![](/en-CA/2024/06/202406040400ChestnutBeeEater.jpg)|
 202406050400|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|Happy b-earth-day!|![](/en-CA/2024/06/202406050400MadagascarRiver.jpg)|
+202406060400|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|D-Day: 80 years on|![](/en-CA/2024/06/202406060400LesBravesNormandy.jpg)|

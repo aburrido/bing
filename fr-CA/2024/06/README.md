@@ -5,3 +5,4 @@
 202406030400|CopenhagenBicycles|Vélos à Copenhague, Danemark (© Alphotographic/Getty Images)|C’est le moment de perdre les pédales!|![](/fr-CA/2024/06/202406030400CopenhagenBicycles.jpg)|
 202406040400|ChestnutBeeEater|Guêpiers de Leschenault, Parc National de Bardia, Népal (© PACO COMO/Shutterstock)|L’union fait le plumage!|![](/fr-CA/2024/06/202406040400ChestnutBeeEater.jpg)|
 202406050400|MadagascarRiver|Parc National de Masoala à Madagascar (© Dennis van de Water/Shutterstock)|Planète verte, avenir Serein|![](/fr-CA/2024/06/202406050400MadagascarRiver.jpg)|
+202406060400|LesBravesNormandy|Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)|Devoir de Mémoire|![](/fr-CA/2024/06/202406060400LesBravesNormandy.jpg)|
