@@ -6,3 +6,4 @@
 202406031830|ChestnutBeeEater|Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)|Birds of a feather…|![](/en-IN/2024/06/202406031830ChestnutBeeEater.jpg)|
 202406041830|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|Happy b-earth-day!|![](/en-IN/2024/06/202406041830MadagascarRiver.jpg)|
 202406051830|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|Monumental tribute|![](/en-IN/2024/06/202406051830LesBravesNormandy.jpg)|
+202406061830|HumpbackFamily|Family of humpback whales, Dutch Harbour, Alaska (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-IN/2024/06/202406061830HumpbackFamily.jpg)|
