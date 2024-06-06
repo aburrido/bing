@@ -7,3 +7,4 @@
 202406042300|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|Happy b-earth-day!|![](/en-GB/2024/06/202406042300MadagascarRiver.jpg)|
 202406052300|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|D-Day: 80 years on|![](/en-GB/2024/06/202406052300LesBravesNormandy.jpg)|
 202406062300|HumpbackFamily|Family of humpback whales, Dutch Harbour, Alaska, USA (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-GB/2024/06/202406062300HumpbackFamily.jpg)|
+201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/en-GB/2024/06/201209010700b/LaDigue.jpg)|
