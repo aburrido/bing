@@ -8,3 +8,4 @@
 202406052300|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|D-Day: 80 years on|![](/en-GB/2024/06/202406052300LesBravesNormandy.jpg)|
 202406062300|HumpbackFamily|Family of humpback whales, Dutch Harbour, Alaska, USA (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-GB/2024/06/202406062300HumpbackFamily.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/en-GB/2024/06/201209010700b/LaDigue.jpg)|
+202406072300|SummerJuneHare|European hare, West Midlands, England (© Jake Stephen/Moment/Getty Images)|Have you been 'hare' before?|![](/en-GB/2024/06/202406072300SummerJuneHare.jpg)|
