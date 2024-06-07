@@ -7,3 +7,4 @@
 202406041600|MadagascarRiver|马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock)|世界环境日快乐！|![](/zh-CN/2024/06/202406041600MadagascarRiver.jpg)|
 202406051600|CamargueFlamingos|蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images)|有趣的野生动物!|![](/zh-CN/2024/06/202406051600CamargueFlamingos.jpg)|
 202406061600|HumpbackFamily|座头鲸家族，荷兰港，阿拉斯加州 (© Jude Newkirk/Amazing Aerial Agency)|希望的浪潮|![](/zh-CN/2024/06/202406061600HumpbackFamily.jpg)|
+202406071600|KillikRiverAlaska|复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国 (© Patrick J. Endres/Getty Images)|河流的交汇|![](/zh-CN/2024/06/202406071600KillikRiverAlaska.jpg)|
