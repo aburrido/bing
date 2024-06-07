@@ -8,3 +8,4 @@
 202406041500|MadagascarRiver|マソアラ国立公園, マダガスカル (© Dennis van de Water/Shutterstock)|今日は世界環境デー|![](/ja-JP/2024/06/202406041500MadagascarRiver.jpg)|
 202406051500|GemsbokBotswana|オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)|長くて美しい角を持つレイヨウ|![](/ja-JP/2024/06/202406051500GemsbokBotswana.jpg)|
 202406061500|HumpbackFamily|港湾地区ダッチハーバーのザトウクジラ, 米国 アラスカ州 (© Jude Newkirk/Amazing Aerial Agency)|今日は世界海洋デー|![](/ja-JP/2024/06/202406061500HumpbackFamily.jpg)|
+202406071500|KillikRiverAlaska|北極圏の扉国立公園, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)|今月は全米河川の月間|![](/ja-JP/2024/06/202406071500KillikRiverAlaska.jpg)|
