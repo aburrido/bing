@@ -8,3 +8,4 @@
 202406042200|MadagascarRiver|Masoala-Nationalpark in Madagaskar (© Dennis van de Water/Shutterstock)|Herzlichen Glückwunsch, liebe Erde!|![](/de-DE/2024/06/202406042200MadagascarRiver.jpg)|
 202406052200|RossfeldRoad|Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)|Ein Blick in die Alpenlandschaft|![](/de-DE/2024/06/202406052200RossfeldRoad.jpg)|
 202406062200|HumpbackFamily|Buckelwalfamilie, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)|Hoffnungsvolle Wellen|![](/de-DE/2024/06/202406062200HumpbackFamily.jpg)|
+202406072200|KillikRiverAlaska|Zusammenfluss von Easter Creek und Killik River, Gates-of-the-Arctic-Nationalpark, Alaska, USA (© Patrick J. Endres/Getty Images)|Ein nasses Zusammentreffen|![](/de-DE/2024/06/202406072200KillikRiverAlaska.jpg)|
