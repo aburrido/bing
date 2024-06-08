@@ -8,3 +8,4 @@
 202406050700|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|Info|![](/en-AU/2024/06/202406050700MadagascarRiver.jpg)|
 202406060700|CamargueFlamingos|Greater flamingos at Pont de Gau Ornithological Park, Camargue, France (© Yann Guichaoua-Photos/Getty Images)|Info|![](/en-AU/2024/06/202406060700CamargueFlamingos.jpg)|
 202406070700|HumpbackFamily|Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)|Info|![](/en-AU/2024/06/202406070700HumpbackFamily.jpg)|
+202406080700|KillikRiverAlaska|Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)|Info|![](/en-AU/2024/06/202406080700KillikRiverAlaska.jpg)|

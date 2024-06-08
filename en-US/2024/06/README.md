@@ -8,3 +8,4 @@
 202406050700|MadagascarRiver|Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)|World Environment Day|![](/en-US/2024/06/202406050700MadagascarRiver.jpg)|
 202406060700|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|D-Day: 80 years on|![](/en-US/2024/06/202406060700LesBravesNormandy.jpg)|
 202406070700|HumpbackFamily|Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-US/2024/06/202406070700HumpbackFamily.jpg)|
+202406080700|KillikRiverAlaska|Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)|The meeting of the waters|![](/en-US/2024/06/202406080700KillikRiverAlaska.jpg)|
