@@ -9,3 +9,4 @@
 202406062300|HumpbackFamily|Family of humpback whales, Dutch Harbour, Alaska, USA (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-GB/2024/06/202406062300HumpbackFamily.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/en-GB/2024/06/201209010700b/LaDigue.jpg)|
 202406072300|SummerJuneHare|European hare, West Midlands, England (© Jake Stephen/Moment/Getty Images)|Have you been 'hare' before?|![](/en-GB/2024/06/202406072300SummerJuneHare.jpg)|
+202406082300|BardenasBiosphere|Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)|Breath-taking silence|![](/en-GB/2024/06/202406082300BardenasBiosphere.jpg)|
