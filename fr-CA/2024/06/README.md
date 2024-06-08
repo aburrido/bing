@@ -7,3 +7,4 @@
 202406050400|MadagascarRiver|Parc National de Masoala à Madagascar (© Dennis van de Water/Shutterstock)|Planète verte, avenir Serein|![](/fr-CA/2024/06/202406050400MadagascarRiver.jpg)|
 202406060400|LesBravesNormandy|Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)|Devoir de Mémoire|![](/fr-CA/2024/06/202406060400LesBravesNormandy.jpg)|
 202406070400|HumpbackFamily|Famille de baleines à bosse, Dutch Harbor, Alaska, États-Unis (© Jude Newkirk/Amazing Aerial Agency)|Vagues d’espoir|![](/fr-CA/2024/06/202406070400HumpbackFamily.jpg)|
+202406080400|CanadianGP|Skyline du centre-ville de Montréal, Québec, Canada (© benedek/E+/Getty Images)|Un Grand Prix mythique|![](/fr-CA/2024/06/202406080400CanadianGP.jpg)|
