@@ -8,3 +8,4 @@
 202406051830|LesBravesNormandy|Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)|Monumental tribute|![](/en-IN/2024/06/202406051830LesBravesNormandy.jpg)|
 202406061830|HumpbackFamily|Family of humpback whales, Dutch Harbour, Alaska (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-IN/2024/06/202406061830HumpbackFamily.jpg)|
 202406071830|KillikRiverAlaska|Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)|The meeting of the waters|![](/en-IN/2024/06/202406071830KillikRiverAlaska.jpg)|
+202406081830|BardenasBiosphere|Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)|Breath-taking silence|![](/en-IN/2024/06/202406081830BardenasBiosphere.jpg)|
