@@ -9,3 +9,4 @@
 202406062200|HumpbackFamily|Famille de baleines à bosse, Dutch Harbor, Alaska, États-Unis (© Jude Newkirk/Amazing Aerial Agency)|Vagues d’espoir|![](/fr-FR/2024/06/202406062200HumpbackFamily.jpg)|
 202406072200|KillikRiverAlaska|Confluence de Easter Creek et de la rivière Killik, Parc National des Gates of the Arctic, Alaska, États-Unis (© Patrick J. Endres/Getty Images)|La rencontre de deux mondes|![](/fr-FR/2024/06/202406072200KillikRiverAlaska.jpg)|
 202406082200|BardenasBiosphere|Réserve de la biosphère et parc naturel de Bardenas Reales, Navarre, Espagne (© Aliaume Chapelle/Tandem Stills + Motion)|Le désert européen|![](/fr-FR/2024/06/202406082200BardenasBiosphere.jpg)|
+202406092200|OsakaNight|Osaka la nuit, Japon (© wichianduangsri/Getty Images)|La ville aux néons|![](/fr-FR/2024/06/202406092200OsakaNight.jpg)|
