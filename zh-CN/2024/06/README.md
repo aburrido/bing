@@ -9,3 +9,4 @@
 202406061600|HumpbackFamily|座头鲸家族，荷兰港，阿拉斯加州 (© Jude Newkirk/Amazing Aerial Agency)|希望的浪潮|![](/zh-CN/2024/06/202406061600HumpbackFamily.jpg)|
 202406071600|KillikRiverAlaska|复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国 (© Patrick J. Endres/Getty Images)|河流的交汇|![](/zh-CN/2024/06/202406071600KillikRiverAlaska.jpg)|
 202406081600|BardenasBiosphere|巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)|令人窒息的寂静|![](/zh-CN/2024/06/202406081600BardenasBiosphere.jpg)|
+202406091600|DragonBoatFestival2024|龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)|比赛将在这里开始！|![](/zh-CN/2024/06/202406091600DragonBoatFestival2024.jpg)|
