@@ -11,3 +11,4 @@
 202406072300|SummerJuneHare|European hare, West Midlands, England (© Jake Stephen/Moment/Getty Images)|Have you been 'hare' before?|![](/en-GB/2024/06/202406072300SummerJuneHare.jpg)|
 202406082300|BardenasBiosphere|Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)|Breath-taking silence|![](/en-GB/2024/06/202406082300BardenasBiosphere.jpg)|
 202406092300|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|City of neon dreams|![](/en-GB/2024/06/202406092300OsakaNight.jpg)|
+202406102300|GemsbokBotswana|Gemsboks in the savannah, Botswana (© Karine Aigner/Tandem Stills + Motion)|These antelopes are real gems|![](/en-GB/2024/06/202406102300GemsbokBotswana.jpg)|
