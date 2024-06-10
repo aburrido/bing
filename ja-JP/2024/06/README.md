@@ -11,3 +11,4 @@
 202406071500|KillikRiverAlaska|北極圏の扉国立公園, 米国 アラスカ州 (© Patrick J. Endres/Getty Images)|今月は全米河川の月間|![](/ja-JP/2024/06/202406071500KillikRiverAlaska.jpg)|
 202406081500|BardenasBiosphere|バルデナス・レアレス, スペイン (© Aliaume Chapelle/Tandem Stills + Motion)|まるで異世界のような景色|![](/ja-JP/2024/06/202406081500BardenasBiosphere.jpg)|
 202406091500|OsakaNight|大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)|天保山大橋と天保山大観覧車|![](/ja-JP/2024/06/202406091500OsakaNight.jpg)|
+202406101500|Ajisai2024|アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)|今日は入梅|![](/ja-JP/2024/06/202406101500Ajisai2024.jpg)|
