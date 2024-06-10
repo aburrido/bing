@@ -9,3 +9,4 @@
 202406070400|HumpbackFamily|Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)|Waves of hope|![](/en-CA/2024/06/202406070400HumpbackFamily.jpg)|
 202406080400|CanadianGP|Skyline of Downtown Montreal, Quebec, Canada (© benedek/E+/Getty Images)|Lap after lap|![](/en-CA/2024/06/202406080400CanadianGP.jpg)|
 202406090400|BardenasBiosphere|Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)|Breath-taking silence|![](/en-CA/2024/06/202406090400BardenasBiosphere.jpg)|
+202406100400|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|City of neon dreams|![](/en-CA/2024/06/202406100400OsakaNight.jpg)|
