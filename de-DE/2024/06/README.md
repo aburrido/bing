@@ -11,3 +11,4 @@
 202406072200|KillikRiverAlaska|Zusammenfluss von Easter Creek und Killik River, Gates-of-the-Arctic-Nationalpark, Alaska, USA (© Patrick J. Endres/Getty Images)|Ein nasses Zusammentreffen|![](/de-DE/2024/06/202406072200KillikRiverAlaska.jpg)|
 202406082200|KlosterKamp|Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)|Ein paradiesischer Garten|![](/de-DE/2024/06/202406082200KlosterKamp.jpg)|
 202406092200|OsakaNight|Osaka bei Nacht, Japan (© wichianduangsri/Getty Images)|Ein japanischer Schmelztiegel|![](/de-DE/2024/06/202406092200OsakaNight.jpg)|
+202406102200|GemsbokBotswana|Spießbock in der Savanne, Botswana (© Karine Aigner/Tandem Stills + Motion)|Meister der Anpassung|![](/de-DE/2024/06/202406102200GemsbokBotswana.jpg)|
