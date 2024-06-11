@@ -11,3 +11,4 @@
 202406080700|KillikRiverAlaska|Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)|The meeting of the waters|![](/en-US/2024/06/202406080700KillikRiverAlaska.jpg)|
 202406090700|BardenasBiosphere|Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)|Breathtaking silence|![](/en-US/2024/06/202406090700BardenasBiosphere.jpg)|
 202406100700|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|City of neon dreams|![](/en-US/2024/06/202406100700OsakaNight.jpg)|
+202406110700|GemsbokBotswana|Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)|These antelopes are real gems|![](/en-US/2024/06/202406110700GemsbokBotswana.jpg)|
