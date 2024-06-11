@@ -11,3 +11,4 @@
 202406081600|BardenasBiosphere|巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)|令人窒息的寂静|![](/zh-CN/2024/06/202406081600BardenasBiosphere.jpg)|
 202406091600|DragonBoatFestival2024|龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)|比赛将在这里开始！|![](/zh-CN/2024/06/202406091600DragonBoatFestival2024.jpg)|
 202406101600|GemsbokBotswana|热带稀树草原上的南非剑羚，博茨瓦纳大草原 (© Karine Aigner/Tandem Stills + Motion)|这些羚羊是真正的珍宝|![](/zh-CN/2024/06/202406101600GemsbokBotswana.jpg)|
+202406111600|BigBendMilkyWay|大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)|星光盛宴|![](/zh-CN/2024/06/202406111600BigBendMilkyWay.jpg)|
