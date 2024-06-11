@@ -12,3 +12,4 @@
 202406082200|KlosterKamp|Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)|Ein paradiesischer Garten|![](/de-DE/2024/06/202406082200KlosterKamp.jpg)|
 202406092200|OsakaNight|Osaka bei Nacht, Japan (© wichianduangsri/Getty Images)|Ein japanischer Schmelztiegel|![](/de-DE/2024/06/202406092200OsakaNight.jpg)|
 202406102200|GemsbokBotswana|Spießbock in der Savanne, Botswana (© Karine Aigner/Tandem Stills + Motion)|Meister der Anpassung|![](/de-DE/2024/06/202406102200GemsbokBotswana.jpg)|
+202406112200|BigBendMilkyWay|Milchstraße über dem Big-Bend-Nationalpark, Texas, USA (© wisanuboonrawd/Adobe Stock)|Ein galaktischer Gig|![](/de-DE/2024/06/202406112200BigBendMilkyWay.jpg)|
