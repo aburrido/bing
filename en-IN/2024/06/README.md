@@ -12,3 +12,4 @@
 202406091830|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|City of neon dreams|![](/en-IN/2024/06/202406091830OsakaNight.jpg)|
 202406101830|GemsbokBotswana|Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)|These antelopes are real gems|![](/en-IN/2024/06/202406101830GemsbokBotswana.jpg)|
 202406111830|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)|A galactic gig|![](/en-IN/2024/06/202406111830BigBendMilkyWay.jpg)|
+202406121830|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Tile tales|![](/en-IN/2024/06/202406121830RegistanUzbekistan.jpg)|
