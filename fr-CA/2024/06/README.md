@@ -12,3 +12,4 @@
 202406100400|OsakaNight|Osaka la nuit, Japon (© wichianduangsri/Getty Images)|La ville aux néons|![](/fr-CA/2024/06/202406100400OsakaNight.jpg)|
 202406110400|GemsbokBotswana|L'oryx gazelle dans la savane, Botswana (© Karine Aigner/Tandem Stills + Motion)|Des animaux uniques|![](/fr-CA/2024/06/202406110400GemsbokBotswana.jpg)|
 202406120400|BigBendMilkyWay|Voie lactée au-dessus du parc national de Big Bend, Texas, États-Unis (© wisanuboonrawd/Adobe Stock)|Un concert galactique|![](/fr-CA/2024/06/202406120400BigBendMilkyWay.jpg)|
+||||![](/fr-CA/2024/06/.jpg)|

@@ -13,3 +13,4 @@
 202406091500|OsakaNight|大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)|天保山大橋と天保山大観覧車|![](/ja-JP/2024/06/202406091500OsakaNight.jpg)|
 202406101500|Ajisai2024|アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)|今日は入梅|![](/ja-JP/2024/06/202406101500Ajisai2024.jpg)|
 202406111500|BigBendMilkyWay|ビッグ・ベンド国立公園, 米国 テキサス州 (© wisanuboonrawd/Adobe Stock)|今日はビッグ・ベンド国立公園 80 周年記念日|![](/ja-JP/2024/06/202406111500BigBendMilkyWay.jpg)|
+202406121500|RegistanUzbekistan|レギスタン広場, ウズベキスタン (© da-kuk/Getty Images)|精巧な装飾が施されたイスラム建築|![](/ja-JP/2024/06/202406121500RegistanUzbekistan.jpg)|
