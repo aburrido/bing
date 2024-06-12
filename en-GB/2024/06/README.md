@@ -14,3 +14,4 @@
 202406102300|GemsbokBotswana|Gemsboks in the savannah, Botswana (© Karine Aigner/Tandem Stills + Motion)|These antelopes are real gems|![](/en-GB/2024/06/202406102300GemsbokBotswana.jpg)|
 202406112300|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas, USA (© wisanuboonrawd/Adobe Stock)|A galactic gig|![](/en-GB/2024/06/202406112300BigBendMilkyWay.jpg)|
 ||||![](/en-GB/2024/06/.jpg)|
+202406122300|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Tile tales|![](/en-GB/2024/06/202406122300RegistanUzbekistan.jpg)|
