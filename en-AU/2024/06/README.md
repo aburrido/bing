@@ -12,3 +12,4 @@
 202406090700|BardenasBiosphere|Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)|Info|![](/en-AU/2024/06/202406090700BardenasBiosphere.jpg)|
 202406100700|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|Info|![](/en-AU/2024/06/202406100700OsakaNight.jpg)|
 202406110700|GemsbokBotswana|Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)|Info|![](/en-AU/2024/06/202406110700GemsbokBotswana.jpg)|
+202406120700|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)|Info|![](/en-AU/2024/06/202406120700BigBendMilkyWay.jpg)|
