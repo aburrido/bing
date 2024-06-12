@@ -14,3 +14,4 @@
 202406111600|BigBendMilkyWay|大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)|星光盛宴|![](/zh-CN/2024/06/202406111600BigBendMilkyWay.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/zh-CN/2024/06/201209010700b/LaDigue.jpg)|
 202406121600|RegistanUzbekistan|雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)|瓷砖的故事|![](/zh-CN/2024/06/202406121600RegistanUzbekistan.jpg)|
+201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/zh-CN/2024/06/201209010700b/LaDigue.jpg)|

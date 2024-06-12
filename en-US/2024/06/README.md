@@ -13,3 +13,4 @@
 202406100700|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|City of neon dreams|![](/en-US/2024/06/202406100700OsakaNight.jpg)|
 202406110700|GemsbokBotswana|Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)|These antelopes are real gems|![](/en-US/2024/06/202406110700GemsbokBotswana.jpg)|
 202406120700|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)|A galactic gig|![](/en-US/2024/06/202406120700BigBendMilkyWay.jpg)|
+201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/en-US/2024/06/201209010700b/LaDigue.jpg)|
