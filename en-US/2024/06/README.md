@@ -14,3 +14,4 @@
 202406110700|GemsbokBotswana|Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)|These antelopes are real gems|![](/en-US/2024/06/202406110700GemsbokBotswana.jpg)|
 202406120700|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)|A galactic gig|![](/en-US/2024/06/202406120700BigBendMilkyWay.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/en-US/2024/06/201209010700b/LaDigue.jpg)|
+202406130700|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Tile tales|![](/en-US/2024/06/202406130700RegistanUzbekistan.jpg)|

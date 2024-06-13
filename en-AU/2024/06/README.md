@@ -13,3 +13,4 @@
 202406100700|OsakaNight|Osaka at night, Japan (© wichianduangsri/Getty Images)|Info|![](/en-AU/2024/06/202406100700OsakaNight.jpg)|
 202406110700|GemsbokBotswana|Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)|Info|![](/en-AU/2024/06/202406110700GemsbokBotswana.jpg)|
 202406120700|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)|Info|![](/en-AU/2024/06/202406120700BigBendMilkyWay.jpg)|
+202406130700|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Info|![](/en-AU/2024/06/202406130700RegistanUzbekistan.jpg)|
