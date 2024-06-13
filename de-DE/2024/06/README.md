@@ -14,3 +14,4 @@
 202406102200|GemsbokBotswana|Spießbock in der Savanne, Botswana (© Karine Aigner/Tandem Stills + Motion)|Meister der Anpassung|![](/de-DE/2024/06/202406102200GemsbokBotswana.jpg)|
 202406112200|BigBendMilkyWay|Milchstraße über dem Big-Bend-Nationalpark, Texas, USA (© wisanuboonrawd/Adobe Stock)|Ein galaktischer Gig|![](/de-DE/2024/06/202406112200BigBendMilkyWay.jpg)|
 202406122200|RegistanUzbekistan|Mosaik-Fassade auf dem Registan-Platz, Samarkand, Usbekistan (© da-kuk/Getty Images)|Zauberhafte Ziegeln|![](/de-DE/2024/06/202406122200RegistanUzbekistan.jpg)|
+202406132200|PeggysCove|Leuchtturm Peggy’s Point, Nova Scotia, Kanada (© Pugalenthi/Getty Images)|Allein, aber nie einsam|![](/de-DE/2024/06/202406132200PeggysCove.jpg)|
