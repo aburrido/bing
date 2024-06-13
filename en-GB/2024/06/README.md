@@ -15,3 +15,4 @@
 202406112300|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas, USA (© wisanuboonrawd/Adobe Stock)|A galactic gig|![](/en-GB/2024/06/202406112300BigBendMilkyWay.jpg)|
 ||||![](/en-GB/2024/06/.jpg)|
 202406122300|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Tile tales|![](/en-GB/2024/06/202406122300RegistanUzbekistan.jpg)|
+202406132300|PeggysCove|Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)|Alone but never lonely|![](/en-GB/2024/06/202406132300PeggysCove.jpg)|
