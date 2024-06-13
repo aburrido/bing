@@ -13,3 +13,4 @@
 202406110400|GemsbokBotswana|L'oryx gazelle dans la savane, Botswana (© Karine Aigner/Tandem Stills + Motion)|Des animaux uniques|![](/fr-CA/2024/06/202406110400GemsbokBotswana.jpg)|
 202406120400|BigBendMilkyWay|Voie lactée au-dessus du parc national de Big Bend, Texas, États-Unis (© wisanuboonrawd/Adobe Stock)|Un concert galactique|![](/fr-CA/2024/06/202406120400BigBendMilkyWay.jpg)|
 ||||![](/fr-CA/2024/06/.jpg)|
+202406130400|RegistanUzbekistan|Façade en mosaïque sur la place Registan, Samarkand, Ouzbékistan (© da-kuk/Getty Images)|Quelle tuile !|![](/fr-CA/2024/06/202406130400RegistanUzbekistan.jpg)|
