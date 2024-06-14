@@ -15,3 +15,4 @@
 202406120700|BigBendMilkyWay|Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)|A galactic gig|![](/en-US/2024/06/202406120700BigBendMilkyWay.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/en-US/2024/06/201209010700b/LaDigue.jpg)|
 202406130700|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Tile tales|![](/en-US/2024/06/202406130700RegistanUzbekistan.jpg)|
+202406140700|FlagsDC|Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)|Long may it wave|![](/en-US/2024/06/202406140700FlagsDC.jpg)|
