@@ -14,3 +14,4 @@
 202406120400|BigBendMilkyWay|Voie lactée au-dessus du parc national de Big Bend, Texas, États-Unis (© wisanuboonrawd/Adobe Stock)|Un concert galactique|![](/fr-CA/2024/06/202406120400BigBendMilkyWay.jpg)|
 ||||![](/fr-CA/2024/06/.jpg)|
 202406130400|RegistanUzbekistan|Façade en mosaïque sur la place Registan, Samarkand, Ouzbékistan (© da-kuk/Getty Images)|Quelle tuile !|![](/fr-CA/2024/06/202406130400RegistanUzbekistan.jpg)|
+202406140400|PeggysCove|Phare de Peggy's Cove, Nouvelle-Écosse (© Pugalenthi/Getty Images)|Un phare emblématique|![](/fr-CA/2024/06/202406140400PeggysCove.jpg)|
