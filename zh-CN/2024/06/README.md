@@ -16,3 +16,4 @@
 202406121600|RegistanUzbekistan|雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)|瓷砖的故事|![](/zh-CN/2024/06/202406121600RegistanUzbekistan.jpg)|
 201209010700|b/LaDigue|La Digue, an island in the Seychelles (© Oleksandr Dibrova/Adobe Stock)||![](/zh-CN/2024/06/201209010700b/LaDigue.jpg)|
 202406131600|PeggysCove|佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)|孤独，但不寂寞|![](/zh-CN/2024/06/202406131600PeggysCove.jpg)|
+202406141600|NazareWave|在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images)|有志者事竟成|![](/zh-CN/2024/06/202406141600NazareWave.jpg)|
