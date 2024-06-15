@@ -15,3 +15,4 @@
 202406122200|RegistanUzbekistan|Façade en mosaïque sur la place Registan, Samarkand, Ouzbékistan (© da-kuk/Getty Images)|Quelle tuile !|![](/fr-FR/2024/06/202406122200RegistanUzbekistan.jpg)|
 202406132200|PeggysCove|Phare de Peggy's Cove, Nouvelle-Écosse, Canada (© Pugalenthi/Getty Images)|Un phare canadien emblématique|![](/fr-FR/2024/06/202406132200PeggysCove.jpg)|
 202406142200|NazareWave|Surfeur sur une vague à Nazaré, Portugal (© Rui Caria/Getty Images)|En attendant la vague|![](/fr-FR/2024/06/202406142200NazareWave.jpg)|
+202406152200|RedFoxDad|Renard roux mâle et son renardeau, Washington, États-Unis (© Chase Dekker/Minden Pictures)|Maître renard et son petit renardeau|![](/fr-FR/2024/06/202406152200RedFoxDad.jpg)|

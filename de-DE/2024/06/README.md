@@ -16,3 +16,4 @@
 202406122200|RegistanUzbekistan|Mosaik-Fassade auf dem Registan-Platz, Samarkand, Usbekistan (© da-kuk/Getty Images)|Zauberhafte Ziegeln|![](/de-DE/2024/06/202406122200RegistanUzbekistan.jpg)|
 202406132200|PeggysCove|Leuchtturm Peggy’s Point, Nova Scotia, Kanada (© Pugalenthi/Getty Images)|Allein, aber nie einsam|![](/de-DE/2024/06/202406132200PeggysCove.jpg)|
 202406142200|NazareWave|Wellenreiter in Nazaré, Portugal (© Rui Caria/Getty Images)|Die perfekte Welle|![](/de-DE/2024/06/202406142200NazareWave.jpg)|
+202406152200|Ruinenberg|Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)|In der Ruhe liegt die Kraft|![](/de-DE/2024/06/202406152200Ruinenberg.jpg)|
