@@ -16,3 +16,4 @@
 202406121500|RegistanUzbekistan|レギスタン広場, ウズベキスタン (© da-kuk/Getty Images)|精巧な装飾が施されたイスラム建築|![](/ja-JP/2024/06/202406121500RegistanUzbekistan.jpg)|
 202406131500|DhakaBangladesh|首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)|喧騒感に満ち溢れた都市|![](/ja-JP/2024/06/202406131500DhakaBangladesh.jpg)|
 202406141500|NazareWave|ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)|今日は国際サーフィンの日|![](/ja-JP/2024/06/202406141500NazareWave.jpg)|
+202406151500|RedFoxDad|ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)|今日は父の日|![](/ja-JP/2024/06/202406151500RedFoxDad.jpg)|
