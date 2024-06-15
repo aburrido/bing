@@ -15,3 +15,4 @@
 ||||![](/fr-CA/2024/06/.jpg)|
 202406130400|RegistanUzbekistan|Façade en mosaïque sur la place Registan, Samarkand, Ouzbékistan (© da-kuk/Getty Images)|Quelle tuile !|![](/fr-CA/2024/06/202406130400RegistanUzbekistan.jpg)|
 202406140400|PeggysCove|Phare de Peggy's Cove, Nouvelle-Écosse (© Pugalenthi/Getty Images)|Un phare emblématique|![](/fr-CA/2024/06/202406140400PeggysCove.jpg)|
+202406150400|NazareWave|Surfeur sur une vague à Nazaré, Portugal (© Rui Caria/Getty Images)|En attendant la vague|![](/fr-CA/2024/06/202406150400NazareWave.jpg)|
