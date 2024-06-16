@@ -15,3 +15,4 @@
 202406130400|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Tile tales|![](/en-CA/2024/06/202406130400RegistanUzbekistan.jpg)|
 202406140400|PeggysCove|Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)|Alone but never lonely|![](/en-CA/2024/06/202406140400PeggysCove.jpg)|
 202406150400|NazareWave|Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)|Where there's a will, there's a wave|![](/en-CA/2024/06/202406150400NazareWave.jpg)|
+202406160400|RedFoxDad|Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)|This father won't be outfoxed|![](/en-CA/2024/06/202406160400RedFoxDad.jpg)|
