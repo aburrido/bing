@@ -16,3 +16,4 @@
 202406130700|RegistanUzbekistan|Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)|Info|![](/en-AU/2024/06/202406130700RegistanUzbekistan.jpg)|
 202406140700|PeggysCove|Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)|Info|![](/en-AU/2024/06/202406140700PeggysCove.jpg)|
 202406150700|NazareWave|Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)|Info|![](/en-AU/2024/06/202406150700NazareWave.jpg)|
+202406160700|RedFoxDad|Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)|Info|![](/en-AU/2024/06/202406160700RedFoxDad.jpg)|
