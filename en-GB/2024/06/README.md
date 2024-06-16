@@ -18,3 +18,4 @@
 202406132300|PeggysCove|Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)|Alone but never lonely|![](/en-GB/2024/06/202406132300PeggysCove.jpg)|
 202406142300|TroopingTheColourParade|Guards Bands at Horse Guards Parade, London during Trooping the Colour 2014 (© Malcolm Park editorial/Alamy Live News)|Painting the town red|![](/en-GB/2024/06/202406142300TroopingTheColourParade.jpg)|
 202406152300|RedFoxDad|Red fox father and kit, Washington, USA (© Chase Dekker/Minden Pictures)|This father won't be outfoxed|![](/en-GB/2024/06/202406152300RedFoxDad.jpg)|
+202406162300|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Hum-bly yours|![](/en-GB/2024/06/202406162300HummingThistle.jpg)|
