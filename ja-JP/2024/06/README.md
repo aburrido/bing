@@ -17,3 +17,4 @@
 202406131500|DhakaBangladesh|首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)|喧騒感に満ち溢れた都市|![](/ja-JP/2024/06/202406131500DhakaBangladesh.jpg)|
 202406141500|NazareWave|ナザレのビッグウェーブ, ポルトガル (© Rui Caria/Getty Images)|今日は国際サーフィンの日|![](/ja-JP/2024/06/202406141500NazareWave.jpg)|
 202406151500|RedFoxDad|ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)|今日は父の日|![](/ja-JP/2024/06/202406151500RedFoxDad.jpg)|
+202406161500|HummingThistle|ムエルテ山に暮らすハチドリ, コスタリカ (© adrian hepworth/Alamy)|今週は「全米花粉媒介者週間」|![](/ja-JP/2024/06/202406161500HummingThistle.jpg)|
