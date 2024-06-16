@@ -16,3 +16,4 @@
 202406131830|PeggysCove|Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)|Alone but never lonely|![](/en-IN/2024/06/202406131830PeggysCove.jpg)|
 202406141830|NazareWave|Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)|Where there's a will, there's a wave|![](/en-IN/2024/06/202406141830NazareWave.jpg)|
 202406151830|RedFoxDad|Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)|This father won't be outfoxed|![](/en-IN/2024/06/202406151830RedFoxDad.jpg)|
+202406161830|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Spread the pollen|![](/en-IN/2024/06/202406161830HummingThistle.jpg)|
