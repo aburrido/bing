@@ -18,3 +18,4 @@
 202406152200|RedFoxDad|Renard roux mâle et son renardeau, Washington, États-Unis (© Chase Dekker/Minden Pictures)|Maître renard et son petit renardeau|![](/fr-FR/2024/06/202406152200RedFoxDad.jpg)|
 202406162200|FortCigogne|Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)|Gare aux corsaires !|![](/fr-FR/2024/06/202406162200FortCigogne.jpg)|
 202406172200|LupinIceland|Champs de lupins et église au lever du soleil, péninsule de Snæfellsnes, Islande (© Matteo Colombo/Getty Images)|Des lupins sans Arsène !|![](/fr-FR/2024/06/202406172200LupinIceland.jpg)|
+202406182200|CuxhavenTower|Château d'eau à Cuxhaven, Allemagne (© Andreas Vogel/Alamy)|Un monument hors-du-commun|![](/fr-FR/2024/06/202406182200CuxhavenTower.jpg)|

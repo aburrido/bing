@@ -19,3 +19,4 @@
 202406152200|Ruinenberg|Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)|In der Ruhe liegt die Kraft|![](/de-DE/2024/06/202406152200Ruinenberg.jpg)|
 202406162200|HummingThistle|Grünstirn-Brillantkolibri mit Riesendistel, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)|Der goldene Staub des Lebens|![](/de-DE/2024/06/202406162200HummingThistle.jpg)|
 202406172200|LupinIceland|Lupinenfelder und Kirche bei Sonnenaufgang, Snæfellsnes-Halbinsel, Island (© Matteo Colombo/Getty Images)|Himmelsrichtung Sommer|![](/de-DE/2024/06/202406172200LupinIceland.jpg)|
+202406182200|CuxhavenTower|Wasserturm in Cuxhaven, Deutschland (© Andreas Vogel/Alamy)|Ein historisches Denkmal|![](/de-DE/2024/06/202406182200CuxhavenTower.jpg)|
