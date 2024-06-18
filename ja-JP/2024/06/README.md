@@ -19,3 +19,4 @@
 202406151500|RedFoxDad|ギンギツネの親子, 米国 ワシントン州 (© Chase Dekker/Minden Pictures)|今日は父の日|![](/ja-JP/2024/06/202406151500RedFoxDad.jpg)|
 202406161500|HummingThistle|ムエルテ山に暮らすハチドリ, コスタリカ (© adrian hepworth/Alamy)|今週は「全米花粉媒介者週間」|![](/ja-JP/2024/06/202406161500HummingThistle.jpg)|
 202406171500|LupinIceland|スナイフェルス半島, アイスランド (© Matteo Colombo/Getty Images)|ルピナスの花で彩られた島|![](/ja-JP/2024/06/202406171500LupinIceland.jpg)|
+202406181500|FlorenceDuomo|サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)|巨大なドームを持つ司教座聖堂|![](/ja-JP/2024/06/202406181500FlorenceDuomo.jpg)|
