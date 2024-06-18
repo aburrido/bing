@@ -20,3 +20,4 @@
 202406152300|RedFoxDad|Red fox father and kit, Washington, USA (© Chase Dekker/Minden Pictures)|This father won't be outfoxed|![](/en-GB/2024/06/202406152300RedFoxDad.jpg)|
 202406162300|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Hum-bly yours|![](/en-GB/2024/06/202406162300HummingThistle.jpg)|
 202406172300|LupinIceland|Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)|'Lupin' into summer|![](/en-GB/2024/06/202406172300LupinIceland.jpg)|
+202406182300|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee, USA (© Richard Bernabe/Shutterstock)|The road not taken|![](/en-GB/2024/06/202406182300CadesCove.jpg)|
