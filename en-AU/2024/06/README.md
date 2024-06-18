@@ -18,3 +18,4 @@
 202406150700|NazareWave|Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)|Info|![](/en-AU/2024/06/202406150700NazareWave.jpg)|
 202406160700|RedFoxDad|Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)|Info|![](/en-AU/2024/06/202406160700RedFoxDad.jpg)|
 202406170700|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Info|![](/en-AU/2024/06/202406170700HummingThistle.jpg)|
+202406180700|LupinIceland|Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)|Info|![](/en-AU/2024/06/202406180700LupinIceland.jpg)|
