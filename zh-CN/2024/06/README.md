@@ -20,3 +20,4 @@
 202406151600|RedFoxDad|赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)|这位父亲棋高一着|![](/zh-CN/2024/06/202406151600RedFoxDad.jpg)|
 202406161600|HummingThistle|绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)|传播花粉|![](/zh-CN/2024/06/202406161600HummingThistle.jpg)|
 202406171600|LupinIceland|日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)|鲁冰花盛放的夏季|![](/zh-CN/2024/06/202406171600LupinIceland.jpg)|
+202406181600|CuxhavenTower|库克斯港的水塔，德国 (© Andreas Vogel/Alamy)|一座历史古迹|![](/zh-CN/2024/06/202406181600CuxhavenTower.jpg)|
