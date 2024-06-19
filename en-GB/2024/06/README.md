@@ -21,3 +21,4 @@
 202406162300|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Hum-bly yours|![](/en-GB/2024/06/202406162300HummingThistle.jpg)|
 202406172300|LupinIceland|Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)|'Lupin' into summer|![](/en-GB/2024/06/202406172300LupinIceland.jpg)|
 202406182300|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee, USA (© Richard Bernabe/Shutterstock)|The road not taken|![](/en-GB/2024/06/202406182300CadesCove.jpg)|
+202406192300|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the Solstice|![](/en-GB/2024/06/202406192300KokinoMacedonia.jpg)|
