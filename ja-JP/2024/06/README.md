@@ -20,3 +20,4 @@
 202406161500|HummingThistle|ムエルテ山に暮らすハチドリ, コスタリカ (© adrian hepworth/Alamy)|今週は「全米花粉媒介者週間」|![](/ja-JP/2024/06/202406161500HummingThistle.jpg)|
 202406171500|LupinIceland|スナイフェルス半島, アイスランド (© Matteo Colombo/Getty Images)|ルピナスの花で彩られた島|![](/ja-JP/2024/06/202406171500LupinIceland.jpg)|
 202406181500|FlorenceDuomo|サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)|巨大なドームを持つ司教座聖堂|![](/ja-JP/2024/06/202406181500FlorenceDuomo.jpg)|
+202406191500|KokinoMacedonia|コキノ古代天文台, 北マケドニア (© stoimilov/Shutterstock)|明日は夏至|![](/ja-JP/2024/06/202406191500KokinoMacedonia.jpg)|
