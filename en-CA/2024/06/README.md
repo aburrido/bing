@@ -18,3 +18,4 @@
 202406160400|RedFoxDad|Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)|This father won't be outfoxed|![](/en-CA/2024/06/202406160400RedFoxDad.jpg)|
 202406170400|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Spread the pollen|![](/en-CA/2024/06/202406170400HummingThistle.jpg)|
 202406180400|LupinIceland|Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)|'Lupin' into summer|![](/en-CA/2024/06/202406180400LupinIceland.jpg)|
+202406190400|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Spot-on connection|![](/en-CA/2024/06/202406190400LewaGiraffe.jpg)|

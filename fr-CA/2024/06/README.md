@@ -19,3 +19,4 @@
 202406160400|RedFoxDad|Renard roux mâle et son renardeau, Washington, États-Unis (© Chase Dekker/Minden Pictures)|Maître renard et son petit renardeau|![](/fr-CA/2024/06/202406160400RedFoxDad.jpg)|
 202406170400|HummingThistle|Colibri Brillant fer-de-lance près d’un chardon aux ânes, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|La pollinisation sème la vie et la biodiversité|![](/fr-CA/2024/06/202406170400HummingThistle.jpg)|
 202406180400|LupinIceland|Champs de lupins et église au lever du soleil, péninsule de Snæfellsnes, Islande (© Matteo Colombo/Getty Images)|Des lupins sans Arsène!|![](/fr-CA/2024/06/202406180400LupinIceland.jpg)|
+202406190400|CuxhavenTower|Château d'eau à Cuxhaven, Allemagne (© Andreas Vogel/Alamy)|Un monument hors-du-commun|![](/fr-CA/2024/06/202406190400CuxhavenTower.jpg)|
