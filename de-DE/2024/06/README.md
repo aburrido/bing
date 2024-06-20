@@ -21,3 +21,4 @@
 202406172200|LupinIceland|Lupinenfelder und Kirche bei Sonnenaufgang, Snæfellsnes-Halbinsel, Island (© Matteo Colombo/Getty Images)|Himmelsrichtung Sommer|![](/de-DE/2024/06/202406172200LupinIceland.jpg)|
 202406182200|CuxhavenTower|Wasserturm in Cuxhaven, Deutschland (© Andreas Vogel/Alamy)|Ein historisches Denkmal|![](/de-DE/2024/06/202406182200CuxhavenTower.jpg)|
 202406192200|KokinoMacedonia|Kokino, ein antikes megalithisches Observatorium, Nordmazedonien (© stoimilov/Shutterstock)|Sonnenaufgang bei Sonnenwende|![](/de-DE/2024/06/202406192200KokinoMacedonia.jpg)|
+202406202200|LewaGiraffe|Netzgiraffenmutter begrüßt ihr Kalb, Lewa Wildlife Conservancy, Kenia (© Sean Crane/Minden Pictures)|Verbindungspunkte|![](/de-DE/2024/06/202406202200LewaGiraffe.jpg)|
