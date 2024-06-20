@@ -22,3 +22,4 @@
 202406180700|LupinIceland|Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)|'Lupin' into summer|![](/en-US/2024/06/202406180700LupinIceland.jpg)|
 202406190700|LawrenceMosaic|Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)|Happy Juneteenth!|![](/en-US/2024/06/202406190700LawrenceMosaic.jpg)|
 ||||![](/en-US/2024/06/.jpg)|
+202406200700|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the solstice|![](/en-US/2024/06/202406200700KokinoMacedonia.jpg)|

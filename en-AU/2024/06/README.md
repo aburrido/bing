@@ -20,3 +20,4 @@
 202406170700|HummingThistle|Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)|Info|![](/en-AU/2024/06/202406170700HummingThistle.jpg)|
 202406180700|LupinIceland|Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)|Info|![](/en-AU/2024/06/202406180700LupinIceland.jpg)|
 202406190700|CuxhavenTower|Water tower in Cuxhaven, Germany (© Andreas Vogel/Alamy)|Info|![](/en-AU/2024/06/202406190700CuxhavenTower.jpg)|
+202406200700|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Info|![](/en-AU/2024/06/202406200700KokinoMacedonia.jpg)|
