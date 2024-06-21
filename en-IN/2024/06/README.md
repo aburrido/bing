@@ -21,3 +21,4 @@
 202406181830|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Spot-on connection|![](/en-IN/2024/06/202406181830LewaGiraffe.jpg)|
 202406191830|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the Solstice|![](/en-IN/2024/06/202406191830KokinoMacedonia.jpg)|
 202406201830|RishikeshYoga|Rishikesh at night (© Andrey Khrobostov/Alamy Stock Photo)|Meditate and navigate|![](/en-IN/2024/06/202406201830RishikeshYoga.jpg)|
+202406211830|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-IN/2024/06/202406211830BrazilRainforest.jpg)|
