@@ -21,3 +21,4 @@
 202406180400|LupinIceland|Champs de lupins et église au lever du soleil, péninsule de Snæfellsnes, Islande (© Matteo Colombo/Getty Images)|Des lupins sans Arsène!|![](/fr-CA/2024/06/202406180400LupinIceland.jpg)|
 202406190400|CuxhavenTower|Château d'eau à Cuxhaven, Allemagne (© Andreas Vogel/Alamy)|Un monument hors-du-commun|![](/fr-CA/2024/06/202406190400CuxhavenTower.jpg)|
 202406200400|KokinoMacedonia|Kokino, ancien observatoire mégalithique, Macédoine du Nord (© stoimilov/Shutterstock)|Un lever de soleil à ne pas rater!|![](/fr-CA/2024/06/202406200400KokinoMacedonia.jpg)|
+202406210400|IndPeopleDay|Musée canadien de l’histoire (© Inspired By Maps/Shutterstock)|Célébrons la richesse des cultures autochtones!|![](/fr-CA/2024/06/202406210400IndPeopleDay.jpg)|
