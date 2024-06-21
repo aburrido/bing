@@ -23,3 +23,4 @@
 202406182300|CadesCove|Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee, USA (© Richard Bernabe/Shutterstock)|The road not taken|![](/en-GB/2024/06/202406182300CadesCove.jpg)|
 202406192300|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the Solstice|![](/en-GB/2024/06/202406192300KokinoMacedonia.jpg)|
 202406202300|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Who's sharing a cuddly hello?|![](/en-GB/2024/06/202406202300LewaGiraffe.jpg)|
+202406212300|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-GB/2024/06/202406212300BrazilRainforest.jpg)|
