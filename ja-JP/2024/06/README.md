@@ -22,3 +22,4 @@
 202406181500|FlorenceDuomo|サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)|巨大なドームを持つ司教座聖堂|![](/ja-JP/2024/06/202406181500FlorenceDuomo.jpg)|
 202406191500|KokinoMacedonia|コキノ古代天文台, 北マケドニア (© stoimilov/Shutterstock)|明日は夏至|![](/ja-JP/2024/06/202406191500KokinoMacedonia.jpg)|
 202406201500|LewaGiraffe|レワ野生生物保護区, ケニア (© Sean Crane/Minden Pictures)|今日は世界キリンの日|![](/ja-JP/2024/06/202406201500LewaGiraffe.jpg)|
+202406211500|BrazilRainforest|アマゾン熱帯雨林, ブラジル (© Claus Meyer/plainpicture)|今日は世界熱帯雨林の日|![](/ja-JP/2024/06/202406211500BrazilRainforest.jpg)|
