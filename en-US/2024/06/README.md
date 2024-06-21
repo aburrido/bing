@@ -23,3 +23,4 @@
 202406190700|LawrenceMosaic|Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)|Happy Juneteenth!|![](/en-US/2024/06/202406190700LawrenceMosaic.jpg)|
 ||||![](/en-US/2024/06/.jpg)|
 202406200700|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the solstice|![](/en-US/2024/06/202406200700KokinoMacedonia.jpg)|
+202406210700|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Spot-on connection|![](/en-US/2024/06/202406210700LewaGiraffe.jpg)|
