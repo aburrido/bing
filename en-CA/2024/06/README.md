@@ -21,3 +21,4 @@
 202406190400|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Spot-on connection|![](/en-CA/2024/06/202406190400LewaGiraffe.jpg)|
 202406200400|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the Solstice|![](/en-CA/2024/06/202406200400KokinoMacedonia.jpg)|
 202406210400|IndPeopleDay|Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)|Happy Indigenous Day!|![](/en-CA/2024/06/202406210400IndPeopleDay.jpg)|
+202406220400|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-CA/2024/06/202406220400BrazilRainforest.jpg)|
