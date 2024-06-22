@@ -22,3 +22,4 @@
 202406190700|CuxhavenTower|Water tower in Cuxhaven, Germany (© Andreas Vogel/Alamy)|Info|![](/en-AU/2024/06/202406190700CuxhavenTower.jpg)|
 202406200700|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Info|![](/en-AU/2024/06/202406200700KokinoMacedonia.jpg)|
 202406210700|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Info|![](/en-AU/2024/06/202406210700LewaGiraffe.jpg)|
+202406220700|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Info|![](/en-AU/2024/06/202406220700BrazilRainforest.jpg)|
