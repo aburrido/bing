@@ -22,3 +22,4 @@
 202406192200|KokinoMacedonia|Kokino, ancien observatoire mégalithique, Macédoine du Nord (© stoimilov/Shutterstock)|Le jour le plus long|![](/fr-FR/2024/06/202406192200KokinoMacedonia.jpg)|
 202406202200|MusicDayToulouse|Pont-Neuf à Toulouse (© benkrut/Getty Images)|Toulouse au diapason|![](/fr-FR/2024/06/202406202200MusicDayToulouse.jpg)|
 202406212200|BrazilRainforest|Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)|Se perdre dans la brume|![](/fr-FR/2024/06/202406212200BrazilRainforest.jpg)|
+202406222200|DhakaBangladesh|Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Lumières de la ville|![](/fr-FR/2024/06/202406222200DhakaBangladesh.jpg)|
