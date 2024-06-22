@@ -22,3 +22,4 @@
 202406191830|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the Solstice|![](/en-IN/2024/06/202406191830KokinoMacedonia.jpg)|
 202406201830|RishikeshYoga|Rishikesh at night (© Andrey Khrobostov/Alamy Stock Photo)|Meditate and navigate|![](/en-IN/2024/06/202406201830RishikeshYoga.jpg)|
 202406211830|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-IN/2024/06/202406211830BrazilRainforest.jpg)|
+202406221830|DhakaBangladesh|Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-IN/2024/06/202406221830DhakaBangladesh.jpg)|
