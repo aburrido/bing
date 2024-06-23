@@ -25,3 +25,4 @@
 202406200700|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the solstice|![](/en-US/2024/06/202406200700KokinoMacedonia.jpg)|
 202406210700|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Spot-on connection|![](/en-US/2024/06/202406210700LewaGiraffe.jpg)|
 202406220700|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-US/2024/06/202406220700BrazilRainforest.jpg)|
+202406230700|DhakaBangladesh|Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-US/2024/06/202406230700DhakaBangladesh.jpg)|
