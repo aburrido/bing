@@ -25,3 +25,4 @@
 202406202300|LewaGiraffe|Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)|Who's sharing a cuddly hello?|![](/en-GB/2024/06/202406202300LewaGiraffe.jpg)|
 202406212300|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-GB/2024/06/202406212300BrazilRainforest.jpg)|
 202406222300|DhakaBangladesh|Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-GB/2024/06/202406222300DhakaBangladesh.jpg)|
+202406232300|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The views will blue your mind|![](/en-GB/2024/06/202406232300FloresIsland.jpg)|
