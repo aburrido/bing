@@ -23,3 +23,4 @@
 202406200400|KokinoMacedonia|Kokino, ancien observatoire mégalithique, Macédoine du Nord (© stoimilov/Shutterstock)|Un lever de soleil à ne pas rater!|![](/fr-CA/2024/06/202406200400KokinoMacedonia.jpg)|
 202406210400|IndPeopleDay|Musée canadien de l’histoire (© Inspired By Maps/Shutterstock)|Célébrons la richesse des cultures autochtones!|![](/fr-CA/2024/06/202406210400IndPeopleDay.jpg)|
 202406220400|BrazilRainforest|Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)|Se perdre dans la brume|![](/fr-CA/2024/06/202406220400BrazilRainforest.jpg)|
+202406230400|DhakaBangladesh|Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Lumières de la ville|![](/fr-CA/2024/06/202406230400DhakaBangladesh.jpg)|

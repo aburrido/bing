@@ -22,3 +22,4 @@
 202406200400|KokinoMacedonia|Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)|Sunrise on the Solstice|![](/en-CA/2024/06/202406200400KokinoMacedonia.jpg)|
 202406210400|IndPeopleDay|Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)|Happy Indigenous Day!|![](/en-CA/2024/06/202406210400IndPeopleDay.jpg)|
 202406220400|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-CA/2024/06/202406220400BrazilRainforest.jpg)|
+202406230400|DhakaBangladesh|Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-CA/2024/06/202406230400DhakaBangladesh.jpg)|
