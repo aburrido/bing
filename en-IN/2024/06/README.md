@@ -23,3 +23,4 @@
 202406201830|RishikeshYoga|Rishikesh at night (© Andrey Khrobostov/Alamy Stock Photo)|Meditate and navigate|![](/en-IN/2024/06/202406201830RishikeshYoga.jpg)|
 202406211830|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-IN/2024/06/202406211830BrazilRainforest.jpg)|
 202406221830|DhakaBangladesh|Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-IN/2024/06/202406221830DhakaBangladesh.jpg)|
+202406231830|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The views will blue your mind|![](/en-IN/2024/06/202406231830FloresIsland.jpg)|
