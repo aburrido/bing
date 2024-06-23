@@ -24,3 +24,4 @@
 202406201500|LewaGiraffe|レワ野生生物保護区, ケニア (© Sean Crane/Minden Pictures)|今日は世界キリンの日|![](/ja-JP/2024/06/202406201500LewaGiraffe.jpg)|
 202406211500|BrazilRainforest|アマゾン熱帯雨林, ブラジル (© Claus Meyer/plainpicture)|今日は世界熱帯雨林の日|![](/ja-JP/2024/06/202406211500BrazilRainforest.jpg)|
 202406221500|Lavender2024|湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)|ラベンダーのシーズン|![](/ja-JP/2024/06/202406221500Lavender2024.jpg)|
+202406231500|FloresIsland|クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)|三色の火口湖を持つ火山|![](/ja-JP/2024/06/202406231500FloresIsland.jpg)|
