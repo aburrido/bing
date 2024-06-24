@@ -26,3 +26,4 @@
 202406211600|BrazilRainforest|亚马逊雨林，巴西 (© Claus Meyer/plainpicture)|迷失在迷雾之中|![](/zh-CN/2024/06/202406211600BrazilRainforest.jpg)|
 202406221600|DhakaBangladesh|达卡环形交叉路口的鸟瞰图，孟加拉国 (© Azim Khan Ronnie/Amazing Aerial Agency)|漆黑的夜晚，城市的灯光|![](/zh-CN/2024/06/202406221600DhakaBangladesh.jpg)|
 202406231600|FloresIsland|克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures)|让人心旷神怡的美景|![](/zh-CN/2024/06/202406231600FloresIsland.jpg)|
+202406241600|FireWave|火浪岩层，火焰谷州立公园，内华达州，美国 (© Clint Losee/Tandem Stills + Motion)|拍出炫酷照片的好地方|![](/zh-CN/2024/06/202406241600FireWave.jpg)|
