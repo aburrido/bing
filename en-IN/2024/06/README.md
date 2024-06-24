@@ -24,3 +24,4 @@
 202406211830|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-IN/2024/06/202406211830BrazilRainforest.jpg)|
 202406221830|DhakaBangladesh|Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-IN/2024/06/202406221830DhakaBangladesh.jpg)|
 202406231830|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The views will blue your mind|![](/en-IN/2024/06/202406231830FloresIsland.jpg)|
+202406241830|FireWave|The Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)|Hot spot for a cool photo|![](/en-IN/2024/06/202406241830FireWave.jpg)|
