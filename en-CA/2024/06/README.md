@@ -23,3 +23,4 @@
 202406210400|IndPeopleDay|Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)|Happy Indigenous Day!|![](/en-CA/2024/06/202406210400IndPeopleDay.jpg)|
 202406220400|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-CA/2024/06/202406220400BrazilRainforest.jpg)|
 202406230400|DhakaBangladesh|Aerial view of a roundabout in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-CA/2024/06/202406230400DhakaBangladesh.jpg)|
+202406240400|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The views will blue your mind|![](/en-CA/2024/06/202406240400FloresIsland.jpg)|
