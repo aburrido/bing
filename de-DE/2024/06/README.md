@@ -25,3 +25,4 @@
 202406212200|BrazilRainforest|Amazonas-Regenwald, Brasilien (© Claus Meyer/plainpicture)|Nebelzüge|![](/de-DE/2024/06/202406212200BrazilRainforest.jpg)|
 202406222200|DhakaBangladesh|Luftaufnahme eines Verkehrskreisels in Dhaka, Bangladesch (© Azim Khan Ronnie/Amazing Aerial Agency)|Lichter der Stadt in dunkler Nacht|![](/de-DE/2024/06/202406222200DhakaBangladesh.jpg)|
 202406232200|FloresIsland|Vulkanische Kraterseen auf Kelimutu, Flores, Indonesien (© Shane P. White/Minden Pictures)|Eine atemberaubende Aussicht|![](/de-DE/2024/06/202406232200FloresIsland.jpg)|
+202406242200|FireWave|Die Felsformation Fire Wave, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)|Zu heiß zum surfen, „cool“ zum Fotografieren|![](/de-DE/2024/06/202406242200FireWave.jpg)|
