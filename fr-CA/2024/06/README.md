@@ -25,3 +25,4 @@
 202406220400|BrazilRainforest|Forêt amazonienne, Brésil (© Claus Meyer/plainpicture)|Se perdre dans la brume|![](/fr-CA/2024/06/202406220400BrazilRainforest.jpg)|
 202406230400|DhakaBangladesh|Vue aérienne d'un rond-point à Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Lumières de la ville|![](/fr-CA/2024/06/202406230400DhakaBangladesh.jpg)|
 202406240400|FloresIsland|Lacs de cratères volcaniques, volvan Kelimutu, Flores, Indonésie (© Shane P. White/Minden Pictures)|Trois lacs pour le prix d’un!|![](/fr-CA/2024/06/202406240400FloresIsland.jpg)|
+202406250400|FireWave|Formation rocheuse Fire Wave, parc d'État de Valley of Fire, Nevada, États-Unis (© Clint Losee/Tandem Stills + Motion)|Chaud devant!|![](/fr-CA/2024/06/202406250400FireWave.jpg)|
