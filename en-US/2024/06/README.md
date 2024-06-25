@@ -27,3 +27,4 @@
 202406220700|BrazilRainforest|Amazon rainforest, Brazil (© Claus Meyer/plainpicture)|Getting lost in the mist|![](/en-US/2024/06/202406220700BrazilRainforest.jpg)|
 202406230700|DhakaBangladesh|Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-US/2024/06/202406230700DhakaBangladesh.jpg)|
 202406240700|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The sacred lakes of Kelimutu|![](/en-US/2024/06/202406240700FloresIsland.jpg)|
+202406250700|FireWave|Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)|Flowing through Valley of Fire|![](/en-US/2024/06/202406250700FireWave.jpg)|
