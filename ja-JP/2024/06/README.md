@@ -26,3 +26,4 @@
 202406221500|Lavender2024|湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)|ラベンダーのシーズン|![](/ja-JP/2024/06/202406221500Lavender2024.jpg)|
 202406231500|FloresIsland|クリムトゥ山, インドネシア (© Shane P. White/Minden Pictures)|三色の火口湖を持つ火山|![](/ja-JP/2024/06/202406231500FloresIsland.jpg)|
 202406241500|FireWave|バレー・オブ・ファイアー州立公園, 米国 ネバダ州 (© Clint Losee/Tandem Stills + Motion)|渦巻くような地層|![](/ja-JP/2024/06/202406241500FireWave.jpg)|
+202406251500|SpringCaveDale|ペヴリル城, イングランド (© James Osmond/Alamy)|丘の上に建つ中世の城|![](/ja-JP/2024/06/202406251500SpringCaveDale.jpg)|
