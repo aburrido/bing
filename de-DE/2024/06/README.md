@@ -26,3 +26,4 @@
 202406222200|DhakaBangladesh|Luftaufnahme eines Verkehrskreisels in Dhaka, Bangladesch (© Azim Khan Ronnie/Amazing Aerial Agency)|Lichter der Stadt in dunkler Nacht|![](/de-DE/2024/06/202406222200DhakaBangladesh.jpg)|
 202406232200|FloresIsland|Vulkanische Kraterseen auf Kelimutu, Flores, Indonesien (© Shane P. White/Minden Pictures)|Eine atemberaubende Aussicht|![](/de-DE/2024/06/202406232200FloresIsland.jpg)|
 202406242200|FireWave|Die Felsformation Fire Wave, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)|Zu heiß zum surfen, „cool“ zum Fotografieren|![](/de-DE/2024/06/202406242200FireWave.jpg)|
+202406252200|CardinalfishAnemone|Junger Banggai Kardinalbarsch mit Seeanemone, Lembeh Strait, Nordsulawesi, Indonesien (© Constantinos Petrinos/NPL/Minden Pictures)|Tolle Streifen!|![](/de-DE/2024/06/202406252200CardinalfishAnemone.jpg)|
