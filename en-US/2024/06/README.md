@@ -28,3 +28,4 @@
 202406230700|DhakaBangladesh|Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Dark night, city lights|![](/en-US/2024/06/202406230700DhakaBangladesh.jpg)|
 202406240700|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The sacred lakes of Kelimutu|![](/en-US/2024/06/202406240700FloresIsland.jpg)|
 202406250700|FireWave|Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)|Flowing through Valley of Fire|![](/en-US/2024/06/202406250700FireWave.jpg)|
+202406260700|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-US/2024/06/202406260700CardinalfishAnemone.jpg)|
