@@ -27,3 +27,4 @@
 202406240400|FloresIsland|Lacs de cratères volcaniques, volvan Kelimutu, Flores, Indonésie (© Shane P. White/Minden Pictures)|Trois lacs pour le prix d’un!|![](/fr-CA/2024/06/202406240400FloresIsland.jpg)|
 202406250400|FireWave|Formation rocheuse Fire Wave, parc d'État de Valley of Fire, Nevada, États-Unis (© Clint Losee/Tandem Stills + Motion)|Chaud devant!|![](/fr-CA/2024/06/202406250400FireWave.jpg)|
 202406260400|CardinalfishAnemone|Poisson cardinal de Banggai et anémone de mer, détroit de Lembeh, Sulawesi du Nord, Indonésie (© Constantinos Petrinos/NPL/Minden Pictures)|Nager comme un poisson dans l’eau!|![](/fr-CA/2024/06/202406260400CardinalfishAnemone.jpg)|
+202406270400|FlorenceDuomo|Cathédrale Santa Maria del Fiore au crépuscule, Florence, Italie (© Elena Pueyo/Getty Images)|Dim, dam, dôme|![](/fr-CA/2024/06/202406270400FlorenceDuomo.jpg)|

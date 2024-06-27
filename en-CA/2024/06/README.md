@@ -26,3 +26,4 @@
 202406240400|FloresIsland|Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)|The views will blue your mind|![](/en-CA/2024/06/202406240400FloresIsland.jpg)|
 202406250400|FireWave|The Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)|Hot spot for a cool photo|![](/en-CA/2024/06/202406250400FireWave.jpg)|
 202406260400|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-CA/2024/06/202406260400CardinalfishAnemone.jpg)|
+202406270400|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-CA/2024/06/202406270400FlorenceDuomo.jpg)|
