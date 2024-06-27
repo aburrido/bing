@@ -28,3 +28,4 @@
 202406242200|FireWave|Die Felsformation Fire Wave, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)|Zu heiß zum surfen, „cool“ zum Fotografieren|![](/de-DE/2024/06/202406242200FireWave.jpg)|
 202406252200|CardinalfishAnemone|Junger Banggai Kardinalbarsch mit Seeanemone, Lembeh Strait, Nordsulawesi, Indonesien (© Constantinos Petrinos/NPL/Minden Pictures)|Tolle Streifen!|![](/de-DE/2024/06/202406252200CardinalfishAnemone.jpg)|
 202406262200|FlorenceDuomo|Dom Santa Maria del Fiore in der Abenddämmerung, Florenz, Italien (© Elena Pueyo/Getty Images)|Kuppeln, überall Kuppeln|![](/de-DE/2024/06/202406262200FlorenceDuomo.jpg)|
+202406272200|AllianzArena|Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)|Liebe ist Liebe|![](/de-DE/2024/06/202406272200AllianzArena.jpg)|
