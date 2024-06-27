@@ -28,3 +28,4 @@
 202406251830|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-IN/2024/06/202406251830CardinalfishAnemone.jpg)|
 202406261830|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-IN/2024/06/202406261830FlorenceDuomo.jpg)|
 ||||![](/en-IN/2024/06/.jpg)|
+202406271830|ChristopherPark|Pride flags at Christopher Street Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)|The pride of New York City|![](/en-IN/2024/06/202406271830ChristopherPark.jpg)|
