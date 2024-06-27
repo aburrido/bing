@@ -27,3 +27,4 @@
 202406241830|FireWave|The Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)|Hot spot for a cool photo|![](/en-IN/2024/06/202406241830FireWave.jpg)|
 202406251830|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-IN/2024/06/202406251830CardinalfishAnemone.jpg)|
 202406261830|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-IN/2024/06/202406261830FlorenceDuomo.jpg)|
+||||![](/en-IN/2024/06/.jpg)|
