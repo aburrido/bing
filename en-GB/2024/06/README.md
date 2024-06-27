@@ -29,3 +29,4 @@
 202406242300|FireWave|The Fire Wave rock formation, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)|Hot spot for a cool photo|![](/en-GB/2024/06/202406242300FireWave.jpg)|
 202406252300|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-GB/2024/06/202406252300CardinalfishAnemone.jpg)|
 202406262300|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-GB/2024/06/202406262300FlorenceDuomo.jpg)|
+202406272300|ChristopherPark|Pride flags at Christopher Street Park, Stonewall National Monument, New York City, USA (© Noam Galai/Getty Images)|Once upon a Pride|![](/en-GB/2024/06/202406272300ChristopherPark.jpg)|
