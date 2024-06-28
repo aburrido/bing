@@ -29,3 +29,4 @@
 202406251500|SpringCaveDale|ペヴリル城, イングランド (© James Osmond/Alamy)|丘の上に建つ中世の城|![](/ja-JP/2024/06/202406251500SpringCaveDale.jpg)|
 202406261500|Ayame2024|菖蒲, 山形県 長井市 (© gyro/Getty Images)|紫や白の花を咲かせる多年草|![](/ja-JP/2024/06/202406261500Ayame2024.jpg)|
 202406271500|ChristopherPark|クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)|「ストーンウォールの反乱」から 55 年|![](/ja-JP/2024/06/202406271500ChristopherPark.jpg)|
+202406281500|TourCorsica|コルシカ島のサイクリストたち, フランス (© Pascal Pochard-Casabianca/AFP via Getty Images)|ツール・ド・フランスが今日から開幕|![](/ja-JP/2024/06/202406281500TourCorsica.jpg)|
