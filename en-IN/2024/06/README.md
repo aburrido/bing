@@ -29,3 +29,4 @@
 202406261830|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-IN/2024/06/202406261830FlorenceDuomo.jpg)|
 ||||![](/en-IN/2024/06/.jpg)|
 202406271830|ChristopherPark|Pride flags at Christopher Street Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)|The pride of New York City|![](/en-IN/2024/06/202406271830ChristopherPark.jpg)|
+202406281830|TourCorsica|Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)|Corsican win this race|![](/en-IN/2024/06/202406281830TourCorsica.jpg)|
