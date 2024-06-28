@@ -30,3 +30,4 @@
 202406250700|FireWave|Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)|Flowing through Valley of Fire|![](/en-US/2024/06/202406250700FireWave.jpg)|
 202406260700|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-US/2024/06/202406260700CardinalfishAnemone.jpg)|
 202406270700|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-US/2024/06/202406270700FlorenceDuomo.jpg)|
+202406280700|ChristopherPark|Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)|The pride of New York City|![](/en-US/2024/06/202406280700ChristopherPark.jpg)|
