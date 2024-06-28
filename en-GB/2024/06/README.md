@@ -30,3 +30,4 @@
 202406252300|CardinalfishAnemone|Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)|Stripe-tacular!|![](/en-GB/2024/06/202406252300CardinalfishAnemone.jpg)|
 202406262300|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-GB/2024/06/202406262300FlorenceDuomo.jpg)|
 202406272300|ChristopherPark|Pride flags at Christopher Street Park, Stonewall National Monument, New York City, USA (© Noam Galai/Getty Images)|Once upon a Pride|![](/en-GB/2024/06/202406272300ChristopherPark.jpg)|
+202406282300|LondonPride2024|London Eye lit up with the rainbow colours during Pride Night (© Dosfotos/Axiom/Design Pics Inc/Alamy Stock Photo)|From London Eye to London Pride|![](/en-GB/2024/06/202406282300LondonPride2024.jpg)|
