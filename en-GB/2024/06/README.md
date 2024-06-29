@@ -31,3 +31,4 @@
 202406262300|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-GB/2024/06/202406262300FlorenceDuomo.jpg)|
 202406272300|ChristopherPark|Pride flags at Christopher Street Park, Stonewall National Monument, New York City, USA (© Noam Galai/Getty Images)|Once upon a Pride|![](/en-GB/2024/06/202406272300ChristopherPark.jpg)|
 202406282300|LondonPride2024|London Eye lit up with the rainbow colours during Pride Night (© Dosfotos/Axiom/Design Pics Inc/Alamy Stock Photo)|From London Eye to London Pride|![](/en-GB/2024/06/202406282300LondonPride2024.jpg)|
+202406292300|UbudBali|Stone carving at a temple in Ubud, Bali, Indonesia (© R. SchönebStone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)aum/plainpicture)|You won't forget 'Ubud' it!|![](/en-GB/2024/06/202406292300UbudBali.jpg)|
