@@ -29,3 +29,4 @@
 202406260400|CardinalfishAnemone|Poisson cardinal de Banggai et anémone de mer, détroit de Lembeh, Sulawesi du Nord, Indonésie (© Constantinos Petrinos/NPL/Minden Pictures)|Nager comme un poisson dans l’eau!|![](/fr-CA/2024/06/202406260400CardinalfishAnemone.jpg)|
 202406270400|FlorenceDuomo|Cathédrale Santa Maria del Fiore au crépuscule, Florence, Italie (© Elena Pueyo/Getty Images)|Dim, dam, dôme|![](/fr-CA/2024/06/202406270400FlorenceDuomo.jpg)|
 202406280400|ChristopherPark|Drapeaux de la fierté au parc Christopher Street, monument national de Stonewall, New York, États-Unis (© Noam Galai/Getty Images)|La fierté de la ville de New York|![](/fr-CA/2024/06/202406280400ChristopherPark.jpg)|
+202406290400|TourCorsica|Cyclistes du Tour de France 2013, Corse (© Pascal Pochard-Casabianca/AFP via Getty Images)|La chasse au maillot jaune est ouverte!|![](/fr-CA/2024/06/202406290400TourCorsica.jpg)|
