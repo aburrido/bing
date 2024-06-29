@@ -31,3 +31,4 @@
 202406261600|FlorenceDuomo|黄昏时分的圣母百花大教堂，佛罗伦萨，意大利 (© Elena Pueyo/Getty Images)|“甜蜜的”穹顶|![](/zh-CN/2024/06/202406261600FlorenceDuomo.jpg)|
 202406271600|ChauseyIslands|诺曼底海岸的绍塞群岛，法国 (© Tuul & Bruno Morandi/Getty Images)|最具加勒比海风情的海岛|![](/zh-CN/2024/06/202406271600ChauseyIslands.jpg)|
 202406281600|NienhagenMecklenburg|宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)|只见树木，不见森林|![](/zh-CN/2024/06/202406281600NienhagenMecklenburg.jpg)|
+202406291600|UbudBali|乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)|你不会忘记它的！|![](/zh-CN/2024/06/202406291600UbudBali.jpg)|
