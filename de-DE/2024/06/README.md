@@ -30,3 +30,4 @@
 202406262200|FlorenceDuomo|Dom Santa Maria del Fiore in der Abenddämmerung, Florenz, Italien (© Elena Pueyo/Getty Images)|Kuppeln, überall Kuppeln|![](/de-DE/2024/06/202406262200FlorenceDuomo.jpg)|
 202406272200|AllianzArena|Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)|Liebe ist Liebe|![](/de-DE/2024/06/202406272200AllianzArena.jpg)|
 202406282200|TourCorsica|Radsportler bei der Tour de France 2013, Korsika, Frankreich (© Pascal Pochard-Casabianca/AFP via Getty Images)|Korsika gewinnt das Rennen|![](/de-DE/2024/06/202406282200TourCorsica.jpg)|
+202406292200|UbudBali|Steinmetzarbeiten in einem Tempel in Ubud, Bali, Indonesien (© R. Schönebaum/plainpicture)|Mythische Steingeschöpfe|![](/de-DE/2024/06/202406292200UbudBali.jpg)|

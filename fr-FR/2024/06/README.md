@@ -29,3 +29,4 @@
 202406262200|FlorenceDuomo|Cathédrale Santa Maria del Fiore au crépuscule, Florence, Italie (© Elena Pueyo/Getty Images)|Dim, dam, dôme|![](/fr-FR/2024/06/202406262200FlorenceDuomo.jpg)|
 202406272200|ParisPrideParade|Drapeau arc-en-ciel brandi devant la tour Eiffel lors de la marche des fiertés (© Yuriko Nakao/Getty Images)|Célébrons l’amour et la diversité|![](/fr-FR/2024/06/202406272200ParisPrideParade.jpg)|
 202406282200|TourCorsica|Cyclistes du Tour de France 2013, Corse (© Pascal Pochard-Casabianca/AFP via Getty Images)|La chasse au maillot jaune est ouverte !|![](/fr-FR/2024/06/202406282200TourCorsica.jpg)|
+202406292200|UbudBali|Sculpture sur pierre dans un temple à Ubud, Bali, Indonésie (© R. Schönebaum/plainpicture)|Ubud, l’oasis spirituelle de Bali|![](/fr-FR/2024/06/202406292200UbudBali.jpg)|
