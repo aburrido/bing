@@ -32,3 +32,4 @@
 202406271600|ChauseyIslands|诺曼底海岸的绍塞群岛，法国 (© Tuul & Bruno Morandi/Getty Images)|最具加勒比海风情的海岛|![](/zh-CN/2024/06/202406271600ChauseyIslands.jpg)|
 202406281600|NienhagenMecklenburg|宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)|只见树木，不见森林|![](/zh-CN/2024/06/202406281600NienhagenMecklenburg.jpg)|
 202406291600|UbudBali|乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)|你不会忘记它的！|![](/zh-CN/2024/06/202406291600UbudBali.jpg)|
+202406301600|FisgardLighthouse|菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大 (© davemantel/Getty Images)|为加拿大干杯|![](/zh-CN/2024/06/202406301600FisgardLighthouse.jpg)|
