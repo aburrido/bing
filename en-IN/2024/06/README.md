@@ -31,3 +31,4 @@
 202406271830|ChristopherPark|Pride flags at Christopher Street Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)|The pride of New York City|![](/en-IN/2024/06/202406271830ChristopherPark.jpg)|
 202406281830|TourCorsica|Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)|Corsican win this race|![](/en-IN/2024/06/202406281830TourCorsica.jpg)|
 202406291830|UbudBali|Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)|You won't forget 'Ubud' it!|![](/en-IN/2024/06/202406291830UbudBali.jpg)|
+202406301830|FisgardLighthouse|Fisgard Lighthouse, Esquimalt Harbour, Colwood, British Columbia, Canada (© davemantel/Getty Images)|House of lights|![](/en-IN/2024/06/202406301830FisgardLighthouse.jpg)|
