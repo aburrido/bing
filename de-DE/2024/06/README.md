@@ -31,3 +31,4 @@
 202406272200|AllianzArena|Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)|Liebe ist Liebe|![](/de-DE/2024/06/202406272200AllianzArena.jpg)|
 202406282200|TourCorsica|Radsportler bei der Tour de France 2013, Korsika, Frankreich (© Pascal Pochard-Casabianca/AFP via Getty Images)|Korsika gewinnt das Rennen|![](/de-DE/2024/06/202406282200TourCorsica.jpg)|
 202406292200|UbudBali|Steinmetzarbeiten in einem Tempel in Ubud, Bali, Indonesien (© R. Schönebaum/plainpicture)|Mythische Steingeschöpfe|![](/de-DE/2024/06/202406292200UbudBali.jpg)|
+202406302200|HeidelbergCastle|Schloss Heidelberg, Heidelberg, Baden-Württemberg (© Hans Blossey/Alamy)|Ein fränkisches Märchenschloss|![](/de-DE/2024/06/202406302200HeidelbergCastle.jpg)|
