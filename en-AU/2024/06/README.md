@@ -30,3 +30,4 @@
 202406270700|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Info|![](/en-AU/2024/06/202406270700FlorenceDuomo.jpg)|
 202406280700|ChauseyIslands|Chausey islands off the coast of Normandy, France (© Tuul & Bruno Morandi/Getty Images)|Info|![](/en-AU/2024/06/202406280700ChauseyIslands.jpg)|
 202406290700|NienhagenMecklenburg|A beech forest in Nienhagen, Mecklenburg-Vorpommern, Germany (© Martin Ruegner/Getty Images)|Info|![](/en-AU/2024/06/202406290700NienhagenMecklenburg.jpg)|
+202406300700|UbudBali|Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)|Info|![](/en-AU/2024/06/202406300700UbudBali.jpg)|

@@ -32,3 +32,4 @@
 202406270700|FlorenceDuomo|Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)|Dome sweet dome|![](/en-US/2024/06/202406270700FlorenceDuomo.jpg)|
 202406280700|ChristopherPark|Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)|The pride of New York City|![](/en-US/2024/06/202406280700ChristopherPark.jpg)|
 202406290700|TourCorsica|Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)|Saddle up for Le Tour!|![](/en-US/2024/06/202406290700TourCorsica.jpg)|
+202406300700|UbudBali|Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)|You won't forget 'Ubud' it!|![](/en-US/2024/06/202406300700UbudBali.jpg)|
