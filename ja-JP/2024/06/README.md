@@ -31,3 +31,4 @@
 202406271500|ChristopherPark|クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)|「ストーンウォールの反乱」から 55 年|![](/ja-JP/2024/06/202406271500ChristopherPark.jpg)|
 202406281500|TourCorsica|コルシカ島のサイクリストたち, フランス (© Pascal Pochard-Casabianca/AFP via Getty Images)|ツール・ド・フランスが今日から開幕|![](/ja-JP/2024/06/202406281500TourCorsica.jpg)|
 202406291500|UbudBali|バリ島のウブド村, インドネシア (© R. Schönebaum/plainpicture)|獅子のような姿をした聖獣「バロン」|![](/ja-JP/2024/06/202406291500UbudBali.jpg)|
+202406301500|FisgardLighthouse|フィスガード灯台, カナダ ブリティッシュコロンビア州 (© davemantel/Getty Images)|今日はカナダの日|![](/ja-JP/2024/06/202406301500FisgardLighthouse.jpg)|
