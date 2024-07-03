@@ -4,3 +4,4 @@
 ||||![](/fr-FR/2024/07/.jpg)|
 202407012200|ItalicaRuins|Ancienne ville romaine de Italica à Santiponce, Séville,  Espagne (© Moses Palermo/Amazing Aerial Agency)|Les fantômes des villes du passé|![](/fr-FR/2024/07/202407012200ItalicaRuins.jpg)|
 202407022200|MeerkatManor|Famille de suricates (© anetapics/Shutterstock)|Les sentinelles du désert|![](/fr-FR/2024/07/202407022200MeerkatManor.jpg)|
+202407032200|SenanqueAbbey|Abbaye Notre-Dame de Sénanque, Gordes, Provence (© Brzozowska/Getty Images)|Entre Histoire, lavande et tradition|![](/fr-FR/2024/07/202407032200SenanqueAbbey.jpg)|
