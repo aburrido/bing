@@ -4,3 +4,4 @@
 202407011600|ItalicaRuins|意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙 (© Moses Palermo/Amazing Aerial Agency)|昔日城市的“灵魂”|![](/zh-CN/2024/07/202407011600ItalicaRuins.jpg)|
 202407021600|MeerkatManor|猫鼬家族 (© anetapics/Shutterstock)|等等，谁在那儿？|![](/zh-CN/2024/07/202407021600MeerkatManor.jpg)|
 202407031600|ZaharaDeLaSierra|扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo)|风景如画的白色小镇|![](/zh-CN/2024/07/202407031600ZaharaDeLaSierra.jpg)|
+202407041600|NoahBeach|丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images)|邂逅美丽海岸线|![](/zh-CN/2024/07/202407041600NoahBeach.jpg)|
