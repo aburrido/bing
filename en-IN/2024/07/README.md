@@ -4,3 +4,4 @@
 202407011830|ItalicaRuins|Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)|Ghosts of cities past|![](/en-IN/2024/07/202407011830ItalicaRuins.jpg)|
 202407021830|MeerkatManor|Meerkat family (© anetapics/Shutterstock)|'Wait! Who's there?'|![](/en-IN/2024/07/202407021830MeerkatManor.jpg)|
 202407031830|KeralaSummer|Dam, lake and mountains in Kerala (© Pranavan Shoots/Shutterstock)|A coast above the rest|![](/en-IN/2024/07/202407031830KeralaSummer.jpg)|
+202407041830|NoahBeach|Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)|A coastal encounter|![](/en-IN/2024/07/202407041830NoahBeach.jpg)|
