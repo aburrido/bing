@@ -4,3 +4,4 @@
 202407020400|ItalicaRuins|Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)|Ghosts of cities past|![](/en-CA/2024/07/202407020400ItalicaRuins.jpg)|
 ||||![](/en-CA/2024/07/.jpg)|
 202407030400|MeerkatManor|Meerkat family (© anetapics/Shutterstock)|'Wait! Who's there?'|![](/en-CA/2024/07/202407030400MeerkatManor.jpg)|
+202407040400|FisgardLighthouse|Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)|One second off, one second on|![](/en-CA/2024/07/202407040400FisgardLighthouse.jpg)|
