@@ -6,3 +6,4 @@
 202407031500|YenBaiTerraces|ムーカンチャイ県, ベトナム (© Kiatanan Sugsompian/Getty Images)|緑豊かな棚田|![](/ja-JP/2024/07/202407031500YenBaiTerraces.jpg)|
 202407041500|NoahBeach|ノア・ビーチ, オーストラリア クイーンズランド州 (© bjeayes/Getty Images)|緑の熱帯雨林と紺碧の海|![](/ja-JP/2024/07/202407041500NoahBeach.jpg)|
 202407051500|ConwyRiver|コンウィ城, イギリス (© David Chapman/Alamy)|今日はコンウィ川祭りの開催日|![](/ja-JP/2024/07/202407051500ConwyRiver.jpg)|
+202407061500|Tanabata2024|越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)|今日は七夕|![](/ja-JP/2024/07/202407061500Tanabata2024.jpg)|
