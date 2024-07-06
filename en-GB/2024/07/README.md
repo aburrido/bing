@@ -6,3 +6,4 @@
 202407032300|ItalicaRuins|Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)|Ghosts of cities past|![](/en-GB/2024/07/202407032300ItalicaRuins.jpg)|
 202407042300|NoahBeach|Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)|A coastal encounter|![](/en-GB/2024/07/202407042300NoahBeach.jpg)|
 202407052300|ConwyRiver|Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy Stock Photo)|Rock the boat|![](/en-GB/2024/07/202407052300ConwyRiver.jpg)|
+202407062300|YenBaiTerraces|Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)|Rice and shine|![](/en-GB/2024/07/202407062300YenBaiTerraces.jpg)|
