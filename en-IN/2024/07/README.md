@@ -6,3 +6,4 @@
 202407031830|KeralaSummer|Dam, lake and mountains in Kerala (© Pranavan Shoots/Shutterstock)|A coast above the rest|![](/en-IN/2024/07/202407031830KeralaSummer.jpg)|
 202407041830|NoahBeach|Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)|A coastal encounter|![](/en-IN/2024/07/202407041830NoahBeach.jpg)|
 202407051830|ConwyRiver|Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)|Rock the boat|![](/en-IN/2024/07/202407051830ConwyRiver.jpg)|
+202407061830|YenBaiTerraces|Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)|Rice and shine|![](/en-IN/2024/07/202407061830YenBaiTerraces.jpg)|
