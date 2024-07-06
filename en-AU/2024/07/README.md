@@ -6,3 +6,4 @@
 202407030700|MeerkatManor|Meerkat family (© anetapics/Shutterstock)|Info|![](/en-AU/2024/07/202407030700MeerkatManor.jpg)|
 202407040700|ZaharaDeLaSierra|Zahara de la Sierra, Andalusia, Spain (© Francesco Carovillano/eStock Photo)|Info|![](/en-AU/2024/07/202407040700ZaharaDeLaSierra.jpg)|
 202407050700|NoahBeach|Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)|Info|![](/en-AU/2024/07/202407050700NoahBeach.jpg)|
+202407060700|ConwyRiver|Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)|Info|![](/en-AU/2024/07/202407060700ConwyRiver.jpg)|
