@@ -6,3 +6,4 @@
 202407030400|MeerkatManor|Meerkat family (© anetapics/Shutterstock)|'Wait! Who's there?'|![](/en-CA/2024/07/202407030400MeerkatManor.jpg)|
 202407040400|FisgardLighthouse|Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)|One second off, one second on|![](/en-CA/2024/07/202407040400FisgardLighthouse.jpg)|
 202407050400|NoahBeach|Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)|A coastal encounter|![](/en-CA/2024/07/202407050400NoahBeach.jpg)|
+202407060400|ConwyRiver|Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)|Rock the boat|![](/en-CA/2024/07/202407060400ConwyRiver.jpg)|
