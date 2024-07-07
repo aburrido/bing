@@ -8,3 +8,4 @@
 202407042200|NoahBeach|Plage de Noah, forêt tropicale de Daintree, Queensland, Australie (© bjeayes/Getty Images)|Un écrin sauvage entre terre et mer|![](/fr-FR/2024/07/202407042200NoahBeach.jpg)|
 202407052200|ConwyRiver|Château de Conwy surplombant la rivière Conwy, Pays de Galles, Royaume-Uni (© David Chapman/Alamy)|Un tableau vivant|![](/fr-FR/2024/07/202407052200ConwyRiver.jpg)|
 202407062200|YenBaiTerraces|Rizières en terrasses de Mu Cang Chaine, Vietnam (© Kiatanan Sugsompian/Getty Images)|Un paysage qui nous fait « riz-ette » !|![](/fr-FR/2024/07/202407062200YenBaiTerraces.jpg)|
+202407072200|PontBordeaux|Pont de pierre, Bordeaux (© SergiyN/Getty Images)|Passage historique sur la Garonne|![](/fr-FR/2024/07/202407072200PontBordeaux.jpg)|
