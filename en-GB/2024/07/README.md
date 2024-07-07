@@ -7,3 +7,4 @@
 202407042300|NoahBeach|Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)|A coastal encounter|![](/en-GB/2024/07/202407042300NoahBeach.jpg)|
 202407052300|ConwyRiver|Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy Stock Photo)|Rock the boat|![](/en-GB/2024/07/202407052300ConwyRiver.jpg)|
 202407062300|YenBaiTerraces|Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)|Rice and shine|![](/en-GB/2024/07/202407062300YenBaiTerraces.jpg)|
+202407072300|NorwayBlueberries|Blueberries growing in the wild (© Baac3nes/Getty Images)|A dose of antioxidants|![](/en-GB/2024/07/202407072300NorwayBlueberries.jpg)|
