@@ -8,3 +8,4 @@
 202407051500|ConwyRiver|コンウィ城, イギリス (© David Chapman/Alamy)|今日はコンウィ川祭りの開催日|![](/ja-JP/2024/07/202407051500ConwyRiver.jpg)|
 202407061500|Tanabata2024|越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)|今日は七夕|![](/ja-JP/2024/07/202407061500Tanabata2024.jpg)|
 202407071500|NorwayBlueberries|野生のブルーベリー (© Baac3nes/Getty Images)|今日は米国のブルーベリーの日|![](/ja-JP/2024/07/202407071500NorwayBlueberries.jpg)|
+202407081500|TalampayaNP|タランパヤ国立公園, アルゼンチン (© Gonzalo Azumendi/Getty Images)|今日はアルゼンチンの独立記念日|![](/ja-JP/2024/07/202407081500TalampayaNP.jpg)|
