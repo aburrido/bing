@@ -8,3 +8,4 @@
 202407052300|ConwyRiver|Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy Stock Photo)|Rock the boat|![](/en-GB/2024/07/202407052300ConwyRiver.jpg)|
 202407062300|YenBaiTerraces|Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)|Rice and shine|![](/en-GB/2024/07/202407062300YenBaiTerraces.jpg)|
 202407072300|NorwayBlueberries|Blueberries growing in the wild (© Baac3nes/Getty Images)|A dose of antioxidants|![](/en-GB/2024/07/202407072300NorwayBlueberries.jpg)|
+202407082300|TalampayaNP|Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)|Feeling 'sedimental'?|![](/en-GB/2024/07/202407082300TalampayaNP.jpg)|
