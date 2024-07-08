@@ -8,3 +8,4 @@
 202407051600|ConwyRiver|从康威河眺望康威城堡，威尔士 (© David Chapman/Alamy Stock Photo)|让我们扬帆起航！|![](/zh-CN/2024/07/202407051600ConwyRiver.jpg)|
 202407061600|YenBaiTerraces|越南安沛省木仓寨的水稻梯田 (© Kiatanan Sugsompian/Getty Images)|阳光下的梯田|![](/zh-CN/2024/07/202407061600YenBaiTerraces.jpg)|
 202407071600|NorwayBlueberries|野生蓝莓 (© Baac3nes/Getty Images)|一剂抗氧化剂|![](/zh-CN/2024/07/202407071600NorwayBlueberries.jpg)|
+202407081600|TalampayaNP|阿根廷拉里奥哈省塔兰帕亚国家公园 (© Gonzalo Azumendi/Getty Images)|千仞高壁|![](/zh-CN/2024/07/202407081600TalampayaNP.jpg)|
