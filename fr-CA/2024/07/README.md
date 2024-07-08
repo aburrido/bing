@@ -7,3 +7,4 @@
 202407050400|NoahBeach|Plage de Noah, forêt tropicale de Daintree, Queensland, Australie (© bjeayes/Getty Images)|Un écrin sauvage entre terre et mer|![](/fr-CA/2024/07/202407050400NoahBeach.jpg)|
 202407060400|ConwyRiver|Château de Conwy surplombant la rivière Conwy, Pays de Galles, Royaume-Uni (© David Chapman/Alamy)|Un tableau vivant|![](/fr-CA/2024/07/202407060400ConwyRiver.jpg)|
 202407070400|YenBaiTerraces|Rizières en terrasses de Mu Cang Chaine, Vietnam (© Kiatanan Sugsompian/Getty Images)|Un paysage qui nous fait « riz-ette »!|![](/fr-CA/2024/07/202407070400YenBaiTerraces.jpg)|
+202407080400|NorwayBlueberries|Myrtilles poussant à l'état sauvage (© Baac3nes/Getty Images)|Une dose d'antioxydants|![](/fr-CA/2024/07/202407080400NorwayBlueberries.jpg)|
