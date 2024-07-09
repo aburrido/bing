@@ -9,3 +9,4 @@
 202407062200|YenBaiTerraces|Reisterrassen von Mù Cang Chải, Provinz Yên Bái, Vietnam (© Kiatanan Sugsompian/Getty Images)|Wie du säst, so wirst du ernten.|![](/de-DE/2024/07/202407062200YenBaiTerraces.jpg)|
 202407072200|NorwayBlueberries|Wilde Heidelbeeren (© Baac3nes/Getty Images)|Eine Portion Antioxidantien|![](/de-DE/2024/07/202407072200NorwayBlueberries.jpg)|
 202407082200|TalampayaNP|Nationalpark Talampaya, Provinz La Rioja, Argentinien (© Gonzalo Azumendi/Getty Images)|Für die Ewigkeit gemacht|![](/de-DE/2024/07/202407082200TalampayaNP.jpg)|
+202407092200|CollaredAracari|Halsbandarassari, Costa Rica (© Juan Carlos Vindas/Getty Images)|Bunt, stolz und unverwechselbar|![](/de-DE/2024/07/202407092200CollaredAracari.jpg)|
