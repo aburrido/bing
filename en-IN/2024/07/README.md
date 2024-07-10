@@ -10,3 +10,4 @@
 202407071830|NorwayBlueberries|Blueberries growing in the wild (© Baac3nes/Getty Images)|A dose of antioxidants|![](/en-IN/2024/07/202407071830NorwayBlueberries.jpg)|
 202407081830|TalampayaNP|Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)|Feeling 'sedimental'?|![](/en-IN/2024/07/202407081830TalampayaNP.jpg)|
 202407091830|CollaredAracari|Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)|A 'toucan' of appreciation|![](/en-IN/2024/07/202407091830CollaredAracari.jpg)|
+202407101830|GangiSicily|Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)|You are one in 8.1 billion|![](/en-IN/2024/07/202407101830GangiSicily.jpg)|
