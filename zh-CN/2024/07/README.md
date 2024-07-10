@@ -10,3 +10,4 @@
 202407071600|NorwayBlueberries|野生蓝莓 (© Baac3nes/Getty Images)|一剂抗氧化剂|![](/zh-CN/2024/07/202407071600NorwayBlueberries.jpg)|
 202407081600|TalampayaNP|阿根廷拉里奥哈省塔兰帕亚国家公园 (© Gonzalo Azumendi/Getty Images)|千仞高壁|![](/zh-CN/2024/07/202407081600TalampayaNP.jpg)|
 202407091600|CollaredAracari|领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)|感恩的巨嘴鸟|![](/zh-CN/2024/07/202407091600CollaredAracari.jpg)|
+202407101600|GangiSicily|甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)|你是81亿人口中的一员|![](/zh-CN/2024/07/202407101600GangiSicily.jpg)|
