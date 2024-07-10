@@ -10,3 +10,4 @@
 202407071500|NorwayBlueberries|野生のブルーベリー (© Baac3nes/Getty Images)|今日は米国のブルーベリーの日|![](/ja-JP/2024/07/202407071500NorwayBlueberries.jpg)|
 202407081500|TalampayaNP|タランパヤ国立公園, アルゼンチン (© Gonzalo Azumendi/Getty Images)|今日はアルゼンチンの独立記念日|![](/ja-JP/2024/07/202407081500TalampayaNP.jpg)|
 202407091500|Lanternplant2024|浅草寺のほおずき市, 東京 (© c11yg/Getty Images)|今日は四万六千日|![](/ja-JP/2024/07/202407091500Lanternplant2024.jpg)|
+202407101500|GangiSicily|シチリア島のガンジー, イタリア (© Andrea Caruso/Amazing Aerial Agency)|今日は世界人口デー|![](/ja-JP/2024/07/202407101500GangiSicily.jpg)|
