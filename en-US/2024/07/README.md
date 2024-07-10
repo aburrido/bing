@@ -10,3 +10,4 @@
 202407070700|YenBaiTerraces|Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)|Rice and shine|![](/en-US/2024/07/202407070700YenBaiTerraces.jpg)|
 202407080700|NorwayBlueberries|Blueberries growing in the wild (© Baac3nes/Getty Images)|Berry beautiful|![](/en-US/2024/07/202407080700NorwayBlueberries.jpg)|
 202407090700|TalampayaNP|Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)|Towering Talampaya|![](/en-US/2024/07/202407090700TalampayaNP.jpg)|
+202407100700|CollaredAracari|Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)|A 'toucan' of appreciation|![](/en-US/2024/07/202407100700CollaredAracari.jpg)|
