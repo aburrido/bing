@@ -11,3 +11,4 @@
 202407081600|TalampayaNP|阿根廷拉里奥哈省塔兰帕亚国家公园 (© Gonzalo Azumendi/Getty Images)|千仞高壁|![](/zh-CN/2024/07/202407081600TalampayaNP.jpg)|
 202407091600|CollaredAracari|领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)|感恩的巨嘴鸟|![](/zh-CN/2024/07/202407091600CollaredAracari.jpg)|
 202407101600|GangiSicily|甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)|你是81亿人口中的一员|![](/zh-CN/2024/07/202407101600GangiSicily.jpg)|
+202407111600|RainierWildflowers|雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)|风雨无阻|![](/zh-CN/2024/07/202407111600RainierWildflowers.jpg)|
