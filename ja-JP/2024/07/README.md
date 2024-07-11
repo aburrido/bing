@@ -11,3 +11,4 @@
 202407081500|TalampayaNP|タランパヤ国立公園, アルゼンチン (© Gonzalo Azumendi/Getty Images)|今日はアルゼンチンの独立記念日|![](/ja-JP/2024/07/202407081500TalampayaNP.jpg)|
 202407091500|Lanternplant2024|浅草寺のほおずき市, 東京 (© c11yg/Getty Images)|今日は四万六千日|![](/ja-JP/2024/07/202407091500Lanternplant2024.jpg)|
 202407101500|GangiSicily|シチリア島のガンジー, イタリア (© Andrea Caruso/Amazing Aerial Agency)|今日は世界人口デー|![](/ja-JP/2024/07/202407101500GangiSicily.jpg)|
+202407111500|RainierWildflowers|マウントレーニア国立公園, 米国 ワシントン州 (© RomanKhomlyak/Getty Images)|レーニア山の麓に咲く野花|![](/ja-JP/2024/07/202407111500RainierWildflowers.jpg)|
