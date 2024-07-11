@@ -10,3 +10,4 @@
 202407080400|NorwayBlueberries|Myrtilles poussant à l'état sauvage (© Baac3nes/Getty Images)|Une dose d'antioxydants|![](/fr-CA/2024/07/202407080400NorwayBlueberries.jpg)|
 202407090400|TalampayaNP|Parc national de Talampaya, province de La Rioja, Argentine (© Gonzalo Azumendi/Getty Images)|Des formations rocheuses abracadabrantesques!|![](/fr-CA/2024/07/202407090400TalampayaNP.jpg)|
 202407100400|CollaredAracari|Araçari à collier, Costa Rica (© Juan Carlos Vindas/Getty Images)|Le Toucan Show|![](/fr-CA/2024/07/202407100400CollaredAracari.jpg)|
+202407110400|GangiSicily|Gangi, Sicile, Italie (© Andrea Caruso/Amazing Aerial Agency)|Vous êtes unique parmi 8,1 milliards de personnes|![](/fr-CA/2024/07/202407110400GangiSicily.jpg)|
