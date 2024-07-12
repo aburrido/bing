@@ -12,3 +12,4 @@
 202407090400|TalampayaNP|Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)|Feeling 'sedimental'?|![](/en-CA/2024/07/202407090400TalampayaNP.jpg)|
 202407100400|CollaredAracari|Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)|A 'toucan' of appreciation|![](/en-CA/2024/07/202407100400CollaredAracari.jpg)|
 202407110400|GangiSicily|Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)|You are one in 8.1 billion|![](/en-CA/2024/07/202407110400GangiSicily.jpg)|
+202407120400|RainierWildflowers|Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)|Come Rainier or shine|![](/en-CA/2024/07/202407120400RainierWildflowers.jpg)|

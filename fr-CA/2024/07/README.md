@@ -11,3 +11,4 @@
 202407090400|TalampayaNP|Parc national de Talampaya, province de La Rioja, Argentine (© Gonzalo Azumendi/Getty Images)|Des formations rocheuses abracadabrantesques!|![](/fr-CA/2024/07/202407090400TalampayaNP.jpg)|
 202407100400|CollaredAracari|Araçari à collier, Costa Rica (© Juan Carlos Vindas/Getty Images)|Le Toucan Show|![](/fr-CA/2024/07/202407100400CollaredAracari.jpg)|
 202407110400|GangiSicily|Gangi, Sicile, Italie (© Andrea Caruso/Amazing Aerial Agency)|Vous êtes unique parmi 8,1 milliards de personnes|![](/fr-CA/2024/07/202407110400GangiSicily.jpg)|
+202407120400|RainierWildflowers|Fleurs sauvages dans le parc national du Mont Rainier, Washington, États-Unis (© RomanKhomlyak/Getty Images)|Zen, restons zen|![](/fr-CA/2024/07/202407120400RainierWildflowers.jpg)|
