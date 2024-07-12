@@ -12,3 +12,4 @@
 202407091830|CollaredAracari|Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)|A 'toucan' of appreciation|![](/en-IN/2024/07/202407091830CollaredAracari.jpg)|
 202407101830|GangiSicily|Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)|You are one in 8.1 billion|![](/en-IN/2024/07/202407101830GangiSicily.jpg)|
 202407111830|RainierWildflowers|Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)|Come Rainier or shine|![](/en-IN/2024/07/202407111830RainierWildflowers.jpg)|
+202407121830|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Sedimentary, my dear|![](/en-IN/2024/07/202407121830CappadociaRocks.jpg)|
