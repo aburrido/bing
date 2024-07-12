@@ -12,3 +12,4 @@
 202407092200|CollaredAracari|Halsbandarassari, Costa Rica (© Juan Carlos Vindas/Getty Images)|Bunt, stolz und unverwechselbar|![](/de-DE/2024/07/202407092200CollaredAracari.jpg)|
 202407102200|GangiSicily|Gangi, Sizilien, Italien (© Andrea Caruso/Amazing Aerial Agency)|Wir sind 8,1 Milliarden|![](/de-DE/2024/07/202407102200GangiSicily.jpg)|
 202407112200|RainierWildflowers|Wildblumen im Mount Rainier-Nationalpark, Washington, USA (© RomanKhomlyak/Getty Images)|Der Ruf der Freiheit|![](/de-DE/2024/07/202407112200RainierWildflowers.jpg)|
+202407122200|CappadociaRocks|Feenkamine und Höhlenwohnungen in Kappadokien, Türkei (© Storm Is Me/Shutterstock)|Zwischen Feen und Zauberern|![](/de-DE/2024/07/202407122200CappadociaRocks.jpg)|
