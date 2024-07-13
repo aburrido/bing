@@ -13,3 +13,4 @@
 202407102300|GangiSicily|Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)|You are one in 8.1 billion|![](/en-GB/2024/07/202407102300GangiSicily.jpg)|
 202407112300|RainierWildflowers|Wildflowers in Mount Rainier National Park, Washington, USA (© RomanKhomlyak/Getty Images)|Come Rainier or shine|![](/en-GB/2024/07/202407112300RainierWildflowers.jpg)|
 202407122300|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Sedimentary, my dear|![](/en-GB/2024/07/202407122300CappadociaRocks.jpg)|
+202407132300|OwlSiblings|Burrowing owl chicks near a burrow, Wyoming, USA (© Danita Delimont/Getty Images)|Owl be there for you!|![](/en-GB/2024/07/202407132300OwlSiblings.jpg)|
