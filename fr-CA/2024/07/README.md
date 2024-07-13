@@ -12,3 +12,4 @@
 202407100400|CollaredAracari|Araçari à collier, Costa Rica (© Juan Carlos Vindas/Getty Images)|Le Toucan Show|![](/fr-CA/2024/07/202407100400CollaredAracari.jpg)|
 202407110400|GangiSicily|Gangi, Sicile, Italie (© Andrea Caruso/Amazing Aerial Agency)|Vous êtes unique parmi 8,1 milliards de personnes|![](/fr-CA/2024/07/202407110400GangiSicily.jpg)|
 202407120400|RainierWildflowers|Fleurs sauvages dans le parc national du Mont Rainier, Washington, États-Unis (© RomanKhomlyak/Getty Images)|Zen, restons zen|![](/fr-CA/2024/07/202407120400RainierWildflowers.jpg)|
+202407130400|CappadociaRocks|Cheminées de fées et habitations troglodytes en Cappadoce, Turquie (© Storm Is Me/Shutterstock)|Question sédimentaire|![](/fr-CA/2024/07/202407130400CappadociaRocks.jpg)|
