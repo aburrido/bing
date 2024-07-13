@@ -14,3 +14,4 @@
 202407102200|GangiSicily|Gangi, Sicile, Italie (© Andrea Caruso/Amazing Aerial Agency)|Vous êtes unique parmi 8,1 milliards de personnes|![](/fr-FR/2024/07/202407102200GangiSicily.jpg)|
 202407112200|RainierWildflowers|Fleurs sauvages dans le parc national du Mont Rainier, Washington, États-Unis (© RomanKhomlyak/Getty Images)|Zen, restons zen|![](/fr-FR/2024/07/202407112200RainierWildflowers.jpg)|
 202407122200|CappadociaRocks|Cheminées de fées et habitations troglodytes en Cappadoce, Turquie (© Storm Is Me/Shutterstock)|Question sédimentaire|![](/fr-FR/2024/07/202407122200CappadociaRocks.jpg)|
+202407132200|BastilleDayParis|La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)|Le jour de gloire est arrivé !|![](/fr-FR/2024/07/202407132200BastilleDayParis.jpg)|
