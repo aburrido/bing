@@ -13,3 +13,4 @@
 202407101500|GangiSicily|シチリア島のガンジー, イタリア (© Andrea Caruso/Amazing Aerial Agency)|今日は世界人口デー|![](/ja-JP/2024/07/202407101500GangiSicily.jpg)|
 202407111500|RainierWildflowers|マウントレーニア国立公園, 米国 ワシントン州 (© RomanKhomlyak/Getty Images)|レーニア山の麓に咲く野花|![](/ja-JP/2024/07/202407111500RainierWildflowers.jpg)|
 202407121500|CappadociaRocks|カッパドキア, トルコ (© Storm Is Me/Shutterstock)|今日は国際ロックの日|![](/ja-JP/2024/07/202407121500CappadociaRocks.jpg)|
+202407131500|MuseumIsland|ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)|ベルリン大聖堂と旧博物館|![](/ja-JP/2024/07/202407131500MuseumIsland.jpg)|
