@@ -14,3 +14,4 @@
 202407111830|RainierWildflowers|Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)|Come Rainier or shine|![](/en-IN/2024/07/202407111830RainierWildflowers.jpg)|
 202407121830|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Sedimentary, my dear|![](/en-IN/2024/07/202407121830CappadociaRocks.jpg)|
 202407131830|SilkyShark|Silky shark at Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)|A fin-tastic day|![](/en-IN/2024/07/202407131830SilkyShark.jpg)|
+202407141830|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-IN/2024/07/202407141830TateishiPark.jpg)|
