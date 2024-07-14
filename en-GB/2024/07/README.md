@@ -14,3 +14,4 @@
 202407112300|RainierWildflowers|Wildflowers in Mount Rainier National Park, Washington, USA (© RomanKhomlyak/Getty Images)|Come Rainier or shine|![](/en-GB/2024/07/202407112300RainierWildflowers.jpg)|
 202407122300|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Sedimentary, my dear|![](/en-GB/2024/07/202407122300CappadociaRocks.jpg)|
 202407132300|OwlSiblings|Burrowing owl chicks near a burrow, Wyoming, USA (© Danita Delimont/Getty Images)|Owl be there for you!|![](/en-GB/2024/07/202407132300OwlSiblings.jpg)|
+202407142300|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-GB/2024/07/202407142300TateishiPark.jpg)|
