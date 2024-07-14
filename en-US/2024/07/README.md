@@ -14,3 +14,4 @@
 202407110700|GangiSicily|Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)|You are one in 8.1 billion|![](/en-US/2024/07/202407110700GangiSicily.jpg)|
 202407120700|RainierWildflowers|Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)|Come Rainier or shine|![](/en-US/2024/07/202407120700RainierWildflowers.jpg)|
 202407130700|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Türkiye's stony spires|![](/en-US/2024/07/202407130700CappadociaRocks.jpg)|
+202407140700|LaGeriaLanzarote|Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)|Sip, sip, hooray!|![](/en-US/2024/07/202407140700LaGeriaLanzarote.jpg)|
