@@ -14,3 +14,4 @@
 202407111500|RainierWildflowers|マウントレーニア国立公園, 米国 ワシントン州 (© RomanKhomlyak/Getty Images)|レーニア山の麓に咲く野花|![](/ja-JP/2024/07/202407111500RainierWildflowers.jpg)|
 202407121500|CappadociaRocks|カッパドキア, トルコ (© Storm Is Me/Shutterstock)|今日は国際ロックの日|![](/ja-JP/2024/07/202407121500CappadociaRocks.jpg)|
 202407131500|MuseumIsland|ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)|ベルリン大聖堂と旧博物館|![](/ja-JP/2024/07/202407131500MuseumIsland.jpg)|
+202407141500|TateishiPark|立石公園, 神奈川県 (© blew_s/Shutterstock)|今日は「海の日」|![](/ja-JP/2024/07/202407141500TateishiPark.jpg)|
