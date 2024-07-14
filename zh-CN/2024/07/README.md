@@ -14,3 +14,4 @@
 202407111600|RainierWildflowers|雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)|风雨无阻|![](/zh-CN/2024/07/202407111600RainierWildflowers.jpg)|
 202407121600|CappadociaRocks|卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)|快看，这是沉积岩哦|![](/zh-CN/2024/07/202407121600CappadociaRocks.jpg)|
 202407131600|SilkyShark|女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)|鲨鱼保护日|![](/zh-CN/2024/07/202407131600SilkyShark.jpg)|
+202407141600|TateishiPark|立石公园，神奈川县，日本 (© blew_s/Shutterstock)|宁静惬意的海滨风光|![](/zh-CN/2024/07/202407141600TateishiPark.jpg)|
