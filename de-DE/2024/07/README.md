@@ -15,3 +15,4 @@
 202407122200|CappadociaRocks|Feenkamine und Höhlenwohnungen in Kappadokien, Türkei (© Storm Is Me/Shutterstock)|Zwischen Feen und Zauberern|![](/de-DE/2024/07/202407122200CappadociaRocks.jpg)|
 202407132200|IntNatTheatreMunich|Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)|Die Kunst der großen Emotionen|![](/de-DE/2024/07/202407132200IntNatTheatreMunich.jpg)|
 202407142200|TateishiPark|Tateishi Park, Präfektur Kanagawa, Japan (© blew_s/Shutterstock)|Traumhafte Meereskulisse|![](/de-DE/2024/07/202407142200TateishiPark.jpg)|
+202407152200|AncientOrkney|Die jungsteinzeitliche Siedlung von Skara Brae, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)|Auf den Spuren der Vergangenheit|![](/de-DE/2024/07/202407152200AncientOrkney.jpg)|
