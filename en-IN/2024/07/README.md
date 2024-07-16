@@ -16,3 +16,4 @@
 202407131830|SilkyShark|Silky shark at Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)|A fin-tastic day|![](/en-IN/2024/07/202407131830SilkyShark.jpg)|
 202407141830|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-IN/2024/07/202407141830TateishiPark.jpg)|
 202407151830|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Just 'hanging' out|![](/en-IN/2024/07/202407151830HammockCamping.jpg)|
+202407161830|MedievalRothenburg|Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)|Towering with history|![](/en-IN/2024/07/202407161830MedievalRothenburg.jpg)|
