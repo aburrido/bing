@@ -16,3 +16,4 @@
 202407132300|OwlSiblings|Burrowing owl chicks near a burrow, Wyoming, USA (© Danita Delimont/Getty Images)|Owl be there for you!|![](/en-GB/2024/07/202407132300OwlSiblings.jpg)|
 202407142300|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-GB/2024/07/202407142300TateishiPark.jpg)|
 202407152300|AncientOrkney|The neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|Digging into the past|![](/en-GB/2024/07/202407152300AncientOrkney.jpg)|
+202407162300|MedievalRothenburg|Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)|Towering with history|![](/en-GB/2024/07/202407162300MedievalRothenburg.jpg)|
