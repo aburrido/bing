@@ -17,3 +17,4 @@
 202407132200|BastilleDayParis|La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)|Le jour de gloire est arrivé !|![](/fr-FR/2024/07/202407132200BastilleDayParis.jpg)|
 202407142200|TateishiPark|Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)|Le Japon a le vent en poupe !|![](/fr-FR/2024/07/202407142200TateishiPark.jpg)|
 202407152200|AncientOrkney|Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)|Fouiller le passé|![](/fr-FR/2024/07/202407152200AncientOrkney.jpg)|
+202407162200|MedievalRothenburg|Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)|Le tour est joué !|![](/fr-FR/2024/07/202407162200MedievalRothenburg.jpg)|
