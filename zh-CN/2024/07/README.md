@@ -16,3 +16,4 @@
 202407131600|SilkyShark|女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)|鲨鱼保护日|![](/zh-CN/2024/07/202407131600SilkyShark.jpg)|
 202407141600|TateishiPark|立石公园，神奈川县，日本 (© blew_s/Shutterstock)|宁静惬意的海滨风光|![](/zh-CN/2024/07/202407141600TateishiPark.jpg)|
 202407151600|AncientOrkney|斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images)|挖掘过去|![](/zh-CN/2024/07/202407151600AncientOrkney.jpg)|
+202407161600|MedievalRothenburg|德国中世纪城市罗滕堡 (© kanuman/Getty Images)|高耸入云的历史建筑|![](/zh-CN/2024/07/202407161600MedievalRothenburg.jpg)|
