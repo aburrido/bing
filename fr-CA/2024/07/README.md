@@ -15,3 +15,4 @@
 202407130400|CappadociaRocks|Cheminées de fées et habitations troglodytes en Cappadoce, Turquie (© Storm Is Me/Shutterstock)|Question sédimentaire|![](/fr-CA/2024/07/202407130400CappadociaRocks.jpg)|
 202407140400|AncientOrkney|Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)|Fouiller le passé|![](/fr-CA/2024/07/202407140400AncientOrkney.jpg)|
 202407150400|TateishiPark|Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)|Le Japon a le vent en poupe!|![](/fr-CA/2024/07/202407150400TateishiPark.jpg)|
+202407160400|DinosaurProvPark|Voie lactée au-dessus des badlands, Parc provincial Dinosaur, Alberta (© Alan Dyer/Stocktrek Images/Getty Images)rk, Albert|Le ciel est la limite... ou pas?|![](/fr-CA/2024/07/202407160400DinosaurProvPark.jpg)|

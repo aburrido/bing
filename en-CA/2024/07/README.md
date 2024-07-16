@@ -16,3 +16,4 @@
 202407130400|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Sedimentary, my dear|![](/en-CA/2024/07/202407130400CappadociaRocks.jpg)|
 202407140400|SestriLevante|Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)|Let's go for a boat ride!|![](/en-CA/2024/07/202407140400SestriLevante.jpg)|
 202407150400|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-CA/2024/07/202407150400TateishiPark.jpg)|
+202407160400|DinosaurProvPark|Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)|Cause you're a sky full of stars|![](/en-CA/2024/07/202407160400DinosaurProvPark.jpg)|
