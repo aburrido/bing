@@ -16,3 +16,4 @@
 202407130700|CappadociaRocks|Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)|Türkiye's stony spires|![](/en-US/2024/07/202407130700CappadociaRocks.jpg)|
 202407140700|LaGeriaLanzarote|Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)|Sip, sip, hooray!|![](/en-US/2024/07/202407140700LaGeriaLanzarote.jpg)|
 202407150700|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-US/2024/07/202407150700TateishiPark.jpg)|
+202407160700|AncientOrkney|The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|Digging into the past|![](/en-US/2024/07/202407160700AncientOrkney.jpg)|
