@@ -17,3 +17,4 @@
 202407142200|TateishiPark|Tateishi Park, Präfektur Kanagawa, Japan (© blew_s/Shutterstock)|Traumhafte Meereskulisse|![](/de-DE/2024/07/202407142200TateishiPark.jpg)|
 202407152200|AncientOrkney|Die jungsteinzeitliche Siedlung von Skara Brae, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)|Auf den Spuren der Vergangenheit|![](/de-DE/2024/07/202407152200AncientOrkney.jpg)|
 202407162200|MedievalRothenburg|Mittelalterliche Stadt Rothenburg ob der Tauber, Deutschland (© kanuman/Getty Images)|Eindrucksvolle Mauern|![](/de-DE/2024/07/202407162200MedievalRothenburg.jpg)|
+||||![](/de-DE/2024/07/.jpg)|
