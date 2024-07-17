@@ -17,3 +17,4 @@
 202407142300|TateishiPark|Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)|Seas the day|![](/en-GB/2024/07/202407142300TateishiPark.jpg)|
 202407152300|AncientOrkney|The neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)|Digging into the past|![](/en-GB/2024/07/202407152300AncientOrkney.jpg)|
 202407162300|MedievalRothenburg|Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)|Towering with history|![](/en-GB/2024/07/202407162300MedievalRothenburg.jpg)|
+202407172300|MayotteCoral|Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Deep and meaningful|![](/en-GB/2024/07/202407172300MayotteCoral.jpg)|
