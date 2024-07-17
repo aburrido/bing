@@ -17,3 +17,4 @@
 202407141500|TateishiPark|立石公園, 神奈川県 (© blew_s/Shutterstock)|今日は「海の日」|![](/ja-JP/2024/07/202407141500TateishiPark.jpg)|
 202407151500|AncientOrkney|スカラ・ブレイ, スコットランド (© Paul Williams - FunkyStock/Getty Images)|英国考古学フェスティバルが開催中|![](/ja-JP/2024/07/202407151500AncientOrkney.jpg)|
 202407161500|GionFestival2024|提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)|今日は祇園祭、前祭の山鉾巡行|![](/ja-JP/2024/07/202407161500GionFestival2024.jpg)|
+202407171500|MayotteCoral|インド洋のサンゴ礁, フランス  (© Gabriel Barathieu/Minden Pictures)|今週は米国のサンゴ礁啓発週間|![](/ja-JP/2024/07/202407171500MayotteCoral.jpg)|
