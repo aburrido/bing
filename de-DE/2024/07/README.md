@@ -18,3 +18,4 @@
 202407152200|AncientOrkney|Die jungsteinzeitliche Siedlung von Skara Brae, Orkney, Schottland (© Paul Williams - FunkyStock/Getty Images)|Auf den Spuren der Vergangenheit|![](/de-DE/2024/07/202407152200AncientOrkney.jpg)|
 202407162200|MedievalRothenburg|Mittelalterliche Stadt Rothenburg ob der Tauber, Deutschland (© kanuman/Getty Images)|Eindrucksvolle Mauern|![](/de-DE/2024/07/202407162200MedievalRothenburg.jpg)|
 ||||![](/de-DE/2024/07/.jpg)|
+202407172200|MayotteCoral|Korallenriff im Indischen Ozean, Mayotte, Frankreich (© Gabriel Barathieu/Minden Pictures)|Tiefgründig und bedeutsam|![](/de-DE/2024/07/202407172200MayotteCoral.jpg)|
