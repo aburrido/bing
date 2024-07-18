@@ -18,3 +18,4 @@
 202407151830|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Just 'hanging' out|![](/en-IN/2024/07/202407151830HammockCamping.jpg)|
 202407161830|MedievalRothenburg|Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)|Towering with history|![](/en-IN/2024/07/202407161830MedievalRothenburg.jpg)|
 202407171830|MayotteCoral|Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Deep and meaningful|![](/en-IN/2024/07/202407171830MayotteCoral.jpg)|
+202407181830|YoungJaguar|A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)|Clever camouflage|![](/en-IN/2024/07/202407181830YoungJaguar.jpg)|
