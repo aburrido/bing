@@ -17,3 +17,4 @@
 202407150400|TateishiPark|Parc de Tateishi, préfecture de Kanagawa, Japon (© blew_s/Shutterstock)|Le Japon a le vent en poupe!|![](/fr-CA/2024/07/202407150400TateishiPark.jpg)|
 202407160400|DinosaurProvPark|Voie lactée au-dessus des badlands, Parc provincial Dinosaur, Alberta (© Alan Dyer/Stocktrek Images/Getty Images)rk, Albert|Le ciel est la limite... ou pas?|![](/fr-CA/2024/07/202407160400DinosaurProvPark.jpg)|
 202407170400|MedievalRothenburg|Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)|Le tour est joué!|![](/fr-CA/2024/07/202407170400MedievalRothenburg.jpg)|
+202407180400|MayotteCoral|Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Le trésor caché des océans|![](/fr-CA/2024/07/202407180400MayotteCoral.jpg)|
