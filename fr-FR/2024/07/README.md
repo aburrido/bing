@@ -19,3 +19,4 @@
 202407152200|AncientOrkney|Site néolithique de Skara Brae, Orcades, Écosse (© Paul Williams - FunkyStock/Getty Images)|Fouiller le passé|![](/fr-FR/2024/07/202407152200AncientOrkney.jpg)|
 202407162200|MedievalRothenburg|Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)|Le tour est joué !|![](/fr-FR/2024/07/202407162200MedievalRothenburg.jpg)|
 202407172200|MayotteCoral|Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Le trésor caché des océans|![](/fr-FR/2024/07/202407172200MayotteCoral.jpg)|
+202407182200|YoungJaguar|Jeune jaguar au bord d'une rivière, Pantanal, Brésil (© Tambako the Jaguar/Getty Images)|Un camouflage astucieux|![](/fr-FR/2024/07/202407182200YoungJaguar.jpg)|

@@ -19,3 +19,4 @@
 202407162200|MedievalRothenburg|Mittelalterliche Stadt Rothenburg ob der Tauber, Deutschland (© kanuman/Getty Images)|Eindrucksvolle Mauern|![](/de-DE/2024/07/202407162200MedievalRothenburg.jpg)|
 ||||![](/de-DE/2024/07/.jpg)|
 202407172200|MayotteCoral|Korallenriff im Indischen Ozean, Mayotte, Frankreich (© Gabriel Barathieu/Minden Pictures)|Tiefgründig und bedeutsam|![](/de-DE/2024/07/202407172200MayotteCoral.jpg)|
+202407182200|YoungJaguar|Ein junger Jaguar am Flussufer, Pantanal, Brasilien (© Tambako the Jaguar/Getty Images)|Clevere Tarnung|![](/de-DE/2024/07/202407182200YoungJaguar.jpg)|
