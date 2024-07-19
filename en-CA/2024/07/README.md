@@ -19,3 +19,4 @@
 202407160400|DinosaurProvPark|Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)|Cause you're a sky full of stars|![](/en-CA/2024/07/202407160400DinosaurProvPark.jpg)|
 202407170400|MedievalRothenburg|Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)|Towering with history|![](/en-CA/2024/07/202407170400MedievalRothenburg.jpg)|
 202407180400|MayotteCoral|Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Deep and meaningful|![](/en-CA/2024/07/202407180400MayotteCoral.jpg)|
+202407190400|YoungJaguar|A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)|Clever camouflage|![](/en-CA/2024/07/202407190400YoungJaguar.jpg)|

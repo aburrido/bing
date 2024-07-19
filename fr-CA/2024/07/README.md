@@ -18,3 +18,4 @@
 202407160400|DinosaurProvPark|Voie lactée au-dessus des badlands, Parc provincial Dinosaur, Alberta (© Alan Dyer/Stocktrek Images/Getty Images)rk, Albert|Le ciel est la limite... ou pas?|![](/fr-CA/2024/07/202407160400DinosaurProvPark.jpg)|
 202407170400|MedievalRothenburg|Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)|Le tour est joué!|![](/fr-CA/2024/07/202407170400MedievalRothenburg.jpg)|
 202407180400|MayotteCoral|Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Le trésor caché des océans|![](/fr-CA/2024/07/202407180400MayotteCoral.jpg)|
+202407190400|YoungJaguar|Jeune jaguar au bord d'une rivière, Pantanal, Brésil (© Tambako the Jaguar/Getty Images)|Un camouflage astucieux|![](/fr-CA/2024/07/202407190400YoungJaguar.jpg)|
