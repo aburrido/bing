@@ -20,3 +20,4 @@
 202407162200|MedievalRothenburg|Ville médiévale de Rothenburg ob der Tauber, Allemagne (© kanuman/Getty Images)|Le tour est joué !|![](/fr-FR/2024/07/202407162200MedievalRothenburg.jpg)|
 202407172200|MayotteCoral|Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Le trésor caché des océans|![](/fr-FR/2024/07/202407172200MayotteCoral.jpg)|
 202407182200|YoungJaguar|Jeune jaguar au bord d'une rivière, Pantanal, Brésil (© Tambako the Jaguar/Getty Images)|Un camouflage astucieux|![](/fr-FR/2024/07/202407182200YoungJaguar.jpg)|
+202407192200|MineralMoon|La Lune  (© Victor Blum/Getty Images)|De la Terre à la Lune|![](/fr-FR/2024/07/202407192200MineralMoon.jpg)|
