@@ -19,3 +19,4 @@
 202407161500|GionFestival2024|提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)|今日は祇園祭、前祭の山鉾巡行|![](/ja-JP/2024/07/202407161500GionFestival2024.jpg)|
 202407171500|MayotteCoral|インド洋のサンゴ礁, フランス  (© Gabriel Barathieu/Minden Pictures)|今週は米国のサンゴ礁啓発週間|![](/ja-JP/2024/07/202407171500MayotteCoral.jpg)|
 202407181500|YoungJaguar|大湿原パンタナル, ブラジル (© Tambako the Jaguar/Getty Images)|ネコ科の大型動物ジャガー|![](/ja-JP/2024/07/202407181500YoungJaguar.jpg)|
+202407191500|MineralMoon|観測機器で撮影された月 (© Victor Blum/Getty Images)|今日は国際月の日|![](/ja-JP/2024/07/202407191500MineralMoon.jpg)|
