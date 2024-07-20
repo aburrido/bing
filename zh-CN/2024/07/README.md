@@ -20,3 +20,4 @@
 202407171600|MayotteCoral|Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)|意义深远|![](/zh-CN/2024/07/202407171600MayotteCoral.jpg)|
 202407181600|YoungJaguar|河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)|巧妙的伪装|![](/zh-CN/2024/07/202407181600YoungJaguar.jpg)|
 202407191600|MineralMoon|月球 (© Victor Blum/Getty Images)|到月亮上去|![](/zh-CN/2024/07/202407191600MineralMoon.jpg)|
+202407201600|ZanzibarBoats|肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo)|香料岛之旅|![](/zh-CN/2024/07/202407201600ZanzibarBoats.jpg)|
