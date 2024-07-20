@@ -20,3 +20,4 @@
 202407170700|MedievalRothenburg|Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)|Towering with history|![](/en-US/2024/07/202407170700MedievalRothenburg.jpg)|
 202407180700|MayotteCoral|Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Deep and meaningful|![](/en-US/2024/07/202407180700MayotteCoral.jpg)|
 202407190700|YoungJaguar|A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)|Clever camouflage|![](/en-US/2024/07/202407190700YoungJaguar.jpg)|
+202407200700|MineralMoon|The moon (© Victor Blum/Getty Images)|To the moon and back|![](/en-US/2024/07/202407200700MineralMoon.jpg)|
