@@ -21,3 +21,4 @@
 202407172200|MayotteCoral|Récif corallien, Lagon de Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Le trésor caché des océans|![](/fr-FR/2024/07/202407172200MayotteCoral.jpg)|
 202407182200|YoungJaguar|Jeune jaguar au bord d'une rivière, Pantanal, Brésil (© Tambako the Jaguar/Getty Images)|Un camouflage astucieux|![](/fr-FR/2024/07/202407182200YoungJaguar.jpg)|
 202407192200|MineralMoon|La Lune  (© Victor Blum/Getty Images)|De la Terre à la Lune|![](/fr-FR/2024/07/202407192200MineralMoon.jpg)|
+202407202200|ZanzibarBoats|Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|Le mythe de l’île aux épices|![](/fr-FR/2024/07/202407202200ZanzibarBoats.jpg)|

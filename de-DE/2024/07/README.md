@@ -21,3 +21,4 @@
 202407172200|MayotteCoral|Korallenriff im Indischen Ozean, Mayotte, Frankreich (© Gabriel Barathieu/Minden Pictures)|Tiefgründig und bedeutsam|![](/de-DE/2024/07/202407172200MayotteCoral.jpg)|
 202407182200|YoungJaguar|Ein junger Jaguar am Flussufer, Pantanal, Brasilien (© Tambako the Jaguar/Getty Images)|Clevere Tarnung|![](/de-DE/2024/07/202407182200YoungJaguar.jpg)|
 202407192200|MineralMoon|Der Mond (© Victor Blum/Getty Images)|Die Lampe der Nacht|![](/de-DE/2024/07/202407192200MineralMoon.jpg)|
+202407202200|ZanzibarBoats|Hölzerne Fischerboote im Dorf Kendwa, Sansibar, Tansania (© Lubos Paukeje/Alamy)|Einfach mal treiben lassen|![](/de-DE/2024/07/202407202200ZanzibarBoats.jpg)|
