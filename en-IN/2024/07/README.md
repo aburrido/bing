@@ -21,3 +21,4 @@
 202407181830|YoungJaguar|A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)|Clever camouflage|![](/en-IN/2024/07/202407181830YoungJaguar.jpg)|
 202407191830|MineralMoon|The moon (© Victor Blum/Getty Images)|To the moon and back|![](/en-IN/2024/07/202407191830MineralMoon.jpg)|
 202407201830|ZanzibarBoats|Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)|The Spice Island escape|![](/en-IN/2024/07/202407201830ZanzibarBoats.jpg)|
+202407211830|ElloraCavesMH|Ellora Caves near Aurangabad, Maharashtra (© saiko3p/Shutterstock)|'Heart' of stone|![](/en-IN/2024/07/202407211830ElloraCavesMH.jpg)|
