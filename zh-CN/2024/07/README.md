@@ -21,3 +21,4 @@
 202407181600|YoungJaguar|河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)|巧妙的伪装|![](/zh-CN/2024/07/202407181600YoungJaguar.jpg)|
 202407191600|MineralMoon|月球 (© Victor Blum/Getty Images)|到月亮上去|![](/zh-CN/2024/07/202407191600MineralMoon.jpg)|
 202407201600|ZanzibarBoats|肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo)|香料岛之旅|![](/zh-CN/2024/07/202407201600ZanzibarBoats.jpg)|
+202407211600|TheGreatHeat2024|树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images)|和我一起避暑吧！|![](/zh-CN/2024/07/202407211600TheGreatHeat2024.jpg)|
