@@ -21,3 +21,4 @@
 202407180400|MayotteCoral|Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)|Deep and meaningful|![](/en-CA/2024/07/202407180400MayotteCoral.jpg)|
 202407190400|YoungJaguar|A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)|Clever camouflage|![](/en-CA/2024/07/202407190400YoungJaguar.jpg)|
 202407200400|MineralMoon|The moon (© Victor Blum/Getty Images)|To the moon and back|![](/en-CA/2024/07/202407200400MineralMoon.jpg)|
+202407210400|ZanzibarBoats|Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)|The Spice Island escape|![](/en-CA/2024/07/202407210400ZanzibarBoats.jpg)|
