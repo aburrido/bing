@@ -23,3 +23,4 @@
 202407192200|MineralMoon|Der Mond (© Victor Blum/Getty Images)|Die Lampe der Nacht|![](/de-DE/2024/07/202407192200MineralMoon.jpg)|
 202407202200|ZanzibarBoats|Hölzerne Fischerboote im Dorf Kendwa, Sansibar, Tansania (© Lubos Paukeje/Alamy)|Einfach mal treiben lassen|![](/de-DE/2024/07/202407202200ZanzibarBoats.jpg)|
 202407212200|WickerBeachBaskets|Strandkörbe auf der Insel Rügen, Deutschland (© Peter Adams/Getty images)|Ein Wohnzimmer am Meer|![](/de-DE/2024/07/202407212200WickerBeachBaskets.jpg)|
+202407222200|MethoniCastle|Burg von Methoni, Messenien, Griechenland (© Andrew Mayovskyy/Shutterstock)|Auf den Spuren der Geschichte|![](/de-DE/2024/07/202407222200MethoniCastle.jpg)|
