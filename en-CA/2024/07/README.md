@@ -22,3 +22,4 @@
 202407190400|YoungJaguar|A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)|Clever camouflage|![](/en-CA/2024/07/202407190400YoungJaguar.jpg)|
 202407200400|MineralMoon|The moon (© Victor Blum/Getty Images)|To the moon and back|![](/en-CA/2024/07/202407200400MineralMoon.jpg)|
 202407210400|ZanzibarBoats|Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)|The Spice Island escape|![](/en-CA/2024/07/202407210400ZanzibarBoats.jpg)|
+202407220400|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Just 'hanging' out|![](/en-CA/2024/07/202407220400HammockCamping.jpg)|

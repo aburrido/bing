@@ -21,3 +21,4 @@
 202407190400|YoungJaguar|Jeune jaguar au bord d'une rivière, Pantanal, Brésil (© Tambako the Jaguar/Getty Images)|Un camouflage astucieux|![](/fr-CA/2024/07/202407190400YoungJaguar.jpg)|
 202407200400|MineralMoon|La Lune (© Victor Blum/Getty Images)|De la Terre à la Lune|![](/fr-CA/2024/07/202407200400MineralMoon.jpg)|
 202407210400|ZanzibarBoats|Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|Le mythe de l’île aux épices|![](/fr-CA/2024/07/202407210400ZanzibarBoats.jpg)|
+202407220400|HammockCamping|Campement dans un hamac au bord d'un lac en Floride, États-Unis (© Mac Stone/Tandem Stills + Motion)|Juste se laisser aller|![](/fr-CA/2024/07/202407220400HammockCamping.jpg)|
