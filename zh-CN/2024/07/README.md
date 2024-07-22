@@ -22,3 +22,4 @@
 202407191600|MineralMoon|月球 (© Victor Blum/Getty Images)|到月亮上去|![](/zh-CN/2024/07/202407191600MineralMoon.jpg)|
 202407201600|ZanzibarBoats|肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo)|香料岛之旅|![](/zh-CN/2024/07/202407201600ZanzibarBoats.jpg)|
 202407211600|TheGreatHeat2024|树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images)|和我一起避暑吧！|![](/zh-CN/2024/07/202407211600TheGreatHeat2024.jpg)|
+202407221600|MethoniCastle|迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)|历史的回响|![](/zh-CN/2024/07/202407221600MethoniCastle.jpg)|
