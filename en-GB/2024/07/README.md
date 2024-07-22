@@ -22,3 +22,4 @@
 202407192300|MineralMoon|The moon (© Victor Blum/Getty Images)|To the moon and back|![](/en-GB/2024/07/202407192300MineralMoon.jpg)|
 202407202300|ZanzibarBoats|Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy Stock Photo)|The Spice Island escape|![](/en-GB/2024/07/202407202300ZanzibarBoats.jpg)|
 202407212300|BuckinghamOpening2024|Buckingham Palace, London (© Zoonar/Andriy Kravchenko/Alamy Stock Photo)|Keeping it regal|![](/en-GB/2024/07/202407212300BuckinghamOpening2024.jpg)|
+202407222300|MethoniCastle|Methoni Castle, Messinia, Greece (© Andrew Mayovskyy/Shutterstock)|Echoes of history|![](/en-GB/2024/07/202407222300MethoniCastle.jpg)|
