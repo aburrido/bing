@@ -22,3 +22,4 @@
 202407191500|MineralMoon|観測機器で撮影された月 (© Victor Blum/Getty Images)|今日は国際月の日|![](/ja-JP/2024/07/202407191500MineralMoon.jpg)|
 202407201500|ZanzibarBoats|ザンジバル諸島のケンドワ村, タンザニア (© Lubos Paukeje/Alamy)|青い海に点在する伝統的な木造船|![](/ja-JP/2024/07/202407201500ZanzibarBoats.jpg)|
 202407211500|MedievalRothenburg|ローテンブルク・オプ・デア・タウバー, ドイツ (© kanuman/Getty Images)|中世のままの街並み|![](/ja-JP/2024/07/202407211500MedievalRothenburg.jpg)|
+202407221500|MethoniCastle|メトーニ城, ギリシャ (© Andrew Mayovskyy/Shutterstock)|中世の海上要塞|![](/ja-JP/2024/07/202407221500MethoniCastle.jpg)|
