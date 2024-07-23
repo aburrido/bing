@@ -24,3 +24,4 @@
 202407210700|ZanzibarBoats|Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)|Info|![](/en-AU/2024/07/202407210700ZanzibarBoats.jpg)|
 202407220700|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Info|![](/en-AU/2024/07/202407220700HammockCamping.jpg)|
 202407230700|MethoniCastle|Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)|Info|![](/en-AU/2024/07/202407230700MethoniCastle.jpg)|
+||||![](/en-AU/2024/07/.jpg)|
