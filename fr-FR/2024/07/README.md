@@ -24,3 +24,4 @@
 202407202200|ZanzibarBoats|Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|Le mythe de l’île aux épices|![](/fr-FR/2024/07/202407202200ZanzibarBoats.jpg)|
 202407212200|SaintFrancois|Coucher de soleil sur la plage de l'Anse Champagne à Saint-François, Guadeloupe, Caraïbes (© Fyletto/Getty Images)|Un joyau caraïbéen|![](/fr-FR/2024/07/202407212200SaintFrancois.jpg)|
 202407222200|MethoniCastle|Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)|Vestige d’une puissance médiévale|![](/fr-FR/2024/07/202407222200MethoniCastle.jpg)|
+202407232200|SheepCousins|Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)|Cousins, cousines|![](/fr-FR/2024/07/202407232200SheepCousins.jpg)|
