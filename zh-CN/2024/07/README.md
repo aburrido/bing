@@ -24,3 +24,4 @@
 202407211600|TheGreatHeat2024|树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images)|和我一起避暑吧！|![](/zh-CN/2024/07/202407211600TheGreatHeat2024.jpg)|
 202407221600|MethoniCastle|迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)|历史的回响|![](/zh-CN/2024/07/202407221600MethoniCastle.jpg)|
 ||||![](/zh-CN/2024/07/.jpg)|
+202407231600|SheepCousins|北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)|可爱的羊咩咩一家|![](/zh-CN/2024/07/202407231600SheepCousins.jpg)|
