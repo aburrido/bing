@@ -23,3 +23,4 @@
 202407200700|MineralMoon|The moon (© Victor Blum/Getty Images)|To the moon and back|![](/en-US/2024/07/202407200700MineralMoon.jpg)|
 202407210700|ZanzibarBoats|Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)|Smooth sailing|![](/en-US/2024/07/202407210700ZanzibarBoats.jpg)|
 202407220700|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Just hanging out|![](/en-US/2024/07/202407220700HammockCamping.jpg)|
+202407230700|MethoniCastle|Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)|Echoes of history|![](/en-US/2024/07/202407230700MethoniCastle.jpg)|
