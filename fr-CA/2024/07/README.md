@@ -22,3 +22,4 @@
 202407200400|MineralMoon|La Lune (© Victor Blum/Getty Images)|De la Terre à la Lune|![](/fr-CA/2024/07/202407200400MineralMoon.jpg)|
 202407210400|ZanzibarBoats|Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|Le mythe de l’île aux épices|![](/fr-CA/2024/07/202407210400ZanzibarBoats.jpg)|
 202407220400|HammockCamping|Campement dans un hamac au bord d'un lac en Floride, États-Unis (© Mac Stone/Tandem Stills + Motion)|Juste se laisser aller|![](/fr-CA/2024/07/202407220400HammockCamping.jpg)|
+202407230400|MethoniCastle|Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)|Vestige d’une puissance médiévale|![](/fr-CA/2024/07/202407230400MethoniCastle.jpg)|
