@@ -25,3 +25,4 @@
 202407221600|MethoniCastle|迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)|历史的回响|![](/zh-CN/2024/07/202407221600MethoniCastle.jpg)|
 ||||![](/zh-CN/2024/07/.jpg)|
 202407231600|SheepCousins|北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)|可爱的羊咩咩一家|![](/zh-CN/2024/07/202407231600SheepCousins.jpg)|
+202407241600|SmokyMountainTrail|大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)|深入其中|![](/zh-CN/2024/07/202407241600SmokyMountainTrail.jpg)|
