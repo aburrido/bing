@@ -23,3 +23,4 @@
 202407210400|ZanzibarBoats|Bateaux de pêche en bois, village de Kendwa, Zanzibar, Tanzanie (© Lubos Paukeje/Alamy)|Le mythe de l’île aux épices|![](/fr-CA/2024/07/202407210400ZanzibarBoats.jpg)|
 202407220400|HammockCamping|Campement dans un hamac au bord d'un lac en Floride, États-Unis (© Mac Stone/Tandem Stills + Motion)|Juste se laisser aller|![](/fr-CA/2024/07/202407220400HammockCamping.jpg)|
 202407230400|MethoniCastle|Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)|Vestige d’une puissance médiévale|![](/fr-CA/2024/07/202407230400MethoniCastle.jpg)|
+202407240400|SheepCousins|Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)|Cousins, cousines|![](/fr-CA/2024/07/202407240400SheepCousins.jpg)|
