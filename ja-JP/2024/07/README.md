@@ -24,3 +24,4 @@
 202407211500|MedievalRothenburg|ローテンブルク・オプ・デア・タウバー, ドイツ (© kanuman/Getty Images)|中世のままの街並み|![](/ja-JP/2024/07/202407211500MedievalRothenburg.jpg)|
 202407221500|MethoniCastle|メトーニ城, ギリシャ (© Andrew Mayovskyy/Shutterstock)|中世の海上要塞|![](/ja-JP/2024/07/202407221500MethoniCastle.jpg)|
 202407231500|WindBell2024|川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)|「縁結び風鈴」開催中|![](/ja-JP/2024/07/202407231500WindBell2024.jpg)|
+202407241500|SmokyMountainTrail|グレート・スモーキー山脈国立公園, 米国 (© putmanphoto/Getty Images)|鬱蒼とした森林|![](/ja-JP/2024/07/202407241500SmokyMountainTrail.jpg)|
