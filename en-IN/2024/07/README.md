@@ -24,3 +24,4 @@
 202407211830|ElloraCavesMH|Ellora Caves near Aurangabad, Maharashtra (© saiko3p/Shutterstock)|'Heart' of stone|![](/en-IN/2024/07/202407211830ElloraCavesMH.jpg)|
 202407221830|MethoniCastle|Methoni Castle, Messinia, Greece (© Andrew Mayovskyy/Shutterstock)|Echoes of history|![](/en-IN/2024/07/202407221830MethoniCastle.jpg)|
 202407231830|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Baa-utiful family|![](/en-IN/2024/07/202407231830SheepCousins.jpg)|
+202407241830|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)|Into the thick of it|![](/en-IN/2024/07/202407241830SmokyMountainTrail.jpg)|
