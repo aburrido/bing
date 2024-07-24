@@ -25,3 +25,4 @@
 202407222300|MethoniCastle|Methoni Castle, Messinia, Greece (© Andrew Mayovskyy/Shutterstock)|Echoes of history|![](/en-GB/2024/07/202407222300MethoniCastle.jpg)|
 ||||![](/en-GB/2024/07/.jpg)|
 202407232300|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Baa-utiful family|![](/en-GB/2024/07/202407232300SheepCousins.jpg)|
+202407242300|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee, USA (© putmanphoto/Getty Images)|Into the thick of it|![](/en-GB/2024/07/202407242300SmokyMountainTrail.jpg)|
