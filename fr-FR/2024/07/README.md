@@ -25,3 +25,4 @@
 202407212200|SaintFrancois|Coucher de soleil sur la plage de l'Anse Champagne à Saint-François, Guadeloupe, Caraïbes (© Fyletto/Getty Images)|Un joyau caraïbéen|![](/fr-FR/2024/07/202407212200SaintFrancois.jpg)|
 202407222200|MethoniCastle|Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)|Vestige d’une puissance médiévale|![](/fr-FR/2024/07/202407222200MethoniCastle.jpg)|
 202407232200|SheepCousins|Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)|Cousins, cousines|![](/fr-FR/2024/07/202407232200SheepCousins.jpg)|
+202407242200|SmokyMountainTrail|Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)|Le trésor naturel au Tennessee|![](/fr-FR/2024/07/202407242200SmokyMountainTrail.jpg)|

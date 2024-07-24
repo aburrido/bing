@@ -25,3 +25,4 @@
 202407212200|WickerBeachBaskets|Strandkörbe auf der Insel Rügen, Deutschland (© Peter Adams/Getty images)|Ein Wohnzimmer am Meer|![](/de-DE/2024/07/202407212200WickerBeachBaskets.jpg)|
 202407222200|MethoniCastle|Burg von Methoni, Messenien, Griechenland (© Andrew Mayovskyy/Shutterstock)|Auf den Spuren der Geschichte|![](/de-DE/2024/07/202407222200MethoniCastle.jpg)|
 202407232200|SheepCousins|Herde von Swaledale-Schafen in North Yorkshire, England (© R A Kearton/Getty Images)|Ganz schön flauschig|![](/de-DE/2024/07/202407232200SheepCousins.jpg)|
+202407242200|SmokyMountainTrail|Waldweg im Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© putmanphoto/Getty Images)|Mittendrin statt nur dabei|![](/de-DE/2024/07/202407242200SmokyMountainTrail.jpg)|
