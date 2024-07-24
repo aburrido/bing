@@ -25,3 +25,4 @@
 202407220700|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Info|![](/en-AU/2024/07/202407220700HammockCamping.jpg)|
 202407230700|MethoniCastle|Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)|Info|![](/en-AU/2024/07/202407230700MethoniCastle.jpg)|
 ||||![](/en-AU/2024/07/.jpg)|
+202407240700|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Info|![](/en-AU/2024/07/202407240700SheepCousins.jpg)|
