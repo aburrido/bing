@@ -26,3 +26,4 @@
 ||||![](/en-GB/2024/07/.jpg)|
 202407232300|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Baa-utiful family|![](/en-GB/2024/07/202407232300SheepCousins.jpg)|
 202407242300|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee, USA (© putmanphoto/Getty Images)|Into the thick of it|![](/en-GB/2024/07/202407242300SmokyMountainTrail.jpg)|
+202407252300|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Let the Games begin!|![](/en-GB/2024/07/202407252300PontNeuf.jpg)|
