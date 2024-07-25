@@ -26,3 +26,4 @@
 202407222200|MethoniCastle|Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)|Vestige d’une puissance médiévale|![](/fr-FR/2024/07/202407222200MethoniCastle.jpg)|
 202407232200|SheepCousins|Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)|Cousins, cousines|![](/fr-FR/2024/07/202407232200SheepCousins.jpg)|
 202407242200|SmokyMountainTrail|Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)|Le trésor naturel au Tennessee|![](/fr-FR/2024/07/202407242200SmokyMountainTrail.jpg)|
+202407252200|ParisOlympicGames|Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)|« Ouvrons grand les Jeux »|![](/fr-FR/2024/07/202407252200ParisOlympicGames.jpg)|
