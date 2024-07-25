@@ -25,3 +25,4 @@
 202407220400|HammockCamping|Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)|Just 'hanging' out|![](/en-CA/2024/07/202407220400HammockCamping.jpg)|
 202407230400|MethoniCastle|Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)|Echoes of history|![](/en-CA/2024/07/202407230400MethoniCastle.jpg)|
 202407240400|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Baa-utiful family|![](/en-CA/2024/07/202407240400SheepCousins.jpg)|
+202407250400|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)|Into the thick of it|![](/en-CA/2024/07/202407250400SmokyMountainTrail.jpg)|
