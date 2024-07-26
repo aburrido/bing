@@ -26,3 +26,4 @@
 202407230700|MethoniCastle|Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)|Echoes of history|![](/en-US/2024/07/202407230700MethoniCastle.jpg)|
 202407240700|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Baa-utiful family|![](/en-US/2024/07/202407240700SheepCousins.jpg)|
 202407250700|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)|Into the thick of it|![](/en-US/2024/07/202407250700SmokyMountainTrail.jpg)|
+202407260700|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Let the Games begin!|![](/en-US/2024/07/202407260700PontNeuf.jpg)|
