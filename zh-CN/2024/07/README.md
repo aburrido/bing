@@ -27,3 +27,4 @@
 202407231600|SheepCousins|北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)|可爱的羊咩咩一家|![](/zh-CN/2024/07/202407231600SheepCousins.jpg)|
 202407241600|SmokyMountainTrail|大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)|深入其中|![](/zh-CN/2024/07/202407241600SmokyMountainTrail.jpg)|
 202407251600|PontNeuf|塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)|比赛开始|![](/zh-CN/2024/07/202407251600PontNeuf.jpg)|
+202407261600|RhinelandVineyards|摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国 (© Jorg Greuel/Getty Images)|完美的葡萄酒|![](/zh-CN/2024/07/202407261600RhinelandVineyards.jpg)|
