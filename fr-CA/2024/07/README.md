@@ -25,3 +25,4 @@
 202407230400|MethoniCastle|Château de Méthoni, Messénie, Grèce (© Andrew Mayovskyy/Shutterstock)|Vestige d’une puissance médiévale|![](/fr-CA/2024/07/202407230400MethoniCastle.jpg)|
 202407240400|SheepCousins|Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)|Cousins, cousines|![](/fr-CA/2024/07/202407240400SheepCousins.jpg)|
 202407250400|SmokyMountainTrail|Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)|Le trésor naturel du Tennessee|![](/fr-CA/2024/07/202407250400SmokyMountainTrail.jpg)|
+202407260400|PontNeuf|Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)|Que les Jeux commencent!|![](/fr-CA/2024/07/202407260400PontNeuf.jpg)|
