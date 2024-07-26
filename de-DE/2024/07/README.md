@@ -27,3 +27,4 @@
 202407232200|SheepCousins|Herde von Swaledale-Schafen in North Yorkshire, England (© R A Kearton/Getty Images)|Ganz schön flauschig|![](/de-DE/2024/07/202407232200SheepCousins.jpg)|
 202407242200|SmokyMountainTrail|Waldweg im Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© putmanphoto/Getty Images)|Mittendrin statt nur dabei|![](/de-DE/2024/07/202407242200SmokyMountainTrail.jpg)|
 202407252200|PontNeuf|Pont Neuf über der Seine, Paris, Frankreich (© f11photo/Getty Images)|Mögen die Spiele beginnen!|![](/de-DE/2024/07/202407252200PontNeuf.jpg)|
+202407262200|RhinelandVineyards|Weinberge im Moseltal, Rheinland-Pfalz (© Jorg Greuel/Getty Images)|Riesling in Perfektion|![](/de-DE/2024/07/202407262200RhinelandVineyards.jpg)|
