@@ -26,3 +26,4 @@
 202407231500|WindBell2024|川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)|「縁結び風鈴」開催中|![](/ja-JP/2024/07/202407231500WindBell2024.jpg)|
 202407241500|SmokyMountainTrail|グレート・スモーキー山脈国立公園, 米国 (© putmanphoto/Getty Images)|鬱蒼とした森林|![](/ja-JP/2024/07/202407241500SmokyMountainTrail.jpg)|
 202407251500|PontNeuf|セーヌ川に架かるポンヌフ橋, フランス パリ市 (© f11photo/Getty Images)|今日はパリ夏季五輪の開幕日|![](/ja-JP/2024/07/202407251500PontNeuf.jpg)|
+202407261500|RhinelandVineyards|プファルツ地方, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)|なだらかな丘陵地にあるブドウ畑|![](/ja-JP/2024/07/202407261500RhinelandVineyards.jpg)|
