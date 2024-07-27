@@ -28,3 +28,4 @@
 202407241600|SmokyMountainTrail|大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)|深入其中|![](/zh-CN/2024/07/202407241600SmokyMountainTrail.jpg)|
 202407251600|PontNeuf|塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)|比赛开始|![](/zh-CN/2024/07/202407251600PontNeuf.jpg)|
 202407261600|RhinelandVineyards|摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国 (© Jorg Greuel/Getty Images)|完美的葡萄酒|![](/zh-CN/2024/07/202407261600RhinelandVineyards.jpg)|
+202407271600|BeachHutsSweden|斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)|色彩斑斓的海岸线|![](/zh-CN/2024/07/202407271600BeachHutsSweden.jpg)|
