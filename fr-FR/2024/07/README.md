@@ -28,3 +28,4 @@
 202407242200|SmokyMountainTrail|Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)|Le trésor naturel au Tennessee|![](/fr-FR/2024/07/202407242200SmokyMountainTrail.jpg)|
 202407252200|ParisOlympicGames|Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)|« Ouvrons grand les Jeux »|![](/fr-FR/2024/07/202407252200ParisOlympicGames.jpg)|
 202407262200|RhinelandVineyards|Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)|La première région viticole d’Allemagne|![](/fr-FR/2024/07/202407262200RhinelandVineyards.jpg)|
+202407272200|BeachHutsSweden|Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)|Un rivage suédois pittoresque|![](/fr-FR/2024/07/202407272200BeachHutsSweden.jpg)|

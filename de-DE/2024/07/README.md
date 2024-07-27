@@ -28,3 +28,4 @@
 202407242200|SmokyMountainTrail|Waldweg im Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© putmanphoto/Getty Images)|Mittendrin statt nur dabei|![](/de-DE/2024/07/202407242200SmokyMountainTrail.jpg)|
 202407252200|PontNeuf|Pont Neuf über der Seine, Paris, Frankreich (© f11photo/Getty Images)|Mögen die Spiele beginnen!|![](/de-DE/2024/07/202407252200PontNeuf.jpg)|
 202407262200|RhinelandVineyards|Weinberge im Moseltal, Rheinland-Pfalz (© Jorg Greuel/Getty Images)|Riesling in Perfektion|![](/de-DE/2024/07/202407262200RhinelandVineyards.jpg)|
+202407272200|BeachHutsSweden|Badehütten am Strand in der Provinz Skåne Iän, Schweden (© Martin Wahlborg/Getty Images)|Farbenfrohe Küste|![](/de-DE/2024/07/202407272200BeachHutsSweden.jpg)|
