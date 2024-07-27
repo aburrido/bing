@@ -26,3 +26,4 @@
 202407240400|SheepCousins|Troupeau de moutons de Swaledale dans le Yorkshire du Nord, Angleterre (© R A Kearton/Getty Images)|Cousins, cousines|![](/fr-CA/2024/07/202407240400SheepCousins.jpg)|
 202407250400|SmokyMountainTrail|Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)|Le trésor naturel du Tennessee|![](/fr-CA/2024/07/202407250400SmokyMountainTrail.jpg)|
 202407260400|PontNeuf|Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)|Que les Jeux commencent!|![](/fr-CA/2024/07/202407260400PontNeuf.jpg)|
+202407270400|RhinelandVineyards|Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)|La première région viticole d’Allemagne|![](/fr-CA/2024/07/202407270400RhinelandVineyards.jpg)|

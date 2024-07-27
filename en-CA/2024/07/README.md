@@ -27,3 +27,4 @@
 202407240400|SheepCousins|Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)|Baa-utiful family|![](/en-CA/2024/07/202407240400SheepCousins.jpg)|
 202407250400|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)|Into the thick of it|![](/en-CA/2024/07/202407250400SmokyMountainTrail.jpg)|
 202407260400|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Let the Games begin!|![](/en-CA/2024/07/202407260400PontNeuf.jpg)|
+202407270400|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|'Riesling' to perfection|![](/en-CA/2024/07/202407270400RhinelandVineyards.jpg)|
