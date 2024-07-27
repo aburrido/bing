@@ -28,3 +28,4 @@
 202407242300|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee, USA (© putmanphoto/Getty Images)|Into the thick of it|![](/en-GB/2024/07/202407242300SmokyMountainTrail.jpg)|
 202407252300|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Let the Games begin!|![](/en-GB/2024/07/202407252300PontNeuf.jpg)|
 202407262300|CowesWeek2024|Cowes Harbour, Cowes, Isle of Wight, England (© LyonesseImages/Alamy Stock Photo)|A sail-ebration|![](/en-GB/2024/07/202407262300CowesWeek2024.jpg)|
+202407272300|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-GB/2024/07/202407272300BeachHutsSweden.jpg)|
