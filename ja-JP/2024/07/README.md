@@ -27,3 +27,4 @@
 202407241500|SmokyMountainTrail|グレート・スモーキー山脈国立公園, 米国 (© putmanphoto/Getty Images)|鬱蒼とした森林|![](/ja-JP/2024/07/202407241500SmokyMountainTrail.jpg)|
 202407251500|PontNeuf|セーヌ川に架かるポンヌフ橋, フランス パリ市 (© f11photo/Getty Images)|今日はパリ夏季五輪の開幕日|![](/ja-JP/2024/07/202407251500PontNeuf.jpg)|
 202407261500|RhinelandVineyards|プファルツ地方, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)|なだらかな丘陵地にあるブドウ畑|![](/ja-JP/2024/07/202407261500RhinelandVineyards.jpg)|
+202407271500|BeachHutsSweden|カノールス・ハヴスバッド, スウェーデン スコーネ県 (© Martin Wahlborg/Getty Images)|砂浜に並ぶカラフルな小屋|![](/ja-JP/2024/07/202407271500BeachHutsSweden.jpg)|
