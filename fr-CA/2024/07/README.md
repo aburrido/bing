@@ -27,3 +27,4 @@
 202407250400|SmokyMountainTrail|Chemin forestier dans le parc national des Great Smoky Mountains, Tennessee, États-Unis (© putmanphoto/Getty Images)|Le trésor naturel du Tennessee|![](/fr-CA/2024/07/202407250400SmokyMountainTrail.jpg)|
 202407260400|PontNeuf|Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)|Que les Jeux commencent!|![](/fr-CA/2024/07/202407260400PontNeuf.jpg)|
 202407270400|RhinelandVineyards|Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)|La première région viticole d’Allemagne|![](/fr-CA/2024/07/202407270400RhinelandVineyards.jpg)|
+202407280400|BeachHutsSweden|Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)|Un rivage suédois pittoresque|![](/fr-CA/2024/07/202407280400BeachHutsSweden.jpg)|
