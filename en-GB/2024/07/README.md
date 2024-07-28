@@ -29,3 +29,4 @@
 202407252300|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Let the Games begin!|![](/en-GB/2024/07/202407252300PontNeuf.jpg)|
 202407262300|CowesWeek2024|Cowes Harbour, Cowes, Isle of Wight, England (© LyonesseImages/Alamy Stock Photo)|A sail-ebration|![](/en-GB/2024/07/202407262300CowesWeek2024.jpg)|
 202407272300|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-GB/2024/07/202407272300BeachHutsSweden.jpg)|
+202407282300|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Roar and explore|![](/en-GB/2024/07/202407282300CorbettTigers.jpg)|
