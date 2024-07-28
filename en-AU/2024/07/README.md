@@ -29,3 +29,4 @@
 202407250700|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)|Info|![](/en-AU/2024/07/202407250700SmokyMountainTrail.jpg)|
 202407260700|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Info|![](/en-AU/2024/07/202407260700PontNeuf.jpg)|
 202407270700|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|Info|![](/en-AU/2024/07/202407270700RhinelandVineyards.jpg)|
+202407280700|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Info|![](/en-AU/2024/07/202407280700BeachHutsSweden.jpg)|

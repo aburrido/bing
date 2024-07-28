@@ -28,3 +28,4 @@
 202407250700|SmokyMountainTrail|Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)|Into the thick of it|![](/en-US/2024/07/202407250700SmokyMountainTrail.jpg)|
 202407260700|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Let the Games begin!|![](/en-US/2024/07/202407260700PontNeuf.jpg)|
 202407270700|RhinelandVineyards|Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|'Riesling' to perfection|![](/en-US/2024/07/202407270700RhinelandVineyards.jpg)|
+202407280700|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-US/2024/07/202407280700BeachHutsSweden.jpg)|
