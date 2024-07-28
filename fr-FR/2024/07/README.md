@@ -29,3 +29,4 @@
 202407252200|ParisOlympicGames|Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)|« Ouvrons grand les Jeux »|![](/fr-FR/2024/07/202407252200ParisOlympicGames.jpg)|
 202407262200|RhinelandVineyards|Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)|La première région viticole d’Allemagne|![](/fr-FR/2024/07/202407262200RhinelandVineyards.jpg)|
 202407272200|BeachHutsSweden|Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)|Un rivage suédois pittoresque|![](/fr-FR/2024/07/202407272200BeachHutsSweden.jpg)|
+202407282200|CorbettTigers|Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)|Le roi du bengale|![](/fr-FR/2024/07/202407282200CorbettTigers.jpg)|

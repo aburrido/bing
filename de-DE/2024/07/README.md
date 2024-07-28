@@ -29,3 +29,4 @@
 202407252200|PontNeuf|Pont Neuf über der Seine, Paris, Frankreich (© f11photo/Getty Images)|Mögen die Spiele beginnen!|![](/de-DE/2024/07/202407252200PontNeuf.jpg)|
 202407262200|RhinelandVineyards|Weinberge im Moseltal, Rheinland-Pfalz (© Jorg Greuel/Getty Images)|Riesling in Perfektion|![](/de-DE/2024/07/202407262200RhinelandVineyards.jpg)|
 202407272200|BeachHutsSweden|Badehütten am Strand in der Provinz Skåne Iän, Schweden (© Martin Wahlborg/Getty Images)|Farbenfrohe Küste|![](/de-DE/2024/07/202407272200BeachHutsSweden.jpg)|
+202407282200|CorbettTigers|Tigergeschwister im Jim-Corbett-Nationalpark, Uttarakhand, Indien (© Sourabh Bharti/Getty Images)|Die unzähmbare Majestät der Wildnis|![](/de-DE/2024/07/202407282200CorbettTigers.jpg)|
