@@ -28,3 +28,4 @@
 202407251830|KargilMemorial|Defence personnel pay tribute to Kargil martyrs (© Hindustan Times/Contributor/Getty images)|Valour in stone|![](/en-IN/2024/07/202407251830KargilMemorial.jpg)|
 202407261830|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|'Riesling' to perfection|![](/en-IN/2024/07/202407261830RhinelandVineyards.jpg)|
 202407271830|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-IN/2024/07/202407271830BeachHutsSweden.jpg)|
+202407281830|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Roar and explore|![](/en-IN/2024/07/202407281830CorbettTigers.jpg)|
