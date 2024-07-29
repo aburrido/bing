@@ -29,3 +29,4 @@
 202407261500|RhinelandVineyards|プファルツ地方, ドイツ ラインラント＝プファルツ州 (© Jorg Greuel/Getty Images)|なだらかな丘陵地にあるブドウ畑|![](/ja-JP/2024/07/202407261500RhinelandVineyards.jpg)|
 202407271500|BeachHutsSweden|カノールス・ハヴスバッド, スウェーデン スコーネ県 (© Martin Wahlborg/Getty Images)|砂浜に並ぶカラフルな小屋|![](/ja-JP/2024/07/202407271500BeachHutsSweden.jpg)|
 202407281500|CorbettTigers|ジム・コーベット国立公園, インド ウッタラーカンド州 (© Sourabh Bharti/Getty Images)|今日は世界トラの日|![](/ja-JP/2024/07/202407281500CorbettTigers.jpg)|
+202407291500|GimignanoTuscany|サン・ジミニャーノ, イタリア トスカーナ州 (© MNStudio/Shutterstock)|美しい中世の塔が立ち並ぶ街|![](/ja-JP/2024/07/202407291500GimignanoTuscany.jpg)|
