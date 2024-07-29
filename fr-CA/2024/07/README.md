@@ -28,3 +28,4 @@
 202407260400|PontNeuf|Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)|Que les Jeux commencent!|![](/fr-CA/2024/07/202407260400PontNeuf.jpg)|
 202407270400|RhinelandVineyards|Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)|La première région viticole d’Allemagne|![](/fr-CA/2024/07/202407270400RhinelandVineyards.jpg)|
 202407280400|BeachHutsSweden|Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)|Un rivage suédois pittoresque|![](/fr-CA/2024/07/202407280400BeachHutsSweden.jpg)|
+202407290400|CorbettTigers|Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)|Le roi du bengale|![](/fr-CA/2024/07/202407290400CorbettTigers.jpg)|
