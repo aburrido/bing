@@ -30,3 +30,4 @@
 202407260700|PontNeuf|Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)|Info|![](/en-AU/2024/07/202407260700PontNeuf.jpg)|
 202407270700|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|Info|![](/en-AU/2024/07/202407270700RhinelandVineyards.jpg)|
 202407280700|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Info|![](/en-AU/2024/07/202407280700BeachHutsSweden.jpg)|
+202407290700|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Info|![](/en-AU/2024/07/202407290700CorbettTigers.jpg)|
