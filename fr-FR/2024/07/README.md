@@ -30,3 +30,4 @@
 202407262200|RhinelandVineyards|Vignobles de la vallée de la Moselle, Rhénanie-Palatinat, Allemagne (© Jorg Greuel/Getty Images)|La première région viticole d’Allemagne|![](/fr-FR/2024/07/202407262200RhinelandVineyards.jpg)|
 202407272200|BeachHutsSweden|Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)|Un rivage suédois pittoresque|![](/fr-FR/2024/07/202407272200BeachHutsSweden.jpg)|
 202407282200|CorbettTigers|Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)|Le roi du bengale|![](/fr-FR/2024/07/202407282200CorbettTigers.jpg)|
+202407292200|ImpalaOxpecker|Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)|Un roman d’amitié|![](/fr-FR/2024/07/202407292200ImpalaOxpecker.jpg)|
