@@ -31,3 +31,4 @@
 202407272200|BeachHutsSweden|Badehütten am Strand in der Provinz Skåne Iän, Schweden (© Martin Wahlborg/Getty Images)|Farbenfrohe Küste|![](/de-DE/2024/07/202407272200BeachHutsSweden.jpg)|
 202407282200|CorbettTigers|Tigergeschwister im Jim-Corbett-Nationalpark, Uttarakhand, Indien (© Sourabh Bharti/Getty Images)|Die unzähmbare Majestät der Wildnis|![](/de-DE/2024/07/202407282200CorbettTigers.jpg)|
 202407292200|GrayWolfPups|Spielende Wolfswelpen in Deutschland (© Westend61/Getty Images)|Ein Fest der Verbundenheit|![](/de-DE/2024/07/202407292200GrayWolfPups.jpg)|
+202407302200|HoodoosBryce|Hoodoos, Sunset Point, Bryce Canyon Nationalpark, Utah, USA (© Tim Fitzharris/Minden Pictures)|Ein Wald aus Steinen|![](/de-DE/2024/07/202407302200HoodoosBryce.jpg)|

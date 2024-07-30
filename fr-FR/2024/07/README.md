@@ -31,3 +31,4 @@
 202407272200|BeachHutsSweden|Cabines de bain sur la plage, comté de Scanie, Suède (© Martin Wahlborg/Getty Images)|Un rivage suédois pittoresque|![](/fr-FR/2024/07/202407272200BeachHutsSweden.jpg)|
 202407282200|CorbettTigers|Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)|Le roi du bengale|![](/fr-FR/2024/07/202407282200CorbettTigers.jpg)|
 202407292200|ImpalaOxpecker|Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)|Un roman d’amitié|![](/fr-FR/2024/07/202407292200ImpalaOxpecker.jpg)|
+202407302200|HoodoosBryce|Cheminées de fée, Sunset Point, Parc national de Bryce Canyon, Utah, États-Unis (© Tim Fitzharris/Minden Pictures)|Un paysage à « blu-fée »|![](/fr-FR/2024/07/202407302200HoodoosBryce.jpg)|
