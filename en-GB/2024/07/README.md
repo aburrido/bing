@@ -31,3 +31,4 @@
 202407272300|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-GB/2024/07/202407272300BeachHutsSweden.jpg)|
 202407282300|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Roar and explore|![](/en-GB/2024/07/202407282300CorbettTigers.jpg)|
 202407292300|ImpalaOxpecker|Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)|You've got a friend in me|![](/en-GB/2024/07/202407292300ImpalaOxpecker.jpg)|
+202407302300|HoodoosBryce|Hoodoos, Sunset Point, Bryce Canyon National Park, Utah, USA (© Tim Fitzharris/Minden Pictures)|'Hoodoo' we have here?|![](/en-GB/2024/07/202407302300HoodoosBryce.jpg)|
