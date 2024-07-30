@@ -30,3 +30,4 @@
 202407271830|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-IN/2024/07/202407271830BeachHutsSweden.jpg)|
 202407281830|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Roar and explore|![](/en-IN/2024/07/202407281830CorbettTigers.jpg)|
 202407291830|GimignanoTuscany|San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)|A medieval Manhattan|![](/en-IN/2024/07/202407291830GimignanoTuscany.jpg)|
+||||![](/en-IN/2024/07/.jpg)|
