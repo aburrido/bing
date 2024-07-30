@@ -30,3 +30,4 @@
 202407270400|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|'Riesling' to perfection|![](/en-CA/2024/07/202407270400RhinelandVineyards.jpg)|
 202407280400|BeachHutsSweden|Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)|Chromatic coastline|![](/en-CA/2024/07/202407280400BeachHutsSweden.jpg)|
 202407290400|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Roar and explore|![](/en-CA/2024/07/202407290400CorbettTigers.jpg)|
+202407300400|GimignanoTuscany|San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)|A medieval Manhattan|![](/en-CA/2024/07/202407300400GimignanoTuscany.jpg)|
