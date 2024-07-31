@@ -32,3 +32,4 @@
 202407282200|CorbettTigers|Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)|Le roi du bengale|![](/fr-FR/2024/07/202407282200CorbettTigers.jpg)|
 202407292200|ImpalaOxpecker|Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)|Un roman d’amitié|![](/fr-FR/2024/07/202407292200ImpalaOxpecker.jpg)|
 202407302200|HoodoosBryce|Cheminées de fée, Sunset Point, Parc national de Bryce Canyon, Utah, États-Unis (© Tim Fitzharris/Minden Pictures)|Un paysage à « blu-fée »|![](/fr-FR/2024/07/202407302200HoodoosBryce.jpg)|
+202407312200|KaptaiLake|Marché flottant, lac Kaptai, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Un marché flottant unique|![](/fr-FR/2024/07/202407312200KaptaiLake.jpg)|

@@ -32,3 +32,4 @@
 202407282200|CorbettTigers|Tigergeschwister im Jim-Corbett-Nationalpark, Uttarakhand, Indien (© Sourabh Bharti/Getty Images)|Die unzähmbare Majestät der Wildnis|![](/de-DE/2024/07/202407282200CorbettTigers.jpg)|
 202407292200|GrayWolfPups|Spielende Wolfswelpen in Deutschland (© Westend61/Getty Images)|Ein Fest der Verbundenheit|![](/de-DE/2024/07/202407292200GrayWolfPups.jpg)|
 202407302200|HoodoosBryce|Hoodoos, Sunset Point, Bryce Canyon Nationalpark, Utah, USA (© Tim Fitzharris/Minden Pictures)|Ein Wald aus Steinen|![](/de-DE/2024/07/202407302200HoodoosBryce.jpg)|
+202407312200|KaptaiLake|Schwimmender Markt, Karnaphuli-Stausee, Rangamati, Bangladesch (© Azim Khan Ronnie/Amazing Aerial Agency)|Fruchtige „Ange-Boote”|![](/de-DE/2024/07/202407312200KaptaiLake.jpg)|
