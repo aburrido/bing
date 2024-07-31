@@ -32,3 +32,4 @@
 202407291830|GimignanoTuscany|San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)|A medieval Manhattan|![](/en-IN/2024/07/202407291830GimignanoTuscany.jpg)|
 ||||![](/en-IN/2024/07/.jpg)|
 202407301830|HoodoosBryce|Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)|'Hoodoo' we have here?|![](/en-IN/2024/07/202407301830HoodoosBryce.jpg)|
+202407311830|KaptaiLake|Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|There's a boatload of bargains here|![](/en-IN/2024/07/202407311830KaptaiLake.jpg)|
