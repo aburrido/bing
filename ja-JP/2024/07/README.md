@@ -31,3 +31,4 @@
 202407281500|CorbettTigers|ジム・コーベット国立公園, インド ウッタラーカンド州 (© Sourabh Bharti/Getty Images)|今日は世界トラの日|![](/ja-JP/2024/07/202407281500CorbettTigers.jpg)|
 202407291500|GimignanoTuscany|サン・ジミニャーノ, イタリア トスカーナ州 (© MNStudio/Shutterstock)|美しい中世の塔が立ち並ぶ街|![](/ja-JP/2024/07/202407291500GimignanoTuscany.jpg)|
 202407301500|HoodoosBryce|ブライスキャニオン国立公園, 米国 ユタ州 (© Tim Fitzharris/Minden Pictures)|尖塔状の岩が立ち並ぶ公園|![](/ja-JP/2024/07/202407301500HoodoosBryce.jpg)|
+202407311500|Nebuta2024|豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)|今日から弘前ねぷたまつり|![](/ja-JP/2024/07/202407311500Nebuta2024.jpg)|
