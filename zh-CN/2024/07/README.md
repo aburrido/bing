@@ -32,3 +32,4 @@
 202407281600|CorbettTigers|科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images)|咆哮与探索|![](/zh-CN/2024/07/202407281600CorbettTigers.jpg)|
 202407291600|GimignanoTuscany|圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)|中世纪的曼哈顿|![](/zh-CN/2024/07/202407291600GimignanoTuscany.jpg)|
 202407301600|HoodoosBryce|石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures)|这里有“胡图”吗？|![](/zh-CN/2024/07/202407301600HoodoosBryce.jpg)|
+202407311600|KaptaiLake|卡普泰湖水上市场，兰加马蒂，孟加拉 (© Azim Khan Ronnie/Amazing Aerial Agency)|物价喜人|![](/zh-CN/2024/07/202407311600KaptaiLake.jpg)|
