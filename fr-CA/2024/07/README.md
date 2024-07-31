@@ -31,3 +31,4 @@
 202407290400|CorbettTigers|Tigres dans le parc national de Jim Corbett, Uttarakhand, Inde (© Sourabh Bharti/Getty Images)|Le roi du bengale|![](/fr-CA/2024/07/202407290400CorbettTigers.jpg)|
 202407300400|ImpalaOxpecker|Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)|Un roman d’amitié|![](/fr-CA/2024/07/202407300400ImpalaOxpecker.jpg)|
 ||||![](/fr-CA/2024/07/.jpg)|
+202407310400|HoodoosBryce|Cheminées de fée, Sunset Point, Parc national de Bryce Canyon, Utah, États-Unis  (© Tim Fitzharris/Minden Pictures)|Un paysage à « blu-fée »|![](/fr-CA/2024/07/202407310400HoodoosBryce.jpg)|
