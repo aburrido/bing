@@ -32,3 +32,4 @@
 202407282300|CorbettTigers|Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)|Roar and explore|![](/en-GB/2024/07/202407282300CorbettTigers.jpg)|
 202407292300|ImpalaOxpecker|Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)|You've got a friend in me|![](/en-GB/2024/07/202407292300ImpalaOxpecker.jpg)|
 202407302300|HoodoosBryce|Hoodoos, Sunset Point, Bryce Canyon National Park, Utah, USA (© Tim Fitzharris/Minden Pictures)|'Hoodoo' we have here?|![](/en-GB/2024/07/202407302300HoodoosBryce.jpg)|
+202407312300|KaptaiLake|Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|There's a boatload of bargains here|![](/en-GB/2024/07/202407312300KaptaiLake.jpg)|
