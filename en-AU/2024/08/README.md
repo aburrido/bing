@@ -4,3 +4,4 @@
 202408010700|KaptaiLake|Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)|Info|![](/en-AU/2024/08/202408010700KaptaiLake.jpg)|
 202408020700|SaintFrancois|Sunset over Anse Champagne beach in Saint-François, Guadeloupe, Caribbean (© Fyletto/Getty Images)|Info|![](/en-AU/2024/08/202408020700SaintFrancois.jpg)|
 202408030700|WulongKarst|Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)|Info|![](/en-AU/2024/08/202408030700WulongKarst.jpg)|
+202408040700|ImpalaOxpecker|Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)|Info|![](/en-AU/2024/08/202408040700ImpalaOxpecker.jpg)|
