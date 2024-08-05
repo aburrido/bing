@@ -6,3 +6,4 @@
 202408030700|WulongKarst|Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)|Towering over Wulong|![](/en-US/2024/08/202408030700WulongKarst.jpg)|
 202408040700|ImpalaOxpecker|Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)|You've got a friend in me|![](/en-US/2024/08/202408040700ImpalaOxpecker.jpg)|
 202408050700|HertfordshireLavender|Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)|A sea of purple|![](/en-US/2024/08/202408050700HertfordshireLavender.jpg)|
+||||![](/en-US/2024/08/.jpg)|
