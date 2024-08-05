@@ -5,3 +5,4 @@
 202408021600|WulongKarst|天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock)|武隆景区的“三生三世”|![](/zh-CN/2024/08/202408021600WulongKarst.jpg)|
 202408031600|ImpalaOxpecker|黑斑羚和红嘴牛椋鸟，南非 (© Matrishva Vyas/Getty Images)|我是你的朋友|![](/zh-CN/2024/08/202408031600ImpalaOxpecker.jpg)|
 202408041600|HertfordshireLavender|薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)|一片紫色的海洋|![](/zh-CN/2024/08/202408041600HertfordshireLavender.jpg)|
+202408051600|MolokiniHawaii|莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)|迎合所有人口味的景点|![](/zh-CN/2024/08/202408051600MolokiniHawaii.jpg)|
