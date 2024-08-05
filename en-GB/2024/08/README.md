@@ -6,3 +6,4 @@
 202408032300|GimignanoTuscany|San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)|A medieval Manhattan|![](/en-GB/2024/08/202408032300GimignanoTuscany.jpg)|
 202408042300|HertfordshireLavender|Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)|A sea of purple|![](/en-GB/2024/08/202408042300HertfordshireLavender.jpg)|
 ||||![](/en-GB/2024/08/.jpg)|
+202408052300|MolokiniHawaii|Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)|Cratering to all tastes|![](/en-GB/2024/08/202408052300MolokiniHawaii.jpg)|
