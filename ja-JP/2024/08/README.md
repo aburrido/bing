@@ -5,3 +5,4 @@
 202408021500|KaptaiLake|カプタイ湖, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)|賑やかな水上マーケット|![](/ja-JP/2024/08/202408021500KaptaiLake.jpg)|
 202408031500|WulongKarst|武隆カルスト国立地質公園, 中国 重慶市 (© Pav-Pro Photography Ltd/Shutterstock)|石灰岩でできた天然橋|![](/ja-JP/2024/08/202408031500WulongKarst.jpg)|
 202408041500|HertfordshireLavender|ハートフォードシャーのラベンダー畑, イギリス (© George W Johnson/Getty Images)|紫の海|![](/ja-JP/2024/08/202408041500HertfordshireLavender.jpg)|
+202408051500|SendaiTanabata2024|巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)|今日から仙台七夕まつり|![](/ja-JP/2024/08/202408051500SendaiTanabata2024.jpg)|
