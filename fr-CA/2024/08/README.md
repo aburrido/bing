@@ -6,3 +6,4 @@
 202408040400|GimignanoTuscany|San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)|Le joyau médiéval de la Toscane|![](/fr-CA/2024/08/202408040400GimignanoTuscany.jpg)|
 202408050400|HertfordshireLavender|Champ de lavande, Hertfordshire, Angleterre, Royaume-Uni (© George W Johnson/Getty Images)|Une mer de pourpre|![](/fr-CA/2024/08/202408050400HertfordshireLavender.jpg)|
 ||||![](/fr-CA/2024/08/.jpg)|
+202408060400|MolokiniHawaii|Cratère de Molokini, Maui, Hawaï, États-Unis (© Douglas Peebles/eStock Photo)|Un cratère qui fait des vagues|![](/fr-CA/2024/08/202408060400MolokiniHawaii.jpg)|
