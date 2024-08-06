@@ -7,3 +7,4 @@
 202408042300|HertfordshireLavender|Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)|A sea of purple|![](/en-GB/2024/08/202408042300HertfordshireLavender.jpg)|
 ||||![](/en-GB/2024/08/.jpg)|
 202408052300|MolokiniHawaii|Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)|Cratering to all tastes|![](/en-GB/2024/08/202408052300MolokiniHawaii.jpg)|
+202408062300|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|'Riesling' to perfection|![](/en-GB/2024/08/202408062300RhinelandVineyards.jpg)|
