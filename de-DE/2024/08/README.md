@@ -7,3 +7,4 @@
 202408042200|HertfordshireLavender|Lavendelfeld, Hertfordshire, England, Großbritannien (© George W Johnson/Getty Images)|Ein violettes Blütenmeer|![](/de-DE/2024/08/202408042200HertfordshireLavender.jpg)|
 ||||![](/de-DE/2024/08/.jpg)|
 202408052200|MolokiniHawaii|Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)|Eine malerische Halbmondinsel|![](/de-DE/2024/08/202408052200MolokiniHawaii.jpg)|
+202408062200|MichiganLighthouse|St. Joseph Leuchttürme, Michigan, USA (© Kenneth Keifer/Getty Images)|Leuchttürme stehen fest, egal wie stark der Sturm ist|![](/de-DE/2024/08/202408062200MichiganLighthouse.jpg)|
