@@ -8,3 +8,4 @@
 202408051600|MolokiniHawaii|莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)|迎合所有人口味的景点|![](/zh-CN/2024/08/202408051600MolokiniHawaii.jpg)|
 ||||![](/zh-CN/2024/08/.jpg)|
 202408061600|MichiganLighthouse|圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)|不止是航海需要它|![](/zh-CN/2024/08/202408061600MichiganLighthouse.jpg)|
+202408071600|SpottedOwlet|横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)|小猫头鹰瞪了你一眼|![](/zh-CN/2024/08/202408071600SpottedOwlet.jpg)|
