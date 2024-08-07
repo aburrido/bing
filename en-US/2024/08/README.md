@@ -8,3 +8,4 @@
 202408050700|HertfordshireLavender|Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)|A sea of purple|![](/en-US/2024/08/202408050700HertfordshireLavender.jpg)|
 ||||![](/en-US/2024/08/.jpg)|
 202408060700|MolokiniHawaii|Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)|A very pleasant crescent|![](/en-US/2024/08/202408060700MolokiniHawaii.jpg)|
+202408070700|MichiganLighthouse|St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)|More than nautical necessity|![](/en-US/2024/08/202408070700MichiganLighthouse.jpg)|

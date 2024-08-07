@@ -8,3 +8,4 @@
 202408050700|HertfordshireLavender|Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)|Info|![](/en-AU/2024/08/202408050700HertfordshireLavender.jpg)|
 ||||![](/en-AU/2024/08/.jpg)|
 202408060700|MolokiniHawaii|Molokini, Maui, Hawaii (© Douglas Peebles/eStock Photo)|Info|![](/en-AU/2024/08/202408060700MolokiniHawaii.jpg)|
+202408070700|MichiganLighthouse|St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)|Info|![](/en-AU/2024/08/202408070700MichiganLighthouse.jpg)|
