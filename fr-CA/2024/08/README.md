@@ -7,3 +7,4 @@
 202408050400|HertfordshireLavender|Champ de lavande, Hertfordshire, Angleterre, Royaume-Uni (© George W Johnson/Getty Images)|Une mer de pourpre|![](/fr-CA/2024/08/202408050400HertfordshireLavender.jpg)|
 ||||![](/fr-CA/2024/08/.jpg)|
 202408060400|MolokiniHawaii|Cratère de Molokini, Maui, Hawaï, États-Unis (© Douglas Peebles/eStock Photo)|Un cratère qui fait des vagues|![](/fr-CA/2024/08/202408060400MolokiniHawaii.jpg)|
+202408070400|MichiganLighthouse|Phares de Saint-Joseph, Michigan, États-Unis (© Kenneth Keifer/Getty Images)|Les gardiens du lac|![](/fr-CA/2024/08/202408070400MichiganLighthouse.jpg)|

@@ -7,3 +7,4 @@
 202408050400|HertfordshireLavender|Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)|A sea of purple|![](/en-CA/2024/08/202408050400HertfordshireLavender.jpg)|
 ||||![](/en-CA/2024/08/.jpg)|
 202408060400|MolokiniHawaii|Molokini, Maui, Hawaii (© Douglas Peebles/eStock Photo)|Cratering to all tastes|![](/en-CA/2024/08/202408060400MolokiniHawaii.jpg)|
+202408070400|MichiganLighthouse|St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)|More than nautical necessity|![](/en-CA/2024/08/202408070400MichiganLighthouse.jpg)|
