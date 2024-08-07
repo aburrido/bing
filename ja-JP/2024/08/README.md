@@ -8,3 +8,4 @@
 202408051500|SendaiTanabata2024|巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)|今日から仙台七夕まつり|![](/ja-JP/2024/08/202408051500SendaiTanabata2024.jpg)|
 202408061500|MichiganLighthouse|ミシガン湖とセントジョセフ灯台, 米国 ミシガン州 (© Kenneth Keifer/Getty Images)|今日は米国灯台の日|![](/ja-JP/2024/08/202408061500MichiganLighthouse.jpg)|
 ||||![](/ja-JP/2024/08/.jpg)|
+202408071500|SpottedOwlet|インドコキンメフクロウ, タイ バンコク (© Tfilm/Getty Images)|木の穴から顔を出すかわいいフクロウ|![](/ja-JP/2024/08/202408071500SpottedOwlet.jpg)|
