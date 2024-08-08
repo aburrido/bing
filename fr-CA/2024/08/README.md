@@ -8,3 +8,4 @@
 ||||![](/fr-CA/2024/08/.jpg)|
 202408060400|MolokiniHawaii|Cratère de Molokini, Maui, Hawaï, États-Unis (© Douglas Peebles/eStock Photo)|Un cratère qui fait des vagues|![](/fr-CA/2024/08/202408060400MolokiniHawaii.jpg)|
 202408070400|MichiganLighthouse|Phares de Saint-Joseph, Michigan, États-Unis (© Kenneth Keifer/Getty Images)|Les gardiens du lac|![](/fr-CA/2024/08/202408070400MichiganLighthouse.jpg)|
+202408080400|SpottedOwlet|Chevêche brame, Bangkok, Thaïlande (© Tfilm/Getty Images)|La chouette attitude|![](/fr-CA/2024/08/202408080400SpottedOwlet.jpg)|
