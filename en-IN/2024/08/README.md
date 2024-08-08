@@ -9,3 +9,4 @@
 ||||![](/en-IN/2024/08/.jpg)|
 202408061830|MichiganLighthouse|St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)|More than nautical necessity|![](/en-IN/2024/08/202408061830MichiganLighthouse.jpg)|
 202408071830|SpottedOwlet|Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)|Big stare for a little owl|![](/en-IN/2024/08/202408071830SpottedOwlet.jpg)|
+202408081830|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|A 'hole' new world|![](/en-IN/2024/08/202408081830HangCave.jpg)|
