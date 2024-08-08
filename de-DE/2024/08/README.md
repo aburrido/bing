@@ -9,3 +9,4 @@
 202408052200|MolokiniHawaii|Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)|Eine malerische Halbmondinsel|![](/de-DE/2024/08/202408052200MolokiniHawaii.jpg)|
 202408062200|MichiganLighthouse|St. Joseph Leuchttürme, Michigan, USA (© Kenneth Keifer/Getty Images)|Leuchttürme stehen fest, egal wie stark der Sturm ist|![](/de-DE/2024/08/202408062200MichiganLighthouse.jpg)|
 202408072200|SpottedOwlet|Fleckenkauz, Bangkok, Thailand (© Tfilm/Getty Images)|Diese kleine Eule lässt sich nichts entgehen|![](/de-DE/2024/08/202408072200SpottedOwlet.jpg)|
+202408082200|IncaRuinPeru|Inka-Ruine Sacsayhuamán bei Cusco, Peru (© SL_Photography/Getty Images)|Indigene Kulturschätze|![](/de-DE/2024/08/202408082200IncaRuinPeru.jpg)|
