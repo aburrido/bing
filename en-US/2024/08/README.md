@@ -9,3 +9,4 @@
 ||||![](/en-US/2024/08/.jpg)|
 202408060700|MolokiniHawaii|Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)|A very pleasant crescent|![](/en-US/2024/08/202408060700MolokiniHawaii.jpg)|
 202408070700|MichiganLighthouse|St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)|More than nautical necessity|![](/en-US/2024/08/202408070700MichiganLighthouse.jpg)|
+202408080700|SpottedOwlet|Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)|Big stare for a little owl|![](/en-US/2024/08/202408080700SpottedOwlet.jpg)|
