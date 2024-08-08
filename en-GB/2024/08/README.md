@@ -9,3 +9,4 @@
 202408052300|MolokiniHawaii|Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)|Cratering to all tastes|![](/en-GB/2024/08/202408052300MolokiniHawaii.jpg)|
 202408062300|RhinelandVineyards|Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)|'Riesling' to perfection|![](/en-GB/2024/08/202408062300RhinelandVineyards.jpg)|
 202408072300|SpottedOwlet|Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)|Big stare for a little owl|![](/en-GB/2024/08/202408072300SpottedOwlet.jpg)|
+202408082300|BristolBalloonFiesta2024|Clifton Suspension Bridge during the Bristol Balloon Fiesta, Bristol (© robertharding/Adobe Stock)|Up, up and away|![](/en-GB/2024/08/202408082300BristolBalloonFiesta2024.jpg)|
