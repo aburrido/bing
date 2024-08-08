@@ -9,3 +9,4 @@
 202408061500|MichiganLighthouse|ミシガン湖とセントジョセフ灯台, 米国 ミシガン州 (© Kenneth Keifer/Getty Images)|今日は米国灯台の日|![](/ja-JP/2024/08/202408061500MichiganLighthouse.jpg)|
 ||||![](/ja-JP/2024/08/.jpg)|
 202408071500|SpottedOwlet|インドコキンメフクロウ, タイ バンコク (© Tfilm/Getty Images)|木の穴から顔を出すかわいいフクロウ|![](/ja-JP/2024/08/202408071500SpottedOwlet.jpg)|
+202408081500|IncaRuinPeru|サクサイワマン, ペルー (© SL_Photography/Getty Images)|今日は世界の先住民の国際デー|![](/ja-JP/2024/08/202408081500IncaRuinPeru.jpg)|
