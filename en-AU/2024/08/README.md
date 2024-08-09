@@ -10,3 +10,4 @@
 202408060700|MolokiniHawaii|Molokini, Maui, Hawaii (© Douglas Peebles/eStock Photo)|Info|![](/en-AU/2024/08/202408060700MolokiniHawaii.jpg)|
 202408070700|MichiganLighthouse|St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)|Info|![](/en-AU/2024/08/202408070700MichiganLighthouse.jpg)|
 202408080700|SpottedOwlet|Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)|Info|![](/en-AU/2024/08/202408080700SpottedOwlet.jpg)|
+202408090700|IncaRuinPeru|Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)|Info|![](/en-AU/2024/08/202408090700IncaRuinPeru.jpg)|
