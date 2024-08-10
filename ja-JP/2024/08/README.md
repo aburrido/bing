@@ -11,3 +11,4 @@
 202408071500|SpottedOwlet|インドコキンメフクロウ, タイ バンコク (© Tfilm/Getty Images)|木の穴から顔を出すかわいいフクロウ|![](/ja-JP/2024/08/202408071500SpottedOwlet.jpg)|
 202408081500|IncaRuinPeru|サクサイワマン, ペルー (© SL_Photography/Getty Images)|今日は世界の先住民の国際デー|![](/ja-JP/2024/08/202408081500IncaRuinPeru.jpg)|
 202408091500|TofinoVancouver|ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)|古代の松や杉に囲まれた木道|![](/ja-JP/2024/08/202408091500TofinoVancouver.jpg)|
+202408101500|MountainDay2024|草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)|今日は山の日|![](/ja-JP/2024/08/202408101500MountainDay2024.jpg)|
