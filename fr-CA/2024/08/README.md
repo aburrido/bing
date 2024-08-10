@@ -10,3 +10,4 @@
 202408070400|MichiganLighthouse|Phares de Saint-Joseph, Michigan, États-Unis (© Kenneth Keifer/Getty Images)|Les gardiens du lac|![](/fr-CA/2024/08/202408070400MichiganLighthouse.jpg)|
 202408080400|SpottedOwlet|Chevêche brame, Bangkok, Thaïlande (© Tfilm/Getty Images)|La chouette attitude|![](/fr-CA/2024/08/202408080400SpottedOwlet.jpg)|
 202408090400|IncaRuinPeru|Ruine inca de Sacsayhuamán près de Cusco, Pérou (© SL_Photography/Getty Images)|Célébrons la culture autochtone|![](/fr-CA/2024/08/202408090400IncaRuinPeru.jpg)|
+202408100400|JoshuaTreeNP|Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Un paysage venu d’un autre monde|![](/fr-CA/2024/08/202408100400JoshuaTreeNP.jpg)|
