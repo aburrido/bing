@@ -11,3 +11,4 @@
 202408072200|SpottedOwlet|Chevêche brame, Bangkok, Thaïlande (© Tfilm/Getty Images)|La chouette attitude|![](/fr-FR/2024/08/202408072200SpottedOwlet.jpg)|
 202408082200|IncaRuinPeru|Ruine inca de Sacsayhuamán près de Cusco, Pérou (© SL_Photography/Getty Images)|Célébrons la culture autochtone|![](/fr-FR/2024/08/202408082200IncaRuinPeru.jpg)|
 202408092200|JoshuaTreeNP|Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Un paysage venu d’un autre monde|![](/fr-FR/2024/08/202408092200JoshuaTreeNP.jpg)|
+202408102200|TofinoVancouver|Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)|Le chemin le moins fréquenté|![](/fr-FR/2024/08/202408102200TofinoVancouver.jpg)|

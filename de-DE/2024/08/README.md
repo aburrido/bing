@@ -11,3 +11,4 @@
 202408072200|SpottedOwlet|Fleckenkauz, Bangkok, Thailand (© Tfilm/Getty Images)|Diese kleine Eule lässt sich nichts entgehen|![](/de-DE/2024/08/202408072200SpottedOwlet.jpg)|
 202408082200|IncaRuinPeru|Inka-Ruine Sacsayhuamán bei Cusco, Peru (© SL_Photography/Getty Images)|Indigene Kulturschätze|![](/de-DE/2024/08/202408082200IncaRuinPeru.jpg)|
 202408092200|Elbphilharmonie|Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)|Eine kulturelle Wiedergeburt|![](/de-DE/2024/08/202408092200Elbphilharmonie.jpg)|
+202408102200|TofinoVancouver|Holzpfad zum Kennedy Lake, Vancouver Island, Kanada (© EB Adventure Photography/Shutterstock)|Ein geheimnisvoller Pfad|![](/de-DE/2024/08/202408102200TofinoVancouver.jpg)|
