@@ -12,3 +12,4 @@
 202408081830|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|A 'hole' new world|![](/en-IN/2024/08/202408081830HangCave.jpg)|
 202408091830|JoshuaTreeNP|Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Joshua under a starry blanket|![](/en-IN/2024/08/202408091830JoshuaTreeNP.jpg)|
 202408101830|TofinoVancouver|Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)|The path less taken|![](/en-IN/2024/08/202408101830TofinoVancouver.jpg)|
+202408111830|ElephantsAmboseli|African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)|Herd you loud and clear|![](/en-IN/2024/08/202408111830ElephantsAmboseli.jpg)|
