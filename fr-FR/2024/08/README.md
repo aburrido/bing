@@ -12,3 +12,4 @@
 202408082200|IncaRuinPeru|Ruine inca de Sacsayhuamán près de Cusco, Pérou (© SL_Photography/Getty Images)|Célébrons la culture autochtone|![](/fr-FR/2024/08/202408082200IncaRuinPeru.jpg)|
 202408092200|JoshuaTreeNP|Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Un paysage venu d’un autre monde|![](/fr-FR/2024/08/202408092200JoshuaTreeNP.jpg)|
 202408102200|TofinoVancouver|Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)|Le chemin le moins fréquenté|![](/fr-FR/2024/08/202408102200TofinoVancouver.jpg)|
+202408112200|ElephantsAmboseli|Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)|Un engagement planétaire pour sauver ces géants|![](/fr-FR/2024/08/202408112200ElephantsAmboseli.jpg)|

@@ -12,3 +12,4 @@
 202408082200|IncaRuinPeru|Inka-Ruine Sacsayhuamán bei Cusco, Peru (© SL_Photography/Getty Images)|Indigene Kulturschätze|![](/de-DE/2024/08/202408082200IncaRuinPeru.jpg)|
 202408092200|Elbphilharmonie|Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)|Eine kulturelle Wiedergeburt|![](/de-DE/2024/08/202408092200Elbphilharmonie.jpg)|
 202408102200|TofinoVancouver|Holzpfad zum Kennedy Lake, Vancouver Island, Kanada (© EB Adventure Photography/Shutterstock)|Ein geheimnisvoller Pfad|![](/de-DE/2024/08/202408102200TofinoVancouver.jpg)|
+202408112200|ElephantsAmboseli|Afrikanische Elefanten, Amboseli-Nationalpark, Kenia (© Ruzdi Ekenheim/Getty Images)|Majestätische Präsenz in Gefahr|![](/de-DE/2024/08/202408112200ElephantsAmboseli.jpg)|
