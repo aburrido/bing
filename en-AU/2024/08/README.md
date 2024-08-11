@@ -12,3 +12,4 @@
 202408080700|SpottedOwlet|Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)|Info|![](/en-AU/2024/08/202408080700SpottedOwlet.jpg)|
 202408090700|IncaRuinPeru|Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)|Info|![](/en-AU/2024/08/202408090700IncaRuinPeru.jpg)|
 202408100700|JoshuaTreeNP|Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408100700JoshuaTreeNP.jpg)|
+202408110700|TofinoVancouver|Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)|Info|![](/en-AU/2024/08/202408110700TofinoVancouver.jpg)|
