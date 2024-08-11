@@ -12,3 +12,4 @@
 202408081600|IncaRuinPeru|库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)|弘扬土著文化|![](/zh-CN/2024/08/202408081600IncaRuinPeru.jpg)|
 202408091600|JoshuaTreeNP|约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|星空下的约书亚树|![](/zh-CN/2024/08/202408091600JoshuaTreeNP.jpg)|
 202408101600|TofinoVancouver|通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省 (© EB Adventure Photography/Shutterstock)|人迹罕至的路|![](/zh-CN/2024/08/202408101600TofinoVancouver.jpg)|
+202408111600|ElephantsAmboseli|非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)|你的声音嘹亮而清晰|![](/zh-CN/2024/08/202408111600ElephantsAmboseli.jpg)|
