@@ -13,3 +13,4 @@
 202408092200|Elbphilharmonie|Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)|Eine kulturelle Wiedergeburt|![](/de-DE/2024/08/202408092200Elbphilharmonie.jpg)|
 202408102200|TofinoVancouver|Holzpfad zum Kennedy Lake, Vancouver Island, Kanada (© EB Adventure Photography/Shutterstock)|Ein geheimnisvoller Pfad|![](/de-DE/2024/08/202408102200TofinoVancouver.jpg)|
 202408112200|ElephantsAmboseli|Afrikanische Elefanten, Amboseli-Nationalpark, Kenia (© Ruzdi Ekenheim/Getty Images)|Majestätische Präsenz in Gefahr|![](/de-DE/2024/08/202408112200ElephantsAmboseli.jpg)|
+202408122200|DugiOtokCroatia|Klippen des Naturparks Telašćica, Insel Dugi Otok, Kroatien (© Ilija Ascic/Shutterstock)|Adriatische Schönheit|![](/de-DE/2024/08/202408122200DugiOtokCroatia.jpg)|
