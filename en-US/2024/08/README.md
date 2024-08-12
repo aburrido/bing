@@ -13,3 +13,4 @@
 202408090700|IncaRuinPeru|Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)|Celebrating Indigenous culture|![](/en-US/2024/08/202408090700IncaRuinPeru.jpg)|
 202408100700|JoshuaTreeNP|Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Joshua under a starry blanket|![](/en-US/2024/08/202408100700JoshuaTreeNP.jpg)|
 202408110700|TofinoVancouver|Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)|The path less taken|![](/en-US/2024/08/202408110700TofinoVancouver.jpg)|
+202408120700|ElephantsAmboseli|African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)|Herd you loud and clear|![](/en-US/2024/08/202408120700ElephantsAmboseli.jpg)|
