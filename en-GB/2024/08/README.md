@@ -13,3 +13,4 @@
 202408092300|JoshuaTreeNP|Joshua Tree National Park, California, USA (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|Joshua under a starry blanket|![](/en-GB/2024/08/202408092300JoshuaTreeNP.jpg)|
 202408102300|TofinoVancouver|Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)|The path less taken|![](/en-GB/2024/08/202408102300TofinoVancouver.jpg)|
 202408112300|ElephantsAmboseli|African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)|Herd you loud and clear|![](/en-GB/2024/08/202408112300ElephantsAmboseli.jpg)|
+202408122300|DugiOtokCroatia|Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)|Adriatic heights|![](/en-GB/2024/08/202408122300DugiOtokCroatia.jpg)|
