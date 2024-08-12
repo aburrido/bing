@@ -13,3 +13,4 @@
 202408091500|TofinoVancouver|ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)|古代の松や杉に囲まれた木道|![](/ja-JP/2024/08/202408091500TofinoVancouver.jpg)|
 202408101500|MountainDay2024|草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)|今日は山の日|![](/ja-JP/2024/08/202408101500MountainDay2024.jpg)|
 202408111500|ElephantsAmboseli|アンボセリ国立公園, ケニア (© Ruzdi Ekenheim/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2024/08/202408111500ElephantsAmboseli.jpg)|
+202408121500|DugiOtokCroatia|テラシュチカ自然公園, クロアチア (© Ilija Ascic/Shutterstock)|紺碧の海と切り立った崖|![](/ja-JP/2024/08/202408121500DugiOtokCroatia.jpg)|
