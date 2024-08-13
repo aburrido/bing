@@ -14,3 +14,4 @@
 202408101500|MountainDay2024|草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)|今日は山の日|![](/ja-JP/2024/08/202408101500MountainDay2024.jpg)|
 202408111500|ElephantsAmboseli|アンボセリ国立公園, ケニア (© Ruzdi Ekenheim/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2024/08/202408111500ElephantsAmboseli.jpg)|
 202408121500|DugiOtokCroatia|テラシュチカ自然公園, クロアチア (© Ilija Ascic/Shutterstock)|紺碧の海と切り立った崖|![](/ja-JP/2024/08/202408121500DugiOtokCroatia.jpg)|
+202408131500|JoshuaTreeNP|ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|不思議な植物や岩の世界|![](/ja-JP/2024/08/202408131500JoshuaTreeNP.jpg)|
