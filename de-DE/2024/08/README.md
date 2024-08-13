@@ -14,3 +14,4 @@
 202408102200|TofinoVancouver|Holzpfad zum Kennedy Lake, Vancouver Island, Kanada (© EB Adventure Photography/Shutterstock)|Ein geheimnisvoller Pfad|![](/de-DE/2024/08/202408102200TofinoVancouver.jpg)|
 202408112200|ElephantsAmboseli|Afrikanische Elefanten, Amboseli-Nationalpark, Kenia (© Ruzdi Ekenheim/Getty Images)|Majestätische Präsenz in Gefahr|![](/de-DE/2024/08/202408112200ElephantsAmboseli.jpg)|
 202408122200|DugiOtokCroatia|Klippen des Naturparks Telašćica, Insel Dugi Otok, Kroatien (© Ilija Ascic/Shutterstock)|Adriatische Schönheit|![](/de-DE/2024/08/202408122200DugiOtokCroatia.jpg)|
+202408132200|WatarrkaLizard|Dornteufel, Watarrka-Nationalpark, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)|Eine stachelige Angelegenheit|![](/de-DE/2024/08/202408132200WatarrkaLizard.jpg)|

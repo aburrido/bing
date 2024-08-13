@@ -14,3 +14,4 @@
 202408102200|TofinoVancouver|Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)|Le chemin le moins fréquenté|![](/fr-FR/2024/08/202408102200TofinoVancouver.jpg)|
 202408112200|ElephantsAmboseli|Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)|Un engagement planétaire pour sauver ces géants|![](/fr-FR/2024/08/202408112200ElephantsAmboseli.jpg)|
 202408122200|LorientCelticFestival|Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)|À vos binious !|![](/fr-FR/2024/08/202408122200LorientCelticFestival.jpg)|
+202408132200|WatarrkaLizard|Diable épineux, parc national de Watarrka, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|Qui s'y frotte s'y pique !|![](/fr-FR/2024/08/202408132200WatarrkaLizard.jpg)|
