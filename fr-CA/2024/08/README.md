@@ -13,3 +13,4 @@
 202408100400|JoshuaTreeNP|Parc national de Joshua Tree, Californie, États-Unis (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|Un paysage venu d’un autre monde|![](/fr-CA/2024/08/202408100400JoshuaTreeNP.jpg)|
 202408110400|TofinoVancouver|Sentier en bois menant au lac Kennedy, île de Vancouver, Colombie-Britannique, Canada (© EB Adventure Photography/Shutterstock)|Un chemin enchanté|![](/fr-CA/2024/08/202408110400TofinoVancouver.jpg)|
 202408120400|ElephantsAmboseli|Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)|Un engagement planétaire pour sauver ces géants|![](/fr-CA/2024/08/202408120400ElephantsAmboseli.jpg)|
+202408130400|DugiOtokCroatia|Falaises du parc naturel de Telascica, île de Dugi Otok, Croatie (© Ilija Ascic/Shutterstock)|L’éden Adriatique|![](/fr-CA/2024/08/202408130400DugiOtokCroatia.jpg)|
