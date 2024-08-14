@@ -15,3 +15,4 @@
 202408110700|TofinoVancouver|Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)|The path less taken|![](/en-US/2024/08/202408110700TofinoVancouver.jpg)|
 202408120700|ElephantsAmboseli|African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)|Herd you loud and clear|![](/en-US/2024/08/202408120700ElephantsAmboseli.jpg)|
 202408130700|DugiOtokCroatia|Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)|Adriatic heights|![](/en-US/2024/08/202408130700DugiOtokCroatia.jpg)|
+202408140700|WatarrkaLizard|Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Feeling sharp today|![](/en-US/2024/08/202408140700WatarrkaLizard.jpg)|
