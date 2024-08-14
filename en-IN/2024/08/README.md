@@ -15,3 +15,4 @@
 202408111830|ElephantsAmboseli|African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)|Herd you loud and clear|![](/en-IN/2024/08/202408111830ElephantsAmboseli.jpg)|
 202408121830|DugiOtokCroatia|Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)|Adriatic heights|![](/en-IN/2024/08/202408121830DugiOtokCroatia.jpg)|
 202408131830|WatarrkaLizard|Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Feeling sharp today|![](/en-IN/2024/08/202408131830WatarrkaLizard.jpg)|
+202408141830|RedFortID|Red Fort Delhi front view with Indian National Flag (© Roop Dey/Alamy Stock Photo)|The triumphant tricolour|![](/en-IN/2024/08/202408141830RedFortID.jpg)|
