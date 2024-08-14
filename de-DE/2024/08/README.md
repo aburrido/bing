@@ -15,3 +15,4 @@
 202408112200|ElephantsAmboseli|Afrikanische Elefanten, Amboseli-Nationalpark, Kenia (© Ruzdi Ekenheim/Getty Images)|Majestätische Präsenz in Gefahr|![](/de-DE/2024/08/202408112200ElephantsAmboseli.jpg)|
 202408122200|DugiOtokCroatia|Klippen des Naturparks Telašćica, Insel Dugi Otok, Kroatien (© Ilija Ascic/Shutterstock)|Adriatische Schönheit|![](/de-DE/2024/08/202408122200DugiOtokCroatia.jpg)|
 202408132200|WatarrkaLizard|Dornteufel, Watarrka-Nationalpark, Australien (© Yva Momatiuk and John Eastcott/Minden Pictures)|Eine stachelige Angelegenheit|![](/de-DE/2024/08/202408132200WatarrkaLizard.jpg)|
+202408142200|HangCave|Hang Sơn Đoòng-Höhle, Nationalpark Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)|Lichtspiele unter der Erde|![](/de-DE/2024/08/202408142200HangCave.jpg)|

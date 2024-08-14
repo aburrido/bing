@@ -15,3 +15,4 @@
 202408112200|ElephantsAmboseli|Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)|Un engagement planétaire pour sauver ces géants|![](/fr-FR/2024/08/202408112200ElephantsAmboseli.jpg)|
 202408122200|LorientCelticFestival|Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)|À vos binious !|![](/fr-FR/2024/08/202408122200LorientCelticFestival.jpg)|
 202408132200|WatarrkaLizard|Diable épineux, parc national de Watarrka, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|Qui s'y frotte s'y pique !|![](/fr-FR/2024/08/202408132200WatarrkaLizard.jpg)|
+202408142200|HangCave|Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)|La cathédrale naturelle du Vietnam|![](/fr-FR/2024/08/202408142200HangCave.jpg)|
