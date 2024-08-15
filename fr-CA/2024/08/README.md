@@ -15,3 +15,4 @@
 202408120400|ElephantsAmboseli|Éléphants d'Afrique, parc national d'Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)|Un engagement planétaire pour sauver ces géants|![](/fr-CA/2024/08/202408120400ElephantsAmboseli.jpg)|
 202408130400|DugiOtokCroatia|Falaises du parc naturel de Telascica, île de Dugi Otok, Croatie (© Ilija Ascic/Shutterstock)|L’éden Adriatique|![](/fr-CA/2024/08/202408130400DugiOtokCroatia.jpg)|
 202408140400|WatarrkaLizard|Diable épineux, parc national de Watarrka, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|Qui s'y frotte s'y pique!|![](/fr-CA/2024/08/202408140400WatarrkaLizard.jpg)|
+202408150400|HangCave|Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)|La cathédrale naturelle du Vietnam|![](/fr-CA/2024/08/202408150400HangCave.jpg)|
