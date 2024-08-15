@@ -16,3 +16,4 @@
 202408120700|ElephantsAmboseli|African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)|Info|![](/en-AU/2024/08/202408120700ElephantsAmboseli.jpg)|
 202408130700|DugiOtokCroatia|Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)|Info|![](/en-AU/2024/08/202408130700DugiOtokCroatia.jpg)|
 202408140700|WatarrkaLizard|Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2024/08/202408140700WatarrkaLizard.jpg)|
+202408150700|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|Info|![](/en-AU/2024/08/202408150700HangCave.jpg)|
