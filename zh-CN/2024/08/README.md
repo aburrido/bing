@@ -16,3 +16,4 @@
 202408121600|DugiOtokCroatia|特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock)|亚得里亚海高地|![](/zh-CN/2024/08/202408121600DugiOtokCroatia.jpg)|
 202408131600|WatarrkaLizard|澳洲魔蜥，瓦塔卡国家公园，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)|今天感觉很精神|![](/zh-CN/2024/08/202408131600WatarrkaLizard.jpg)|
 202408141600|HangCave|韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images)|“洞”之新世界|![](/zh-CN/2024/08/202408141600HangCave.jpg)|
+202408151600|JapanRollerCoaster|长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)|系好安全带！|![](/zh-CN/2024/08/202408151600JapanRollerCoaster.jpg)|
