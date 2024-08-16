@@ -17,3 +17,4 @@
 202408131500|JoshuaTreeNP|ジョシュア・ツリー国立公園, 米国 カリフォルニア州 (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)|不思議な植物や岩の世界|![](/ja-JP/2024/08/202408131500JoshuaTreeNP.jpg)|
 202408141500|HangCave|ソンドン洞, ベトナム (© Geng Xu/Getty Images)|世界最大の洞窟|![](/ja-JP/2024/08/202408141500HangCave.jpg)|
 202408151500|Gozan2024|大文字山の大文字, 京都 (© Masako Ishida/Getty Images)|今日は五山送り火|![](/ja-JP/2024/08/202408151500Gozan2024.jpg)|
+202408161500|AlfanzinaLighthouse|アルファンジーナ灯台, ポルトガル (© Andreas Kunz/Getty Images)|今日から国際灯台ウィークエンド|![](/ja-JP/2024/08/202408161500AlfanzinaLighthouse.jpg)|
