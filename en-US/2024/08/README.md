@@ -17,3 +17,4 @@
 202408130700|DugiOtokCroatia|Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)|Adriatic heights|![](/en-US/2024/08/202408130700DugiOtokCroatia.jpg)|
 202408140700|WatarrkaLizard|Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Feeling sharp today|![](/en-US/2024/08/202408140700WatarrkaLizard.jpg)|
 202408150700|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|A 'hole' new world|![](/en-US/2024/08/202408150700HangCave.jpg)|
+202408160700|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Buckle up!|![](/en-US/2024/08/202408160700JapanRollerCoaster.jpg)|
