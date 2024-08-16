@@ -17,3 +17,4 @@
 202408132200|WatarrkaLizard|Diable épineux, parc national de Watarrka, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|Qui s'y frotte s'y pique !|![](/fr-FR/2024/08/202408132200WatarrkaLizard.jpg)|
 202408142200|HangCave|Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)|La cathédrale naturelle du Vietnam|![](/fr-FR/2024/08/202408142200HangCave.jpg)|
 202408152200|ButterflyFlower|Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)|Un tableau idyllique|![](/fr-FR/2024/08/202408152200ButterflyFlower.jpg)|
+202408162200|AlfanzinaLighthouse|Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)|Les sentinelles de la mer|![](/fr-FR/2024/08/202408162200AlfanzinaLighthouse.jpg)|
