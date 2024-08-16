@@ -16,3 +16,4 @@
 202408130400|DugiOtokCroatia|Falaises du parc naturel de Telascica, île de Dugi Otok, Croatie (© Ilija Ascic/Shutterstock)|L’éden Adriatique|![](/fr-CA/2024/08/202408130400DugiOtokCroatia.jpg)|
 202408140400|WatarrkaLizard|Diable épineux, parc national de Watarrka, Australie (© Yva Momatiuk and John Eastcott/Minden Pictures)|Qui s'y frotte s'y pique!|![](/fr-CA/2024/08/202408140400WatarrkaLizard.jpg)|
 202408150400|HangCave|Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)|La cathédrale naturelle du Vietnam|![](/fr-CA/2024/08/202408150400HangCave.jpg)|
+202408160400|CNE2024|Spectacle aérien international du Canada à l'Exposition nationale canadienne, Toronto, Ontario (© Tony Florio/Alamy Stock Photo)|Symphonie aérienne|![](/fr-CA/2024/08/202408160400CNE2024.jpg)|
