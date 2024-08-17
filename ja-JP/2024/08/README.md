@@ -18,3 +18,4 @@
 202408141500|HangCave|ソンドン洞, ベトナム (© Geng Xu/Getty Images)|世界最大の洞窟|![](/ja-JP/2024/08/202408141500HangCave.jpg)|
 202408151500|Gozan2024|大文字山の大文字, 京都 (© Masako Ishida/Getty Images)|今日は五山送り火|![](/ja-JP/2024/08/202408151500Gozan2024.jpg)|
 202408161500|AlfanzinaLighthouse|アルファンジーナ灯台, ポルトガル (© Andreas Kunz/Getty Images)|今日から国際灯台ウィークエンド|![](/ja-JP/2024/08/202408161500AlfanzinaLighthouse.jpg)|
+202408171500|HuntingtonBeach|ハンティントンビーチピア, 米国 カリフォルニア州 (© Stan Moniz Photography/Tandem Stills + Motion)|夕暮れ時の桟橋のシルエット|![](/ja-JP/2024/08/202408171500HuntingtonBeach.jpg)|
