@@ -18,3 +18,4 @@
 202408142200|HangCave|Grotte de Hang Son Doong, Parc national de Phong Nha-Ke Bang, Vietnam (© Geng Xu/Getty Images)|La cathédrale naturelle du Vietnam|![](/fr-FR/2024/08/202408142200HangCave.jpg)|
 202408152200|ButterflyFlower|Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)|Un tableau idyllique|![](/fr-FR/2024/08/202408152200ButterflyFlower.jpg)|
 202408162200|AlfanzinaLighthouse|Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)|Les sentinelles de la mer|![](/fr-FR/2024/08/202408162200AlfanzinaLighthouse.jpg)|
+202408172200|HuntingtonBeach|Quai de Huntington Beach, Californie, États-Unis (© Stan Moniz Photography/Tandem Stills + Motion)|Le quai mythique de Californie|![](/fr-FR/2024/08/202408172200HuntingtonBeach.jpg)|

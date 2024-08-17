@@ -18,3 +18,4 @@
 202408142200|HangCave|Hang Sơn Đoòng-Höhle, Nationalpark Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)|Lichtspiele unter der Erde|![](/de-DE/2024/08/202408142200HangCave.jpg)|
 202408152200|JapanRollerCoaster|Achterbahn im Nagashima Spa Land, Präfektur Mie, Japan (© Japanese amateur photographer/Getty Images)|Purer Nervenkitzel|![](/de-DE/2024/08/202408152200JapanRollerCoaster.jpg)|
 202408162200|AlfanzinaLighthouse|Leuchtturm Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)|Licht am Horizont|![](/de-DE/2024/08/202408162200AlfanzinaLighthouse.jpg)|
+202408172200|ExternsteineTeutoburg|Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)|Magische Steinzeitfelsen|![](/de-DE/2024/08/202408172200ExternsteineTeutoburg.jpg)|
