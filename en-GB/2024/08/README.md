@@ -18,3 +18,4 @@
 202408142300|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|A 'hole' new world|![](/en-GB/2024/08/202408142300HangCave.jpg)|
 202408152300|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Buckle up!|![](/en-GB/2024/08/202408152300JapanRollerCoaster.jpg)|
 202408162300|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-GB/2024/08/202408162300AlfanzinaLighthouse.jpg)|
+202408172300|GarlicFestival2024|Fresh garlic bulbs for sale at the garlic farm on the Isle of Wight, England (© Steve Hawkins Photography/Alamy Stock Photo)|The root of all deliciousness|![](/en-GB/2024/08/202408172300GarlicFestival2024.jpg)|
