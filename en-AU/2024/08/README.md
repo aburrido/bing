@@ -18,3 +18,4 @@
 202408140700|WatarrkaLizard|Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)|Info|![](/en-AU/2024/08/202408140700WatarrkaLizard.jpg)|
 202408150700|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|Info|![](/en-AU/2024/08/202408150700HangCave.jpg)|
 202408160700|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Info|![](/en-AU/2024/08/202408160700JapanRollerCoaster.jpg)|
+202408170700|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Info|![](/en-AU/2024/08/202408170700AlfanzinaLighthouse.jpg)|
