@@ -18,3 +18,4 @@
 202408141830|RedFortID|Red Fort Delhi front view with Indian National Flag (© Roop Dey/Alamy Stock Photo)|The triumphant tricolour|![](/en-IN/2024/08/202408141830RedFortID.jpg)|
 202408151830|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Buckle up!|![](/en-IN/2024/08/202408151830JapanRollerCoaster.jpg)|
 202408161830|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-IN/2024/08/202408161830AlfanzinaLighthouse.jpg)|
+202408171830|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|A peerless pier|![](/en-IN/2024/08/202408171830HuntingtonBeach.jpg)|
