@@ -18,3 +18,4 @@
 202408141600|HangCave|韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images)|“洞”之新世界|![](/zh-CN/2024/08/202408141600HangCave.jpg)|
 202408151600|JapanRollerCoaster|长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)|系好安全带！|![](/zh-CN/2024/08/202408151600JapanRollerCoaster.jpg)|
 202408161600|AlfanzinaLighthouse|阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)|照亮前行之路|![](/zh-CN/2024/08/202408161600AlfanzinaLighthouse.jpg)|
+202408171600|HuntingtonBeach|日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)|一个无与伦比的码头|![](/zh-CN/2024/08/202408171600HuntingtonBeach.jpg)|
