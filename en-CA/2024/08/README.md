@@ -18,3 +18,4 @@
 202408150400|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|A 'hole' new world|![](/en-CA/2024/08/202408150400HangCave.jpg)|
 202408160400|CNE2024|Canadian International Air Show at the Canadian National Exhibition, in Toronto, Ontario (© Tony Florio/Alamy Stock Photo)|Look up, Toronto!|![](/en-CA/2024/08/202408160400CNE2024.jpg)|
 202408170400|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-CA/2024/08/202408170400AlfanzinaLighthouse.jpg)|
+202408180400|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|A peerless pier|![](/en-CA/2024/08/202408180400HuntingtonBeach.jpg)|
