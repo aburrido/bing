@@ -19,3 +19,4 @@
 202408150700|HangCave|Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)|Info|![](/en-AU/2024/08/202408150700HangCave.jpg)|
 202408160700|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Info|![](/en-AU/2024/08/202408160700JapanRollerCoaster.jpg)|
 202408170700|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Info|![](/en-AU/2024/08/202408170700AlfanzinaLighthouse.jpg)|
+202408180700|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408180700HuntingtonBeach.jpg)|
