@@ -19,3 +19,4 @@
 202408151600|JapanRollerCoaster|长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)|系好安全带！|![](/zh-CN/2024/08/202408151600JapanRollerCoaster.jpg)|
 202408161600|AlfanzinaLighthouse|阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)|照亮前行之路|![](/zh-CN/2024/08/202408161600AlfanzinaLighthouse.jpg)|
 202408171600|HuntingtonBeach|日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)|一个无与伦比的码头|![](/zh-CN/2024/08/202408171600HuntingtonBeach.jpg)|
+202408181600|RegataSanGines|Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)|铿锵有力的打击乐|![](/zh-CN/2024/08/202408181600RegataSanGines.jpg)|
