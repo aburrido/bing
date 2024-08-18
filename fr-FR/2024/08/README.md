@@ -19,3 +19,4 @@
 202408152200|ButterflyFlower|Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)|Un tableau idyllique|![](/fr-FR/2024/08/202408152200ButterflyFlower.jpg)|
 202408162200|AlfanzinaLighthouse|Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)|Les sentinelles de la mer|![](/fr-FR/2024/08/202408162200AlfanzinaLighthouse.jpg)|
 202408172200|HuntingtonBeach|Quai de Huntington Beach, Californie, États-Unis (© Stan Moniz Photography/Tandem Stills + Motion)|Le quai mythique de Californie|![](/fr-FR/2024/08/202408172200HuntingtonBeach.jpg)|
+202408182200|RegataSanGines|Bufadero de la Garita, Grande Canarie, Espagne (© Marco Bottigelli/Getty Images)|Un petit plongeon ?|![](/fr-FR/2024/08/202408182200RegataSanGines.jpg)|
