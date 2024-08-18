@@ -19,3 +19,4 @@
 202408151830|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Buckle up!|![](/en-IN/2024/08/202408151830JapanRollerCoaster.jpg)|
 202408161830|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-IN/2024/08/202408161830AlfanzinaLighthouse.jpg)|
 202408171830|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|A peerless pier|![](/en-IN/2024/08/202408171830HuntingtonBeach.jpg)|
+202408181830|FestivalRakhi|Festival of Raksha Bandhan (© Dinodia Photo/Getty Images)|Twists, turns and ties|![](/en-IN/2024/08/202408181830FestivalRakhi.jpg)|
