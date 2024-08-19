@@ -20,3 +20,4 @@
 202408162300|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-GB/2024/08/202408162300AlfanzinaLighthouse.jpg)|
 202408172300|GarlicFestival2024|Fresh garlic bulbs for sale at the garlic farm on the Isle of Wight, England (© Steve Hawkins Photography/Alamy Stock Photo)|The root of all deliciousness|![](/en-GB/2024/08/202408172300GarlicFestival2024.jpg)|
 202408182300|HuntingtonBeach|Huntington Beach Pier at sunset, California, USA (© Stan Moniz Photography/TANDEM Stills + Motion)|A peerless pier|![](/en-GB/2024/08/202408182300HuntingtonBeach.jpg)|
+202408192300|TetonSunrise|Grand Teton National Park, Wyoming, USA (© Kurt Budliger/TANDEM Stills + Motion)|Where the deer and the antelope play|![](/en-GB/2024/08/202408192300TetonSunrise.jpg)|
