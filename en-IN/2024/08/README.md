@@ -20,3 +20,4 @@
 202408161830|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-IN/2024/08/202408161830AlfanzinaLighthouse.jpg)|
 202408171830|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|A peerless pier|![](/en-IN/2024/08/202408171830HuntingtonBeach.jpg)|
 202408181830|FestivalRakhi|Festival of Raksha Bandhan (© Dinodia Photo/Getty Images)|Twists, turns and ties|![](/en-IN/2024/08/202408181830FestivalRakhi.jpg)|
+202408191830|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Where the deer and the antelope play|![](/en-IN/2024/08/202408191830TetonSunrise.jpg)|
