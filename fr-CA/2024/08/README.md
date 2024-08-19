@@ -19,3 +19,4 @@
 202408160400|CNE2024|Spectacle aérien international du Canada à l'Exposition nationale canadienne, Toronto, Ontario (© Tony Florio/Alamy Stock Photo)|Symphonie aérienne|![](/fr-CA/2024/08/202408160400CNE2024.jpg)|
 202408170400|AlfanzinaLighthouse|Phare d'Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)|Les sentinelles de la mer|![](/fr-CA/2024/08/202408170400AlfanzinaLighthouse.jpg)|
 202408180400|HuntingtonBeach|Quai de Huntington Beach, Californie, États-Unis (© Stan Moniz Photography/Tandem Stills + Motion)|Le quai mythique de Californie|![](/fr-CA/2024/08/202408180400HuntingtonBeach.jpg)|
+202408190400|TwoPuffins|Deux macareux moines, Elliston, Terre-Neuve, Canada (© Daphne Roberts Photography/Getty Images)|Les clowns de la mer|![](/fr-CA/2024/08/202408190400TwoPuffins.jpg)|
