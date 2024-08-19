@@ -20,3 +20,4 @@
 202408162200|AlfanzinaLighthouse|Leuchtturm Alfanzina, Algarve, Portugal (© Andreas Kunz/Getty Images)|Licht am Horizont|![](/de-DE/2024/08/202408162200AlfanzinaLighthouse.jpg)|
 202408172200|ExternsteineTeutoburg|Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)|Magische Steinzeitfelsen|![](/de-DE/2024/08/202408172200ExternsteineTeutoburg.jpg)|
 202408182200|RegataSanGines|Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Prickelnde Performance|![](/de-DE/2024/08/202408182200RegataSanGines.jpg)|
+202408192200|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Spieglein, Spieglein...|![](/de-DE/2024/08/202408192200TetonSunrise.jpg)|
