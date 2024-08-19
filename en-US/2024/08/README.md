@@ -20,3 +20,4 @@
 202408160700|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Buckle up!|![](/en-US/2024/08/202408160700JapanRollerCoaster.jpg)|
 202408170700|AlfanzinaLighthouse|Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-US/2024/08/202408170700AlfanzinaLighthouse.jpg)|
 202408180700|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|Pier today ...|![](/en-US/2024/08/202408180700HuntingtonBeach.jpg)|
+202408190700|FlightMuseum|Museum of Flight, Seattle, Washington (© George Rose/Getty Images)|An old dream takes flight|![](/en-US/2024/08/202408190700FlightMuseum.jpg)|

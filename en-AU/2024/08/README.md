@@ -20,3 +20,4 @@
 202408160700|JapanRollerCoaster|Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)|Info|![](/en-AU/2024/08/202408160700JapanRollerCoaster.jpg)|
 202408170700|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Info|![](/en-AU/2024/08/202408170700AlfanzinaLighthouse.jpg)|
 202408180700|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408180700HuntingtonBeach.jpg)|
+202408190700|RegataSanGines|Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/08/202408190700RegataSanGines.jpg)|
