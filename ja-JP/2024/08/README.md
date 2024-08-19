@@ -20,3 +20,4 @@
 202408161500|AlfanzinaLighthouse|アルファンジーナ灯台, ポルトガル (© Andreas Kunz/Getty Images)|今日から国際灯台ウィークエンド|![](/ja-JP/2024/08/202408161500AlfanzinaLighthouse.jpg)|
 202408171500|HuntingtonBeach|ハンティントンビーチピア, 米国 カリフォルニア州 (© Stan Moniz Photography/Tandem Stills + Motion)|夕暮れ時の桟橋のシルエット|![](/ja-JP/2024/08/202408171500HuntingtonBeach.jpg)|
 202408181500|JapanRollerCoaster|ナガシマスパーランド, 三重県 桑名市 (© Japanese amateur photographer/Getty Images)|木製ローラーコースター「ホワイトサイクロン」|![](/ja-JP/2024/08/202408181500JapanRollerCoaster.jpg)|
+202408191500|TetonSunrise|グランドティトン国立公園, 米国 ワイオミング州 (© Kurt Budliger/Tandem Stills + Motion)|壮大なティトン山脈と周囲の湖|![](/ja-JP/2024/08/202408191500TetonSunrise.jpg)|
