@@ -21,3 +21,4 @@
 202408171500|HuntingtonBeach|ハンティントンビーチピア, 米国 カリフォルニア州 (© Stan Moniz Photography/Tandem Stills + Motion)|夕暮れ時の桟橋のシルエット|![](/ja-JP/2024/08/202408171500HuntingtonBeach.jpg)|
 202408181500|JapanRollerCoaster|ナガシマスパーランド, 三重県 桑名市 (© Japanese amateur photographer/Getty Images)|木製ローラーコースター「ホワイトサイクロン」|![](/ja-JP/2024/08/202408181500JapanRollerCoaster.jpg)|
 202408191500|TetonSunrise|グランドティトン国立公園, 米国 ワイオミング州 (© Kurt Budliger/Tandem Stills + Motion)|壮大なティトン山脈と周囲の湖|![](/ja-JP/2024/08/202408191500TetonSunrise.jpg)|
+202408201500|NazcaBooby|ガラパゴス諸島のウォルフ島, エクアドル (© Tui De Roy/Minden Pictures)|岩の上で休むナスカカツオドリ|![](/ja-JP/2024/08/202408201500NazcaBooby.jpg)|
