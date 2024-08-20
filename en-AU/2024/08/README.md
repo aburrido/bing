@@ -21,3 +21,4 @@
 202408170700|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Info|![](/en-AU/2024/08/202408170700AlfanzinaLighthouse.jpg)|
 202408180700|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408180700HuntingtonBeach.jpg)|
 202408190700|RegataSanGines|Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/08/202408190700RegataSanGines.jpg)|
+202408200700|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408200700TetonSunrise.jpg)|

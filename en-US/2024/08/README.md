@@ -21,3 +21,4 @@
 202408170700|AlfanzinaLighthouse|Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-US/2024/08/202408170700AlfanzinaLighthouse.jpg)|
 202408180700|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|Pier today ...|![](/en-US/2024/08/202408180700HuntingtonBeach.jpg)|
 202408190700|FlightMuseum|Museum of Flight, Seattle, Washington (© George Rose/Getty Images)|An old dream takes flight|![](/en-US/2024/08/202408190700FlightMuseum.jpg)|
+202408200700|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|A grand view|![](/en-US/2024/08/202408200700TetonSunrise.jpg)|
