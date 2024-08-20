@@ -21,3 +21,4 @@
 202408171830|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|A peerless pier|![](/en-IN/2024/08/202408171830HuntingtonBeach.jpg)|
 202408181830|FestivalRakhi|Festival of Raksha Bandhan (© Dinodia Photo/Getty Images)|Twists, turns and ties|![](/en-IN/2024/08/202408181830FestivalRakhi.jpg)|
 202408191830|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Where the deer and the antelope play|![](/en-IN/2024/08/202408191830TetonSunrise.jpg)|
+202408201830|NazcaBooby|Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Waiting to 'Galápa-go'|![](/en-IN/2024/08/202408201830NazcaBooby.jpg)|
