@@ -21,3 +21,4 @@
 202408172200|ExternsteineTeutoburg|Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)|Magische Steinzeitfelsen|![](/de-DE/2024/08/202408172200ExternsteineTeutoburg.jpg)|
 202408182200|RegataSanGines|Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Prickelnde Performance|![](/de-DE/2024/08/202408182200RegataSanGines.jpg)|
 202408192200|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Spieglein, Spieglein...|![](/de-DE/2024/08/202408192200TetonSunrise.jpg)|
+202408202200|NazcaBooby|Nazcatölpel, Wolfsinsel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)|Ein schlaues Kerlchen|![](/de-DE/2024/08/202408202200NazcaBooby.jpg)|
