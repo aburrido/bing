@@ -20,3 +20,4 @@
 202408170400|AlfanzinaLighthouse|Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)|Light the way|![](/en-CA/2024/08/202408170400AlfanzinaLighthouse.jpg)|
 202408180400|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|A peerless pier|![](/en-CA/2024/08/202408180400HuntingtonBeach.jpg)|
 202408190400|TwoPuffins|Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)|Puffins with a plan|![](/en-CA/2024/08/202408190400TwoPuffins.jpg)|
+202408200400|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Where the deer and the antelope play|![](/en-CA/2024/08/202408200400TetonSunrise.jpg)|
