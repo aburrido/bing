@@ -22,3 +22,4 @@
 202408180700|HuntingtonBeach|Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)|Pier today ...|![](/en-US/2024/08/202408180700HuntingtonBeach.jpg)|
 202408190700|FlightMuseum|Museum of Flight, Seattle, Washington (© George Rose/Getty Images)|An old dream takes flight|![](/en-US/2024/08/202408190700FlightMuseum.jpg)|
 202408200700|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|A grand view|![](/en-US/2024/08/202408200700TetonSunrise.jpg)|
+202408210700|NazcaBooby|Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Waiting to 'Galápa-go'|![](/en-US/2024/08/202408210700NazcaBooby.jpg)|
