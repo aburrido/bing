@@ -22,3 +22,4 @@
 202408181600|RegataSanGines|Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)|铿锵有力的打击乐|![](/zh-CN/2024/08/202408181600RegataSanGines.jpg)|
 202408191600|TetonSunrise|大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)|鹿和羚羊嬉戏的地方|![](/zh-CN/2024/08/202408191600TetonSunrise.jpg)|
 202408201600|NazcaBooby|纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|等待前往加拉帕戈斯群岛|![](/zh-CN/2024/08/202408201600NazcaBooby.jpg)|
+202408211600|OceanCityMD|海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)|晨曦之光|![](/zh-CN/2024/08/202408211600OceanCityMD.jpg)|
