@@ -22,3 +22,4 @@
 202408182300|HuntingtonBeach|Huntington Beach Pier at sunset, California, USA (© Stan Moniz Photography/TANDEM Stills + Motion)|A peerless pier|![](/en-GB/2024/08/202408182300HuntingtonBeach.jpg)|
 202408192300|TetonSunrise|Grand Teton National Park, Wyoming, USA (© Kurt Budliger/TANDEM Stills + Motion)|Where the deer and the antelope play|![](/en-GB/2024/08/202408192300TetonSunrise.jpg)|
 202408202300|NazcaBooby|Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Waiting to 'Galápa-go'|![](/en-GB/2024/08/202408202300NazcaBooby.jpg)|
+202408212300|OceanCityMD|Aerial view of Ocean City, Maryland, USA (© Kevin Olson/Amazing Aerial Agency)|The morning glow|![](/en-GB/2024/08/202408212300OceanCityMD.jpg)|
