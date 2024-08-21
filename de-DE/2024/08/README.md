@@ -22,3 +22,4 @@
 202408182200|RegataSanGines|Bufadero de la Garita, Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Prickelnde Performance|![](/de-DE/2024/08/202408182200RegataSanGines.jpg)|
 202408192200|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Spieglein, Spieglein...|![](/de-DE/2024/08/202408192200TetonSunrise.jpg)|
 202408202200|NazcaBooby|Nazcatölpel, Wolfsinsel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)|Ein schlaues Kerlchen|![](/de-DE/2024/08/202408202200NazcaBooby.jpg)|
+202408212200|OceanCityMD|Luftaufnahme von Ocean City bei Sonnenaufgang, Maryland, USA (© Kevin Olson/Amazing Aerial Agency)|Faszinierende Morgenröte|![](/de-DE/2024/08/202408212200OceanCityMD.jpg)|

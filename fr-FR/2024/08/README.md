@@ -22,3 +22,4 @@
 202408182200|RegataSanGines|Bufadero de la Garita, Grande Canarie, Espagne (© Marco Bottigelli/Getty Images)|Un petit plongeon ?|![](/fr-FR/2024/08/202408182200RegataSanGines.jpg)|
 202408192200|TetonSunrise|Lever de soleil dans le parc national de Grand Teton, Wyoming, États-Unis (© Kurt Budliger/Tandem Stills + Motion)|Entre ciel et terre|![](/fr-FR/2024/08/202408192200TetonSunrise.jpg)|
 202408202200|NazcaBooby|Fou de Grant, île Wolf, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)|Des découvertes à Galápa-gogo|![](/fr-FR/2024/08/202408202200NazcaBooby.jpg)|
+202408212200|OceanCityMD|Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)|Lueur matinale|![](/fr-FR/2024/08/202408212200OceanCityMD.jpg)|
