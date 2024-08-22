@@ -22,3 +22,4 @@
 202408190400|TwoPuffins|Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)|Puffins with a plan|![](/en-CA/2024/08/202408190400TwoPuffins.jpg)|
 202408200400|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|Where the deer and the antelope play|![](/en-CA/2024/08/202408200400TetonSunrise.jpg)|
 202408210400|NazcaBooby|Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Waiting to 'Galápa-go'|![](/en-CA/2024/08/202408210400NazcaBooby.jpg)|
+202408220400|OceanCityMD|Aerial view of Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)|The morning glow|![](/en-CA/2024/08/202408220400OceanCityMD.jpg)|

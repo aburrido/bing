@@ -22,3 +22,4 @@
 202408190400|TwoPuffins|Deux macareux moines, Elliston, Terre-Neuve, Canada (© Daphne Roberts Photography/Getty Images)|Les clowns de la mer|![](/fr-CA/2024/08/202408190400TwoPuffins.jpg)|
 202408200400|TetonSunrise|Lever de soleil dans le parc national de Grand Teton, Wyoming, États-Unis (© Kurt Budliger/Tandem Stills + Motion)|Entre ciel et terre|![](/fr-CA/2024/08/202408200400TetonSunrise.jpg)|
 202408210400|NazcaBooby|Fou de Grant, île Wolf, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)|Des découvertes à Galápa-gogo|![](/fr-CA/2024/08/202408210400NazcaBooby.jpg)|
+202408220400|OceanCityMD|Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)|Lueur matinale|![](/fr-CA/2024/08/202408220400OceanCityMD.jpg)|
