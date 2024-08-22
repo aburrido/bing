@@ -23,3 +23,4 @@
 202408190700|FlightMuseum|Museum of Flight, Seattle, Washington (© George Rose/Getty Images)|An old dream takes flight|![](/en-US/2024/08/202408190700FlightMuseum.jpg)|
 202408200700|TetonSunrise|Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)|A grand view|![](/en-US/2024/08/202408200700TetonSunrise.jpg)|
 202408210700|NazcaBooby|Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Waiting to 'Galápa-go'|![](/en-US/2024/08/202408210700NazcaBooby.jpg)|
+202408220700|OceanCityMD|Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)|The morning glow|![](/en-US/2024/08/202408220700OceanCityMD.jpg)|
