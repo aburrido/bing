@@ -24,3 +24,4 @@
 202408201830|NazcaBooby|Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Waiting to 'Galápa-go'|![](/en-IN/2024/08/202408201830NazcaBooby.jpg)|
 202408211830|OceanCityMD|Aerial view of Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)|The morning glow|![](/en-IN/2024/08/202408211830OceanCityMD.jpg)|
 202408221830|PrasatPhanom|Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)|Doorway to the past|![](/en-IN/2024/08/202408221830PrasatPhanom.jpg)|
+202408231830|KatahdinWoods|Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)|All about the woods and waters|![](/en-IN/2024/08/202408231830KatahdinWoods.jpg)|
