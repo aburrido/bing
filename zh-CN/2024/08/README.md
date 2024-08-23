@@ -24,3 +24,4 @@
 202408201600|NazcaBooby|纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|等待前往加拉帕戈斯群岛|![](/zh-CN/2024/08/202408201600NazcaBooby.jpg)|
 202408211600|OceanCityMD|海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)|晨曦之光|![](/zh-CN/2024/08/202408211600OceanCityMD.jpg)|
 202408221600|PrasatPhanom|帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)|通往过去的大门|![](/zh-CN/2024/08/202408221600PrasatPhanom.jpg)|
+202408231600|KatahdinWoods|卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)|尽享森林与水域之美|![](/zh-CN/2024/08/202408231600KatahdinWoods.jpg)|
