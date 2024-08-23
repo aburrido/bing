@@ -24,3 +24,4 @@
 202408202200|NazcaBooby|Nazcatölpel, Wolfsinsel, Galápagos-Inseln, Ecuador (© Tui De Roy/Minden Pictures)|Ein schlaues Kerlchen|![](/de-DE/2024/08/202408202200NazcaBooby.jpg)|
 202408212200|OceanCityMD|Luftaufnahme von Ocean City bei Sonnenaufgang, Maryland, USA (© Kevin Olson/Amazing Aerial Agency)|Faszinierende Morgenröte|![](/de-DE/2024/08/202408212200OceanCityMD.jpg)|
 202408222200|PrasatPhanom|Tempelruinen von Phanom Rung, Provinz Buriram, Thailand (© Banjongseal324/Getty Images)|Eine Tür zur Vergangenheit|![](/de-DE/2024/08/202408222200PrasatPhanom.jpg)|
+202408232200|MuseumsinselSpree|Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)|Nachts im Museum|![](/de-DE/2024/08/202408232200MuseumsinselSpree.jpg)|
