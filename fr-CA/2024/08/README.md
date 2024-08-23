@@ -23,3 +23,4 @@
 202408200400|TetonSunrise|Lever de soleil dans le parc national de Grand Teton, Wyoming, États-Unis (© Kurt Budliger/Tandem Stills + Motion)|Entre ciel et terre|![](/fr-CA/2024/08/202408200400TetonSunrise.jpg)|
 202408210400|NazcaBooby|Fou de Grant, île Wolf, îles Galápagos, Équateur (© Tui De Roy/Minden Pictures)|Des découvertes à Galápa-gogo|![](/fr-CA/2024/08/202408210400NazcaBooby.jpg)|
 202408220400|OceanCityMD|Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)|Lueur matinale|![](/fr-CA/2024/08/202408220400OceanCityMD.jpg)|
+202408230400|PrasatPhanom|Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)|Une porte ouverte sur le passé|![](/fr-CA/2024/08/202408230400PrasatPhanom.jpg)|
