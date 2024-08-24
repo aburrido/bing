@@ -25,3 +25,4 @@
 202408212300|OceanCityMD|Aerial view of Ocean City, Maryland, USA (© Kevin Olson/Amazing Aerial Agency)|The morning glow|![](/en-GB/2024/08/202408212300OceanCityMD.jpg)|
 202408222300|PrasatPhanom|Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)|Doorway to the past|![](/en-GB/2024/08/202408222300PrasatPhanom.jpg)|
 202408232300|NottingHillCarnival2024|Notting Hill Carnival on August 15, 2009, in London, England (© Dan Kitwood/Getty Images)|'Notting' but colours, sounds and flavours|![](/en-GB/2024/08/202408232300NottingHillCarnival2024.jpg)|
+202408242300|SwiftcurrentLake|Swiftcurrent Lake, Glacier National Park, Montana, USA (© Jason Savage/Tandem Stills + Motion)|Ice to meet you!|![](/en-GB/2024/08/202408242300SwiftcurrentLake.jpg)|
