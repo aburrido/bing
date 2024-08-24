@@ -25,3 +25,4 @@
 202408212200|OceanCityMD|Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)|Lueur matinale|![](/fr-FR/2024/08/202408212200OceanCityMD.jpg)|
 202408222200|PrasatPhanom|Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)|Une porte ouverte sur le passé|![](/fr-FR/2024/08/202408222200PrasatPhanom.jpg)|
 202408232200|KatahdinWoods|Katahdin Woods and Waters National Monument, comté de Penobscot, Maine, États-Unis (© Cavan Images/Alamy)|De l’eau et des bois|![](/fr-FR/2024/08/202408232200KatahdinWoods.jpg)|
+202408242200|TrailMontBlanc|Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)|L’émeraude des Alpes|![](/fr-FR/2024/08/202408242200TrailMontBlanc.jpg)|
