@@ -25,3 +25,4 @@
 202408211500|OceanCityMD|オーシャンシティ, 米国 メリーランド州 (© Kevin Olson/Amazing Aerial Agency)|賑やかなビーチタウン|![](/ja-JP/2024/08/202408211500OceanCityMD.jpg)|
 202408221500|Fireworks2024|厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)|もう一度見たい宮島水中花火大会|![](/ja-JP/2024/08/202408221500Fireworks2024.jpg)|
 202408231500|JizoFestival2024|三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)|今日は地蔵盆|![](/ja-JP/2024/08/202408231500JizoFestival2024.jpg)|
+202408241500|SwiftcurrentLake|グレーシャー国立公園, 米国 モンタナ州 (© Jason Savage/Tandem Stills + Motion)|今日は米国国立公園局の創立記念日|![](/ja-JP/2024/08/202408241500SwiftcurrentLake.jpg)|
