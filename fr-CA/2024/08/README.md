@@ -25,3 +25,4 @@
 202408220400|OceanCityMD|Vue aérienne d’Ocean City au lever du soleil, Maryland, États-Unis (© Kevin Olson/Amazing Aerial Agency)|Lueur matinale|![](/fr-CA/2024/08/202408220400OceanCityMD.jpg)|
 202408230400|PrasatPhanom|Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)|Une porte ouverte sur le passé|![](/fr-CA/2024/08/202408230400PrasatPhanom.jpg)|
 202408240400|KatahdinWoods|Katahdin Woods and Waters National Monument, comté de Penobscot, Maine, États-Unis (© Cavan Images/Alamy)|De l’eau et des bois|![](/fr-CA/2024/08/202408240400KatahdinWoods.jpg)|
+202408250400|SwiftcurrentLake|Lever de soleil sur le lac Swiftcurrent, parc national des Glaciers, Montana, États-Unis  (© Jason Savage/Tandem Stills + Motion)|Un paradis préservé|![](/fr-CA/2024/08/202408250400SwiftcurrentLake.jpg)|
