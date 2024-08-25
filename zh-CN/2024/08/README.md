@@ -26,3 +26,4 @@
 202408221600|PrasatPhanom|帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)|通往过去的大门|![](/zh-CN/2024/08/202408221600PrasatPhanom.jpg)|
 202408231600|KatahdinWoods|卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)|尽享森林与水域之美|![](/zh-CN/2024/08/202408231600KatahdinWoods.jpg)|
 202408241600|SwiftcurrentLake|急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)|守护这片乐园|![](/zh-CN/2024/08/202408241600SwiftcurrentLake.jpg)|
+202408251600|PalmyraAtoll|巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)|田园诗般的岛屿之旅|![](/zh-CN/2024/08/202408251600PalmyraAtoll.jpg)|
