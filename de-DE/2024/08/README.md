@@ -26,3 +26,4 @@
 202408222200|PrasatPhanom|Tempelruinen von Phanom Rung, Provinz Buriram, Thailand (© Banjongseal324/Getty Images)|Eine Tür zur Vergangenheit|![](/de-DE/2024/08/202408222200PrasatPhanom.jpg)|
 202408232200|MuseumsinselSpree|Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)|Nachts im Museum|![](/de-DE/2024/08/202408232200MuseumsinselSpree.jpg)|
 202408242200|VineyardsinRemstalvalley|Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)|Ein Paradies für Weinliebhaber|![](/de-DE/2024/08/202408242200VineyardsinRemstalvalley.jpg)|
+202408252200|PalmyraAtoll|Schutzgebiet Palmyra-Atoll, Pazifischer Ozean, USA (© Ian Shive/Tandem Stills + Motion)|Idyllisches Inselparadies|![](/de-DE/2024/08/202408252200PalmyraAtoll.jpg)|
