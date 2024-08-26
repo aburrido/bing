@@ -27,3 +27,4 @@
 202408230700|PrasatPhanom|Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)|Info|![](/en-AU/2024/08/202408230700PrasatPhanom.jpg)|
 202408240700|KatahdinWoods|Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)|Info|![](/en-AU/2024/08/202408240700KatahdinWoods.jpg)|
 202408250700|SwiftcurrentLake|Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408250700SwiftcurrentLake.jpg)|
+202408260700|PalmyraAtoll|Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408260700PalmyraAtoll.jpg)|
