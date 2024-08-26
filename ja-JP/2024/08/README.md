@@ -27,3 +27,4 @@
 202408231500|JizoFestival2024|三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)|今日は地蔵盆|![](/ja-JP/2024/08/202408231500JizoFestival2024.jpg)|
 202408241500|SwiftcurrentLake|グレーシャー国立公園, 米国 モンタナ州 (© Jason Savage/Tandem Stills + Motion)|今日は米国国立公園局の創立記念日|![](/ja-JP/2024/08/202408241500SwiftcurrentLake.jpg)|
 202408251500|PalmyraAtoll|パルミラ環礁, 米国 (© Ian Shive/Tandem Stills + Motion)|太平洋に浮かぶ生物の楽園|![](/ja-JP/2024/08/202408251500PalmyraAtoll.jpg)|
+202408261500|PrasatPhanom|パノムルン遺跡, タイ (© Banjongseal324/Getty Images)|クメール王朝の神殿跡|![](/ja-JP/2024/08/202408261500PrasatPhanom.jpg)|
