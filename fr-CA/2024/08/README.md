@@ -26,3 +26,4 @@
 202408230400|PrasatPhanom|Ruines du temple de Prasat Phanom Rung, province de Buriram, Thaïlande (© Banjongseal324/Getty Images)|Une porte ouverte sur le passé|![](/fr-CA/2024/08/202408230400PrasatPhanom.jpg)|
 202408240400|KatahdinWoods|Katahdin Woods and Waters National Monument, comté de Penobscot, Maine, États-Unis (© Cavan Images/Alamy)|De l’eau et des bois|![](/fr-CA/2024/08/202408240400KatahdinWoods.jpg)|
 202408250400|SwiftcurrentLake|Lever de soleil sur le lac Swiftcurrent, parc national des Glaciers, Montana, États-Unis  (© Jason Savage/Tandem Stills + Motion)|Un paradis préservé|![](/fr-CA/2024/08/202408250400SwiftcurrentLake.jpg)|
+202408260400|PalmyraAtoll|Réserve naturelle nationale de l'atoll de Palmyra, océan Pacifique central (© Ian Shive/Tandem Stills + Motion)|Une petite escapade idyllique?|![](/fr-CA/2024/08/202408260400PalmyraAtoll.jpg)|
