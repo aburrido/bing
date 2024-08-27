@@ -28,3 +28,4 @@
 202408241500|SwiftcurrentLake|グレーシャー国立公園, 米国 モンタナ州 (© Jason Savage/Tandem Stills + Motion)|今日は米国国立公園局の創立記念日|![](/ja-JP/2024/08/202408241500SwiftcurrentLake.jpg)|
 202408251500|PalmyraAtoll|パルミラ環礁, 米国 (© Ian Shive/Tandem Stills + Motion)|太平洋に浮かぶ生物の楽園|![](/ja-JP/2024/08/202408251500PalmyraAtoll.jpg)|
 202408261500|PrasatPhanom|パノムルン遺跡, タイ (© Banjongseal324/Getty Images)|クメール王朝の神殿跡|![](/ja-JP/2024/08/202408261500PrasatPhanom.jpg)|
+202408271500|ParalympicsParis|サクレ・クール寺院, フランス パリ (© Tuul & Bruno Morandi/Getty Images)|今日は夏季パラリンピックの開幕日|![](/ja-JP/2024/08/202408271500ParalympicsParis.jpg)|
