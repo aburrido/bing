@@ -28,3 +28,4 @@
 202408241830|GolcondaFort|Arched parapets of the Golconda Fort in Hyderabad, Telangana (© Manab Sen/Alamy Stock Photo)|More than just walls|![](/en-IN/2024/08/202408241830GolcondaFort.jpg)|
 202408251830|PalmyraAtoll|Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)|Idyllic island escape|![](/en-IN/2024/08/202408251830PalmyraAtoll.jpg)|
 202408261830|YoungCaiman|Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)|Life is good in the swamp|![](/en-IN/2024/08/202408261830YoungCaiman.jpg)|
+202408271830|ParalympicsParis|Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Game on|![](/en-IN/2024/08/202408271830ParalympicsParis.jpg)|
