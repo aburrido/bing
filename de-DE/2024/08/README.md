@@ -28,3 +28,4 @@
 202408242200|VineyardsinRemstalvalley|Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)|Ein Paradies für Weinliebhaber|![](/de-DE/2024/08/202408242200VineyardsinRemstalvalley.jpg)|
 202408252200|PalmyraAtoll|Schutzgebiet Palmyra-Atoll, Pazifischer Ozean, USA (© Ian Shive/Tandem Stills + Motion)|Idyllisches Inselparadies|![](/de-DE/2024/08/202408252200PalmyraAtoll.jpg)|
 202408262200|YoungCaiman|Junger schwarzer Kaiman, Reserva Nacional Tambopata, Peru (© Maxime Aliaga/Minden Pictures)|Einfach mal abtauchen!|![](/de-DE/2024/08/202408262200YoungCaiman.jpg)|
+202408272200|ParalympicsParis|Montmartre und Sacre Cœur, Paris, Frankreich (© Tuul & Bruno Morandi/Getty Images)|Auf die Plätze, fertig, los!|![](/de-DE/2024/08/202408272200ParalympicsParis.jpg)|

@@ -28,3 +28,4 @@
 202408242200|TrailMontBlanc|Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)|L’émeraude des Alpes|![](/fr-FR/2024/08/202408242200TrailMontBlanc.jpg)|
 202408252200|PalmyraAtoll|Réserve naturelle nationale de l'atoll de Palmyra, océan Pacifique central (© Ian Shive/Tandem Stills + Motion)|Une petite escapade idyllique ?|![](/fr-FR/2024/08/202408252200PalmyraAtoll.jpg)|
 202408262200|YoungCaiman|Jeune caïman noir, réserve nationale de Tambopata, Pérou (© Maxime Aliaga/Minden Pictures)|L’appel du marais|![](/fr-FR/2024/08/202408262200YoungCaiman.jpg)|
+202408272200|PontNeuf|Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)|Célébrons la résilience !|![](/fr-FR/2024/08/202408272200PontNeuf.jpg)|
