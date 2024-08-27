@@ -28,3 +28,4 @@
 202408241600|SwiftcurrentLake|急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)|守护这片乐园|![](/zh-CN/2024/08/202408241600SwiftcurrentLake.jpg)|
 202408251600|PalmyraAtoll|巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)|田园诗般的岛屿之旅|![](/zh-CN/2024/08/202408251600PalmyraAtoll.jpg)|
 202408261600|YoungCaiman|黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)|沼泽里的生活真美好！|![](/zh-CN/2024/08/202408261600YoungCaiman.jpg)|
+202408271600|ParalympicsParis|蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)|比赛开始！|![](/zh-CN/2024/08/202408271600ParalympicsParis.jpg)|
