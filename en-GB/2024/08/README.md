@@ -28,3 +28,4 @@
 202408242300|SwiftcurrentLake|Swiftcurrent Lake, Glacier National Park, Montana, USA (© Jason Savage/Tandem Stills + Motion)|Ice to meet you!|![](/en-GB/2024/08/202408242300SwiftcurrentLake.jpg)|
 202408252300|PalmyraAtoll|Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)|Idyllic island escape|![](/en-GB/2024/08/202408252300PalmyraAtoll.jpg)|
 202408262300|YoungCaiman|Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)|Life is good in the swamp|![](/en-GB/2024/08/202408262300YoungCaiman.jpg)|
+202408272300|ParalympicsParis|Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Game on|![](/en-GB/2024/08/202408272300ParalympicsParis.jpg)|
