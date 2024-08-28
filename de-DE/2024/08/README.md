@@ -29,3 +29,4 @@
 202408252200|PalmyraAtoll|Schutzgebiet Palmyra-Atoll, Pazifischer Ozean, USA (© Ian Shive/Tandem Stills + Motion)|Idyllisches Inselparadies|![](/de-DE/2024/08/202408252200PalmyraAtoll.jpg)|
 202408262200|YoungCaiman|Junger schwarzer Kaiman, Reserva Nacional Tambopata, Peru (© Maxime Aliaga/Minden Pictures)|Einfach mal abtauchen!|![](/de-DE/2024/08/202408262200YoungCaiman.jpg)|
 202408272200|ParalympicsParis|Montmartre und Sacre Cœur, Paris, Frankreich (© Tuul & Bruno Morandi/Getty Images)|Auf die Plätze, fertig, los!|![](/de-DE/2024/08/202408272200ParalympicsParis.jpg)|
+202408282200|CastellfollitSpain|Castellfollit de la Roca, Katalonien, Spanien (© Eloi_Omella/Getty Images)|Ein atemberaubendes Panorama|![](/de-DE/2024/08/202408282200CastellfollitSpain.jpg)|
