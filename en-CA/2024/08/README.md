@@ -28,3 +28,4 @@
 202408250400|SwiftcurrentLake|Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)|Preserving paradise|![](/en-CA/2024/08/202408250400SwiftcurrentLake.jpg)|
 202408260400|PalmyraAtoll|Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)|Idyllic island escape|![](/en-CA/2024/08/202408260400PalmyraAtoll.jpg)|
 202408270400|YoungCaiman|Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)|Life is good in the swamp|![](/en-CA/2024/08/202408270400YoungCaiman.jpg)|
+202408280400|ParalympicsParis|Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Game on|![](/en-CA/2024/08/202408280400ParalympicsParis.jpg)|

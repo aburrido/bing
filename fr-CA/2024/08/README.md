@@ -28,3 +28,4 @@
 202408250400|SwiftcurrentLake|Lever de soleil sur le lac Swiftcurrent, parc national des Glaciers, Montana, États-Unis  (© Jason Savage/Tandem Stills + Motion)|Un paradis préservé|![](/fr-CA/2024/08/202408250400SwiftcurrentLake.jpg)|
 202408260400|PalmyraAtoll|Réserve naturelle nationale de l'atoll de Palmyra, océan Pacifique central (© Ian Shive/Tandem Stills + Motion)|Une petite escapade idyllique?|![](/fr-CA/2024/08/202408260400PalmyraAtoll.jpg)|
 202408270400|YoungCaiman|Jeune caïman noir, réserve nationale de Tambopata, Pérou (© Maxime Aliaga/Minden Pictures)|L’appel du marais|![](/fr-CA/2024/08/202408270400YoungCaiman.jpg)|
+202408280400|ParalympicsParis|Basilique du Sacré-Cœur de Montmartre, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Célébrons la résilience!|![](/fr-CA/2024/08/202408280400ParalympicsParis.jpg)|
