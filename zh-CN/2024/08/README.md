@@ -29,3 +29,4 @@
 202408251600|PalmyraAtoll|巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)|田园诗般的岛屿之旅|![](/zh-CN/2024/08/202408251600PalmyraAtoll.jpg)|
 202408261600|YoungCaiman|黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)|沼泽里的生活真美好！|![](/zh-CN/2024/08/202408261600YoungCaiman.jpg)|
 202408271600|ParalympicsParis|蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)|比赛开始！|![](/zh-CN/2024/08/202408271600ParalympicsParis.jpg)|
+202408281600|CastellfollitSpain|富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images)|加泰罗尼亚式的悬念|![](/zh-CN/2024/08/202408281600CastellfollitSpain.jpg)|
