@@ -30,3 +30,4 @@
 202408260700|PalmyraAtoll|Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)|Info|![](/en-AU/2024/08/202408260700PalmyraAtoll.jpg)|
 202408270700|YoungCaiman|Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)|Info|![](/en-AU/2024/08/202408270700YoungCaiman.jpg)|
 202408280700|ParalympicsParis|Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Info|![](/en-AU/2024/08/202408280700ParalympicsParis.jpg)|
+202408290700|CastellfollitSpain|Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)|Info|![](/en-AU/2024/08/202408290700CastellfollitSpain.jpg)|
