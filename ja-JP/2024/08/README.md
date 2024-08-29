@@ -30,3 +30,4 @@
 202408261500|PrasatPhanom|パノムルン遺跡, タイ (© Banjongseal324/Getty Images)|クメール王朝の神殿跡|![](/ja-JP/2024/08/202408261500PrasatPhanom.jpg)|
 202408271500|ParalympicsParis|サクレ・クール寺院, フランス パリ (© Tuul & Bruno Morandi/Getty Images)|今日は夏季パラリンピックの開幕日|![](/ja-JP/2024/08/202408271500ParalympicsParis.jpg)|
 202408281500|CastellfollitSpain|カステルフォリット・デ・ラ・ロカ, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)|崖上の街|![](/ja-JP/2024/08/202408281500CastellfollitSpain.jpg)|
+202408291500|WhaleSharkDay|チェンデラワシ湾のジンベエザメ, インドネシア (© Andy Lerner/Tandem Stills + Motion)|今日は国際ジンベエザメの日|![](/ja-JP/2024/08/202408291500WhaleSharkDay.jpg)|
