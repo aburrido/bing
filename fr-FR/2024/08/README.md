@@ -30,3 +30,4 @@
 202408262200|YoungCaiman|Jeune caïman noir, réserve nationale de Tambopata, Pérou (© Maxime Aliaga/Minden Pictures)|L’appel du marais|![](/fr-FR/2024/08/202408262200YoungCaiman.jpg)|
 202408272200|PontNeuf|Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)|Célébrons la résilience !|![](/fr-FR/2024/08/202408272200PontNeuf.jpg)|
 202408282200|CastellfollitSpain|Castellfollit de la Roca, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Le joyau de la Catalogne|![](/fr-FR/2024/08/202408282200CastellfollitSpain.jpg)|
+202408292200|WhaleSharkDay|Requin-baleine dans la baie de Cenderawasih, Papouasie occidentale, Indonésie (© Andy Lerner/Tandem Stills + Motion)|La douceur d’un géant|![](/fr-FR/2024/08/202408292200WhaleSharkDay.jpg)|
