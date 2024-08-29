@@ -29,3 +29,4 @@
 202408260400|PalmyraAtoll|Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)|Idyllic island escape|![](/en-CA/2024/08/202408260400PalmyraAtoll.jpg)|
 202408270400|YoungCaiman|Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)|Life is good in the swamp|![](/en-CA/2024/08/202408270400YoungCaiman.jpg)|
 202408280400|ParalympicsParis|Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Game on|![](/en-CA/2024/08/202408280400ParalympicsParis.jpg)|
+202408290400|CastellfollitSpain|Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)|A Catalan cliffhanger|![](/en-CA/2024/08/202408290400CastellfollitSpain.jpg)|

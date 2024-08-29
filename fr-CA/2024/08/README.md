@@ -29,3 +29,4 @@
 202408260400|PalmyraAtoll|Réserve naturelle nationale de l'atoll de Palmyra, océan Pacifique central (© Ian Shive/Tandem Stills + Motion)|Une petite escapade idyllique?|![](/fr-CA/2024/08/202408260400PalmyraAtoll.jpg)|
 202408270400|YoungCaiman|Jeune caïman noir, réserve nationale de Tambopata, Pérou (© Maxime Aliaga/Minden Pictures)|L’appel du marais|![](/fr-CA/2024/08/202408270400YoungCaiman.jpg)|
 202408280400|ParalympicsParis|Basilique du Sacré-Cœur de Montmartre, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Célébrons la résilience!|![](/fr-CA/2024/08/202408280400ParalympicsParis.jpg)|
+202408290400|CastellfollitSpain|Castellfollit de la Roca, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Le joyau de la Catalogne|![](/fr-CA/2024/08/202408290400CastellfollitSpain.jpg)|
