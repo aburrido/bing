@@ -31,3 +31,4 @@
 202408271830|ParalympicsParis|Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Game on|![](/en-IN/2024/08/202408271830ParalympicsParis.jpg)|
 202408281830|CastellfollitSpain|Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)|A Catalan cliffhanger|![](/en-IN/2024/08/202408281830CastellfollitSpain.jpg)|
 202408291830|WhaleSharkDay|A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)|Being gentle to the giants|![](/en-IN/2024/08/202408291830WhaleSharkDay.jpg)|
+202408301830|DjanetAlgeria|Rock formations and sand dunes in the Sahara, Djanet, Algeria (© Airpano/Amazing Aerial Agency)|Dune days and desert haze|![](/en-IN/2024/08/202408301830DjanetAlgeria.jpg)|
