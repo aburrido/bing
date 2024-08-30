@@ -31,3 +31,4 @@
 202408272200|ParalympicsParis|Montmartre und Sacre Cœur, Paris, Frankreich (© Tuul & Bruno Morandi/Getty Images)|Auf die Plätze, fertig, los!|![](/de-DE/2024/08/202408272200ParalympicsParis.jpg)|
 202408282200|CastellfollitSpain|Castellfollit de la Roca, Katalonien, Spanien (© Eloi_Omella/Getty Images)|Ein atemberaubendes Panorama|![](/de-DE/2024/08/202408282200CastellfollitSpain.jpg)|
 202408292200|WhaleSharkDay|Walhai in der Cenderawasih-Bucht, West Papua, Indonesien (© Andy Lerner/Tandem Stills + Motion)|Majestätische Unterwasserriesen|![](/de-DE/2024/08/202408292200WhaleSharkDay.jpg)|
+202408302200|DjanetAlgeria|Felsformationen in der Sahara, Djanet, Algerien (© Airpano/Amazing Aerial Agency)|Eine felsige Wüstenlandschaft|![](/de-DE/2024/08/202408302200DjanetAlgeria.jpg)|
