@@ -30,3 +30,4 @@
 202408270400|YoungCaiman|Jeune caïman noir, réserve nationale de Tambopata, Pérou (© Maxime Aliaga/Minden Pictures)|L’appel du marais|![](/fr-CA/2024/08/202408270400YoungCaiman.jpg)|
 202408280400|ParalympicsParis|Basilique du Sacré-Cœur de Montmartre, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Célébrons la résilience!|![](/fr-CA/2024/08/202408280400ParalympicsParis.jpg)|
 202408290400|CastellfollitSpain|Castellfollit de la Roca, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Le joyau de la Catalogne|![](/fr-CA/2024/08/202408290400CastellfollitSpain.jpg)|
+202408300400|WhaleSharkDay|Requin-baleine dans la baie de Cenderawasih, Papouasie occidentale, Indonésie (© Andy Lerner/Tandem Stills + Motion)|La douceur d’un géant|![](/fr-CA/2024/08/202408300400WhaleSharkDay.jpg)|
