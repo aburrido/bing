@@ -31,3 +31,4 @@
 202408280400|ParalympicsParis|Basilique du Sacré-Cœur de Montmartre, Paris, France (© Tuul & Bruno Morandi/Getty Images)|Célébrons la résilience!|![](/fr-CA/2024/08/202408280400ParalympicsParis.jpg)|
 202408290400|CastellfollitSpain|Castellfollit de la Roca, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Le joyau de la Catalogne|![](/fr-CA/2024/08/202408290400CastellfollitSpain.jpg)|
 202408300400|WhaleSharkDay|Requin-baleine dans la baie de Cenderawasih, Papouasie occidentale, Indonésie (© Andy Lerner/Tandem Stills + Motion)|La douceur d’un géant|![](/fr-CA/2024/08/202408300400WhaleSharkDay.jpg)|
+202408310400|DjanetAlgeria|Formations rocheuses et dunes de sable dans le Sahara, Djanet, Algérie (© Airpano/Amazing Aerial Agency)|Il était une fois le désert|![](/fr-CA/2024/08/202408310400DjanetAlgeria.jpg)|
