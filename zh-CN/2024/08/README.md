@@ -32,3 +32,4 @@
 202408281600|CastellfollitSpain|富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images)|加泰罗尼亚式的悬念|![](/zh-CN/2024/08/202408281600CastellfollitSpain.jpg)|
 202408291600|WhaleSharkDay|鸟头湾的鲸鲨，西巴布亚，印度尼西亚 (© Andy Lerner/Tandem Stills + Motion)|对大块头温柔点|![](/zh-CN/2024/08/202408291600WhaleSharkDay.jpg)|
 202408301600|DjanetAlgeria|撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)|沙丘日和沙漠烟霞|![](/zh-CN/2024/08/202408301600DjanetAlgeria.jpg)|
+202408311600|ThamesLondon|泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images)|小船轻轻划过泰晤士河|![](/zh-CN/2024/08/202408311600ThamesLondon.jpg)|
