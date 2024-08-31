@@ -32,3 +32,4 @@
 202408282300|CastellfollitSpain|Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)|A Catalan cliffhanger|![](/en-GB/2024/08/202408282300CastellfollitSpain.jpg)|
 202408292300|WhaleSharkDay|A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)|Being gentle to the giants|![](/en-GB/2024/08/202408292300WhaleSharkDay.jpg)|
 202408302300|DjanetAlgeria|Rock formations and sand dunes in the Sahara, Djanet, Algeria (© Airpano/Amazing Aerial Agency)|Dune days and desert haze|![](/en-GB/2024/08/202408302300DjanetAlgeria.jpg)|
+202408312300|ThamesLondon|River Thames, London, England (© Puthipong Worasaran/Getty Images)|Row your boat gently down the Thames|![](/en-GB/2024/08/202408312300ThamesLondon.jpg)|
