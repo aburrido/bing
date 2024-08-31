@@ -32,3 +32,4 @@
 202408281500|CastellfollitSpain|カステルフォリット・デ・ラ・ロカ, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)|崖上の街|![](/ja-JP/2024/08/202408281500CastellfollitSpain.jpg)|
 202408291500|WhaleSharkDay|チェンデラワシ湾のジンベエザメ, インドネシア (© Andy Lerner/Tandem Stills + Motion)|今日は国際ジンベエザメの日|![](/ja-JP/2024/08/202408291500WhaleSharkDay.jpg)|
 202408301500|DjanetAlgeria|タッシリ・ナジェール, アルジェリア (© Airpano/Amazing Aerial Agency)|サハラ砂漠の岩層と砂丘|![](/ja-JP/2024/08/202408301500DjanetAlgeria.jpg)|
+202408311500|ThamesLondon|テムズ川 , イギリス ロンドン (© Puthipong Worasaran/Getty Images)|今日からトータリー・テムズ・フェスティバル|![](/ja-JP/2024/08/202408311500ThamesLondon.jpg)|
