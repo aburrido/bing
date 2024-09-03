@@ -4,3 +4,4 @@
 202409012200|PenitentMees|Les Pénitents des Mées, Alpes-de-Haute-Provence (© Cavalier Michel/Hemis/Alamy Stock Photo)|Les Géants de la Haute-Provence|![](/fr-FR/2024/09/202409012200PenitentMees.jpg)|
 ||||![](/fr-FR/2024/09/.jpg)|
 202409022200|AlpineLakes|Lac Crystal dans les Enchantments, Alpine Lakes Wilderness, Washington, États-Unis (© Mitch Pittman/Tandem Stills + Motion)|Une beauté intacte comme au premier jour|![](/fr-FR/2024/09/202409022200AlpineLakes.jpg)|
+202409032200|DuskyOwls|Grand-duc de Coromandel, Pakistan (© zahoor salmi/Getty Images)|Les seigneurs de la nuit|![](/fr-FR/2024/09/202409032200DuskyOwls.jpg)|
