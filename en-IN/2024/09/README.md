@@ -5,3 +5,4 @@
 202409021830|AlpineLakes|Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)|Unspoiled beauty for all|![](/en-IN/2024/09/202409021830AlpineLakes.jpg)|
 ||||![](/en-IN/2024/09/.jpg)|
 202409031830|DuskyOwls|Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)|Birds of a feather hoot together|![](/en-IN/2024/09/202409031830DuskyOwls.jpg)|
+202409041830|TIFF2024|Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)|Lights, camera, TIFF '24!|![](/en-IN/2024/09/202409041830TIFF2024.jpg)|
