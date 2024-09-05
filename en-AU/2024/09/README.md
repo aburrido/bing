@@ -5,3 +5,4 @@
 202409020700|BuracodasAraras|Red-and-green macaws, Mato Grosso do Sul, Brazil (© Ellen Goff/Danita Delimont)|Info|![](/en-AU/2024/09/202409020700BuracodasAraras.jpg)|
 202409030700|AlpineLakes|Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)|Info|![](/en-AU/2024/09/202409030700AlpineLakes.jpg)|
 202409040700|DuskyOwls|Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)|Info|![](/en-AU/2024/09/202409040700DuskyOwls.jpg)|
+202409050700|TIFF2024|Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)|Info|![](/en-AU/2024/09/202409050700TIFF2024.jpg)|
