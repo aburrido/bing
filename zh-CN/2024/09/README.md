@@ -5,3 +5,4 @@
 202409021600|AlpineLakes|迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)|原始之美，人人共享|![](/zh-CN/2024/09/202409021600AlpineLakes.jpg)|
 202409031600|DuskyOwls|乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images)|物以类聚，人以群分|![](/zh-CN/2024/09/202409031600DuskyOwls.jpg)|
 202409041600|TIFF2024|多伦多城市天际线,加拿大 (© Roberto Machado Noa/Getty Images)|2024年多伦多国际电影节|![](/zh-CN/2024/09/202409041600TIFF2024.jpg)|
+202409051600|GlenariffPark|古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)|你可曾见过此等景色|![](/zh-CN/2024/09/202409051600GlenariffPark.jpg)|
