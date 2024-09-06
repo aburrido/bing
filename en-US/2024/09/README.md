@@ -6,3 +6,4 @@
 202409030700|AlpineLakes|Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)|Unspoiled beauty for all|![](/en-US/2024/09/202409030700AlpineLakes.jpg)|
 202409040700|DuskyOwls|Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)|Birds of a feather hoot together|![](/en-US/2024/09/202409040700DuskyOwls.jpg)|
 202409050700|TIFF2024|Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)|Lights, camera, TIFF '24!|![](/en-US/2024/09/202409050700TIFF2024.jpg)|
+202409060700|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|'Wood' you believe this view?|![](/en-US/2024/09/202409060700GlenariffPark.jpg)|

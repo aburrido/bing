@@ -7,3 +7,4 @@
 202409040700|DuskyOwls|Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)|Info|![](/en-AU/2024/09/202409040700DuskyOwls.jpg)|
 202409050700|TIFF2024|Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)|Info|![](/en-AU/2024/09/202409050700TIFF2024.jpg)|
 ||||![](/en-AU/2024/09/.jpg)|
+202409060700|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|Info|![](/en-AU/2024/09/202409060700GlenariffPark.jpg)|
