@@ -7,3 +7,4 @@
 202409041500|TIFF2024|湖越しに見えるトロントの高層ビル, カナダ オンタリオ州 (© Roberto Machado Noa/Getty Images)|今日からトロント国際映画祭|![](/ja-JP/2024/09/202409041500TIFF2024.jpg)|
 ||||![](/ja-JP/2024/09/.jpg)|
 202409051500|GujoHachiman|郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)|日本最古の木造再建城|![](/ja-JP/2024/09/202409051500GujoHachiman.jpg)|
+202409061500|SantaCruzHummer|アンナハチドリ, 米国 カリフォルニア州 (© yhelfman/Getty Images)|今日は米国のハチドリの日|![](/ja-JP/2024/09/202409061500SantaCruzHummer.jpg)|
