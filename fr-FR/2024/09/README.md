@@ -7,3 +7,4 @@
 202409032200|DuskyOwls|Grand-duc de Coromandel, Pakistan (© zahoor salmi/Getty Images)|Les seigneurs de la nuit|![](/fr-FR/2024/09/202409032200DuskyOwls.jpg)|
 202409042200|TIFF2024|Vue de la ville de Toronto depuis le lac Ontario, Canada (© Roberto Machado Noa/Getty Images)|Clap, moteur, ça tourne !|![](/fr-FR/2024/09/202409042200TIFF2024.jpg)|
 202409052200|AmericanDeauvilleFestival|Cabines de plage à Deauville, France (© Skayamauritius images GmbH/Alamy Stock Photo)|Moteur… action !|![](/fr-FR/2024/09/202409052200AmericanDeauvilleFestival.jpg)|
+202409062200|SantaCruzHummer|Colibri d'Anna, Santa Cruz, Californie, États-Unis (© yhelfman/Getty Images)|En chantant...|![](/fr-FR/2024/09/202409062200SantaCruzHummer.jpg)|

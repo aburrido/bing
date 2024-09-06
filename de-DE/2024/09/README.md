@@ -6,3 +6,4 @@
 202409032200|DuskyOwls|Koromandeluhus, Pakistan (© zahoor salmi/Getty Images)|Gleich und gleich gesellt sich gern|![](/de-DE/2024/09/202409032200DuskyOwls.jpg)|
 202409042200|TIFF2024|Skyline der Stadt Toronto am Ontariosee, Kanada (© Roberto Machado Noa/Getty Images)|Der rote Teppich ist ausgerollt!|![](/de-DE/2024/09/202409042200TIFF2024.jpg)|
 202409052200|GlenariffPark|Alte Buche, Glenariff Forest Park, Grafschaft Antrim, Nordirland (© Dawid K Photography/Shutterstock)|Buchstäbliche Weisheit|![](/de-DE/2024/09/202409052200GlenariffPark.jpg)|
+202409062200|SantaCruzHummer|Annakolibri, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)|Bunte Flugkünstler|![](/de-DE/2024/09/202409062200SantaCruzHummer.jpg)|
