@@ -7,3 +7,4 @@
 202409042300|TIFF2024|Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)|Lights, camera, TIFF '24!|![](/en-GB/2024/09/202409042300TIFF2024.jpg)|
 202409052300|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|'Wood' you believe this view?|![](/en-GB/2024/09/202409052300GlenariffPark.jpg)|
 202409062300|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)|Humming along|![](/en-GB/2024/09/202409062300SantaCruzHummer.jpg)|
+202409072300|GreatNorthRun2024|Tyne Bridge, England (© Glenn Gibson/iStock/Getty Images)|'Tyne' to shine|![](/en-GB/2024/09/202409072300GreatNorthRun2024.jpg)|
