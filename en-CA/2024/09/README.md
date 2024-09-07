@@ -7,3 +7,4 @@
 202409050400|TIFF2024|Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)|Lights, camera, TIFF '24!|![](/en-CA/2024/09/202409050400TIFF2024.jpg)|
 ||||![](/en-CA/2024/09/.jpg)|
 202409060400|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|Wood' you believe this view?|![](/en-CA/2024/09/202409060400GlenariffPark.jpg)|
+202409070400|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)|Humming along|![](/en-CA/2024/09/202409070400SantaCruzHummer.jpg)|
