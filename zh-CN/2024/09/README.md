@@ -8,3 +8,4 @@
 202409051600|GlenariffPark|古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)|你可曾见过此等景色|![](/zh-CN/2024/09/202409051600GlenariffPark.jpg)|
 202409061600|SantaCruzHummer|朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© yhelfman/Getty Images)|嗡嗡作响|![](/zh-CN/2024/09/202409061600SantaCruzHummer.jpg)|
 202409071600|Canigou|加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)|一座千年历史的修道院|![](/zh-CN/2024/09/202409071600Canigou.jpg)|
+202409081600|IguazuRainbow|阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency)|“大水”中的彩虹波|![](/zh-CN/2024/09/202409081600IguazuRainbow.jpg)|
