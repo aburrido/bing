@@ -9,3 +9,4 @@
 202409051830|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|'Wood' you believe this view?|![](/en-IN/2024/09/202409051830GlenariffPark.jpg)|
 202409061830|GaneshaIdol|Idols of Lord Ganesha for sale in Gulbai tekra, Ahmedabad (© Priti Bhatt/Getty Images)|Crafted blessings|![](/en-IN/2024/09/202409061830GaneshaIdol.jpg)|
 202409071830|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)|A global chapter|![](/en-IN/2024/09/202409071830StockholmLibrary.jpg)|
+202409081830|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-IN/2024/09/202409081830IguazuRainbow.jpg)|
