@@ -9,3 +9,4 @@
 ||||![](/en-AU/2024/09/.jpg)|
 202409060700|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|Info|![](/en-AU/2024/09/202409060700GlenariffPark.jpg)|
 202409070700|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)|Info|![](/en-AU/2024/09/202409070700SantaCruzHummer.jpg)|
+202409080700|Canigou|Abbey of Saint-Martin-du-Canigou, Northern Catalonia, France (© Cyril Gosselin/Getty Images)|Info|![](/en-AU/2024/09/202409080700Canigou.jpg)|
