@@ -8,3 +8,4 @@
 ||||![](/en-CA/2024/09/.jpg)|
 202409060400|GlenariffPark|Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)|Wood' you believe this view?|![](/en-CA/2024/09/202409060400GlenariffPark.jpg)|
 202409070400|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)|Humming along|![](/en-CA/2024/09/202409070400SantaCruzHummer.jpg)|
+202409080400|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)|A global chapter Unlocking minds|![](/en-CA/2024/09/202409080400StockholmLibrary.jpg)|
