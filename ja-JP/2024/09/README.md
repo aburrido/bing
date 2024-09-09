@@ -10,3 +10,4 @@
 202409061500|SantaCruzHummer|アンナハチドリ, 米国 カリフォルニア州 (© yhelfman/Getty Images)|今日は米国のハチドリの日|![](/ja-JP/2024/09/202409061500SantaCruzHummer.jpg)|
 202409071500|StockholmLibrary|ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)|今日は国際識字デー|![](/ja-JP/2024/09/202409071500StockholmLibrary.jpg)|
 202409081500|IguazuRainbow|イグアスの滝, ブラジルとアルゼンチン (© AirPano LLC/Amazing Aerial Agency)|U 字型の断崖から落ちる壮観な滝|![](/ja-JP/2024/09/202409081500IguazuRainbow.jpg)|
+202409091500|RapaNuiSunrise|ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)|巨大なモアイ像|![](/ja-JP/2024/09/202409091500RapaNuiSunrise.jpg)|
