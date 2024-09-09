@@ -9,3 +9,4 @@
 202409062200|SantaCruzHummer|Annakolibri, Santa Cruz, Kalifornien, USA (© yhelfman/Getty Images)|Bunte Flugkünstler|![](/de-DE/2024/09/202409062200SantaCruzHummer.jpg)|
 202409072200|StockholmLibrary|Innenraum der Stadtbibliothek Stockholm, Schweden (© Andrei Hrabun/Alamy Stock Photo)|Ein globales Kapitel|![](/de-DE/2024/09/202409072200StockholmLibrary.jpg)|
 202409082200|IguazuRainbow|Iguazú-Wasserfälle an der Grenze zwischen Argentinien und Brasilien (© AirPano LLC/Amazing Aerial Agency)|Regenbogenwellen|![](/de-DE/2024/09/202409082200IguazuRainbow.jpg)|
+202409092200|BridgeLisbon|Ponte Vasco da Gama, Lissabon, Portugal (© Achim Thomae/Getty Images)|Der Himmel ist die Grenze|![](/de-DE/2024/09/202409092200BridgeLisbon.jpg)|
