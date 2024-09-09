@@ -10,3 +10,4 @@
 202409070700|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)|Humming along|![](/en-US/2024/09/202409070700SantaCruzHummer.jpg)|
 202409080700|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)|A global chapter|![](/en-US/2024/09/202409080700StockholmLibrary.jpg)|
 202409090700|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-US/2024/09/202409090700IguazuRainbow.jpg)|
+||||![](/en-US/2024/09/.jpg)|
