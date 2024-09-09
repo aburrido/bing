@@ -10,3 +10,4 @@
 202409061830|GaneshaIdol|Idols of Lord Ganesha for sale in Gulbai tekra, Ahmedabad (© Priti Bhatt/Getty Images)|Crafted blessings|![](/en-IN/2024/09/202409061830GaneshaIdol.jpg)|
 202409071830|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)|A global chapter|![](/en-IN/2024/09/202409071830StockholmLibrary.jpg)|
 202409081830|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-IN/2024/09/202409081830IguazuRainbow.jpg)|
+202409091830|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-IN/2024/09/202409091830BridgeLisbon.jpg)|
