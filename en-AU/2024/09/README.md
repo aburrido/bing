@@ -11,3 +11,4 @@
 202409070700|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)|Info|![](/en-AU/2024/09/202409070700SantaCruzHummer.jpg)|
 202409080700|Canigou|Abbey of Saint-Martin-du-Canigou, Northern Catalonia, France (© Cyril Gosselin/Getty Images)|Info|![](/en-AU/2024/09/202409080700Canigou.jpg)|
 202409090700|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Info|![](/en-AU/2024/09/202409090700IguazuRainbow.jpg)|
+202409100700|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|Info|![](/en-AU/2024/09/202409100700BridgeLisbon.jpg)|
