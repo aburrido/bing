@@ -10,3 +10,4 @@
 202409072200|StockholmLibrary|Innenraum der Stadtbibliothek Stockholm, Schweden (© Andrei Hrabun/Alamy Stock Photo)|Ein globales Kapitel|![](/de-DE/2024/09/202409072200StockholmLibrary.jpg)|
 202409082200|IguazuRainbow|Iguazú-Wasserfälle an der Grenze zwischen Argentinien und Brasilien (© AirPano LLC/Amazing Aerial Agency)|Regenbogenwellen|![](/de-DE/2024/09/202409082200IguazuRainbow.jpg)|
 202409092200|BridgeLisbon|Ponte Vasco da Gama, Lissabon, Portugal (© Achim Thomae/Getty Images)|Der Himmel ist die Grenze|![](/de-DE/2024/09/202409092200BridgeLisbon.jpg)|
+202409102200|EltzCastle|Burg Eltz, Wierschem, Rheinland-Pfalz (© Allard Schager/Alamy)|Ein Märchen aus Stein|![](/de-DE/2024/09/202409102200EltzCastle.jpg)|
