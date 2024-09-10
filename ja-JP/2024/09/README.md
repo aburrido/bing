@@ -11,3 +11,4 @@
 202409071500|StockholmLibrary|ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)|今日は国際識字デー|![](/ja-JP/2024/09/202409071500StockholmLibrary.jpg)|
 202409081500|IguazuRainbow|イグアスの滝, ブラジルとアルゼンチン (© AirPano LLC/Amazing Aerial Agency)|U 字型の断崖から落ちる壮観な滝|![](/ja-JP/2024/09/202409081500IguazuRainbow.jpg)|
 202409091500|RapaNuiSunrise|ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)|巨大なモアイ像|![](/ja-JP/2024/09/202409091500RapaNuiSunrise.jpg)|
+202409101500|BridgeLisbon|ヴァスコ・ダ・ガマ橋, ポルトガル (© Achim Thomae/Getty Images)|優美な曲線を描く美しい橋|![](/ja-JP/2024/09/202409101500BridgeLisbon.jpg)|
