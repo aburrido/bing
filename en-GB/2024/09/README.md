@@ -10,3 +10,4 @@
 202409072300|GreatNorthRun2024|Tyne Bridge, England (© Glenn Gibson/iStock/Getty Images)|'Tyne' to shine|![](/en-GB/2024/09/202409072300GreatNorthRun2024.jpg)|
 202409082300|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-GB/2024/09/202409082300IguazuRainbow.jpg)|
 202409092300|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-GB/2024/09/202409092300BridgeLisbon.jpg)|
+202409102300|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|MOAIrning glory!|![](/en-GB/2024/09/202409102300RapaNuiSunrise.jpg)|
