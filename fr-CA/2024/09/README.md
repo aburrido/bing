@@ -9,3 +9,4 @@
 202409070400|SantaCruzHummer|Colibri d'Anna, Santa Cruz, Californie, États-Unis (© yhelfman/Getty Images)|En chantant...|![](/fr-CA/2024/09/202409070400SantaCruzHummer.jpg)|
 202409080400|StockholmLibrary|Intérieur de la bibliothèque publique de Stockholm, Suède (© Andrei Hrabun/Alamy)|Un chapitre qui s’écrit ensemble|![](/fr-CA/2024/09/202409080400StockholmLibrary.jpg)|
 202409090400|IguazuRainbow|Chutes d'Iguazu à la frontière entre l'Argentine et le Brésil (© AirPano LLC/Amazing Aerial Agency)|Quand les arcs-en-ciel s’en mêlent|![](/fr-CA/2024/09/202409090400IguazuRainbow.jpg)|
+202409100400|BridgeLisbon|Pont Vasco de Gama, Lisbonne, Portugal (© Achim Thomae/Getty Images)|De l’horizon à la mer|![](/fr-CA/2024/09/202409100400BridgeLisbon.jpg)|
