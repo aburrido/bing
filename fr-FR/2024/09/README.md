@@ -12,3 +12,4 @@
 202409082200|IguazuRainbow|Chutes d'Iguazu à la frontière entre l'Argentine et le Brésil (© AirPano LLC/Amazing Aerial Agency)|Quand les arcs-en-ciel s’en mêlent|![](/fr-FR/2024/09/202409082200IguazuRainbow.jpg)|
 202409092200|BridgeLisbon|Pont Vasco de Gama, Lisbonne, Portugal (© Achim Thomae/Getty Images)|De l’horizon à la mer|![](/fr-FR/2024/09/202409092200BridgeLisbon.jpg)|
 202409102200|EltzCastle|Château d'Eltz, Allemagne (© Allard Schager/Alamy)|Château d’Eltz, Allemagne|![](/fr-FR/2024/09/202409102200EltzCastle.jpg)|
+202409112200|DolphinReunion|Pod de dauphins près de l'île de la Réunion, océan Indien (© Joost van Uffelen/Shutterstock)|Le grand bleu|![](/fr-FR/2024/09/202409112200DolphinReunion.jpg)|
