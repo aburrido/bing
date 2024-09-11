@@ -11,3 +11,4 @@
 202409080400|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)|A global chapter Unlocking minds|![](/en-CA/2024/09/202409080400StockholmLibrary.jpg)|
 202409090400|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-CA/2024/09/202409090400IguazuRainbow.jpg)|
 202409100400|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-CA/2024/09/202409100400BridgeLisbon.jpg)|
+202409110400|RedFoxMother|Red fox mother kissing her baby in Canada (© pchoui/Getty Images)|Kits and kisses|![](/en-CA/2024/09/202409110400RedFoxMother.jpg)|
