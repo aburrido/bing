@@ -12,3 +12,4 @@
 202409090700|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-US/2024/09/202409090700IguazuRainbow.jpg)|
 ||||![](/en-US/2024/09/.jpg)|
 202409100700|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-US/2024/09/202409100700BridgeLisbon.jpg)|
+202409110700|ManhattanMemorial|National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)|Patriot Day|![](/en-US/2024/09/202409110700ManhattanMemorial.jpg)|
