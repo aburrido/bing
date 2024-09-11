@@ -12,3 +12,4 @@
 202409081830|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Rainbow waves in 'big water'|![](/en-IN/2024/09/202409081830IguazuRainbow.jpg)|
 202409091830|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-IN/2024/09/202409091830BridgeLisbon.jpg)|
 202409101830|AkshardhamDL|Akshardham Temple at night (© Sean3810/iStock/Getty Images Plus/Getty Images)|Spiritual bliss with a twist|![](/en-IN/2024/09/202409101830AkshardhamDL.jpg)|
+202409111830|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (©  Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-IN/2024/09/202409111830DolphinReunion.jpg)|
