@@ -11,3 +11,4 @@
 202409081600|IguazuRainbow|阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency)|“大水”中的彩虹波|![](/zh-CN/2024/09/202409081600IguazuRainbow.jpg)|
 202409091600|BridgeLisbon|瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images)|从天际线到水面|![](/zh-CN/2024/09/202409091600BridgeLisbon.jpg)|
 202409101600|EltzCastle|埃尔茨城堡，德国 (© Allard Schager/Alamy)|石头编织的童话|![](/zh-CN/2024/09/202409101600EltzCastle.jpg)|
+||||![](/zh-CN/2024/09/.jpg)|
