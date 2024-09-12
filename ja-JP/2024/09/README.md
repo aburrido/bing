@@ -13,3 +13,4 @@
 202409091500|RapaNuiSunrise|ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)|巨大なモアイ像|![](/ja-JP/2024/09/202409091500RapaNuiSunrise.jpg)|
 202409101500|BridgeLisbon|ヴァスコ・ダ・ガマ橋, ポルトガル (© Achim Thomae/Getty Images)|優美な曲線を描く美しい橋|![](/ja-JP/2024/09/202409101500BridgeLisbon.jpg)|
 202409111500|DolphinReunion|レユニオン島付近のイルカの群れ, フランス (© Joost van Uffelen/Shutterstock)|海の知恵者|![](/ja-JP/2024/09/202409111500DolphinReunion.jpg)|
+202409121500|PointReyes|ポイント・レイズ国定公園, 米国 カリフォルニア州 (© RMB Images/Photography by Robert Bowman/Getty Images)|岬の突端にある灯台|![](/ja-JP/2024/09/202409121500PointReyes.jpg)|
