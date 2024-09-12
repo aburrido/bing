@@ -12,3 +12,4 @@
 202409092300|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-GB/2024/09/202409092300BridgeLisbon.jpg)|
 202409102300|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|MOAIrning glory!|![](/en-GB/2024/09/202409102300RapaNuiSunrise.jpg)|
 202409112300|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (©  Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-GB/2024/09/202409112300DolphinReunion.jpg)|
+202409122300|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (©  RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-GB/2024/09/202409122300PointReyes.jpg)|
