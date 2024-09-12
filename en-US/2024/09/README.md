@@ -13,3 +13,4 @@
 ||||![](/en-US/2024/09/.jpg)|
 202409100700|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-US/2024/09/202409100700BridgeLisbon.jpg)|
 202409110700|ManhattanMemorial|National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)|Patriot Day|![](/en-US/2024/09/202409110700ManhattanMemorial.jpg)|
+202409120700|DolphinReunion|Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-US/2024/09/202409120700DolphinReunion.jpg)|

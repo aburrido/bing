@@ -13,3 +13,4 @@
 202409090700|IguazuRainbow|Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)|Info|![](/en-AU/2024/09/202409090700IguazuRainbow.jpg)|
 202409100700|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|Info|![](/en-AU/2024/09/202409100700BridgeLisbon.jpg)|
 202409110700|EltzCastle|Eltz Castle, Germany (© Allard Schager/Alamy)|Info|![](/en-AU/2024/09/202409110700EltzCastle.jpg)|
+202409120700|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (© Joost van Uffelen/Shutterstock)|Info|![](/en-AU/2024/09/202409120700DolphinReunion.jpg)|
