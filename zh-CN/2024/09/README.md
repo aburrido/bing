@@ -13,3 +13,4 @@
 202409101600|EltzCastle|埃尔茨城堡，德国 (© Allard Schager/Alamy)|石头编织的童话|![](/zh-CN/2024/09/202409101600EltzCastle.jpg)|
 ||||![](/zh-CN/2024/09/.jpg)|
 202409111600|DolphinReunion|留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock)|度过美好的一天|![](/zh-CN/2024/09/202409111600DolphinReunion.jpg)|
+202409121600|PointReyes|雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images)|自然与人类的天堂|![](/zh-CN/2024/09/202409121600PointReyes.jpg)|
