@@ -12,3 +12,4 @@
 202409092200|BridgeLisbon|Ponte Vasco da Gama, Lissabon, Portugal (© Achim Thomae/Getty Images)|Der Himmel ist die Grenze|![](/de-DE/2024/09/202409092200BridgeLisbon.jpg)|
 202409102200|EltzCastle|Burg Eltz, Wierschem, Rheinland-Pfalz (© Allard Schager/Alamy)|Ein Märchen aus Stein|![](/de-DE/2024/09/202409102200EltzCastle.jpg)|
 202409112200|DolphinReunion|Delfine in der Nähe der Insel Réunion, Indischer Ozean, französisches Überseegebiet (© Joost van Uffelen/Shutterstock)|Das Lächeln des Ozeans|![](/de-DE/2024/09/202409112200DolphinReunion.jpg)|
+202409122200|SanssouciPalace|Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)|Ein stilvoller Spaziergang|![](/de-DE/2024/09/202409122200SanssouciPalace.jpg)|
