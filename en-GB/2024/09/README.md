@@ -13,3 +13,4 @@
 202409102300|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|MOAIrning glory!|![](/en-GB/2024/09/202409102300RapaNuiSunrise.jpg)|
 202409112300|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (©  Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-GB/2024/09/202409112300DolphinReunion.jpg)|
 202409122300|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (©  RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-GB/2024/09/202409122300PointReyes.jpg)|
+202409132300|LastNightOfTheProms2024|Royal Albert Hall, Kensington, London (© Katherine Young/Alamy Stock Photo)|Orchestrating some fun|![](/en-GB/2024/09/202409132300LastNightOfTheProms2024.jpg)|
