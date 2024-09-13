@@ -14,3 +14,4 @@
 202409102200|EltzCastle|Château d'Eltz, Allemagne (© Allard Schager/Alamy)|Château d’Eltz, Allemagne|![](/fr-FR/2024/09/202409102200EltzCastle.jpg)|
 202409112200|DolphinReunion|Pod de dauphins près de l'île de la Réunion, océan Indien (© Joost van Uffelen/Shutterstock)|Le grand bleu|![](/fr-FR/2024/09/202409112200DolphinReunion.jpg)|
 202409122200|PointReyes|Phare de l’aire côtière protégée de Point Reyes, Californie, États-Unis (© RMB Images/Photography by Robert Bowman/Getty Images)|Un havre de paix et de nature|![](/fr-FR/2024/09/202409122200PointReyes.jpg)|
+202409132200|RapaNuiSunrise|Lever de soleil à Ahu Tongariki, parc national de Rapa Nui, île de Pâques, Chili (© Piriya Photography/Getty Images)|De bon moaï-tin|![](/fr-FR/2024/09/202409132200RapaNuiSunrise.jpg)|
