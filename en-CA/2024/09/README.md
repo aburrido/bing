@@ -13,3 +13,4 @@
 202409100400|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|From skyline to water|![](/en-CA/2024/09/202409100400BridgeLisbon.jpg)|
 202409110400|RedFoxMother|Red fox mother kissing her baby in Canada (© pchoui/Getty Images)|Kits and kisses|![](/en-CA/2024/09/202409110400RedFoxMother.jpg)|
 202409120400|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (© Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-CA/2024/09/202409120400DolphinReunion.jpg)|
+202409130400|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-CA/2024/09/202409130400PointReyes.jpg)|
