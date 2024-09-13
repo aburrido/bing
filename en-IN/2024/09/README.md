@@ -14,3 +14,4 @@
 202409101830|AkshardhamDL|Akshardham Temple at night (© Sean3810/iStock/Getty Images Plus/Getty Images)|Spiritual bliss with a twist|![](/en-IN/2024/09/202409101830AkshardhamDL.jpg)|
 202409111830|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (©  Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-IN/2024/09/202409111830DolphinReunion.jpg)|
 202409121830|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-IN/2024/09/202409121830PointReyes.jpg)|
+202409131830|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Stone sentinels of Easter Island|![](/en-IN/2024/09/202409131830RapaNuiSunrise.jpg)|
