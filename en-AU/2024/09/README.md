@@ -14,3 +14,4 @@
 202409100700|BridgeLisbon|Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)|Info|![](/en-AU/2024/09/202409100700BridgeLisbon.jpg)|
 202409110700|EltzCastle|Eltz Castle, Germany (© Allard Schager/Alamy)|Info|![](/en-AU/2024/09/202409110700EltzCastle.jpg)|
 202409120700|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (© Joost van Uffelen/Shutterstock)|Info|![](/en-AU/2024/09/202409120700DolphinReunion.jpg)|
+202409130700|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|Info|![](/en-AU/2024/09/202409130700PointReyes.jpg)|
