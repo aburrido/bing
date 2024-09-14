@@ -15,3 +15,4 @@
 202409110700|EltzCastle|Eltz Castle, Germany (© Allard Schager/Alamy)|Info|![](/en-AU/2024/09/202409110700EltzCastle.jpg)|
 202409120700|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (© Joost van Uffelen/Shutterstock)|Info|![](/en-AU/2024/09/202409120700DolphinReunion.jpg)|
 202409130700|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|Info|![](/en-AU/2024/09/202409130700PointReyes.jpg)|
+202409140700|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Info|![](/en-AU/2024/09/202409140700RapaNuiSunrise.jpg)|

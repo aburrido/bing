@@ -15,3 +15,4 @@
 202409110700|ManhattanMemorial|National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)|Patriot Day|![](/en-US/2024/09/202409110700ManhattanMemorial.jpg)|
 202409120700|DolphinReunion|Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-US/2024/09/202409120700DolphinReunion.jpg)|
 202409130700|PointReyes|Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)|Finding safe haven|![](/en-US/2024/09/202409130700PointReyes.jpg)|
+202409140700|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Radiant Rapa Nui|![](/en-US/2024/09/202409140700RapaNuiSunrise.jpg)|
