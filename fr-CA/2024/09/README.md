@@ -13,3 +13,4 @@
 202409110400|RedFoxMother|Mère renard roux câlinant son renardeau, Canada (© pchoui/Getty Images)|Des bisous par millier|![](/fr-CA/2024/09/202409110400RedFoxMother.jpg)|
 202409120400|DolphinReunion|Pod de dauphins près de l'île de la Réunion, océan Indien (© Joost van Uffelen/Shutterstock)|Le grand bleu|![](/fr-CA/2024/09/202409120400DolphinReunion.jpg)|
 202409130400|PointReyes|Phare de l’aire côtière protégée de Point Reyes, Californie, États-Unis (© RMB Images/Photography by Robert Bowman/Getty Images)|Un havre de paix et de nature|![](/fr-CA/2024/09/202409130400PointReyes.jpg)|
+202409140400|RapaNuiSunrise|Lever de soleil à Ahu Tongariki, parc national de Rapa Nui, île de Pâques, Chili (© Piriya Photography/Getty Images)|De bon moaï-tin|![](/fr-CA/2024/09/202409140400RapaNuiSunrise.jpg)|
