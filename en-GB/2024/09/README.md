@@ -14,3 +14,4 @@
 202409112300|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (©  Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-GB/2024/09/202409112300DolphinReunion.jpg)|
 202409122300|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (©  RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-GB/2024/09/202409122300PointReyes.jpg)|
 202409132300|LastNightOfTheProms2024|Royal Albert Hall, Kensington, London (© Katherine Young/Alamy Stock Photo)|Orchestrating some fun|![](/en-GB/2024/09/202409132300LastNightOfTheProms2024.jpg)|
+202409142300|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)|Where every angle tells a story|![](/en-GB/2024/09/202409142300StockholmLibrary.jpg)|
