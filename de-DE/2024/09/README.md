@@ -14,3 +14,4 @@
 202409112200|DolphinReunion|Delfine in der Nähe der Insel Réunion, Indischer Ozean, französisches Überseegebiet (© Joost van Uffelen/Shutterstock)|Das Lächeln des Ozeans|![](/de-DE/2024/09/202409112200DolphinReunion.jpg)|
 202409122200|SanssouciPalace|Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)|Ein stilvoller Spaziergang|![](/de-DE/2024/09/202409122200SanssouciPalace.jpg)|
 202409132200|RapaNuiSunrise|Sonnenaufgang am Ahu Tongariki, Nationalpark Rapa Nui, Osterinsel, Chile (© Piriya Photography/Getty Images)|Spirituelles Erwachen|![](/de-DE/2024/09/202409132200RapaNuiSunrise.jpg)|
+202409142200|CalabriaPeperoncino|Strand von Arco Magno, Kalabrien, Italien (© Alessio de Cicco/Getty Images)|Kristallblau trifft Feuerrot|![](/de-DE/2024/09/202409142200CalabriaPeperoncino.jpg)|
