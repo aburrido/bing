@@ -15,3 +15,4 @@
 202409111600|DolphinReunion|留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock)|度过美好的一天|![](/zh-CN/2024/09/202409111600DolphinReunion.jpg)|
 202409121600|PointReyes|雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images)|自然与人类的天堂|![](/zh-CN/2024/09/202409121600PointReyes.jpg)|
 202409131600|RapaNuiSunrise|阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images)|古老又神秘|![](/zh-CN/2024/09/202409131600RapaNuiSunrise.jpg)|
+202409141600|CalabriaPeperoncino|阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)|香料红和水晶蓝|![](/zh-CN/2024/09/202409141600CalabriaPeperoncino.jpg)|
