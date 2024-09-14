@@ -15,3 +15,4 @@
 202409111500|DolphinReunion|レユニオン島付近のイルカの群れ, フランス (© Joost van Uffelen/Shutterstock)|海の知恵者|![](/ja-JP/2024/09/202409111500DolphinReunion.jpg)|
 202409121500|PointReyes|ポイント・レイズ国定公園, 米国 カリフォルニア州 (© RMB Images/Photography by Robert Bowman/Getty Images)|岬の突端にある灯台|![](/ja-JP/2024/09/202409121500PointReyes.jpg)|
 202409131500|CosmosDay2024|国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)|今日はコスモスの日|![](/ja-JP/2024/09/202409131500CosmosDay2024.jpg)|
+202409141500|SunriseWallabies|ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)|小形のカンガルー|![](/ja-JP/2024/09/202409141500SunriseWallabies.jpg)|
