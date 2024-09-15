@@ -15,3 +15,4 @@
 202409120400|DolphinReunion|Dolphin pod near Réunion island, Indian Ocean, overseas department of France (© Joost van Uffelen/Shutterstock)|Have a fin-tastic day|![](/en-CA/2024/09/202409120400DolphinReunion.jpg)|
 202409130400|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-CA/2024/09/202409130400PointReyes.jpg)|
 202409140400|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Stone sentinels of Easter Island|![](/en-CA/2024/09/202409140400RapaNuiSunrise.jpg)|
+202409150400|OuimetCanyon|Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)|A 'gorge-ous' adventure|![](/en-CA/2024/09/202409150400OuimetCanyon.jpg)|
