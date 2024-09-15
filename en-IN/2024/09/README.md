@@ -16,3 +16,4 @@
 202409121830|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|A haven for nature and humans|![](/en-IN/2024/09/202409121830PointReyes.jpg)|
 202409131830|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Stone sentinels of Easter Island|![](/en-IN/2024/09/202409131830RapaNuiSunrise.jpg)|
 202409141830|SantaCruzHummer|Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)|Humming along|![](/en-IN/2024/09/202409141830SantaCruzHummer.jpg)|
+202409151830|SunriseWallabies|Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Hoppily ever after|![](/en-IN/2024/09/202409151830SunriseWallabies.jpg)|
