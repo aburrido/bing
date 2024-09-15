@@ -15,3 +15,4 @@
 202409122200|SanssouciPalace|Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)|Ein stilvoller Spaziergang|![](/de-DE/2024/09/202409122200SanssouciPalace.jpg)|
 202409132200|RapaNuiSunrise|Sonnenaufgang am Ahu Tongariki, Nationalpark Rapa Nui, Osterinsel, Chile (© Piriya Photography/Getty Images)|Spirituelles Erwachen|![](/de-DE/2024/09/202409132200RapaNuiSunrise.jpg)|
 202409142200|CalabriaPeperoncino|Strand von Arco Magno, Kalabrien, Italien (© Alessio de Cicco/Getty Images)|Kristallblau trifft Feuerrot|![](/de-DE/2024/09/202409142200CalabriaPeperoncino.jpg)|
+202409152200|SunriseWallabies|Wallabys bei Sonnenaufgang, Adelaide River, Nordterritorium, Australien (© Jeremy Woodhouse/Getty Images)|Leichtfüßige Hüpfer|![](/de-DE/2024/09/202409152200SunriseWallabies.jpg)|
