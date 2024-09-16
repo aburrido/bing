@@ -16,3 +16,4 @@
 202409132300|LastNightOfTheProms2024|Royal Albert Hall, Kensington, London (© Katherine Young/Alamy Stock Photo)|Orchestrating some fun|![](/en-GB/2024/09/202409132300LastNightOfTheProms2024.jpg)|
 202409142300|StockholmLibrary|Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)|Where every angle tells a story|![](/en-GB/2024/09/202409142300StockholmLibrary.jpg)|
 202409152300|SunriseWallabies|Wallabies, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Hoppily ever after|![](/en-GB/2024/09/202409152300SunriseWallabies.jpg)|
+202409162300|MidAutumnSingapore|Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)|Lanterns and mooncakes|![](/en-GB/2024/09/202409162300MidAutumnSingapore.jpg)|
