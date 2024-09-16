@@ -17,3 +17,4 @@
 202409130700|PointReyes|Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)|Finding safe haven|![](/en-US/2024/09/202409130700PointReyes.jpg)|
 202409140700|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Radiant Rapa Nui|![](/en-US/2024/09/202409140700RapaNuiSunrise.jpg)|
 202409150700|BalboaPark|Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)|Celebrating Hispanic heritage|![](/en-US/2024/09/202409150700BalboaPark.jpg)|
+202409160700|SunriseWallabies|Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Wallabies on the watch|![](/en-US/2024/09/202409160700SunriseWallabies.jpg)|

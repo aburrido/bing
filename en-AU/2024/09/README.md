@@ -17,3 +17,4 @@
 202409130700|PointReyes|Point Reyes National Seashore Lighthouse, California, USA (© RMB Images/Photography by Robert Bowman/Getty Images)|Info|![](/en-AU/2024/09/202409130700PointReyes.jpg)|
 202409140700|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Info|![](/en-AU/2024/09/202409140700RapaNuiSunrise.jpg)|
 202409150700|LagoComoItaly|Varenna on Lake Como, Italy (© Givaga/Getty Images)|Info|![](/en-AU/2024/09/202409150700LagoComoItaly.jpg)|
+202409160700|SunriseWallabies|Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Info|![](/en-AU/2024/09/202409160700SunriseWallabies.jpg)|
