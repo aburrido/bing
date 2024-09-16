@@ -17,3 +17,4 @@
 202409131500|CosmosDay2024|国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)|今日はコスモスの日|![](/ja-JP/2024/09/202409131500CosmosDay2024.jpg)|
 202409141500|SunriseWallabies|ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)|小形のカンガルー|![](/ja-JP/2024/09/202409141500SunriseWallabies.jpg)|
 202409151500|OwlNew2024|枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)|今日は「敬老の日」|![](/ja-JP/2024/09/202409151500OwlNew2024.jpg)|
+202409161500|MidAutumnSingapore|ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)|今日は中秋の名月|![](/ja-JP/2024/09/202409161500MidAutumnSingapore.jpg)|
