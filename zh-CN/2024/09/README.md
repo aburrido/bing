@@ -17,3 +17,4 @@
 202409131600|RapaNuiSunrise|阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利 (© Piriya Photography/Getty Images)|古老又神秘|![](/zh-CN/2024/09/202409131600RapaNuiSunrise.jpg)|
 202409141600|CalabriaPeperoncino|阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)|香料红和水晶蓝|![](/zh-CN/2024/09/202409141600CalabriaPeperoncino.jpg)|
 202409151600|SunriseWallabies|日出时的小袋鼠，阿德莱德河，北领地，澳大利亚 (© Jeremy Woodhouse/Getty Images)|蹦蹦跳跳，快乐到老|![](/zh-CN/2024/09/202409151600SunriseWallabies.jpg)|
+202409161600|MidAutumnFestival2024|月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)|明月千里寄相思|![](/zh-CN/2024/09/202409161600MidAutumnFestival2024.jpg)|
