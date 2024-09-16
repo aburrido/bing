@@ -17,3 +17,4 @@
 202409132200|RapaNuiSunrise|Lever de soleil à Ahu Tongariki, parc national de Rapa Nui, île de Pâques, Chili (© Piriya Photography/Getty Images)|De bon moaï-tin|![](/fr-FR/2024/09/202409132200RapaNuiSunrise.jpg)|
 202409142200|CalabriaPeperoncino|Plage d'Arco Magno, Calabre, Italie (© Alessio de Cicco/Getty Images)|Rouge piment et bleu azur|![](/fr-FR/2024/09/202409142200CalabriaPeperoncino.jpg)|
 202409152200|SunriseWallabies|Wallabies au lever du soleil, rivière Adelaïde, Territoire du Nord, Australie (© Jeremy Woodhouse/Getty Images)|Au saut du lit|![](/fr-FR/2024/09/202409152200SunriseWallabies.jpg)|
+202409162200|NordicWalkingDay|Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)|En marche !|![](/fr-FR/2024/09/202409162200NordicWalkingDay.jpg)|

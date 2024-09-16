@@ -16,3 +16,4 @@
 202409132200|RapaNuiSunrise|Sonnenaufgang am Ahu Tongariki, Nationalpark Rapa Nui, Osterinsel, Chile (© Piriya Photography/Getty Images)|Spirituelles Erwachen|![](/de-DE/2024/09/202409132200RapaNuiSunrise.jpg)|
 202409142200|CalabriaPeperoncino|Strand von Arco Magno, Kalabrien, Italien (© Alessio de Cicco/Getty Images)|Kristallblau trifft Feuerrot|![](/de-DE/2024/09/202409142200CalabriaPeperoncino.jpg)|
 202409152200|SunriseWallabies|Wallabys bei Sonnenaufgang, Adelaide River, Nordterritorium, Australien (© Jeremy Woodhouse/Getty Images)|Leichtfüßige Hüpfer|![](/de-DE/2024/09/202409152200SunriseWallabies.jpg)|
+202409162200|MidAutumnSingapore|Mondfest in den Gardens by the Bay, Singapur (© Victor Y. Zhuo/Alamy Stock Photo)|Laternen und Mondkuchen|![](/de-DE/2024/09/202409162200MidAutumnSingapore.jpg)|
