@@ -15,3 +15,4 @@
 202409130400|PointReyes|Phare de l’aire côtière protégée de Point Reyes, Californie, États-Unis (© RMB Images/Photography by Robert Bowman/Getty Images)|Un havre de paix et de nature|![](/fr-CA/2024/09/202409130400PointReyes.jpg)|
 202409140400|RapaNuiSunrise|Lever de soleil à Ahu Tongariki, parc national de Rapa Nui, île de Pâques, Chili (© Piriya Photography/Getty Images)|De bon moaï-tin|![](/fr-CA/2024/09/202409140400RapaNuiSunrise.jpg)|
 202409150400|OuimetCanyon|Canyon Ouimet près de Thunder Bay, Ontario (© plainpicture/Design Pics/Susan Dykstra)|Une gorge à couper le souffle|![](/fr-CA/2024/09/202409150400OuimetCanyon.jpg)|
+202409160400|SunriseWallabies|Wallabies au lever du soleil, rivière Adelaïde, Territoire du Nord, Australie (© Jeremy Woodhouse/Getty Images)|Au saut du lit|![](/fr-CA/2024/09/202409160400SunriseWallabies.jpg)|
