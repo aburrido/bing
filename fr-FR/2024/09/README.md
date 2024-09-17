@@ -18,3 +18,4 @@
 202409142200|CalabriaPeperoncino|Plage d'Arco Magno, Calabre, Italie (© Alessio de Cicco/Getty Images)|Rouge piment et bleu azur|![](/fr-FR/2024/09/202409142200CalabriaPeperoncino.jpg)|
 202409152200|SunriseWallabies|Wallabies au lever du soleil, rivière Adelaïde, Territoire du Nord, Australie (© Jeremy Woodhouse/Getty Images)|Au saut du lit|![](/fr-FR/2024/09/202409152200SunriseWallabies.jpg)|
 202409162200|NordicWalkingDay|Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)|En marche !|![](/fr-FR/2024/09/202409162200NordicWalkingDay.jpg)|
+202409172200|GujoHachiman|Château de Gujō Hachiman, préfecture de Gifu, Japon (© ta2funk ito/500px/Getty Images)|Le château dans les nuages|![](/fr-FR/2024/09/202409172200GujoHachiman.jpg)|
