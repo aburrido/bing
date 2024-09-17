@@ -17,3 +17,4 @@
 202409140400|RapaNuiSunrise|Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)|Stone sentinels of Easter Island|![](/en-CA/2024/09/202409140400RapaNuiSunrise.jpg)|
 202409150400|OuimetCanyon|Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)|A 'gorge-ous' adventure|![](/en-CA/2024/09/202409150400OuimetCanyon.jpg)|
 202409160400|SunriseWallabies|Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Hoppily ever after|![](/en-CA/2024/09/202409160400SunriseWallabies.jpg)|
+202409170400|MidAutumnSingapore|Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)|Lanterns and mooncakes|![](/en-CA/2024/09/202409170400MidAutumnSingapore.jpg)|
