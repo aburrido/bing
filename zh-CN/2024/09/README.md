@@ -19,3 +19,4 @@
 202409151600|SunriseWallabies|日出时的小袋鼠，阿德莱德河，北领地，澳大利亚 (© Jeremy Woodhouse/Getty Images)|蹦蹦跳跳，快乐到老|![](/zh-CN/2024/09/202409151600SunriseWallabies.jpg)|
 202409161600|MidAutumnFestival2024|月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)|明月千里寄相思|![](/zh-CN/2024/09/202409161600MidAutumnFestival2024.jpg)|
 202409171600|GujoHachiman|郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)|云中之城|![](/zh-CN/2024/09/202409171600GujoHachiman.jpg)|
+202409181600|ElbowRiver|埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)|埃尔博河上空的银河|![](/zh-CN/2024/09/202409181600ElbowRiver.jpg)|
