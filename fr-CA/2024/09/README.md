@@ -18,3 +18,4 @@
 202409160400|SunriseWallabies|Wallabies au lever du soleil, rivière Adelaïde, Territoire du Nord, Australie (© Jeremy Woodhouse/Getty Images)|Au saut du lit|![](/fr-CA/2024/09/202409160400SunriseWallabies.jpg)|
 202409170400|MidAutumnSingapore|Fête de la mi-automne aux Jardins de la baie, Singapour (© Victor Y. Zhuo/Alamy)|Lanternes et gâteaux de lune|![](/fr-CA/2024/09/202409170400MidAutumnSingapore.jpg)|
 ||||![](/fr-CA/2024/09/.jpg)|
+202409180400|GujoHachiman|Château de Gujō Hachiman, préfecture de Gifu, Japon (© ta2funk ito/500px/Getty Images)|Le château dans les nuages|![](/fr-CA/2024/09/202409180400GujoHachiman.jpg)|
