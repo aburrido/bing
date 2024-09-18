@@ -19,3 +19,4 @@
 202409151500|OwlNew2024|枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)|今日は「敬老の日」|![](/ja-JP/2024/09/202409151500OwlNew2024.jpg)|
 202409161500|MidAutumnSingapore|ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)|今日は中秋の名月|![](/ja-JP/2024/09/202409161500MidAutumnSingapore.jpg)|
 202409171500|GlenariffPark|グレナリフ森林公園, 北アイルランド アントリム県 (© Dawid K Photography/Shutterstock)|ブナの古木|![](/ja-JP/2024/09/202409171500GlenariffPark.jpg)|
+202409181500|PiratePlayground|船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)|今日は世界海賊口調日|![](/ja-JP/2024/09/202409181500PiratePlayground.jpg)|
