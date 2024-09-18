@@ -19,3 +19,4 @@
 202409151830|SunriseWallabies|Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Hoppily ever after|![](/en-IN/2024/09/202409151830SunriseWallabies.jpg)|
 202409161830|MidAutumnSingapore|Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)|Lanterns and mooncakes|![](/en-IN/2024/09/202409161830MidAutumnSingapore.jpg)|
 202409171830|GujoHachiman|Gujō Hachiman Castle, Gifu Prefecture, Japan (© ta2funk ito/500px/Getty Images)|Castle in the clouds|![](/en-IN/2024/09/202409171830GujoHachiman.jpg)|
+202409181830|PiratePlayground|Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)|Avast, landlubbers!|![](/en-IN/2024/09/202409181830PiratePlayground.jpg)|
