@@ -19,3 +19,4 @@
 202409150700|BalboaPark|Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)|Celebrating Hispanic heritage|![](/en-US/2024/09/202409150700BalboaPark.jpg)|
 202409160700|SunriseWallabies|Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)|Wallabies on the watch|![](/en-US/2024/09/202409160700SunriseWallabies.jpg)|
 202409170700|MidAutumnSingapore|Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)|Lanterns and mooncakes|![](/en-US/2024/09/202409170700MidAutumnSingapore.jpg)|
+202409180700|GujoHachiman|Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)|Castle in the clouds|![](/en-US/2024/09/202409180700GujoHachiman.jpg)|
