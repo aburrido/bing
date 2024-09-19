@@ -20,3 +20,4 @@
 202409161500|MidAutumnSingapore|ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)|今日は中秋の名月|![](/ja-JP/2024/09/202409161500MidAutumnSingapore.jpg)|
 202409171500|GlenariffPark|グレナリフ森林公園, 北アイルランド アントリム県 (© Dawid K Photography/Shutterstock)|ブナの古木|![](/ja-JP/2024/09/202409171500GlenariffPark.jpg)|
 202409181500|PiratePlayground|船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)|今日は世界海賊口調日|![](/ja-JP/2024/09/202409181500PiratePlayground.jpg)|
+202409191500|OcracokeLight|オクラコーク島,  米国 ノースカロライナ州 (© Chansak Joe/Getty Images)|白亜のオクラコーク灯台|![](/ja-JP/2024/09/202409191500OcracokeLight.jpg)|
