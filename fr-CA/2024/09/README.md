@@ -19,3 +19,4 @@
 202409170400|MidAutumnSingapore|Fête de la mi-automne aux Jardins de la baie, Singapour (© Victor Y. Zhuo/Alamy)|Lanternes et gâteaux de lune|![](/fr-CA/2024/09/202409170400MidAutumnSingapore.jpg)|
 ||||![](/fr-CA/2024/09/.jpg)|
 202409180400|GujoHachiman|Château de Gujō Hachiman, préfecture de Gifu, Japon (© ta2funk ito/500px/Getty Images)|Le château dans les nuages|![](/fr-CA/2024/09/202409180400GujoHachiman.jpg)|
+202409190400|PiratePlayground|Aire de jeux du phare d'Obereversand à Dorum-Neufeld, Allemagne (© INGO WAGNER/DPA/AFP via Getty Images)|En avant, moussaillons!|![](/fr-CA/2024/09/202409190400PiratePlayground.jpg)|
