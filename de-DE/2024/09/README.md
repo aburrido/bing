@@ -19,3 +19,4 @@
 202409162200|MidAutumnSingapore|Mondfest in den Gardens by the Bay, Singapur (© Victor Y. Zhuo/Alamy Stock Photo)|Laternen und Mondkuchen|![](/de-DE/2024/09/202409162200MidAutumnSingapore.jpg)|
 202409172200|GujoHachiman|Burg Gujō Hachiman, Präfektur Gifu, Japan (© ta2funk ito/500px/Getty Images)|Eine Burg in den Wolken|![](/de-DE/2024/09/202409172200GujoHachiman.jpg)|
 202409182200|PiratePlayground|Spielplatz am Leuchtturm Obereversand in Dorum-Neufeld, Deutschland (© INGO WAGNER/DPA/AFP via Getty Images)|An Deck, ihr Landratten!|![](/de-DE/2024/09/202409182200PiratePlayground.jpg)|
+202409192200|OcracokeLight|Ocracoke-Leuchtturm auf Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|Strahlender Wegweiser|![](/de-DE/2024/09/202409192200OcracokeLight.jpg)|

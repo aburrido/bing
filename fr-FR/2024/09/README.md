@@ -20,3 +20,4 @@
 202409162200|NordicWalkingDay|Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)|En marche !|![](/fr-FR/2024/09/202409162200NordicWalkingDay.jpg)|
 202409172200|GujoHachiman|Château de Gujō Hachiman, préfecture de Gifu, Japon (© ta2funk ito/500px/Getty Images)|Le château dans les nuages|![](/fr-FR/2024/09/202409172200GujoHachiman.jpg)|
 202409182200|PiratePlayground|Aire de jeux du phare d'Obereversand à Dorum-Neufeld, Allemagne (© INGO WAGNER/DPA/AFP via Getty Images)|En avant, moussaillons !|![](/fr-FR/2024/09/202409182200PiratePlayground.jpg)|
+202409192200|OcracokeLight|Phare de l’île d'Ocracoke, Caroline du Nord, États-Unis (© Chansak Joe/Getty Images)|L'ultime refuge des flibustiers|![](/fr-FR/2024/09/202409192200OcracokeLight.jpg)|
