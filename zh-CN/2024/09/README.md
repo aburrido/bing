@@ -20,3 +20,4 @@
 202409161600|MidAutumnFestival2024|月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)|明月千里寄相思|![](/zh-CN/2024/09/202409161600MidAutumnFestival2024.jpg)|
 202409171600|GujoHachiman|郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)|云中之城|![](/zh-CN/2024/09/202409171600GujoHachiman.jpg)|
 202409181600|ElbowRiver|埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)|埃尔博河上空的银河|![](/zh-CN/2024/09/202409181600ElbowRiver.jpg)|
+202409191600|OcracokeLight|奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)|海盗的最终归宿|![](/zh-CN/2024/09/202409191600OcracokeLight.jpg)|
