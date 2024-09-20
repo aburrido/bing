@@ -21,3 +21,4 @@
 ||||![](/en-GB/2024/09/.jpg)|
 202409182300|PiratePlayground|Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)|Avast, landlubbers!|![](/en-GB/2024/09/202409182300PiratePlayground.jpg)|
 202409192300|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|A buccaneer's final haven|![](/en-GB/2024/09/202409192300OcracokeLight.jpg)|
+202409202300|MunichBeerfest|Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)|Prost to Oktoberfest!|![](/en-GB/2024/09/202409202300MunichBeerfest.jpg)|
