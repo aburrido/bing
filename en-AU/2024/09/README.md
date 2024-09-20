@@ -21,3 +21,4 @@
 202409170700|KeralaSummer|Kerala, India (© Pranavan Shoots/Shutterstock)|Info|![](/en-AU/2024/09/202409170700KeralaSummer.jpg)|
 202409180700|GujoHachiman|Gujō Hachiman Castle, Gifu Prefecture, Japan (© ta2funk ito/500px/Getty Images)|Info|![](/en-AU/2024/09/202409180700GujoHachiman.jpg)|
 202409190700|ElbowRiver|Milky Way over the Elbow River, Alberta, Canada (© Alan Dyer/Getty Images)|Info|![](/en-AU/2024/09/202409190700ElbowRiver.jpg)|
+202409200700|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|Info|![](/en-AU/2024/09/202409200700OcracokeLight.jpg)|

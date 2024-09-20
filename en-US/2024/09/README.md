@@ -21,3 +21,4 @@
 202409170700|MidAutumnSingapore|Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)|Lanterns and mooncakes|![](/en-US/2024/09/202409170700MidAutumnSingapore.jpg)|
 202409180700|GujoHachiman|Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)|Castle in the clouds|![](/en-US/2024/09/202409180700GujoHachiman.jpg)|
 202409190700|PiratePlayground|Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)|Avast, landlubbers!|![](/en-US/2024/09/202409190700PiratePlayground.jpg)|
+202409200700|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)|Light dawns on Ocracoke|![](/en-US/2024/09/202409200700OcracokeLight.jpg)|
