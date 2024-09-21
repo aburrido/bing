@@ -22,3 +22,4 @@
 202409182200|PiratePlayground|Aire de jeux du phare d'Obereversand à Dorum-Neufeld, Allemagne (© INGO WAGNER/DPA/AFP via Getty Images)|En avant, moussaillons !|![](/fr-FR/2024/09/202409182200PiratePlayground.jpg)|
 202409192200|OcracokeLight|Phare de l’île d'Ocracoke, Caroline du Nord, États-Unis (© Chansak Joe/Getty Images)|L'ultime refuge des flibustiers|![](/fr-FR/2024/09/202409192200OcracokeLight.jpg)|
 202409202200|MunichBeerfest|Panorama sur l’Oktoberfest au coucher du soleil, Munich, Allemagne (© AllesSuper21/iStock/Getty Images)|Le paradis des lève-chopes !|![](/fr-FR/2024/09/202409202200MunichBeerfest.jpg)|
+202409212200|AutumnCumbria|Buttermere, Parc national du Lake District, Angleterre, Royaume-Uni (© Alan Novelli/Alamy)|Symphonie de couleurs automnales|![](/fr-FR/2024/09/202409212200AutumnCumbria.jpg)|

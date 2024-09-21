@@ -21,3 +21,4 @@
 202409182200|PiratePlayground|Spielplatz am Leuchtturm Obereversand in Dorum-Neufeld, Deutschland (© INGO WAGNER/DPA/AFP via Getty Images)|An Deck, ihr Landratten!|![](/de-DE/2024/09/202409182200PiratePlayground.jpg)|
 202409192200|OcracokeLight|Ocracoke-Leuchtturm auf Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|Strahlender Wegweiser|![](/de-DE/2024/09/202409192200OcracokeLight.jpg)|
 202409202200|SpatenBeerTent|Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)|O’zapft is|![](/de-DE/2024/09/202409202200SpatenBeerTent.jpg)|
+202409212200|AutumnCumbria|Buttermere, Lake District National Park, England, Vereinigtes Königreich (© Alan Novelli/Alamy Stock Photo)|Wenn die Bäume flüstern|![](/de-DE/2024/09/202409212200AutumnCumbria.jpg)|
