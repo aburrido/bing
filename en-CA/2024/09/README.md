@@ -21,3 +21,4 @@
 202409180400|GujoHachiman|Gujō Hachiman Castle, Gifu Prefecture, Japan (© ta2funk ito/500px/Getty Images)|Castle in the clouds|![](/en-CA/2024/09/202409180400GujoHachiman.jpg)|
 202409190400|PiratePlayground|Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)|Avast, landlubbers!|![](/en-CA/2024/09/202409190400PiratePlayground.jpg)|
 202409200400|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|A buccaneer's final haven|![](/en-CA/2024/09/202409200400OcracokeLight.jpg)|
+202409210400|MunichBeerfest|Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)|Prost to Oktoberfest!|![](/en-CA/2024/09/202409210400MunichBeerfest.jpg)|
