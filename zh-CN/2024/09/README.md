@@ -22,3 +22,4 @@
 202409181600|ElbowRiver|埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)|埃尔博河上空的银河|![](/zh-CN/2024/09/202409181600ElbowRiver.jpg)|
 202409191600|OcracokeLight|奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)|海盗的最终归宿|![](/zh-CN/2024/09/202409191600OcracokeLight.jpg)|
 202409201600|MunichBeerfest|Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)|为慕尼黑啤酒节干杯！|![](/zh-CN/2024/09/202409201600MunichBeerfest.jpg)|
+202409211600|AutumnCumbria|巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)|陷入沉思|![](/zh-CN/2024/09/202409211600AutumnCumbria.jpg)|
