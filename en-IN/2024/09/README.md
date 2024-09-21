@@ -22,3 +22,4 @@
 202409181830|PiratePlayground|Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)|Avast, landlubbers!|![](/en-IN/2024/09/202409181830PiratePlayground.jpg)|
 202409191830|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|A buccaneer's final haven|![](/en-IN/2024/09/202409191830OcracokeLight.jpg)|
 202409201830|MunichBeerfest|Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)|A toast to traditions|![](/en-IN/2024/09/202409201830MunichBeerfest.jpg)|
+202409211830|BadaBagh|Bada Bagh complex in Jaisalmer, Rajasthan (© Meinzahn/Getty Images)|Regal shadows|![](/en-IN/2024/09/202409211830BadaBagh.jpg)|
