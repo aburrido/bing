@@ -22,3 +22,4 @@
 202409181500|PiratePlayground|船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)|今日は世界海賊口調日|![](/ja-JP/2024/09/202409181500PiratePlayground.jpg)|
 202409191500|OcracokeLight|オクラコーク島,  米国 ノースカロライナ州 (© Chansak Joe/Getty Images)|白亜のオクラコーク灯台|![](/ja-JP/2024/09/202409191500OcracokeLight.jpg)|
 202409201500|MunichBeerfest|夕暮れのテレージエンヴィーゼ, ドイツ バイエルン州 (© AllesSuper21/iStock/Getty Images)|今日からミュンヘンのオクトーバーフェスト|![](/ja-JP/2024/09/202409201500MunichBeerfest.jpg)|
+202409211500|RedSpiderlily2024|巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)|今日は秋分の日|![](/ja-JP/2024/09/202409211500RedSpiderlily2024.jpg)|
