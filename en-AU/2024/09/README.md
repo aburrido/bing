@@ -23,3 +23,4 @@
 202409190700|ElbowRiver|Milky Way over the Elbow River, Alberta, Canada (© Alan Dyer/Getty Images)|Info|![](/en-AU/2024/09/202409190700ElbowRiver.jpg)|
 202409200700|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)|Info|![](/en-AU/2024/09/202409200700OcracokeLight.jpg)|
 202409210700|MunichBeerfest|Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)|Info|![](/en-AU/2024/09/202409210700MunichBeerfest.jpg)|
+202409220700|AutumnCumbria|Buttermere, Lake District National Park, England, United Kingdom (© Alan Novelli/Alamy Stock Photo)|Info|![](/en-AU/2024/09/202409220700AutumnCumbria.jpg)|
