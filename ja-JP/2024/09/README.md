@@ -23,3 +23,4 @@
 202409191500|OcracokeLight|オクラコーク島,  米国 ノースカロライナ州 (© Chansak Joe/Getty Images)|白亜のオクラコーク灯台|![](/ja-JP/2024/09/202409191500OcracokeLight.jpg)|
 202409201500|MunichBeerfest|夕暮れのテレージエンヴィーゼ, ドイツ バイエルン州 (© AllesSuper21/iStock/Getty Images)|今日からミュンヘンのオクトーバーフェスト|![](/ja-JP/2024/09/202409201500MunichBeerfest.jpg)|
 202409211500|RedSpiderlily2024|巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)|今日は秋分の日|![](/ja-JP/2024/09/202409211500RedSpiderlily2024.jpg)|
+202409221500|IcebergOtter|プリンス・ウィリアム湾のラッコ,  米国 アラスカ州 (© Gerald Corsi/Getty Images)|今週はラッコ啓蒙週間|![](/ja-JP/2024/09/202409221500IcebergOtter.jpg)|
