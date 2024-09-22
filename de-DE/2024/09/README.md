@@ -23,3 +23,4 @@
 202409202200|SpatenBeerTent|Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)|O’zapft is|![](/de-DE/2024/09/202409202200SpatenBeerTent.jpg)|
 202409212200|AutumnCumbria|Buttermere, Lake District National Park, England, Vereinigtes Königreich (© Alan Novelli/Alamy Stock Photo)|Wenn die Bäume flüstern|![](/de-DE/2024/09/202409212200AutumnCumbria.jpg)|
 ||||![](/de-DE/2024/09/.jpg)|
+202409222200|IcebergOtter|Seeotter, Prince-William-Sund, Alaska, USA (© Gerald Corsi/Getty Images)|Frostige Freude|![](/de-DE/2024/09/202409222200IcebergOtter.jpg)|
