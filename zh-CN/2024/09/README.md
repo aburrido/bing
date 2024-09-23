@@ -24,3 +24,4 @@
 202409201600|MunichBeerfest|Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)|为慕尼黑啤酒节干杯！|![](/zh-CN/2024/09/202409201600MunichBeerfest.jpg)|
 202409211600|AutumnCumbria|巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)|陷入沉思|![](/zh-CN/2024/09/202409211600AutumnCumbria.jpg)|
 202409221600|IcebergOtter|海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images)|令人惊叹的海獭|![](/zh-CN/2024/09/202409221600IcebergOtter.jpg)|
+202409231600|SkaftafellWaterfall|斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)|你会相信这种观点吗？|![](/zh-CN/2024/09/202409231600SkaftafellWaterfall.jpg)|
