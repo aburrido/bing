@@ -24,3 +24,4 @@
 202409200700|OcracokeLight|Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)|Light dawns on Ocracoke|![](/en-US/2024/09/202409200700OcracokeLight.jpg)|
 202409210700|MunichBeerfest|Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)|Prost! Oktoberfest begins|![](/en-US/2024/09/202409210700MunichBeerfest.jpg)|
 202409220700|AutumnCumbria|Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)|Fall into reflection|![](/en-US/2024/09/202409220700AutumnCumbria.jpg)|
+202409230700|IcebergOtter|Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)|Otter-ly amazing|![](/en-US/2024/09/202409230700IcebergOtter.jpg)|
