@@ -24,3 +24,4 @@
 202409201830|MunichBeerfest|Oktoberfest in Munich from a high view at sunset (© AllesSuper21/iStock/Getty Images)|A toast to traditions|![](/en-IN/2024/09/202409201830MunichBeerfest.jpg)|
 202409211830|BadaBagh|Bada Bagh complex in Jaisalmer, Rajasthan (© Meinzahn/Getty Images)|Regal shadows|![](/en-IN/2024/09/202409211830BadaBagh.jpg)|
 202409221830|IcebergOtter|Sea otter, Prince William Sound, Alaska, USA (© Gerald Corsi/Getty Images)|Otter-ly amazing|![](/en-IN/2024/09/202409221830IcebergOtter.jpg)|
+202409231830|SkaftafellWaterfall|Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)|Falling for this view?|![](/en-IN/2024/09/202409231830SkaftafellWaterfall.jpg)|
