@@ -24,3 +24,4 @@
 202409212200|AutumnCumbria|Buttermere, Lake District National Park, England, Vereinigtes Königreich (© Alan Novelli/Alamy Stock Photo)|Wenn die Bäume flüstern|![](/de-DE/2024/09/202409212200AutumnCumbria.jpg)|
 ||||![](/de-DE/2024/09/.jpg)|
 202409222200|IcebergOtter|Seeotter, Prince-William-Sund, Alaska, USA (© Gerald Corsi/Getty Images)|Frostige Freude|![](/de-DE/2024/09/202409222200IcebergOtter.jpg)|
+202409232200|SkaftafellWaterfall|Wasserfall in Skaftafell, Vatnajökull-Nationalpark, Island (© Nopasorn Kowathanakul/Getty Images)|Wasserfall im Herbstlicht|![](/de-DE/2024/09/202409232200SkaftafellWaterfall.jpg)|
