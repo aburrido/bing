@@ -24,3 +24,4 @@
 202409210400|MunichBeerfest|Panorama sur l’Oktoberfest au coucher du soleil, Munich, Allemagne (© AllesSuper21/iStock/Getty Images)|Le paradis des lève-chopes!|![](/fr-CA/2024/09/202409210400MunichBeerfest.jpg)|
 202409220400|AutumnCumbria|Buttermere, Parc national du Lake District, Angleterre, Royaume-Uni (© Alan Novelli/Alamy)|Symphonie de couleurs automnales|![](/fr-CA/2024/09/202409220400AutumnCumbria.jpg)|
 202409230400|IcebergOtter|Loutre de mer, baie de Prince William Sound, Alaska, États-Unis (© Gerald Corsi/Getty Images)|La gardienne des océans|![](/fr-CA/2024/09/202409230400IcebergOtter.jpg)|
+202409240400|SkaftafellWaterfall|Cascade de Skaftafell, Parc national du Vatnajökull, Islande (© Nopasorn Kowathanakul/Getty Images)|La perle islandaise|![](/fr-CA/2024/09/202409240400SkaftafellWaterfall.jpg)|
