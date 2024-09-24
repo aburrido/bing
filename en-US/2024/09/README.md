@@ -25,3 +25,4 @@
 202409210700|MunichBeerfest|Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)|Prost! Oktoberfest begins|![](/en-US/2024/09/202409210700MunichBeerfest.jpg)|
 202409220700|AutumnCumbria|Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)|Fall into reflection|![](/en-US/2024/09/202409220700AutumnCumbria.jpg)|
 202409230700|IcebergOtter|Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)|Otter-ly amazing|![](/en-US/2024/09/202409230700IcebergOtter.jpg)|
+202409240700|SkaftafellWaterfall|Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)|Falling for this view?|![](/en-US/2024/09/202409240700SkaftafellWaterfall.jpg)|
