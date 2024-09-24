@@ -25,3 +25,4 @@
 202409211500|RedSpiderlily2024|巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)|今日は秋分の日|![](/ja-JP/2024/09/202409211500RedSpiderlily2024.jpg)|
 202409221500|IcebergOtter|プリンス・ウィリアム湾のラッコ,  米国 アラスカ州 (© Gerald Corsi/Getty Images)|今週はラッコ啓蒙週間|![](/ja-JP/2024/09/202409221500IcebergOtter.jpg)|
 202409231500|SkaftafellWaterfall|ヴァトナヨークトル国立公園, アイスランド (© Nopasorn Kowathanakul/Getty Images)|玄武岩の柱状節理に囲まれた滝|![](/ja-JP/2024/09/202409231500SkaftafellWaterfall.jpg)|
+202409241500|GiantSequoias|セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)|地球最大の巨木セコイアデンドロン|![](/ja-JP/2024/09/202409241500GiantSequoias.jpg)|
