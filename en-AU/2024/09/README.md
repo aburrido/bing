@@ -26,3 +26,4 @@
 202409220700|AutumnCumbria|Buttermere, Lake District National Park, England, United Kingdom (© Alan Novelli/Alamy Stock Photo)|Info|![](/en-AU/2024/09/202409220700AutumnCumbria.jpg)|
 202409230700|IcebergOtter|Sea otter, Prince William Sound, Alaska, USA (© Gerald Corsi/Getty Images)|Info|![](/en-AU/2024/09/202409230700IcebergOtter.jpg)|
 202409240700|SkaftafellWaterfall|Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)|Info|![](/en-AU/2024/09/202409240700SkaftafellWaterfall.jpg)|
+202409250700|GiantSequoias|Giant sequoias, Sequoia National Park, California, USA (© Galyna Andrushko/Shutterstock)|Info|![](/en-AU/2024/09/202409250700GiantSequoias.jpg)|
