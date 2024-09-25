@@ -26,3 +26,4 @@
 202409222200|IcebergOtter|Seeotter, Prince-William-Sund, Alaska, USA (© Gerald Corsi/Getty Images)|Frostige Freude|![](/de-DE/2024/09/202409222200IcebergOtter.jpg)|
 202409232200|SkaftafellWaterfall|Wasserfall in Skaftafell, Vatnajökull-Nationalpark, Island (© Nopasorn Kowathanakul/Getty Images)|Wasserfall im Herbstlicht|![](/de-DE/2024/09/202409232200SkaftafellWaterfall.jpg)|
 202409242200|GiantSequoias|Riesenmammutbäume, Sequoia-Nationalpark, Kalifornien, USA (© Galyna Andrushko/Shutterstock)|Riesen aus Holz und Zeit|![](/de-DE/2024/09/202409242200GiantSequoias.jpg)|
+202409252200|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)|Geste der Liebe|![](/de-DE/2024/09/202409252200TajMahalReflection.jpg)|
