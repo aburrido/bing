@@ -26,3 +26,4 @@
 202409221500|IcebergOtter|プリンス・ウィリアム湾のラッコ,  米国 アラスカ州 (© Gerald Corsi/Getty Images)|今週はラッコ啓蒙週間|![](/ja-JP/2024/09/202409221500IcebergOtter.jpg)|
 202409231500|SkaftafellWaterfall|ヴァトナヨークトル国立公園, アイスランド (© Nopasorn Kowathanakul/Getty Images)|玄武岩の柱状節理に囲まれた滝|![](/ja-JP/2024/09/202409231500SkaftafellWaterfall.jpg)|
 202409241500|GiantSequoias|セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)|地球最大の巨木セコイアデンドロン|![](/ja-JP/2024/09/202409241500GiantSequoias.jpg)|
+202409251500|LittleToucanet|ロス・ケツァーレス国立公園, コスタリカ (© Oscar Dominguez/Tandem Stills + Motion)|青い喉を持つ美しい鳥|![](/ja-JP/2024/09/202409251500LittleToucanet.jpg)|
