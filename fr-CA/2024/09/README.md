@@ -25,3 +25,4 @@
 202409220400|AutumnCumbria|Buttermere, Parc national du Lake District, Angleterre, Royaume-Uni (© Alan Novelli/Alamy)|Symphonie de couleurs automnales|![](/fr-CA/2024/09/202409220400AutumnCumbria.jpg)|
 202409230400|IcebergOtter|Loutre de mer, baie de Prince William Sound, Alaska, États-Unis (© Gerald Corsi/Getty Images)|La gardienne des océans|![](/fr-CA/2024/09/202409230400IcebergOtter.jpg)|
 202409240400|SkaftafellWaterfall|Cascade de Skaftafell, Parc national du Vatnajökull, Islande (© Nopasorn Kowathanakul/Getty Images)|La perle islandaise|![](/fr-CA/2024/09/202409240400SkaftafellWaterfall.jpg)|
+202409250400|GiantSequoias|Séquoias géants, parc national de Sequoia, Californie, États-Unis (© Galyna Andrushko/Shutterstock)|Le royaume des géants|![](/fr-CA/2024/09/202409250400GiantSequoias.jpg)|
