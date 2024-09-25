@@ -26,3 +26,4 @@
 202409221600|IcebergOtter|海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images)|令人惊叹的海獭|![](/zh-CN/2024/09/202409221600IcebergOtter.jpg)|
 202409231600|SkaftafellWaterfall|斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)|你会相信这种观点吗？|![](/zh-CN/2024/09/202409231600SkaftafellWaterfall.jpg)|
 202409241600|GiantSequoias|巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)|古代巨人的王国|![](/zh-CN/2024/09/202409241600GiantSequoias.jpg)|
+202409251600|LittleToucanet|蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)|呼叫所有巨嘴鸟的粉丝|![](/zh-CN/2024/09/202409251600LittleToucanet.jpg)|
