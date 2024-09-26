@@ -27,3 +27,4 @@
 202409231500|SkaftafellWaterfall|ヴァトナヨークトル国立公園, アイスランド (© Nopasorn Kowathanakul/Getty Images)|玄武岩の柱状節理に囲まれた滝|![](/ja-JP/2024/09/202409231500SkaftafellWaterfall.jpg)|
 202409241500|GiantSequoias|セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)|地球最大の巨木セコイアデンドロン|![](/ja-JP/2024/09/202409241500GiantSequoias.jpg)|
 202409251500|LittleToucanet|ロス・ケツァーレス国立公園, コスタリカ (© Oscar Dominguez/Tandem Stills + Motion)|青い喉を持つ美しい鳥|![](/ja-JP/2024/09/202409251500LittleToucanet.jpg)|
+202409261500|YokohamaBridge2024|夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)|今日は横浜ベイブリッジ開通日|![](/ja-JP/2024/09/202409261500YokohamaBridge2024.jpg)|
