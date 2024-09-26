@@ -27,3 +27,4 @@
 202409230700|IcebergOtter|Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)|Otter-ly amazing|![](/en-US/2024/09/202409230700IcebergOtter.jpg)|
 202409240700|SkaftafellWaterfall|Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)|Falling for this view?|![](/en-US/2024/09/202409240700SkaftafellWaterfall.jpg)|
 202409250700|GiantSequoias|Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)|The realm of ancient giants|![](/en-US/2024/09/202409250700GiantSequoias.jpg)|
+202409260700|LittleToucanet|Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)|Flying colors|![](/en-US/2024/09/202409260700LittleToucanet.jpg)|
