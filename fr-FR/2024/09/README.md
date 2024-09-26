@@ -27,3 +27,4 @@
 202409232200|SkaftafellWaterfall|Cascade de Skaftafell, Parc national du Vatnajökull, Islande  (© Nopasorn Kowathanakul/Getty Images)|La perle islandaise|![](/fr-FR/2024/09/202409232200SkaftafellWaterfall.jpg)|
 202409242200|GiantSequoias|Séquoias géants, parc national de Sequoia, Californie, États-Unis (© Galyna Andrushko/Shutterstock)|Le royaume des géants|![](/fr-FR/2024/09/202409242200GiantSequoias.jpg)|
 202409252200|LittleToucanet|Toucanet à gorge bleue, parc national de Los Quetzales, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)|C’est qui le plus beau ?|![](/fr-FR/2024/09/202409252200LittleToucanet.jpg)|
+202409262200|VeniceAerial|Vue aérienne du Grand Canal et de la Basilique de Santa Maria della Salute, Venise, Italie (© Bachir Moukarzel/Amazing Aerial Agency)|La ville aux reflets éternels|![](/fr-FR/2024/09/202409262200VeniceAerial.jpg)|
