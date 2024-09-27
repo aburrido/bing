@@ -28,3 +28,4 @@
 202409240700|SkaftafellWaterfall|Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)|Info|![](/en-AU/2024/09/202409240700SkaftafellWaterfall.jpg)|
 202409250700|GiantSequoias|Giant sequoias, Sequoia National Park, California, USA (© Galyna Andrushko/Shutterstock)|Info|![](/en-AU/2024/09/202409250700GiantSequoias.jpg)|
 202409260700|LittleToucanet|Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)|Info|![](/en-AU/2024/09/202409260700LittleToucanet.jpg)|
+202409270700|VeniceAerial|Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Info|![](/en-AU/2024/09/202409270700VeniceAerial.jpg)|
