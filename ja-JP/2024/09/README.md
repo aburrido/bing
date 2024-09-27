@@ -28,3 +28,4 @@
 202409241500|GiantSequoias|セコイア国立公園, 米国 カリフォルニア州 (© Galyna Andrushko/Shutterstock)|地球最大の巨木セコイアデンドロン|![](/ja-JP/2024/09/202409241500GiantSequoias.jpg)|
 202409251500|LittleToucanet|ロス・ケツァーレス国立公園, コスタリカ (© Oscar Dominguez/Tandem Stills + Motion)|青い喉を持つ美しい鳥|![](/ja-JP/2024/09/202409251500LittleToucanet.jpg)|
 202409261500|YokohamaBridge2024|夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)|今日は横浜ベイブリッジ開通日|![](/ja-JP/2024/09/202409261500YokohamaBridge2024.jpg)|
+202409271500|VeniceAerial|サンタ・マリア・デッラ・サルーテ聖堂, イタリア ヴェネツィア (© Bachir Moukarzel/Amazing Aerial Agency)|上空から見た聖堂と運河|![](/ja-JP/2024/09/202409271500VeniceAerial.jpg)|
