@@ -28,3 +28,4 @@
 202409241600|GiantSequoias|巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)|古代巨人的王国|![](/zh-CN/2024/09/202409241600GiantSequoias.jpg)|
 202409251600|LittleToucanet|蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)|呼叫所有巨嘴鸟的粉丝|![](/zh-CN/2024/09/202409251600LittleToucanet.jpg)|
 202409261600|VeniceAerial|大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利 (© Bachir Moukarzel/Amazing Aerial Agency)|在漂浮的城市之上|![](/zh-CN/2024/09/202409261600VeniceAerial.jpg)|
+202409271600|FloridaSeashore|日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)|海湾群岛的光芒|![](/zh-CN/2024/09/202409271600FloridaSeashore.jpg)|
