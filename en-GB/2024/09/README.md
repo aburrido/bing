@@ -29,3 +29,4 @@
 202409252300|LittleToucanet|Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)|Calling all toucan fans|![](/en-GB/2024/09/202409252300LittleToucanet.jpg)|
 202409262300|VeniceAerial|Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Above the floating city|![](/en-GB/2024/09/202409262300VeniceAerial.jpg)|
 202409272300|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)|Grand gesture of love|![](/en-GB/2024/09/202409272300TajMahalReflection.jpg)|
+202409282300|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Connecting Connecticut|![](/en-GB/2024/09/202409282300ConnecticutBridge.jpg)|
