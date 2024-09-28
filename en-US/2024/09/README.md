@@ -29,3 +29,4 @@
 202409250700|GiantSequoias|Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)|The realm of ancient giants|![](/en-US/2024/09/202409250700GiantSequoias.jpg)|
 202409260700|LittleToucanet|Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)|Flying colors|![](/en-US/2024/09/202409260700LittleToucanet.jpg)|
 202409270700|VeniceAerial|Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Above the floating city|![](/en-US/2024/09/202409270700VeniceAerial.jpg)|
+202409280700|CoyoteGulch|Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Golden glimpses|![](/en-US/2024/09/202409280700CoyoteGulch.jpg)|
