@@ -29,3 +29,4 @@
 202409252200|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)|Geste der Liebe|![](/de-DE/2024/09/202409252200TajMahalReflection.jpg)|
 202409262200|VeniceAerial|Luftaufnahme des Canale Grande und der Basilica di Santa Maria della Salute, Venedig, Italien (© Bachir Moukarzel/Amazing Aerial Agency)|Götter über den Kanälen|![](/de-DE/2024/09/202409262200VeniceAerial.jpg)|
 202409272200|FloridaSeashore|Strand bei Sonnenaufgang, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)|Strand in Sicht|![](/de-DE/2024/09/202409272200FloridaSeashore.jpg)|
+202409282200|ConnecticutBridge|West Cornwall Covered Bridge über den Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Brücken vereinen, Flüsse begleiten|![](/de-DE/2024/09/202409282200ConnecticutBridge.jpg)|
