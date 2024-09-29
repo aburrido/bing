@@ -30,3 +30,4 @@
 202409261830|VeniceAerial|Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Above the floating city|![](/en-IN/2024/09/202409261830VeniceAerial.jpg)|
 202409271830|FloridaSeashore|Beach at sunrise, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)|Gulf Islands glow|![](/en-IN/2024/09/202409271830FloridaSeashore.jpg)|
 202409281830|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Connecting Connecticut|![](/en-IN/2024/09/202409281830ConnecticutBridge.jpg)|
+202409291830|WalrusNorway|Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)|Go with the floe|![](/en-IN/2024/09/202409291830WalrusNorway.jpg)|
