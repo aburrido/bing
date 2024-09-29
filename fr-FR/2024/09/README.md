@@ -30,3 +30,4 @@
 202409262200|VeniceAerial|Vue aérienne du Grand Canal et de la Basilique de Santa Maria della Salute, Venise, Italie (© Bachir Moukarzel/Amazing Aerial Agency)|La ville aux reflets éternels|![](/fr-FR/2024/09/202409262200VeniceAerial.jpg)|
 202409272200|Calanques|Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)|Un paradis de roches et de mer|![](/fr-FR/2024/09/202409272200Calanques.jpg)|
 202409282200|ConnecticutBridge|Pont couvert de West Cornwall, Connecticut, États-Unis (© pabradyphoto/Getty Images)|Connecter le Connecticut|![](/fr-FR/2024/09/202409282200ConnecticutBridge.jpg)|
+202409292200|WalrusNorway|Troupeau de morses dans le nord du Spitzberg, archipel du Svalbard, Norvège (© AWL Images/Danita Delimont)|Silence, ça pose !|![](/fr-FR/2024/09/202409292200WalrusNorway.jpg)|
