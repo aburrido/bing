@@ -30,3 +30,4 @@
 202409261600|VeniceAerial|大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利 (© Bachir Moukarzel/Amazing Aerial Agency)|在漂浮的城市之上|![](/zh-CN/2024/09/202409261600VeniceAerial.jpg)|
 202409271600|FloridaSeashore|日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)|海湾群岛的光芒|![](/zh-CN/2024/09/202409271600FloridaSeashore.jpg)|
 202409281600|ConnecticutBridge|横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)|连接康涅狄格州|![](/zh-CN/2024/09/202409281600ConnecticutBridge.jpg)|
+202409291600|WalrusNorway|斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont)|随浮冰漂流|![](/zh-CN/2024/09/202409291600WalrusNorway.jpg)|
