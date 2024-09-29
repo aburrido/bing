@@ -29,3 +29,4 @@
 202409260400|LittleToucanet|Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)|Calling all toucan fans|![](/en-CA/2024/09/202409260400LittleToucanet.jpg)|
 202409270400|VeniceAerial|Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Above the floating city|![](/en-CA/2024/09/202409270400VeniceAerial.jpg)|
 202409280400|FloridaSeashore|Beach at sunrise, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)|Gulf Islands glow|![](/en-CA/2024/09/202409280400FloridaSeashore.jpg)|
+202409290400|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Connecting Connecticut|![](/en-CA/2024/09/202409290400ConnecticutBridge.jpg)|
