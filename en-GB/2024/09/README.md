@@ -30,3 +30,4 @@
 202409262300|VeniceAerial|Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Above the floating city|![](/en-GB/2024/09/202409262300VeniceAerial.jpg)|
 202409272300|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)|Grand gesture of love|![](/en-GB/2024/09/202409272300TajMahalReflection.jpg)|
 202409282300|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Connecting Connecticut|![](/en-GB/2024/09/202409282300ConnecticutBridge.jpg)|
+202409292300|WalrusNorway|Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)|Go with the floe|![](/en-GB/2024/09/202409292300WalrusNorway.jpg)|
