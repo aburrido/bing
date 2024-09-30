@@ -31,3 +31,4 @@
 202409271830|FloridaSeashore|Beach at sunrise, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)|Gulf Islands glow|![](/en-IN/2024/09/202409271830FloridaSeashore.jpg)|
 202409281830|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Connecting Connecticut|![](/en-IN/2024/09/202409281830ConnecticutBridge.jpg)|
 202409291830|WalrusNorway|Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)|Go with the floe|![](/en-IN/2024/09/202409291830WalrusNorway.jpg)|
+202409301830|HalfDomeYosemite|Last light on Half Dome, Yosemite National Park, California, USA (© Adam Burton/Alamy Stock Photo)|Dome sweet dome|![](/en-IN/2024/09/202409301830HalfDomeYosemite.jpg)|
