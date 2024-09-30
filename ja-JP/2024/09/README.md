@@ -31,3 +31,4 @@
 202409271500|VeniceAerial|サンタ・マリア・デッラ・サルーテ聖堂, イタリア ヴェネツィア (© Bachir Moukarzel/Amazing Aerial Agency)|上空から見た聖堂と運河|![](/ja-JP/2024/09/202409271500VeniceAerial.jpg)|
 202409281500|ConnecticutBridge|コーンウォール, 米国 コネチカット州 (© pabradyphoto/Getty Images)|鮮やかな赤い屋根付き橋|![](/ja-JP/2024/09/202409281500ConnecticutBridge.jpg)|
 202409291500|WalrusNorway|スヴァールバル諸島, ノルウェー (© AWL Images/Danita Delimont)|セイウチの群れ|![](/ja-JP/2024/09/202409291500WalrusNorway.jpg)|
+202409301500|HalfDomeYosemite|ヨセミテ国立公園, 米国 カリフォルニア州 (© Adam Burton/Alamy)|赤く燃えるハーフドーム|![](/ja-JP/2024/09/202409301500HalfDomeYosemite.jpg)|
