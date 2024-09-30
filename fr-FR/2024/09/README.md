@@ -31,3 +31,4 @@
 202409272200|Calanques|Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)|Un paradis de roches et de mer|![](/fr-FR/2024/09/202409272200Calanques.jpg)|
 202409282200|ConnecticutBridge|Pont couvert de West Cornwall, Connecticut, États-Unis (© pabradyphoto/Getty Images)|Connecter le Connecticut|![](/fr-FR/2024/09/202409282200ConnecticutBridge.jpg)|
 202409292200|WalrusNorway|Troupeau de morses dans le nord du Spitzberg, archipel du Svalbard, Norvège (© AWL Images/Danita Delimont)|Silence, ça pose !|![](/fr-FR/2024/09/202409292200WalrusNorway.jpg)|
+202409302200|BoraPapeete|Vue aérienne de Bora-Bora, Polynésie française (© GLF Media/Shutterstock)|Là où le rêve devient réalité|![](/fr-FR/2024/09/202409302200BoraPapeete.jpg)|

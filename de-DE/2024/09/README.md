@@ -31,3 +31,4 @@
 202409272200|FloridaSeashore|Strand bei Sonnenaufgang, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)|Strand in Sicht|![](/de-DE/2024/09/202409272200FloridaSeashore.jpg)|
 202409282200|ConnecticutBridge|West Cornwall Covered Bridge über den Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Brücken vereinen, Flüsse begleiten|![](/de-DE/2024/09/202409282200ConnecticutBridge.jpg)|
 202409292200|WalrusNorway|Walrossherde im nördlichen Spitzbergen, Svalbard-Archipel, Norwegen (© AWL Images/DanitaDelimont)|Feier in der Mitternachtssonne|![](/de-DE/2024/09/202409292200WalrusNorway.jpg)|
+202409302200|HalfDomeYosemite|Half Dome, Yosemite-Nationalpark, Kalifornien, USA (© Adam Burton/Alamy Stock Photo)|Im Schatten des Giganten|![](/de-DE/2024/09/202409302200HalfDomeYosemite.jpg)|
