@@ -31,3 +31,4 @@
 202409270700|VeniceAerial|Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Above the floating city|![](/en-US/2024/09/202409270700VeniceAerial.jpg)|
 202409280700|CoyoteGulch|Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)|Golden glimpses|![](/en-US/2024/09/202409280700CoyoteGulch.jpg)|
 202409290700|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)|Connecting Connecticut|![](/en-US/2024/09/202409290700ConnecticutBridge.jpg)|
+202409300700|WalrusNorway|Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)|Go with the floe|![](/en-US/2024/09/202409300700WalrusNorway.jpg)|

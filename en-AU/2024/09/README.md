@@ -31,3 +31,4 @@
 202409270700|VeniceAerial|Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)|Info|![](/en-AU/2024/09/202409270700VeniceAerial.jpg)|
 202409280700|FloridaSeashore|Beach at sunrise, Gulf Islands National Seashore, Florida, USA (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2024/09/202409280700FloridaSeashore.jpg)|
 202409290700|ConnecticutBridge|West Cornwall Covered Bridge over the Housatonic River, Connecticut, USA (© pabradyphoto/Getty Images)|Info|![](/en-AU/2024/09/202409290700ConnecticutBridge.jpg)|
+202409300700|WalrusNorway|Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)|Info|![](/en-AU/2024/09/202409300700WalrusNorway.jpg)|
