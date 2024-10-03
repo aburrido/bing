@@ -4,3 +4,4 @@
 202410011830|FatherGandhi|Statue of Mahatma Gandhi at Parliament Square, Westminster, UK (© cowardlion/Shutterstock)|Honouring a legacy of peace|![](/en-IN/2024/10/202410011830FatherGandhi.jpg)|
 ||||![](/en-IN/2024/10/.jpg)|
 202410021830|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)|Grand gesture of love|![](/en-IN/2024/10/202410021830TajMahalReflection.jpg)|
+202410031830|EuropaMoon|Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)|A blue moon|![](/en-IN/2024/10/202410031830EuropaMoon.jpg)|
