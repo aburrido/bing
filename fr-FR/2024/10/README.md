@@ -4,3 +4,4 @@
 202410012200|WindRiverAlaska|Wind River, Brooks Range, Refuge faunique national de l'Arctique, Alaska, États-Unis (© Design Pics/Danita Delimont)|La danse sauvage de la rivière|![](/fr-FR/2024/10/202410012200WindRiverAlaska.jpg)|
 ||||![](/fr-FR/2024/10/.jpg)|
 202410022200|TajMahalReflection|Taj Mahal à Agra, Uttar Pradesh, Inde (© Tanarch/Getty Images)|Le symbole de l’amour éternel|![](/fr-FR/2024/10/202410022200TajMahalReflection.jpg)|
+202410032200|EuropaMoon|Europe, la lune glacée de Jupiter (© NASA/JPL-Caltech/SETI Institute)|La lune bleue veille|![](/fr-FR/2024/10/202410032200EuropaMoon.jpg)|
