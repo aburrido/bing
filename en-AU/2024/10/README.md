@@ -5,3 +5,4 @@
 202410020700|WindRiverAlaska|Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska, USA (© Design Pics/DanitaDelimont)|Info|![](/en-AU/2024/10/202410020700WindRiverAlaska.jpg)|
 202410030700|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)|Info|![](/en-AU/2024/10/202410030700TajMahalReflection.jpg)|
 ||||![](/en-AU/2024/10/.jpg)|
+202410040700|EuropaMoon|Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)|Info|![](/en-AU/2024/10/202410040700EuropaMoon.jpg)|
