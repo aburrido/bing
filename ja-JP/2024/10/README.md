@@ -5,3 +5,4 @@
 ||||![](/ja-JP/2024/10/.jpg)|
 202410021500|TajMahalReflection|タージ・マハル, インド (© Tanarch/Getty Images)|愛の霊廟|![](/ja-JP/2024/10/202410021500TajMahalReflection.jpg)|
 202410031500|EuropaMoon|木星の衛星エウロパ (© NASA/JPL-Caltech/SETI Institute)|今日から世界宇宙週間|![](/ja-JP/2024/10/202410031500EuropaMoon.jpg)|
+202410041500|ElephantTeacher|ツァボイースト国立公園のアフリカゾウ, ケニア (© Neil Bowman/Minden Pictures)|今日は世界教師デー|![](/ja-JP/2024/10/202410041500ElephantTeacher.jpg)|
