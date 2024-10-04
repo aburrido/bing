@@ -5,3 +5,4 @@
 ||||![](/en-IN/2024/10/.jpg)|
 202410021830|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)|Grand gesture of love|![](/en-IN/2024/10/202410021830TajMahalReflection.jpg)|
 202410031830|EuropaMoon|Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)|A blue moon|![](/en-IN/2024/10/202410031830EuropaMoon.jpg)|
+202410041830|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Right behind you|![](/en-IN/2024/10/202410041830ElephantTeacher.jpg)|
