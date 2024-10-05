@@ -5,3 +5,4 @@
 202410022300|NationalPoetryDay2024|Loch Morlich, Cairngorms National Park, Scotland (© Arterra/Universal Images Group/Getty Images)|Verse and vision|![](/en-GB/2024/10/202410022300NationalPoetryDay2024.jpg)|
 202410032300|EuropaMoon|Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)|A blue moon|![](/en-GB/2024/10/202410032300EuropaMoon.jpg)|
 202410042300|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Follow the teacher!|![](/en-GB/2024/10/202410042300ElephantTeacher.jpg)|
+202410052300|CoyoteGulch|Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Golden glimpses|![](/en-GB/2024/10/202410052300CoyoteGulch.jpg)|
