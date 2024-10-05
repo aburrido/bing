@@ -6,3 +6,4 @@
 202410030700|TajMahalReflection|Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)|Info|![](/en-AU/2024/10/202410030700TajMahalReflection.jpg)|
 ||||![](/en-AU/2024/10/.jpg)|
 202410040700|EuropaMoon|Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)|Info|![](/en-AU/2024/10/202410040700EuropaMoon.jpg)|
+202410050700|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Info|![](/en-AU/2024/10/202410050700ElephantTeacher.jpg)|
