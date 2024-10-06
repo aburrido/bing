@@ -7,3 +7,4 @@
 202410032200|EuropaMoon|Jupiters Eismond Europa (© NASA/JPL-Caltech/SETI Institute)|Ein eisiger Mond|![](/de-DE/2024/10/202410032200EuropaMoon.jpg)|
 202410042200|ElephantTeacher|Afrikanische Elefanten im Tsavo-East-Nationalpark, Kenia (© Neil Bowman/Minden Pictures)|Belehren oder inspirieren?|![](/de-DE/2024/10/202410042200ElephantTeacher.jpg)|
 202410052200|BerlinConcertHallFestivalofLights|Festival of Lights, Berlin (© JOHN MACDOUGALL/Getty Images)|Berliner Lichtspiele|![](/de-DE/2024/10/202410052200BerlinConcertHallFestivalofLights.jpg)|
+202410062200|ElbePhilharmonic|Die Elbphilharmonie in Hamburg (© Canetti/Shutterstock)|Träume nehmen Gestalt an|![](/de-DE/2024/10/202410062200ElbePhilharmonic.jpg)|
