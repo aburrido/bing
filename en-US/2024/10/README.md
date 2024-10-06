@@ -7,3 +7,4 @@
 ||||![](/en-US/2024/10/.jpg)|
 202410040700|EuropaMoon|Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)|A blue moon|![](/en-US/2024/10/202410040700EuropaMoon.jpg)|
 202410050700|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Follow the teacher!|![](/en-US/2024/10/202410050700ElephantTeacher.jpg)|
+202410060700|SoranoItaly|Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)|The stone town of Tuscany|![](/en-US/2024/10/202410060700SoranoItaly.jpg)|
