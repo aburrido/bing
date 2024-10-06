@@ -7,3 +7,4 @@
 202410031500|EuropaMoon|木星の衛星エウロパ (© NASA/JPL-Caltech/SETI Institute)|今日から世界宇宙週間|![](/ja-JP/2024/10/202410031500EuropaMoon.jpg)|
 202410041500|ElephantTeacher|ツァボイースト国立公園のアフリカゾウ, ケニア (© Neil Bowman/Minden Pictures)|今日は世界教師デー|![](/ja-JP/2024/10/202410041500ElephantTeacher.jpg)|
 202410051500|KochiaJapan|国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)|真っ赤なコキア|![](/ja-JP/2024/10/202410051500KochiaJapan.jpg)|
+202410061500|ElbePhilharmonic|エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)|今日は世界建築の日|![](/ja-JP/2024/10/202410061500ElbePhilharmonic.jpg)|
