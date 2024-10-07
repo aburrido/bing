@@ -8,3 +8,4 @@
 202410042200|ElephantTeacher|Éléphants d'Afrique dans le parc national de Tsavo East, Kenya (© Neil Bowman/Minden Pictures)|Les bâtisseurs de l'avenir|![](/fr-FR/2024/10/202410042200ElephantTeacher.jpg)|
 202410052200|CoyoteGulch|Peuplier deltoïdes, sentier de Coyote Gulch, Glen Canyon Recreation Area, Utah, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Sentier mythique au cœur du Glen Canyon|![](/fr-FR/2024/10/202410052200CoyoteGulch.jpg)|
 202410062200|ElbePhilharmonic|Philharmonie de l'Elbe, Hambourg, Allemagne (© Canetti/Shutterstock)|Construisons demain !|![](/fr-FR/2024/10/202410062200ElbePhilharmonic.jpg)|
+202410072200|MototiOctopus|Amphioctopus, Lembeh Strait, Indonésie (© Howard Chew/Alamy)|Poulpe fiction|![](/fr-FR/2024/10/202410072200MototiOctopus.jpg)|
