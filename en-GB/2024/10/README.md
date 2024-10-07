@@ -7,3 +7,4 @@
 202410042300|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Follow the teacher!|![](/en-GB/2024/10/202410042300ElephantTeacher.jpg)|
 202410052300|CoyoteGulch|Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Golden glimpses|![](/en-GB/2024/10/202410052300CoyoteGulch.jpg)|
 202410062300|ElbePhilharmonic|The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)|A day for blueprints and beyond|![](/en-GB/2024/10/202410062300ElbePhilharmonic.jpg)|
+202410072300|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)|Ocean's eight|![](/en-GB/2024/10/202410072300MototiOctopus.jpg)|
