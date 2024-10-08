@@ -9,3 +9,4 @@
 202410050700|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Follow the teacher!|![](/en-US/2024/10/202410050700ElephantTeacher.jpg)|
 202410060700|SoranoItaly|Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)|The stone town of Tuscany|![](/en-US/2024/10/202410060700SoranoItaly.jpg)|
 202410070700|ElbePhilharmonic|The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)|Celebrating architecture|![](/en-US/2024/10/202410070700ElbePhilharmonic.jpg)|
+202410080700|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)|Ocean's eight|![](/en-US/2024/10/202410080700MototiOctopus.jpg)|

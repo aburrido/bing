@@ -9,3 +9,4 @@
 202410050700|ElephantTeacher|African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)|Info|![](/en-AU/2024/10/202410050700ElephantTeacher.jpg)|
 202410060700|CoyoteGulch|Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Info|![](/en-AU/2024/10/202410060700CoyoteGulch.jpg)|
 202410070700|BoraPapeete|Aerial view of Bora Bora in French Polynesia (© GLF Media/Shutterstock)|Info|![](/en-AU/2024/10/202410070700BoraPapeete.jpg)|
+202410080700|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410080700MototiOctopus.jpg)|
