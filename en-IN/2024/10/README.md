@@ -9,3 +9,4 @@
 202410051830|CoyoteGulch|Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Golden glimpses|![](/en-IN/2024/10/202410051830CoyoteGulch.jpg)|
 202410061830|ElbePhilharmonic|The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)|A day for blueprints and beyond|![](/en-IN/2024/10/202410061830ElbePhilharmonic.jpg)|
 202410071830|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)|Ocean's eight|![](/en-IN/2024/10/202410071830MototiOctopus.jpg)|
+202410081830|AspensColorado|Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)|Colorado in full colour|![](/en-IN/2024/10/202410081830AspensColorado.jpg)|
