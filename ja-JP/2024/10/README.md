@@ -9,3 +9,4 @@
 202410051500|KochiaJapan|国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)|真っ赤なコキア|![](/ja-JP/2024/10/202410051500KochiaJapan.jpg)|
 202410061500|ElbePhilharmonic|エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)|今日は世界建築の日|![](/ja-JP/2024/10/202410061500ElbePhilharmonic.jpg)|
 202410071500|Kanro2024|秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)|今日は寒露|![](/ja-JP/2024/10/202410071500Kanro2024.jpg)|
+202410081500|AspensColorado|マーブル近郊に自生するアスペン, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)|黄葉に輝く森|![](/ja-JP/2024/10/202410081500AspensColorado.jpg)|
