@@ -10,3 +10,4 @@
 202410061600|BoraPapeete|法属波利尼西亚波拉波拉岛的鸟瞰图 (© GLF Media/Shutterstock)|梦想成真的地方|![](/zh-CN/2024/10/202410061600BoraPapeete.jpg)|
 202410071600|SoranoItaly|索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)|托斯卡纳的石头小镇|![](/zh-CN/2024/10/202410071600SoranoItaly.jpg)|
 202410071600|MototiOctopus|莫托提两鳍蛸，蓝碧海峡，印度尼西亚 (© Howard Chew/Alamy Stock Photo)|海洋中的八爪鱼|![](/zh-CN/2024/10/202410071600MototiOctopus.jpg)|
+202410081600|AspensColorado|马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)|色彩斑斓的秋天|![](/zh-CN/2024/10/202410081600AspensColorado.jpg)|
