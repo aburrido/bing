@@ -10,3 +10,4 @@
 202410061500|ElbePhilharmonic|エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)|今日は世界建築の日|![](/ja-JP/2024/10/202410061500ElbePhilharmonic.jpg)|
 202410071500|Kanro2024|秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)|今日は寒露|![](/ja-JP/2024/10/202410071500Kanro2024.jpg)|
 202410081500|AspensColorado|マーブル近郊に自生するアスペン, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)|黄葉に輝く森|![](/ja-JP/2024/10/202410081500AspensColorado.jpg)|
+202410091500|SoranoItaly|ソラーノ, イタリア トスカーナ州 (© Luigi Vaccarella/eStock Photo)|断崖絶壁の上に佇む町|![](/ja-JP/2024/10/202410091500SoranoItaly.jpg)|
