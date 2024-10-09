@@ -8,3 +8,4 @@
 202410060400|CoyoteGulch|Peuplier deltoïdes, sentier de Coyote Gulch, Glen Canyon Recreation Area, Utah, États-Unis (© Stephen Matera/Tandem Stills + Motion)|Sentier mythique au cœur du Glen Canyon|![](/fr-CA/2024/10/202410060400CoyoteGulch.jpg)|
 202410070400|ElbePhilharmonic|Philharmonie de l'Elbe, Hambourg, Allemagne (© Canetti/Shutterstock)|Construisons demain!|![](/fr-CA/2024/10/202410070400ElbePhilharmonic.jpg)|
 202410080400|MototiOctopus|Amphioctopus, Lembeh Strait, Indonésie (© Howard Chew/Alamy)|Poulpe fiction|![](/fr-CA/2024/10/202410080400MototiOctopus.jpg)|
+202410090400|AspensColorado|Peuplier tremble près de Marble, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|Le Colorado haut en couleur|![](/fr-CA/2024/10/202410090400AspensColorado.jpg)|
