@@ -10,3 +10,4 @@
 202410062200|ElbePhilharmonic|Die Elbphilharmonie in Hamburg (© Canetti/Shutterstock)|Träume nehmen Gestalt an|![](/de-DE/2024/10/202410062200ElbePhilharmonic.jpg)|
 202410072200|MototiOctopus|Mototi-Oktopus, Lembeh Strait, Indonesien (© Howard Chew/Alamy)|Schlaue Kerlchen mit drei Herzen|![](/de-DE/2024/10/202410072200MototiOctopus.jpg)|
 202410082200|PotsdamerPlatzBerlin|Potsdamer Platz in Berlin (© franckreporter/Getty Images)|Zwischen Himmel und Hölle|![](/de-DE/2024/10/202410082200PotsdamerPlatzBerlin.jpg)|
+202410092200|SoranoItaly|Sorano, Toskana, Italien (© Luigi Vaccarella/eStock Photo)|Ein Tuffsteindorf in der Toskana|![](/de-DE/2024/10/202410092200SoranoItaly.jpg)|

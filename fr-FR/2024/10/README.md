@@ -10,3 +10,4 @@
 202410062200|ElbePhilharmonic|Philharmonie de l'Elbe, Hambourg, Allemagne (© Canetti/Shutterstock)|Construisons demain !|![](/fr-FR/2024/10/202410062200ElbePhilharmonic.jpg)|
 202410072200|MototiOctopus|Amphioctopus, Lembeh Strait, Indonésie (© Howard Chew/Alamy)|Poulpe fiction|![](/fr-FR/2024/10/202410072200MototiOctopus.jpg)|
 202410082200|AspensColorado|Peuplier tremble près de Marble, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|Le Colorado haut en couleur|![](/fr-FR/2024/10/202410082200AspensColorado.jpg)|
+202410092200|SoranoItaly|Sorano, Toscane, Italie (© Luigi Vaccarella/eStock Photo)|Échappée médiévale en Toscane|![](/fr-FR/2024/10/202410092200SoranoItaly.jpg)|
