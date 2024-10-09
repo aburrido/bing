@@ -9,3 +9,4 @@
 202410062300|ElbePhilharmonic|The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)|A day for blueprints and beyond|![](/en-GB/2024/10/202410062300ElbePhilharmonic.jpg)|
 202410072300|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)|Ocean's eight|![](/en-GB/2024/10/202410072300MototiOctopus.jpg)|
 202410082300|AspensColorado|Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)|Colorado in full colour|![](/en-GB/2024/10/202410082300AspensColorado.jpg)|
+||||![](/en-GB/2024/10/.jpg)|
