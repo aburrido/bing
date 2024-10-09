@@ -10,3 +10,4 @@
 202410072300|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)|Ocean's eight|![](/en-GB/2024/10/202410072300MototiOctopus.jpg)|
 202410082300|AspensColorado|Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)|Colorado in full colour|![](/en-GB/2024/10/202410082300AspensColorado.jpg)|
 ||||![](/en-GB/2024/10/.jpg)|
+202410092300|SoranoItaly|Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)|The stone town of Tuscany|![](/en-GB/2024/10/202410092300SoranoItaly.jpg)|
