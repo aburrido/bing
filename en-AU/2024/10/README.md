@@ -11,3 +11,4 @@
 202410070700|BoraPapeete|Aerial view of Bora Bora in French Polynesia (© GLF Media/Shutterstock)|Info|![](/en-AU/2024/10/202410070700BoraPapeete.jpg)|
 202410080700|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410080700MototiOctopus.jpg)|
 202410090700|AspensColorado|Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)|Info|![](/en-AU/2024/10/202410090700AspensColorado.jpg)|
+202410100700|SoranoItaly|Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)|Info|![](/en-AU/2024/10/202410100700SoranoItaly.jpg)|
