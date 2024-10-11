@@ -11,3 +11,4 @@
 202410090400|AspensColorado|Peuplier tremble près de Marble, Colorado, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|Le Colorado haut en couleur|![](/fr-CA/2024/10/202410090400AspensColorado.jpg)|
 ||||![](/fr-CA/2024/10/.jpg)|
 202410100400|SoranoItaly|Sorano, Toscane, Italie (© Luigi Vaccarella/eStock Photo)|Échappée médiévale en Toscane|![](/fr-CA/2024/10/202410100400SoranoItaly.jpg)|
+202410110400|CelticColours|Hautes-Terres-du-Cap-Breton, Nouvelle-Écosse, Canada (© Cavan Images/Alamy)|Les Celtes à l'honneur|![](/fr-CA/2024/10/202410110400CelticColours.jpg)|
