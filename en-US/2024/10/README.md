@@ -12,3 +12,4 @@
 202410080700|MototiOctopus|Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)|Ocean's eight|![](/en-US/2024/10/202410080700MototiOctopus.jpg)|
 202410090700|AspensColorado|Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)|Colorado in full color|![](/en-US/2024/10/202410090700AspensColorado.jpg)|
 202410100700|KochiaJapan|Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)|Rolling into fall|![](/en-US/2024/10/202410100700KochiaJapan.jpg)|
+202410110700|CelticColours|Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)|Celebrate the Celts|![](/en-US/2024/10/202410110700CelticColours.jpg)|
