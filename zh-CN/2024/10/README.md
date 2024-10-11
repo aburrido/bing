@@ -13,3 +13,4 @@
 202410081600|AspensColorado|马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)|色彩斑斓的秋天|![](/zh-CN/2024/10/202410081600AspensColorado.jpg)|
 202410091600|SoranoItaly|索拉诺，托斯卡纳，意大利 (© Luigi Vaccarella/eStock Photo)|托斯卡纳的石头小镇|![](/zh-CN/2024/10/202410091600SoranoItaly.jpg)|
 202410101600|Chongyang2024|黄山云海，安徽省，中国 (© yangyang1991/Getty Images)|云海奇观|![](/zh-CN/2024/10/202410101600Chongyang2024.jpg)|
+202410111600|QuebecDuck|林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)|飞越各大洲|![](/zh-CN/2024/10/202410111600QuebecDuck.jpg)|
