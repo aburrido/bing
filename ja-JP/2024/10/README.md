@@ -12,3 +12,4 @@
 202410081500|AspensColorado|マーブル近郊に自生するアスペン, 米国 コロラド州 (© Jason Hatfield/Tandem Stills + Motion)|黄葉に輝く森|![](/ja-JP/2024/10/202410081500AspensColorado.jpg)|
 202410091500|SoranoItaly|ソラーノ, イタリア トスカーナ州 (© Luigi Vaccarella/eStock Photo)|断崖絶壁の上に佇む町|![](/ja-JP/2024/10/202410091500SoranoItaly.jpg)|
 202410101500|CelticColours|ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)|紅葉に染まる島|![](/ja-JP/2024/10/202410101500CelticColours.jpg)|
+202410111500|QuebecDuck|アメリカオシ, カナダ ケベック州 (© Maxime Riendeau/Getty Images)|今日は「世界渡り鳥の日」|![](/ja-JP/2024/10/202410111500QuebecDuck.jpg)|
