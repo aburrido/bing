@@ -12,3 +12,4 @@
 202410081830|AspensColorado|Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)|Colorado in full colour|![](/en-IN/2024/10/202410081830AspensColorado.jpg)|
 202410091830|SoranoItaly|Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)|The stone town of Tuscany|![](/en-IN/2024/10/202410091830SoranoItaly.jpg)|
 202410101830|QuebecDuck|Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)|Winging it across continents|![](/en-IN/2024/10/202410101830QuebecDuck.jpg)|
+202410111830|DussehraMysore|Mysuru Palace during Dasara, Karnataka (© Fameleaf Photos/Getty Images)|Under a thousand lights|![](/en-IN/2024/10/202410111830DussehraMysore.jpg)|
