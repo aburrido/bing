@@ -12,3 +12,4 @@
 ||||![](/fr-CA/2024/10/.jpg)|
 202410100400|SoranoItaly|Sorano, Toscane, Italie (© Luigi Vaccarella/eStock Photo)|Échappée médiévale en Toscane|![](/fr-CA/2024/10/202410100400SoranoItaly.jpg)|
 202410110400|CelticColours|Hautes-Terres-du-Cap-Breton, Nouvelle-Écosse, Canada (© Cavan Images/Alamy)|Les Celtes à l'honneur|![](/fr-CA/2024/10/202410110400CelticColours.jpg)|
+202410120400|QuebecDuck|Canard branchu, Québec, Canada (© Maxime Riendeau/Getty Images)|"Branchu et étonnant!|![](/fr-CA/2024/10/202410120400QuebecDuck.jpg)|
