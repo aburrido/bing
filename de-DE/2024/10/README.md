@@ -13,3 +13,4 @@
 202410092200|SoranoItaly|Sorano, Toskana, Italien (© Luigi Vaccarella/eStock Photo)|Ein Tuffsteindorf in der Toskana|![](/de-DE/2024/10/202410092200SoranoItaly.jpg)|
 202410102200|CelticColours|Cape Breton Highlands, Nova Scotia, Kanada (© Cavan Images/Alamy)|Keltische Farbexplosion|![](/de-DE/2024/10/202410102200CelticColours.jpg)|
 202410112200|QuebecDuck|Brautente, Quebec, Kanada (© Maxime Riendeau/Getty Images)|Im Reisefieber|![](/de-DE/2024/10/202410112200QuebecDuck.jpg)|
+202410122200|AlcazarSeville|Innenhof der Jungfrauen, Alcázar von Sevilla, Spanien (© Danny Lehman/Getty Images)|1000 und eine Nacht|![](/de-DE/2024/10/202410122200AlcazarSeville.jpg)|
