@@ -13,3 +13,4 @@
 202410100400|SoranoItaly|Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)|The stone town of Tuscany|![](/en-CA/2024/10/202410100400SoranoItaly.jpg)|
 202410110400|CelticColours|Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy Stock Photo)|Celebrate the Celts|![](/en-CA/2024/10/202410110400CelticColours.jpg)|
 202410120400|QuebecDuck|Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)|Winging it across continents|![](/en-CA/2024/10/202410120400QuebecDuck.jpg)|
+202410130400|AlcazarSeville|Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)|The splendour of Seville|![](/en-CA/2024/10/202410130400AlcazarSeville.jpg)|
