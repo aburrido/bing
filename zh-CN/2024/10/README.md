@@ -15,3 +15,4 @@
 202410101600|Chongyang2024|黄山云海，安徽省，中国 (© yangyang1991/Getty Images)|云海奇观|![](/zh-CN/2024/10/202410101600Chongyang2024.jpg)|
 202410111600|QuebecDuck|林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)|飞越各大洲|![](/zh-CN/2024/10/202410111600QuebecDuck.jpg)|
 202410121600|AlcazarSeville|塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)|辉煌的塞维利亚|![](/zh-CN/2024/10/202410121600AlcazarSeville.jpg)|
+202410131600|CocoBeach|可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)|沙滩的秘密和日落|![](/zh-CN/2024/10/202410131600CocoBeach.jpg)|
