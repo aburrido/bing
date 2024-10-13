@@ -14,3 +14,4 @@
 202410102200|CelticColours|Hautes-Terres-du-Cap-Breton, Nouvelle-Écosse, Canada (© Cavan Images/Alamy)|Les Celtes à l'honneur|![](/fr-FR/2024/10/202410102200CelticColours.jpg)|
 202410112200|QuebecDuck|Canard branchu, Québec, Canada (© Maxime Riendeau/Getty Images)|Le cousin d’Amérique|![](/fr-FR/2024/10/202410112200QuebecDuck.jpg)|
 202410122200|AlcazarSeville|Patio de las Doncellas, Alcazar de Séville, Espagne (© Danny Lehman/Getty Images)|Séville dans toute sa splendeur|![](/fr-FR/2024/10/202410122200AlcazarSeville.jpg)|
+202410132200|MarigotBay|Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)|Un cadre idylique|![](/fr-FR/2024/10/202410132200MarigotBay.jpg)|
