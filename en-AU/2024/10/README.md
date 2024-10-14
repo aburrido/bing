@@ -15,3 +15,4 @@
 202410110700|CelticColours|Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410110700CelticColours.jpg)|
 202410120700|QuebecDuck|Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)|Info|![](/en-AU/2024/10/202410120700QuebecDuck.jpg)|
 202410130700|AlcazarSeville|Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)|Info|![](/en-AU/2024/10/202410130700AlcazarSeville.jpg)|
+202410140700|CocoBeach|Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)|Info|![](/en-AU/2024/10/202410140700CocoBeach.jpg)|
