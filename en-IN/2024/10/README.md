@@ -15,3 +15,4 @@
 202410111830|DussehraMysore|Mysuru Palace during Dasara, Karnataka (© Fameleaf Photos/Getty Images)|Under a thousand lights|![](/en-IN/2024/10/202410111830DussehraMysore.jpg)|
 202410121830|AlcazarSeville|Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)|The splendour of Seville|![](/en-IN/2024/10/202410121830AlcazarSeville.jpg)|
 202410131830|CocoBeach|Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)|Sandy secrets and sunsets|![](/en-IN/2024/10/202410131830CocoBeach.jpg)|
+202410141830|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|The race for life|![](/en-IN/2024/10/202410141830MaraMigration.jpg)|
