@@ -15,3 +15,4 @@
 202410111500|QuebecDuck|アメリカオシ, カナダ ケベック州 (© Maxime Riendeau/Getty Images)|今日は「世界渡り鳥の日」|![](/ja-JP/2024/10/202410111500QuebecDuck.jpg)|
 202410121500|AlcazarSeville|アルカサル, スペイン アンダルシア州 (© Danny Lehman/Getty Images)|美しいアーチに囲まれた「乙女の中庭」|![](/ja-JP/2024/10/202410121500AlcazarSeville.jpg)|
 202410131500|RailwaysDayNew|東京駅, 東京都 (© phutthiseth thongtae/Getty Images)|今日は鉄道の日|![](/ja-JP/2024/10/202410131500RailwaysDayNew.jpg)|
+202410141500|FossilsDorset|ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)|今日は「化石の日」|![](/ja-JP/2024/10/202410141500FossilsDorset.jpg)|
