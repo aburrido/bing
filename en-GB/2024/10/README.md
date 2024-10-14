@@ -15,3 +15,4 @@
 202410112300|QuebecDuck|Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)|Winging it across continents|![](/en-GB/2024/10/202410112300QuebecDuck.jpg)|
 202410122300|AlcazarSeville|Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)|The splendor of Seville|![](/en-GB/2024/10/202410122300AlcazarSeville.jpg)|
 202410132300|CocoBeach|Coco Beach, Goa, India (© Abhinav Sah/Shutterstock)|Sandy secrets and sunsets|![](/en-GB/2024/10/202410132300CocoBeach.jpg)|
+202410142300|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|The race for life|![](/en-GB/2024/10/202410142300MaraMigration.jpg)|
