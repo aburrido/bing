@@ -15,3 +15,4 @@
 202410112200|QuebecDuck|Brautente, Quebec, Kanada (© Maxime Riendeau/Getty Images)|Im Reisefieber|![](/de-DE/2024/10/202410112200QuebecDuck.jpg)|
 202410122200|AlcazarSeville|Innenhof der Jungfrauen, Alcázar von Sevilla, Spanien (© Danny Lehman/Getty Images)|1000 und eine Nacht|![](/de-DE/2024/10/202410122200AlcazarSeville.jpg)|
 202410132200|CocoBeach|Fischerboote am Coco Beach in Goa, Indien (© Abhinav Sah/Shutterstock)|Ein indisches Strandparadies|![](/de-DE/2024/10/202410132200CocoBeach.jpg)|
+202410142200|MaraMigration|Große Gnuwanderung am Mara-Fluss, Kenia (© Ayzenstayn/Getty Images)|Wettlauf ums Überleben|![](/de-DE/2024/10/202410142200MaraMigration.jpg)|
