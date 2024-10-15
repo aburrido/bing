@@ -17,3 +17,4 @@
 202410121600|AlcazarSeville|塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)|辉煌的塞维利亚|![](/zh-CN/2024/10/202410121600AlcazarSeville.jpg)|
 202410131600|CocoBeach|可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)|沙滩的秘密和日落|![](/zh-CN/2024/10/202410131600CocoBeach.jpg)|
 202410141600|MaraMigration|马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)|生存竞赛|![](/zh-CN/2024/10/202410141600MaraMigration.jpg)|
+202410151600|FossilsDorset|侏罗纪海岸的箭石和菊石化石，多塞特郡，英国 (© Nature Picture Library/Alamy Stock Photo)|发掘过去|![](/zh-CN/2024/10/202410151600FossilsDorset.jpg)|
