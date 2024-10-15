@@ -16,3 +16,4 @@
 202410121500|AlcazarSeville|アルカサル, スペイン アンダルシア州 (© Danny Lehman/Getty Images)|美しいアーチに囲まれた「乙女の中庭」|![](/ja-JP/2024/10/202410121500AlcazarSeville.jpg)|
 202410131500|RailwaysDayNew|東京駅, 東京都 (© phutthiseth thongtae/Getty Images)|今日は鉄道の日|![](/ja-JP/2024/10/202410131500RailwaysDayNew.jpg)|
 202410141500|FossilsDorset|ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)|今日は「化石の日」|![](/ja-JP/2024/10/202410141500FossilsDorset.jpg)|
+202410151500|MaraMigration|マラ川を渡るヌーの群れ, ケニア (© Ayzenstayn/Getty Images)|大自然の壮大なドラマ|![](/ja-JP/2024/10/202410151500MaraMigration.jpg)|
