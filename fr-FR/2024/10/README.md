@@ -16,3 +16,4 @@
 202410122200|AlcazarSeville|Patio de las Doncellas, Alcazar de Séville, Espagne (© Danny Lehman/Getty Images)|Séville dans toute sa splendeur|![](/fr-FR/2024/10/202410122200AlcazarSeville.jpg)|
 202410132200|MarigotBay|Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)|Un cadre idylique|![](/fr-FR/2024/10/202410132200MarigotBay.jpg)|
 202410142200|MaraMigration|Grande migration des gnous à la rivière Mara, Kenya (© Ayzenstayn/Getty Images)|L’odyssée des gnous|![](/fr-FR/2024/10/202410142200MaraMigration.jpg)|
+202410152200|FossilsDorset|Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)|Dévoiler le passé|![](/fr-FR/2024/10/202410152200FossilsDorset.jpg)|
