@@ -16,3 +16,4 @@
 202410120700|QuebecDuck|Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)|It's time to wing it!|![](/en-US/2024/10/202410120700QuebecDuck.jpg)|
 202410130700|AlcazarSeville|Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)|The splendor of Seville|![](/en-US/2024/10/202410130700AlcazarSeville.jpg)|
 202410140700|PuebloNankoweap|Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)|Honoring Indigenous Peoples|![](/en-US/2024/10/202410140700PuebloNankoweap.jpg)|
+202410150700|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|The race for life|![](/en-US/2024/10/202410150700MaraMigration.jpg)|
