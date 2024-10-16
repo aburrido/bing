@@ -17,3 +17,4 @@
 202410131830|CocoBeach|Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)|Sandy secrets and sunsets|![](/en-IN/2024/10/202410131830CocoBeach.jpg)|
 202410141830|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|The race for life|![](/en-IN/2024/10/202410141830MaraMigration.jpg)|
 202410151830|FossilsDorset|Fossils of belemnites and ammonites, Jurassic Coast, Dorset, United Kingdom (© Nature Picture Library/Alamy Stock Photo)|Unearthing the past|![](/en-IN/2024/10/202410151830FossilsDorset.jpg)|
+202410161830|KochiaJapan|Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)|Rolling into fall|![](/en-IN/2024/10/202410161830KochiaJapan.jpg)|
