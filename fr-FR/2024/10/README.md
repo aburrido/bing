@@ -17,3 +17,4 @@
 202410132200|MarigotBay|Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)|Un cadre idylique|![](/fr-FR/2024/10/202410132200MarigotBay.jpg)|
 202410142200|MaraMigration|Grande migration des gnous à la rivière Mara, Kenya (© Ayzenstayn/Getty Images)|L’odyssée des gnous|![](/fr-FR/2024/10/202410142200MaraMigration.jpg)|
 202410152200|FossilsDorset|Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)|Dévoiler le passé|![](/fr-FR/2024/10/202410152200FossilsDorset.jpg)|
+202410162200|PitonFournaise|Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)|Connaissez-vous la Diagonale des Fous ?|![](/fr-FR/2024/10/202410162200PitonFournaise.jpg)|

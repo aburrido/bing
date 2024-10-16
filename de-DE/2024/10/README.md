@@ -17,3 +17,4 @@
 202410132200|CocoBeach|Fischerboote am Coco Beach in Goa, Indien (© Abhinav Sah/Shutterstock)|Ein indisches Strandparadies|![](/de-DE/2024/10/202410132200CocoBeach.jpg)|
 202410142200|MaraMigration|Große Gnuwanderung am Mara-Fluss, Kenia (© Ayzenstayn/Getty Images)|Wettlauf ums Überleben|![](/de-DE/2024/10/202410142200MaraMigration.jpg)|
 202410152200|FossilsDorset|Fossilien von Belemniten und Ammoniten, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)|Zeitzeugen einer vergangenen Welt|![](/de-DE/2024/10/202410152200FossilsDorset.jpg)|
+202410162200|KochiaJapan|Sommerzypressen, Präfektur Ibaraki, Japan (© DigiPub/Getty Images)|Japanisches Flammenmeer|![](/de-DE/2024/10/202410162200KochiaJapan.jpg)|
