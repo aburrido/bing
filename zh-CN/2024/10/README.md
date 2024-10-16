@@ -18,3 +18,4 @@
 202410131600|CocoBeach|可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)|沙滩的秘密和日落|![](/zh-CN/2024/10/202410131600CocoBeach.jpg)|
 202410141600|MaraMigration|马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)|生存竞赛|![](/zh-CN/2024/10/202410141600MaraMigration.jpg)|
 202410151600|FossilsDorset|侏罗纪海岸的箭石和菊石化石，多塞特郡，英国 (© Nature Picture Library/Alamy Stock Photo)|发掘过去|![](/zh-CN/2024/10/202410151600FossilsDorset.jpg)|
+202410161600|KochiaJapan|地肤草，茨城县，日本 (© DigiPub/Getty Images)|随风摆动，进入秋天|![](/zh-CN/2024/10/202410161600KochiaJapan.jpg)|
