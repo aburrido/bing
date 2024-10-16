@@ -17,3 +17,4 @@
 202410130700|AlcazarSeville|Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)|Info|![](/en-AU/2024/10/202410130700AlcazarSeville.jpg)|
 202410140700|CocoBeach|Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)|Info|![](/en-AU/2024/10/202410140700CocoBeach.jpg)|
 202410150700|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|Info|![](/en-AU/2024/10/202410150700MaraMigration.jpg)|
+202410160700|FossilsDorset|Fossils of belemnites and ammonites, Jurassic Coast, Dorset, United Kingdom (© Nature Picture Library/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410160700FossilsDorset.jpg)|
