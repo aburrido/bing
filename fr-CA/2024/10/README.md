@@ -16,3 +16,4 @@
 202410130400|AlcazarSeville|Patio de las Doncellas, Alcazar de Séville, Espagne (© Danny Lehman/Getty Images)|La splendeur de Séville|![](/fr-CA/2024/10/202410130400AlcazarSeville.jpg)|
 202410140400|CocoBeach|Bateaux de pêche à Coco Beach à Goa, Inde (© Abhinav Sah/Shutterstock)|Sérénité et sable doré|![](/fr-CA/2024/10/202410140400CocoBeach.jpg)|
 202410150400|MaraMigration|Grande migration des gnous à la rivière Mara, Kenya (© Ayzenstayn/Getty Images)|L’odyssée des gnous|![](/fr-CA/2024/10/202410150400MaraMigration.jpg)|
+202410160400|FossilsDorset|Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)|Dévoiler le passé|![](/fr-CA/2024/10/202410160400FossilsDorset.jpg)|
