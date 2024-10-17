@@ -18,3 +18,4 @@
 202410142200|MaraMigration|Grande migration des gnous à la rivière Mara, Kenya (© Ayzenstayn/Getty Images)|L’odyssée des gnous|![](/fr-FR/2024/10/202410142200MaraMigration.jpg)|
 202410152200|FossilsDorset|Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)|Dévoiler le passé|![](/fr-FR/2024/10/202410152200FossilsDorset.jpg)|
 202410162200|PitonFournaise|Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)|Connaissez-vous la Diagonale des Fous ?|![](/fr-FR/2024/10/202410162200PitonFournaise.jpg)|
+202410172200|CentralParkAutumn|Automne à Central Park, Manhattan, New York, États-Unis (© mapman/Shutterstock)|New York en habits d’automne|![](/fr-FR/2024/10/202410172200CentralParkAutumn.jpg)|
