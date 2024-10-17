@@ -18,3 +18,4 @@
 202410142300|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|The race for life|![](/en-GB/2024/10/202410142300MaraMigration.jpg)|
 202410152300|FossilsDorset|Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy Stock Photo)|Unearthing the past|![](/en-GB/2024/10/202410152300FossilsDorset.jpg)|
 202410162300|KochiaJapan|Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)|Rolling into autumn|![](/en-GB/2024/10/202410162300KochiaJapan.jpg)|
+202410172300|CentralParkAutumn|Autumn in Central Park, Manhattan, New York, USA (© mapman/Shutterstock)|Fall in the Mall|![](/en-GB/2024/10/202410172300CentralParkAutumn.jpg)|
