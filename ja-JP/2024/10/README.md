@@ -18,3 +18,4 @@
 202410141500|FossilsDorset|ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)|今日は「化石の日」|![](/ja-JP/2024/10/202410141500FossilsDorset.jpg)|
 202410151500|MaraMigration|マラ川を渡るヌーの群れ, ケニア (© Ayzenstayn/Getty Images)|大自然の壮大なドラマ|![](/ja-JP/2024/10/202410151500MaraMigration.jpg)|
 202410161500|CoyoteGulch|グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)|色鮮やかな砂岩のアーチ|![](/ja-JP/2024/10/202410161500CoyoteGulch.jpg)|
+202410171500|CentralParkAutumn|セントラルパーク, 米国 ニューヨーク州 (© mapman/Shutterstock)|黄金色に染まる道|![](/ja-JP/2024/10/202410171500CentralParkAutumn.jpg)|
