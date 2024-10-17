@@ -18,3 +18,4 @@
 202410140700|CocoBeach|Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)|Info|![](/en-AU/2024/10/202410140700CocoBeach.jpg)|
 202410150700|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|Info|![](/en-AU/2024/10/202410150700MaraMigration.jpg)|
 202410160700|FossilsDorset|Fossils of belemnites and ammonites, Jurassic Coast, Dorset, United Kingdom (© Nature Picture Library/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410160700FossilsDorset.jpg)|
+202410170700|KochiaJapan|Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)|Info|![](/en-AU/2024/10/202410170700KochiaJapan.jpg)|
