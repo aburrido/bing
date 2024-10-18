@@ -19,3 +19,4 @@
 202410150700|MaraMigration|Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)|The race for life|![](/en-US/2024/10/202410150700MaraMigration.jpg)|
 202410160700|FossilsDorset|Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)|Unearthing the past|![](/en-US/2024/10/202410160700FossilsDorset.jpg)|
 202410170700|MarsDunes|Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)|Astronauts, grab your skis!|![](/en-US/2024/10/202410170700MarsDunes.jpg)|
+202410180700|CentralParkAutumn|Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)|Falling for Central Park|![](/en-US/2024/10/202410180700CentralParkAutumn.jpg)|
