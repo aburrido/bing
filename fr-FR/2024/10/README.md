@@ -19,3 +19,4 @@
 202410152200|FossilsDorset|Fossiles de bélemnites et d'ammonites, côte jurassique, Dorset, Royaume-Uni (© Nature Picture Library/Alamy)|Dévoiler le passé|![](/fr-FR/2024/10/202410152200FossilsDorset.jpg)|
 202410162200|PitonFournaise|Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)|Connaissez-vous la Diagonale des Fous ?|![](/fr-FR/2024/10/202410162200PitonFournaise.jpg)|
 202410172200|CentralParkAutumn|Automne à Central Park, Manhattan, New York, États-Unis (© mapman/Shutterstock)|New York en habits d’automne|![](/fr-FR/2024/10/202410172200CentralParkAutumn.jpg)|
+202410182200|DenderaTemple|Temple d'Hathor, complexe du temple de Dendera, Qena, Égypte (© Nick Brundle Photography/Getty Images)|Dévoiler la grandeur du passé|![](/fr-FR/2024/10/202410182200DenderaTemple.jpg)|
