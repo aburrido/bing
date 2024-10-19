@@ -20,3 +20,4 @@
 202410161830|KochiaJapan|Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)|Rolling into fall|![](/en-IN/2024/10/202410161830KochiaJapan.jpg)|
 202410171830|CentralParkAutumn|Autumn in Central Park, Manhattan, New York, USA (© mapman/Shutterstock)|Fall in the Mall|![](/en-IN/2024/10/202410171830CentralParkAutumn.jpg)|
 202410181830|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Uncovering the past for the present|![](/en-IN/2024/10/202410181830DenderaTemple.jpg)|
+202410191830|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-IN/2024/10/202410191830SmilingSloth.jpg)|
