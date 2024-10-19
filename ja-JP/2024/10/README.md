@@ -20,3 +20,4 @@
 202410161500|CoyoteGulch|グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)|色鮮やかな砂岩のアーチ|![](/ja-JP/2024/10/202410161500CoyoteGulch.jpg)|
 202410171500|CentralParkAutumn|セントラルパーク, 米国 ニューヨーク州 (© mapman/Shutterstock)|黄金色に染まる道|![](/ja-JP/2024/10/202410171500CentralParkAutumn.jpg)|
 202410181500|DenderaTemple|ハトホル神殿, エジプト ケナ県 (© Nick Brundle Photography/Getty Images)|今日は国際考古学の日|![](/ja-JP/2024/10/202410181500DenderaTemple.jpg)|
+202410191500|SmilingSloth|木の枝にぶら下がるナマケモノ, コスタリカ (© Harry Collins/Getty Images)|今日は国際ナマケモノデー|![](/ja-JP/2024/10/202410191500SmilingSloth.jpg)|
