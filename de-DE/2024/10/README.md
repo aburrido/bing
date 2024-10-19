@@ -20,3 +20,4 @@
 202410162200|KochiaJapan|Sommerzypressen, Präfektur Ibaraki, Japan (© DigiPub/Getty Images)|Japanisches Flammenmeer|![](/de-DE/2024/10/202410162200KochiaJapan.jpg)|
 202410172200|CentralParkAutumn|Herbst im Central Park, Manhattan, New York City, USA (© mapman/Shutterstock)|Herbstliche Vibes|![](/de-DE/2024/10/202410172200CentralParkAutumn.jpg)|
 202410182200|DenderaTemple|Hathortempel, Dendera-Tempelkomplex, Qena, Ägypten (© Nick Brundle Photography/Getty Images)|Auf den Spuren der Vergangenheit|![](/de-DE/2024/10/202410182200DenderaTemple.jpg)|
+202410192200|SmilingSloth|Dreizehenfaultier in Costa Rica (© Harry Collins/Getty Images)|Cool abhängen|![](/de-DE/2024/10/202410192200SmilingSloth.jpg)|

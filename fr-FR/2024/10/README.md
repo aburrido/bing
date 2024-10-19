@@ -20,3 +20,4 @@
 202410162200|PitonFournaise|Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)|Connaissez-vous la Diagonale des Fous ?|![](/fr-FR/2024/10/202410162200PitonFournaise.jpg)|
 202410172200|CentralParkAutumn|Automne à Central Park, Manhattan, New York, États-Unis (© mapman/Shutterstock)|New York en habits d’automne|![](/fr-FR/2024/10/202410172200CentralParkAutumn.jpg)|
 202410182200|DenderaTemple|Temple d'Hathor, complexe du temple de Dendera, Qena, Égypte (© Nick Brundle Photography/Getty Images)|Dévoiler la grandeur du passé|![](/fr-FR/2024/10/202410182200DenderaTemple.jpg)|
+202410192200|NuitsChampagne|Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)|Mélodies au cœur des vignes|![](/fr-FR/2024/10/202410192200NuitsChampagne.jpg)|
