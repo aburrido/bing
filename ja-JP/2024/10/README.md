@@ -21,3 +21,4 @@
 202410171500|CentralParkAutumn|セントラルパーク, 米国 ニューヨーク州 (© mapman/Shutterstock)|黄金色に染まる道|![](/ja-JP/2024/10/202410171500CentralParkAutumn.jpg)|
 202410181500|DenderaTemple|ハトホル神殿, エジプト ケナ県 (© Nick Brundle Photography/Getty Images)|今日は国際考古学の日|![](/ja-JP/2024/10/202410181500DenderaTemple.jpg)|
 202410191500|SmilingSloth|木の枝にぶら下がるナマケモノ, コスタリカ (© Harry Collins/Getty Images)|今日は国際ナマケモノデー|![](/ja-JP/2024/10/202410191500SmilingSloth.jpg)|
+202410201500|AutumnCypress|ジョージ・エル・スミス州立公園, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)|水に浮かぶ森|![](/ja-JP/2024/10/202410201500AutumnCypress.jpg)|
