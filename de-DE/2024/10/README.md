@@ -21,3 +21,4 @@
 202410172200|CentralParkAutumn|Herbst im Central Park, Manhattan, New York City, USA (© mapman/Shutterstock)|Herbstliche Vibes|![](/de-DE/2024/10/202410172200CentralParkAutumn.jpg)|
 202410182200|DenderaTemple|Hathortempel, Dendera-Tempelkomplex, Qena, Ägypten (© Nick Brundle Photography/Getty Images)|Auf den Spuren der Vergangenheit|![](/de-DE/2024/10/202410182200DenderaTemple.jpg)|
 202410192200|SmilingSloth|Dreizehenfaultier in Costa Rica (© Harry Collins/Getty Images)|Cool abhängen|![](/de-DE/2024/10/202410192200SmilingSloth.jpg)|
+202410202200|GermanyBaldeneyseeFall|Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)|Goldene Momente|![](/de-DE/2024/10/202410202200GermanyBaldeneyseeFall.jpg)|
