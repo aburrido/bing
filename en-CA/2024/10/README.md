@@ -20,3 +20,4 @@
 202410170400|KochiaJapan|Kochia, Ibaraki prefecture, Japan (© DigiPub/Getty Images)|Rolling into fall|![](/en-CA/2024/10/202410170400KochiaJapan.jpg)|
 202410180400|JasperDark|The Milky Way above Pyramid Lake, Jasper National Park, Alberta, Canada (© Salted Fish Studio/iStock/Getty Images)|Stars above, stillness below|![](/en-CA/2024/10/202410180400JasperDark.jpg)|
 202410190400|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Uncovering the past for the present|![](/en-CA/2024/10/202410190400DenderaTemple.jpg)|
+202410200400|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-CA/2024/10/202410200400SmilingSloth.jpg)|

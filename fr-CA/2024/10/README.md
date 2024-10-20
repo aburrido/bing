@@ -20,3 +20,4 @@
 202410170400|KochiaJapan|Plante kochia, préfecture d'Ibaraki, Japon (© DigiPub/Getty Images)|Vive les couleurs de l’automne !|![](/fr-CA/2024/10/202410170400KochiaJapan.jpg)|
 202410180400|JasperDark|Voie lactée au-dessus du lac Pyramid, parc national de Jasper, Alberta, Canada (© Salted Fish Studio/iStock/Getty Images)|Le ciel, les étoiles et le silence|![](/fr-CA/2024/10/202410180400JasperDark.jpg)|
 202410190400|DenderaTemple|Temple d'Hathor, complexe du temple de Dendera, Qena, Égypte (© Nick Brundle Photography/Getty Images)|Dévoiler la grandeur du passé|![](/fr-CA/2024/10/202410190400DenderaTemple.jpg)|
+202410200400|SmilingSloth|Paresseux à trois doigts au Costa Rica (© Harry Collins/Getty Images)|La paresse du paresseux|![](/fr-CA/2024/10/202410200400SmilingSloth.jpg)|
