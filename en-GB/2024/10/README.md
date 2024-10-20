@@ -21,3 +21,4 @@
 202410172300|CentralParkAutumn|Autumn in Central Park, Manhattan, New York, USA (© mapman/Shutterstock)|Fall in the Mall|![](/en-GB/2024/10/202410172300CentralParkAutumn.jpg)|
 202410182300|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Uncovering the past for the present|![](/en-GB/2024/10/202410182300DenderaTemple.jpg)|
 202410192300|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-GB/2024/10/202410192300SmilingSloth.jpg)|
+202410202300|AutumnCypress|Cypress trees in George L Smith State Park, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)|Standing tall in fall|![](/en-GB/2024/10/202410202300AutumnCypress.jpg)|
