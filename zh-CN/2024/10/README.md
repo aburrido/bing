@@ -22,3 +22,4 @@
 202410171600|CentralParkAutumn|曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)|邂逅秋日的林荫道|![](/zh-CN/2024/10/202410171600CentralParkAutumn.jpg)|
 202410181600|DenderaTemple|哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)|立足现在，发掘过去|![](/zh-CN/2024/10/202410181600DenderaTemple.jpg)|
 202410191600|SmilingSloth|哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)|坚持住|![](/zh-CN/2024/10/202410191600SmilingSloth.jpg)|
+202410201600|AutumnCypress|乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)|在秋天里傲然挺立|![](/zh-CN/2024/10/202410201600AutumnCypress.jpg)|
