@@ -21,3 +21,4 @@
 202410170700|MarsDunes|Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)|Astronauts, grab your skis!|![](/en-US/2024/10/202410170700MarsDunes.jpg)|
 202410180700|CentralParkAutumn|Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)|Falling for Central Park|![](/en-US/2024/10/202410180700CentralParkAutumn.jpg)|
 202410190700|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Uncovering the past|![](/en-US/2024/10/202410190700DenderaTemple.jpg)|
+202410200700|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-US/2024/10/202410200700SmilingSloth.jpg)|

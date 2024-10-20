@@ -21,3 +21,4 @@
 202410170700|KochiaJapan|Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)|Info|![](/en-AU/2024/10/202410170700KochiaJapan.jpg)|
 202410180700|CentralParkAutumn|Central Park, Manhattan, New York, USA (© mapman/Shutterstock)|Info|![](/en-AU/2024/10/202410180700CentralParkAutumn.jpg)|
 202410190700|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Info|![](/en-AU/2024/10/202410190700DenderaTemple.jpg)|
+202410200700|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Info|![](/en-AU/2024/10/202410200700SmilingSloth.jpg)|
