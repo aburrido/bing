@@ -22,3 +22,4 @@
 202410181500|DenderaTemple|ハトホル神殿, エジプト ケナ県 (© Nick Brundle Photography/Getty Images)|今日は国際考古学の日|![](/ja-JP/2024/10/202410181500DenderaTemple.jpg)|
 202410191500|SmilingSloth|木の枝にぶら下がるナマケモノ, コスタリカ (© Harry Collins/Getty Images)|今日は国際ナマケモノデー|![](/ja-JP/2024/10/202410191500SmilingSloth.jpg)|
 202410201500|AutumnCypress|ジョージ・エル・スミス州立公園, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)|水に浮かぶ森|![](/ja-JP/2024/10/202410201500AutumnCypress.jpg)|
+202410211500|HeianJingu2024|平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)|今日は平安遷都の日|![](/ja-JP/2024/10/202410211500HeianJingu2024.jpg)|
