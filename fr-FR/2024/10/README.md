@@ -22,3 +22,4 @@
 202410182200|DenderaTemple|Temple d'Hathor, complexe du temple de Dendera, Qena, Égypte (© Nick Brundle Photography/Getty Images)|Dévoiler la grandeur du passé|![](/fr-FR/2024/10/202410182200DenderaTemple.jpg)|
 202410192200|NuitsChampagne|Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)|Mélodies au cœur des vignes|![](/fr-FR/2024/10/202410192200NuitsChampagne.jpg)|
 202410202200|AutumnCypress|Cyprès chauves dans le parc d'État George L. Smith, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Majesté d'automne|![](/fr-FR/2024/10/202410202200AutumnCypress.jpg)|
+202410212200|MonsterDoor|Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)|Une porte « monstrueuse »|![](/fr-FR/2024/10/202410212200MonsterDoor.jpg)|
