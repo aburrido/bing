@@ -21,3 +21,4 @@
 202410180400|JasperDark|The Milky Way above Pyramid Lake, Jasper National Park, Alberta, Canada (© Salted Fish Studio/iStock/Getty Images)|Stars above, stillness below|![](/en-CA/2024/10/202410180400JasperDark.jpg)|
 202410190400|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Uncovering the past for the present|![](/en-CA/2024/10/202410190400DenderaTemple.jpg)|
 202410200400|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-CA/2024/10/202410200400SmilingSloth.jpg)|
+202410210400|AutumnCypress|Cypress trees in George L. Smith State Park, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)|Standing tall in fall|![](/en-CA/2024/10/202410210400AutumnCypress.jpg)|
