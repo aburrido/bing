@@ -22,3 +22,4 @@
 202410190400|DenderaTemple|Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)|Uncovering the past for the present|![](/en-CA/2024/10/202410190400DenderaTemple.jpg)|
 202410200400|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-CA/2024/10/202410200400SmilingSloth.jpg)|
 202410210400|AutumnCypress|Cypress trees in George L. Smith State Park, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)|Standing tall in fall|![](/en-CA/2024/10/202410210400AutumnCypress.jpg)|
+202410220400|MonsterDoor|Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)|Fearsome façade|![](/en-CA/2024/10/202410220400MonsterDoor.jpg)|

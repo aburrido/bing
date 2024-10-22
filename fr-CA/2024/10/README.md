@@ -22,3 +22,4 @@
 202410190400|DenderaTemple|Temple d'Hathor, complexe du temple de Dendera, Qena, Égypte (© Nick Brundle Photography/Getty Images)|Dévoiler la grandeur du passé|![](/fr-CA/2024/10/202410190400DenderaTemple.jpg)|
 202410200400|SmilingSloth|Paresseux à trois doigts au Costa Rica (© Harry Collins/Getty Images)|La paresse du paresseux|![](/fr-CA/2024/10/202410200400SmilingSloth.jpg)|
 202410210400|AutumnCypress|Cyprès chauves dans le parc d'État George L. Smith, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Majesté d'automne|![](/fr-CA/2024/10/202410210400AutumnCypress.jpg)|
+202410220400|MonsterDoor|Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)|Une porte « monstrueuse »|![](/fr-CA/2024/10/202410220400MonsterDoor.jpg)|
