@@ -23,3 +23,4 @@
 202410192200|SmilingSloth|Dreizehenfaultier in Costa Rica (© Harry Collins/Getty Images)|Cool abhängen|![](/de-DE/2024/10/202410192200SmilingSloth.jpg)|
 202410202200|GermanyBaldeneyseeFall|Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)|Goldene Momente|![](/de-DE/2024/10/202410202200GermanyBaldeneyseeFall.jpg)|
 202410212200|MonsterDoor|Palazzo Zuccari, Rom, Italien (© Photon-Photos/Getty Images)|Groteske Gesichter|![](/de-DE/2024/10/202410212200MonsterDoor.jpg)|
+202410222200|MadameSherriCastle|Madame Sherri Forest und die Überreste einer alten Burg, New Hampshire, USA (© yggdrasill/Shutterstock)|Eine Treppe zum Himmel|![](/de-DE/2024/10/202410222200MadameSherriCastle.jpg)|
