@@ -24,3 +24,4 @@
 202410191600|SmilingSloth|哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)|坚持住|![](/zh-CN/2024/10/202410191600SmilingSloth.jpg)|
 202410201600|AutumnCypress|乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)|在秋天里傲然挺立|![](/zh-CN/2024/10/202410201600AutumnCypress.jpg)|
 202410211600|MonsterDoor|祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)|可怕的外墙|![](/zh-CN/2024/10/202410211600MonsterDoor.jpg)|
+202410221600|MadameSherriCastle|雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)|无处可去的阶梯|![](/zh-CN/2024/10/202410221600MadameSherriCastle.jpg)|
