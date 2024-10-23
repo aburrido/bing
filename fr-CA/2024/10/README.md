@@ -23,3 +23,4 @@
 202410200400|SmilingSloth|Paresseux à trois doigts au Costa Rica (© Harry Collins/Getty Images)|La paresse du paresseux|![](/fr-CA/2024/10/202410200400SmilingSloth.jpg)|
 202410210400|AutumnCypress|Cyprès chauves dans le parc d'État George L. Smith, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Majesté d'automne|![](/fr-CA/2024/10/202410210400AutumnCypress.jpg)|
 202410220400|MonsterDoor|Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)|Une porte « monstrueuse »|![](/fr-CA/2024/10/202410220400MonsterDoor.jpg)|
+202410230400|MadameSherriCastle|Forêt de Madame Sherri et vestiges d'un ancien château, New Hampshire, États-Unis (© yggdrasill/Shutterstock)|Un escalier vers nulle part|![](/fr-CA/2024/10/202410230400MadameSherriCastle.jpg)|

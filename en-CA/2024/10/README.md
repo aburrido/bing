@@ -23,3 +23,4 @@
 202410200400|SmilingSloth|Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)|Hanging in there|![](/en-CA/2024/10/202410200400SmilingSloth.jpg)|
 202410210400|AutumnCypress|Cypress trees in George L. Smith State Park, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)|Standing tall in fall|![](/en-CA/2024/10/202410210400AutumnCypress.jpg)|
 202410220400|MonsterDoor|Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)|Fearsome façade|![](/en-CA/2024/10/202410220400MonsterDoor.jpg)|
+202410230400|MadameSherriCastle|Madame Sherri Forest and the remnant of an old castle, New Hampshire, USA (© yggdrasill/Shutterstock)|Stairway to nowhere|![](/en-CA/2024/10/202410230400MadameSherriCastle.jpg)|
