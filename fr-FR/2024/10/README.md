@@ -24,3 +24,4 @@
 202410202200|AutumnCypress|Cyprès chauves dans le parc d'État George L. Smith, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Majesté d'automne|![](/fr-FR/2024/10/202410202200AutumnCypress.jpg)|
 202410212200|MonsterDoor|Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)|Une porte « monstrueuse »|![](/fr-FR/2024/10/202410212200MonsterDoor.jpg)|
 202410222200|MadameSherriCastle|Forêt de Madame Sherri et vestiges d'un ancien château, New Hampshire, États-Unis (© yggdrasill/Shutterstock)|Un escalier vers nulle part|![](/fr-FR/2024/10/202410222200MadameSherriCastle.jpg)|
+202410232200|BodieCalifornia|Bodie State Historic Park, Mono County, Californie, États-Unis (© Julien McRoberts/Tetra Images, LLC/Alamy)|Les fantômes de la Ruée vers l'or|![](/fr-FR/2024/10/202410232200BodieCalifornia.jpg)|
