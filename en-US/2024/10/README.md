@@ -25,3 +25,4 @@
 202410210700|AutumnCypress|Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)|Standing tall in fall|![](/en-US/2024/10/202410210700AutumnCypress.jpg)|
 202410220700|MonsterDoor|Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)|Fearsome façade|![](/en-US/2024/10/202410220700MonsterDoor.jpg)|
 202410230700|MadameSherriCastle|Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)|Stairway to nowhere|![](/en-US/2024/10/202410230700MadameSherriCastle.jpg)|
+202410240700|BodieCalifornia|Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)|Ghosts of the gold rush|![](/en-US/2024/10/202410240700BodieCalifornia.jpg)|
