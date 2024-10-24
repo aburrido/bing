@@ -26,3 +26,4 @@
 202410211600|MonsterDoor|祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)|可怕的外墙|![](/zh-CN/2024/10/202410211600MonsterDoor.jpg)|
 202410221600|MadameSherriCastle|雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)|无处可去的阶梯|![](/zh-CN/2024/10/202410221600MadameSherriCastle.jpg)|
 202410231600|BodieCalifornia|博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)|“淘金热”后的鬼城|![](/zh-CN/2024/10/202410231600BodieCalifornia.jpg)|
+202410241600|MontBlancMassif|沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)|恐怖的高度|![](/zh-CN/2024/10/202410241600MontBlancMassif.jpg)|
