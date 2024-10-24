@@ -25,3 +25,4 @@
 202410211500|HeianJingu2024|平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)|今日は平安遷都の日|![](/ja-JP/2024/10/202410211500HeianJingu2024.jpg)|
 202410221500|HottaiFalls2024|紅葉に包まれた法体の滝, 秋田県 由利本荘市 (© nattya3714/Getty Images)|今日は霜降|![](/ja-JP/2024/10/202410221500HottaiFalls2024.jpg)|
 202410231500|BodieCalifornia|ボディ州立歴史公園, 米国 カリフォルニア州 (© Julien McRoberts/Tetra Images, LLC/Alamy)|ゴールドラッシュで栄えた鉱山街|![](/ja-JP/2024/10/202410231500BodieCalifornia.jpg)|
+202410241500|MontBlancMassif|シャモニー, フランス (© Simon Schöpf/Getty Images)|雲海に浮かぶ山々|![](/ja-JP/2024/10/202410241500MontBlancMassif.jpg)|
