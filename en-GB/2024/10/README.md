@@ -26,3 +26,4 @@
 202410222300|MadameSherriCastle|Madame Sherri Forest and the remnant of an old castle, New Hampshire, USA (© yggdrasill/Shutterstock)|Stairway to nowhere|![](/en-GB/2024/10/202410222300MadameSherriCastle.jpg)|
 202410232300|BodieCalifornia|Bodie State Historic Park, Mono County, California, USA (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)|Ghosts of the gold rush|![](/en-GB/2024/10/202410232300BodieCalifornia.jpg)|
 202410242300|MontBlancMassif|Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)|The heights of horror|![](/en-GB/2024/10/202410242300MontBlancMassif.jpg)|
+202410252300|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Mysterious woods by the sea|![](/en-GB/2024/10/202410252300GhostForest.jpg)|
