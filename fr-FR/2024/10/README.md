@@ -26,3 +26,4 @@
 202410222200|MadameSherriCastle|Forêt de Madame Sherri et vestiges d'un ancien château, New Hampshire, États-Unis (© yggdrasill/Shutterstock)|Un escalier vers nulle part|![](/fr-FR/2024/10/202410222200MadameSherriCastle.jpg)|
 202410232200|BodieCalifornia|Bodie State Historic Park, Mono County, Californie, États-Unis (© Julien McRoberts/Tetra Images, LLC/Alamy)|Les fantômes de la Ruée vers l'or|![](/fr-FR/2024/10/202410232200BodieCalifornia.jpg)|
 202410242200|MontBlancMassif|Massif du Mont-Blanc, Chamonix (© Simon Schöpf/Getty Images)|Quand Frankenstein rencontre les cimes du Mont-Blanc|![](/fr-FR/2024/10/202410242200MontBlancMassif.jpg)|
+202410252200|DaylightOrsay|Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)|Il est l’heure du changement d’heure !|![](/fr-FR/2024/10/202410252200DaylightOrsay.jpg)|

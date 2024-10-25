@@ -26,3 +26,4 @@
 202410222200|MadameSherriCastle|Madame Sherri Forest und die Überreste einer alten Burg, New Hampshire, USA (© yggdrasill/Shutterstock)|Eine Treppe zum Himmel|![](/de-DE/2024/10/202410222200MadameSherriCastle.jpg)|
 202410232200|HumboldtUniversityLibrary|Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)|Geometrie der Weisheit|![](/de-DE/2024/10/202410232200HumboldtUniversityLibrary.jpg)|
 202410242200|MontBlancMassif|Mont Blanc in Chamonix, Frankreich (© Simon Schöpf/Getty Images)|Ein geheimnisvoller Gipfel|![](/de-DE/2024/10/202410242200MontBlancMassif.jpg)|
+202410252200|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-Vorpommern (© mauritius images GmbH/Alamy Stock Photo)|Achtung Gespenster!|![](/de-DE/2024/10/202410252200GhostForest.jpg)|
