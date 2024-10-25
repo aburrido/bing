@@ -25,3 +25,4 @@
 202410220400|MonsterDoor|Palais Zuccari, Rome, Italie (© Photon-Photos/Getty Images)|Une porte « monstrueuse »|![](/fr-CA/2024/10/202410220400MonsterDoor.jpg)|
 202410230400|MadameSherriCastle|Forêt de Madame Sherri et vestiges d'un ancien château, New Hampshire, États-Unis (© yggdrasill/Shutterstock)|Un escalier vers nulle part|![](/fr-CA/2024/10/202410230400MadameSherriCastle.jpg)|
 202410240400|BodieCalifornia|Bodie State Historic Park, Mono County, Californie, États-Unis (© Julien McRoberts/Tetra Images, LLC/Alamy)|Les fantômes de la Ruée vers l'or|![](/fr-CA/2024/10/202410240400BodieCalifornia.jpg)|
+202410250400|MontBlancMassif|Massif du Mont-Blanc, Chamonix (© Simon Schöpf/Getty Images)|Quand Frankenstein rencontre les cimes du Mont-Blanc|![](/fr-CA/2024/10/202410250400MontBlancMassif.jpg)|
