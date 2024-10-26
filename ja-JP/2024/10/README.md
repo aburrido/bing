@@ -27,3 +27,4 @@
 202410231500|BodieCalifornia|ボディ州立歴史公園, 米国 カリフォルニア州 (© Julien McRoberts/Tetra Images, LLC/Alamy)|ゴールドラッシュで栄えた鉱山街|![](/ja-JP/2024/10/202410231500BodieCalifornia.jpg)|
 202410241500|MontBlancMassif|シャモニー, フランス (© Simon Schöpf/Getty Images)|雲海に浮かぶ山々|![](/ja-JP/2024/10/202410241500MontBlancMassif.jpg)|
 202410251500|GhostForest|ニーンハーゲンのゴーストフォレスト, ドイツ メクレンブルク ＝ フォアポンメルン州 (© mauritius images GmbH/Alamy)|バルト海沿岸の枯れた森林|![](/ja-JP/2024/10/202410251500GhostForest.jpg)|
+202410261500|PolarBearHug|寄り添うホッキョクグマの親子, カナダ マニトバ州 (© Design Pics/plainpicture)|今日から国際ホッキョクグマ週間|![](/ja-JP/2024/10/202410261500PolarBearHug.jpg)|
