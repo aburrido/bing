@@ -28,3 +28,4 @@
 202410231600|BodieCalifornia|博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)|“淘金热”后的鬼城|![](/zh-CN/2024/10/202410231600BodieCalifornia.jpg)|
 202410241600|MontBlancMassif|沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)|恐怖的高度|![](/zh-CN/2024/10/202410241600MontBlancMassif.jpg)|
 202410251600|GhostForest|幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国 (© mauritius images GmbH/Alamy Stock Photo)|海边的神秘树林|![](/zh-CN/2024/10/202410251600GhostForest.jpg)|
+202410261600|PolarBearHug|北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)|寒风中的温情|![](/zh-CN/2024/10/202410261600PolarBearHug.jpg)|
