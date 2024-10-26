@@ -27,3 +27,4 @@
 202410230700|MadameSherriCastle|Madame Sherri Forest and the remnant of an old castle, New Hampshire, USA (© yggdrasill/Shutterstock)|Info|![](/en-AU/2024/10/202410230700MadameSherriCastle.jpg)|
 202410240700|BodieCalifornia|Bodie State Historic Park, Mono County, California, USA (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410240700BodieCalifornia.jpg)|
 202410250700|MontBlancMassif|Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)|Info|![](/en-AU/2024/10/202410250700MontBlancMassif.jpg)|
+202410260700|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410260700GhostForest.jpg)|
