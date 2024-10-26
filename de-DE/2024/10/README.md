@@ -27,3 +27,4 @@
 202410232200|HumboldtUniversityLibrary|Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)|Geometrie der Weisheit|![](/de-DE/2024/10/202410232200HumboldtUniversityLibrary.jpg)|
 202410242200|MontBlancMassif|Mont Blanc in Chamonix, Frankreich (© Simon Schöpf/Getty Images)|Ein geheimnisvoller Gipfel|![](/de-DE/2024/10/202410242200MontBlancMassif.jpg)|
 202410252200|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-Vorpommern (© mauritius images GmbH/Alamy Stock Photo)|Achtung Gespenster!|![](/de-DE/2024/10/202410252200GhostForest.jpg)|
+202410262200|PolarBearHug|Eisbär mit Jungtier, Churchill, Manitoba, Kanada (© Design Pics/plainpicture)|Eine bärige Umarmung|![](/de-DE/2024/10/202410262200PolarBearHug.jpg)|
