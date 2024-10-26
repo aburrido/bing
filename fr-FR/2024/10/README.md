@@ -27,3 +27,4 @@
 202410232200|BodieCalifornia|Bodie State Historic Park, Mono County, Californie, États-Unis (© Julien McRoberts/Tetra Images, LLC/Alamy)|Les fantômes de la Ruée vers l'or|![](/fr-FR/2024/10/202410232200BodieCalifornia.jpg)|
 202410242200|MontBlancMassif|Massif du Mont-Blanc, Chamonix (© Simon Schöpf/Getty Images)|Quand Frankenstein rencontre les cimes du Mont-Blanc|![](/fr-FR/2024/10/202410242200MontBlancMassif.jpg)|
 202410252200|DaylightOrsay|Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)|Il est l’heure du changement d’heure !|![](/fr-FR/2024/10/202410252200DaylightOrsay.jpg)|
+202410262300|PolarBearHug|Ourse polaire avec son ourson, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|Rien ne vaut un gros câlin !|![](/fr-FR/2024/10/202410262300PolarBearHug.jpg)|
