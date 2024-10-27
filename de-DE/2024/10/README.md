@@ -28,3 +28,4 @@
 202410242200|MontBlancMassif|Mont Blanc in Chamonix, Frankreich (© Simon Schöpf/Getty Images)|Ein geheimnisvoller Gipfel|![](/de-DE/2024/10/202410242200MontBlancMassif.jpg)|
 202410252200|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-Vorpommern (© mauritius images GmbH/Alamy Stock Photo)|Achtung Gespenster!|![](/de-DE/2024/10/202410252200GhostForest.jpg)|
 202410262200|PolarBearHug|Eisbär mit Jungtier, Churchill, Manitoba, Kanada (© Design Pics/plainpicture)|Eine bärige Umarmung|![](/de-DE/2024/10/202410262200PolarBearHug.jpg)|
+202410272300|PumpkinMist|Kürbisfeld, Victoria, British Columbia, Kanada (© Shaun Cunningham/Alamy Stock Photo)|Die Zeit ist reif!|![](/de-DE/2024/10/202410272300PumpkinMist.jpg)|
