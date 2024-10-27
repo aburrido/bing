@@ -27,3 +27,4 @@
 202410240400|BodieCalifornia|Bodie State Historic Park, Mono County, California, USA (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)|Ghosts of the gold rush|![](/en-CA/2024/10/202410240400BodieCalifornia.jpg)|
 202410250400|MontBlancMassif|Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)|The heights of horror|![](/en-CA/2024/10/202410250400MontBlancMassif.jpg)|
 202410260400|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Mysterious woods by the sea|![](/en-CA/2024/10/202410260400GhostForest.jpg)|
+202410270400|PolarBearHug|Polar bear with cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|A mother's warmth in the cold|![](/en-CA/2024/10/202410270400PolarBearHug.jpg)|
