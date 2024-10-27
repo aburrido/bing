@@ -28,3 +28,4 @@
 202410241830|GoldenTempleIN|Golden Temple at dusk, Amritsar (© Vincent Boisvert, all right reserved/Getty Images)|A timeless glow|![](/en-IN/2024/10/202410241830GoldenTempleIN.jpg)|
 202410251830|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Mysterious woods by the sea|![](/en-IN/2024/10/202410251830GhostForest.jpg)|
 202410261830|PolarBearHug|Polar bear with cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|A mother's warmth in the cold|![](/en-IN/2024/10/202410261830PolarBearHug.jpg)|
+202410271830|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)|Pumpkins aplenty|![](/en-IN/2024/10/202410271830PumpkinMist.jpg)|
