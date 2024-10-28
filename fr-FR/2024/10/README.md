@@ -29,3 +29,4 @@
 202410252200|DaylightOrsay|Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)|Il est l’heure du changement d’heure !|![](/fr-FR/2024/10/202410252200DaylightOrsay.jpg)|
 202410262300|PolarBearHug|Ourse polaire avec son ourson, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|Rien ne vaut un gros câlin !|![](/fr-FR/2024/10/202410262300PolarBearHug.jpg)|
 202410272300|PumpkinMist|Champ de citrouilles, Victoria, Colombie-Britannique, Canada (© Shaun Cunningham/Alamy)|L’automne en citrouilles à Victoria|![](/fr-FR/2024/10/202410272300PumpkinMist.jpg)|
+202410282300|GreatOwl|Grand-duc d’Amérique (© Mark Newman/Getty Images)|L'esprit de la forêt|![](/fr-FR/2024/10/202410282300GreatOwl.jpg)|
