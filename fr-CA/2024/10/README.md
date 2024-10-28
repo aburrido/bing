@@ -28,3 +28,4 @@
 202410250400|MontBlancMassif|Massif du Mont-Blanc, Chamonix (© Simon Schöpf/Getty Images)|Quand Frankenstein rencontre les cimes du Mont-Blanc|![](/fr-CA/2024/10/202410250400MontBlancMassif.jpg)|
 202410260400|GhostForest|Fôret de Gespensterwald, Nienhagen, Mecklembourg-Poméranie-Occidentale, Allemagne (© mauritius images GmbH/Alamy)|Des arbres fantomatiques|![](/fr-CA/2024/10/202410260400GhostForest.jpg)|
 202410270400|PolarBearHug|Ourse polaire avec son ourson, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|Rien ne vaut un gros câlin!|![](/fr-CA/2024/10/202410270400PolarBearHug.jpg)|
+202410280400|PumpkinMist|Champ de citrouilles, Victoria, Colombie-Britannique, Canada (© Shaun Cunningham/Alamy)|L’automne en citrouilles à Victoria|![](/fr-CA/2024/10/202410280400PumpkinMist.jpg)|
