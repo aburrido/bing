@@ -28,3 +28,4 @@
 202410242300|MontBlancMassif|Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)|The heights of horror|![](/en-GB/2024/10/202410242300MontBlancMassif.jpg)|
 202410252300|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Mysterious woods by the sea|![](/en-GB/2024/10/202410252300GhostForest.jpg)|
 202410262300|DSTEnds2024|The Balmoral Clocktower, Edinburgh (© Puthipong Worasaran/Moment/Getty Images)|Time to set your clocks right|![](/en-GB/2024/10/202410262300DSTEnds2024.jpg)|
+202410280000|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)|It's carving time|![](/en-GB/2024/10/202410280000PumpkinMist.jpg)|
