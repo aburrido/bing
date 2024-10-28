@@ -29,3 +29,4 @@
 202410250700|MontBlancMassif|Mont Blanc in Chamonix, France (© Simon Schöpf/Getty Images)|Info|![](/en-AU/2024/10/202410250700MontBlancMassif.jpg)|
 202410260700|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410260700GhostForest.jpg)|
 202410270700|PolarBearHug|Polar bear with cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|Info|![](/en-AU/2024/10/202410270700PolarBearHug.jpg)|
+202410280700|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410280700PumpkinMist.jpg)|
