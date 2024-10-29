@@ -29,3 +29,4 @@
 202410252300|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy Stock Photo)|Mysterious woods by the sea|![](/en-GB/2024/10/202410252300GhostForest.jpg)|
 202410262300|DSTEnds2024|The Balmoral Clocktower, Edinburgh (© Puthipong Worasaran/Moment/Getty Images)|Time to set your clocks right|![](/en-GB/2024/10/202410262300DSTEnds2024.jpg)|
 202410280000|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)|It's carving time|![](/en-GB/2024/10/202410280000PumpkinMist.jpg)|
+202410290000|GreatOwl|Great horned owl (© Mark Newman/Getty Images)|Hoots and haunts|![](/en-GB/2024/10/202410290000GreatOwl.jpg)|
