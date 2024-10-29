@@ -30,3 +30,4 @@
 202410261830|PolarBearHug|Polar bear with cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|A mother's warmth in the cold|![](/en-IN/2024/10/202410261830PolarBearHug.jpg)|
 202410271830|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)|Pumpkins aplenty|![](/en-IN/2024/10/202410271830PumpkinMist.jpg)|
 202410281830|GreatOwl|Great horned owl (© Mark Newman/Getty Images)|Hoots and haunts|![](/en-IN/2024/10/202410281830GreatOwl.jpg)|
+202410291830|HauntedEdinburgh|View of Edinburgh Castle from a churchyard in Scotland, United Kingdom (© Chris Dorney/Alamy Stock Photo)|A haunting history|![](/en-IN/2024/10/202410291830HauntedEdinburgh.jpg)|
