@@ -30,3 +30,4 @@
 202410262200|PolarBearHug|Eisbär mit Jungtier, Churchill, Manitoba, Kanada (© Design Pics/plainpicture)|Eine bärige Umarmung|![](/de-DE/2024/10/202410262200PolarBearHug.jpg)|
 202410272300|PumpkinMist|Kürbisfeld, Victoria, British Columbia, Kanada (© Shaun Cunningham/Alamy Stock Photo)|Die Zeit ist reif!|![](/de-DE/2024/10/202410272300PumpkinMist.jpg)|
 202410282300|GreatOwl|Virginia-Uhu (© Mark Newman/Getty Images)|Philosophen des Waldes|![](/de-DE/2024/10/202410282300GreatOwl.jpg)|
+202410292300|HauntedEdinburgh|Blick auf Edinburgh Castle von einem Kirchhof in Schottland, Vereinigtes Königreich (© Chris Dorney/Alamy Stock Photo)|Ein verfluchtes Schloss?|![](/de-DE/2024/10/202410292300HauntedEdinburgh.jpg)|
