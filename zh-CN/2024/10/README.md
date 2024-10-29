@@ -31,3 +31,4 @@
 202410261600|PolarBearHug|北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)|寒风中的温情|![](/zh-CN/2024/10/202410261600PolarBearHug.jpg)|
 202410271600|PumpkinMist|南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)|雕刻时间到了|![](/zh-CN/2024/10/202410271600PumpkinMist.jpg)|
 202410281600|GreatOwl|大雕鸮 (© Mark Newman/Getty Images)|猫头鹰的叫声在萦绕|![](/zh-CN/2024/10/202410281600GreatOwl.jpg)|
+202410291600|HauntedEdinburgh|从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)|令人毛骨悚然的历史|![](/zh-CN/2024/10/202410291600HauntedEdinburgh.jpg)|
