@@ -30,3 +30,4 @@
 202410261500|PolarBearHug|寄り添うホッキョクグマの親子, カナダ マニトバ州 (© Design Pics/plainpicture)|今日から国際ホッキョクグマ週間|![](/ja-JP/2024/10/202410261500PolarBearHug.jpg)|
 202410271500|PumpkinMist|ビクトリアのパンプキン畑, カナダ ブリティッシュコロンビア州 (© Shaun Cunningham/Alamy)|一面オレンジの畑と朝霧|![](/ja-JP/2024/10/202410271500PumpkinMist.jpg)|
 202410281500|GreatOwl|アメリカワシミミズク (© Mark Newman/Getty Images)|暗闇のスーパーハンター|![](/ja-JP/2024/10/202410281500GreatOwl.jpg)|
+202410291500|HauntedEdinburgh|エディンバラ城, イギリス (© Chris Dorney/Alamy)|岩頸の上に建つ要塞|![](/ja-JP/2024/10/202410291500HauntedEdinburgh.jpg)|
