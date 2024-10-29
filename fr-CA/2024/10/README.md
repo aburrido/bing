@@ -29,3 +29,4 @@
 202410260400|GhostForest|Fôret de Gespensterwald, Nienhagen, Mecklembourg-Poméranie-Occidentale, Allemagne (© mauritius images GmbH/Alamy)|Des arbres fantomatiques|![](/fr-CA/2024/10/202410260400GhostForest.jpg)|
 202410270400|PolarBearHug|Ourse polaire avec son ourson, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|Rien ne vaut un gros câlin!|![](/fr-CA/2024/10/202410270400PolarBearHug.jpg)|
 202410280400|PumpkinMist|Champ de citrouilles, Victoria, Colombie-Britannique, Canada (© Shaun Cunningham/Alamy)|L’automne en citrouilles à Victoria|![](/fr-CA/2024/10/202410280400PumpkinMist.jpg)|
+202410290400|GreatOwl|Grand-duc d’Amérique (© Mark Newman/Getty Images)|L'esprit de la forêt|![](/fr-CA/2024/10/202410290400GreatOwl.jpg)|
