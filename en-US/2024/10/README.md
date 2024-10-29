@@ -30,3 +30,4 @@
 202410260700|GhostForest|Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)|Into the woods|![](/en-US/2024/10/202410260700GhostForest.jpg)|
 202410270700|PolarBearHug|Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|A mother's warmth in the cold|![](/en-US/2024/10/202410270700PolarBearHug.jpg)|
 202410280700|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)|It's carving time|![](/en-US/2024/10/202410280700PumpkinMist.jpg)|
+202410290700|GreatOwl|Great horned owl (© Mark Newman/Getty Images)|Hoots and haunts|![](/en-US/2024/10/202410290700GreatOwl.jpg)|
