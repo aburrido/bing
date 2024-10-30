@@ -31,3 +31,4 @@
 202410270700|PolarBearHug|Polar bear with cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)|Info|![](/en-AU/2024/10/202410270700PolarBearHug.jpg)|
 202410280700|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy Stock Photo)|Info|![](/en-AU/2024/10/202410280700PumpkinMist.jpg)|
 202410290700|GreatOwl|Great horned owl (© Mark Newman/Getty Images)|Info|![](/en-AU/2024/10/202410290700GreatOwl.jpg)|
+202410300700|ValleAostaGranParadiso|Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)|Info|![](/en-AU/2024/10/202410300700ValleAostaGranParadiso.jpg)|
