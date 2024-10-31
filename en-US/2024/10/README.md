@@ -32,3 +32,4 @@
 202410280700|PumpkinMist|Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)|It's carving time|![](/en-US/2024/10/202410280700PumpkinMist.jpg)|
 202410290700|GreatOwl|Great horned owl (© Mark Newman/Getty Images)|Hoots and haunts|![](/en-US/2024/10/202410290700GreatOwl.jpg)|
 202410300700|HauntedEdinburgh|View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)|A haunting history|![](/en-US/2024/10/202410300700HauntedEdinburgh.jpg)|
+202410310700|GargoyleParis|Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)|Stone-cold stares on Halloween|![](/en-US/2024/10/202410310700GargoyleParis.jpg)|
