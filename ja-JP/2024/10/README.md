@@ -32,3 +32,4 @@
 202410281500|GreatOwl|アメリカワシミミズク (© Mark Newman/Getty Images)|暗闇のスーパーハンター|![](/ja-JP/2024/10/202410281500GreatOwl.jpg)|
 202410291500|HauntedEdinburgh|エディンバラ城, イギリス (© Chris Dorney/Alamy)|岩頸の上に建つ要塞|![](/ja-JP/2024/10/202410291500HauntedEdinburgh.jpg)|
 202410301500|Halloween2024|草間彌生の「南瓜」, 香川県 香川郡 (© hedgehog111/Shutterstock)|今日はハロウィン|![](/ja-JP/2024/10/202410301500Halloween2024.jpg)|
+202410311500|LencoisMaranhao|レンソイス・マラニャンセス国立公園, ブラジル マラニャン州 (© thanosquest/Shutterstock)|白い砂丘に現れる奇跡の湖|![](/ja-JP/2024/10/202410311500LencoisMaranhao.jpg)|
