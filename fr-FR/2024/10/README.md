@@ -32,3 +32,4 @@
 202410282300|GreatOwl|Grand-duc d’Amérique (© Mark Newman/Getty Images)|L'esprit de la forêt|![](/fr-FR/2024/10/202410282300GreatOwl.jpg)|
 202410292300|HauntedEdinburgh|Vue du château d'Édimbourg depuis un cimetière en Écosse, Royaume-Uni (© Chris Dorney/Alamy)|Une histoire qui hante|![](/fr-FR/2024/10/202410292300HauntedEdinburgh.jpg)|
 202410302300|GargoyleParis|Chimères de la cathédrale Notre-Dame de Paris (© scaliger/Getty Images)|Frissons garantis !|![](/fr-FR/2024/10/202410302300GargoyleParis.jpg)|
+202410312300|VineyardsBlackForestFall|Vue aérienne de vignobles en automne, Varnhalt, Forêt-Noire, Allemagne (© Sabine Gerold/Amazing Aerial Agency)|Les vignobles de la Forêt-Noire|![](/fr-FR/2024/10/202410312300VineyardsBlackForestFall.jpg)|

@@ -32,3 +32,4 @@
 202410282300|GreatOwl|Virginia-Uhu (© Mark Newman/Getty Images)|Philosophen des Waldes|![](/de-DE/2024/10/202410282300GreatOwl.jpg)|
 202410292300|HauntedEdinburgh|Blick auf Edinburgh Castle von einem Kirchhof in Schottland, Vereinigtes Königreich (© Chris Dorney/Alamy Stock Photo)|Ein verfluchtes Schloss?|![](/de-DE/2024/10/202410292300HauntedEdinburgh.jpg)|
 202410302300|GargoyleParis|Chimäre von Notre-Dame de Paris, Frankreich (© scaliger/Getty Images)|Süßes oder Saures?|![](/de-DE/2024/10/202410302300GargoyleParis.jpg)|
+202410312300|VineyardsBlackForestFall|Luftaufnahme von Weinbergen im Herbst, Varnhalt, Schwarzwald, Baden-Württemberg (© Sabine Gerold/Amazing Aerial Agency)|Ein stolzes Erbe|![](/de-DE/2024/10/202410312300VineyardsBlackForestFall.jpg)|
