@@ -32,3 +32,4 @@
 202410281830|GreatOwl|Great horned owl (© Mark Newman/Getty Images)|Hoots and haunts|![](/en-IN/2024/10/202410281830GreatOwl.jpg)|
 202410291830|HauntedEdinburgh|View of Edinburgh Castle from a churchyard in Scotland, United Kingdom (© Chris Dorney/Alamy Stock Photo)|A haunting history|![](/en-IN/2024/10/202410291830HauntedEdinburgh.jpg)|
 202410301830|FireworksDiwali|Diwali celebrations (© Umang Gajjar/Getty Images)|Celebrating shades of light|![](/en-IN/2024/10/202410301830FireworksDiwali.jpg)|
+202410311830|LencoisMaranhao|Sunset in Lençóis Maranhenses National Park, Maranhão, Brazil (© thanosquest/Shutterstock)|Otherworldly beauty|![](/en-IN/2024/10/202410311830LencoisMaranhao.jpg)|
