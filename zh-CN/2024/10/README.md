@@ -33,3 +33,4 @@
 202410281600|GreatOwl|大雕鸮 (© Mark Newman/Getty Images)|猫头鹰的叫声在萦绕|![](/zh-CN/2024/10/202410281600GreatOwl.jpg)|
 202410291600|HauntedEdinburgh|从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)|令人毛骨悚然的历史|![](/zh-CN/2024/10/202410291600HauntedEdinburgh.jpg)|
 202410301600|GargoyleParis|巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images)|万圣节时冷冰冰的凝视|![](/zh-CN/2024/10/202410301600GargoyleParis.jpg)|
+202410311600|VineyardsBlackForestFall|秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency)|引以为豪的传统|![](/zh-CN/2024/10/202410311600VineyardsBlackForestFall.jpg)|
