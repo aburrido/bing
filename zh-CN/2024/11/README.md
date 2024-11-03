@@ -4,3 +4,4 @@
 202411011600|BisonYellowstone|黄石国家公园的美洲野牛，怀俄明州，美国 (© Ian Shive/TANDEM Stills + Motion)|从濒临灭绝到成为国家的象征|![](/zh-CN/2024/11/202411011600BisonYellowstone.jpg)|
 202411021600|YucatanBiosphere|巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures)|自然与可持续发展的结合|![](/zh-CN/2024/11/202411021600YucatanBiosphere.jpg)|
 ||||![](/zh-CN/2024/11/.jpg)|
+202411031600|CumbriaAutumn|坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images)|胜过千言万语|![](/zh-CN/2024/11/202411031600CumbriaAutumn.jpg)|
