@@ -5,3 +5,4 @@
 202411020700|BisonYellowstone|American bison in Yellowstone National Park, Wyoming, USA (© Ian Shive/TANDEM Stills + Motion)|Info|![](/en-AU/2024/11/202411020700BisonYellowstone.jpg)|
 202411030800|YucatanBiosphere|Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2024/11/202411030800YucatanBiosphere.jpg)|
 ||||![](/en-AU/2024/11/.jpg)|
+202411040800|CumbriaAutumn|Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)|Info|![](/en-AU/2024/11/202411040800CumbriaAutumn.jpg)|
