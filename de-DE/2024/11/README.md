@@ -4,3 +4,4 @@
 202411012300|BisonYellowstone|Amerikanischer Bison im Yellowstone-Nationalpark, Wyoming, USA (© Ian Shive/TANDEM Stills + Motion)|Symbol der Stärke|![](/de-DE/2024/11/202411012300BisonYellowstone.jpg)|
 202411022300|YucatanBiosphere|Flamingo-Ei im Nest, Biosphärenreservat Ría Lagartos, Yucatán, Mexiko (© Claudio Contreras/Minden Pictures)|Wo Natur auf Nachhaltigkeit trifft|![](/de-DE/2024/11/202411022300YucatanBiosphere.jpg)|
 202411032300|CumbriaAutumn|Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)|Wo Poesie und Natur aufeinandertreffen|![](/de-DE/2024/11/202411032300CumbriaAutumn.jpg)|
+202411042300|LencoisMaranhao|Sonnenuntergang im Nationalpark Lençóis Maranhenses, Maranhão, Brasilien (© thanosquest/Shutterstock)|Überirdische Schönheit|![](/de-DE/2024/11/202411042300LencoisMaranhao.jpg)|
