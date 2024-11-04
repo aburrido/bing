@@ -4,3 +4,4 @@
 202411010700|VineyardsBlackForestFall|Aerial view of vineyards in autumn, Varnhalt, Black Forest, Germany (© Sabine Gerold/Amazing Aerial Agency)|Info|![](/en-AU/2024/11/202411010700VineyardsBlackForestFall.jpg)|
 202411020700|BisonYellowstone|American bison in Yellowstone National Park, Wyoming, USA (© Ian Shive/TANDEM Stills + Motion)|Info|![](/en-AU/2024/11/202411020700BisonYellowstone.jpg)|
 202411030800|YucatanBiosphere|Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2024/11/202411030800YucatanBiosphere.jpg)|
+||||![](/en-AU/2024/11/.jpg)|
