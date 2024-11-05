@@ -6,3 +6,4 @@
 ||||![](/zh-CN/2024/11/.jpg)|
 202411031600|CumbriaAutumn|坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images)|胜过千言万语|![](/zh-CN/2024/11/202411031600CumbriaAutumn.jpg)|
 202411041600|LencoisMaranhao|马拉赫塞斯国家公园，马拉尼昂州,巴西 (© thanosquest/Shutterstock)|异世界之美|![](/zh-CN/2024/11/202411041600LencoisMaranhao.jpg)|
+202411051600|ShiShiBeach|奥林匹克国家公园石狮海滩，华盛顿州，美国 (© T.M. Schultze/TANDEM Stills + Motion)|日落的阴影|![](/zh-CN/2024/11/202411051600ShiShiBeach.jpg)|
