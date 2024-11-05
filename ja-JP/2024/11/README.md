@@ -5,3 +5,4 @@
 202411021500|YucatanBiosphere|リア・ラガルトス生物圏保護区, メキシコ ユカタン州 (© Claudio Contreras/Minden Pictures)|今日は国際生物圏保存地域の日|![](/ja-JP/2024/11/202411021500YucatanBiosphere.jpg)|
 202411031500|CumbriaAutumn|グラスミア, イングランド カンブリア州 (© Thomas Molyneux/Getty Images)|ワーズワスが過ごした美しい村|![](/ja-JP/2024/11/202411031500CumbriaAutumn.jpg)|
 202411041500|Torinoichi2024|酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)|今日は一の酉|![](/ja-JP/2024/11/202411041500Torinoichi2024.jpg)|
+202411051500|ShiShiBeach|オリンピック国立公園, 米国 ワシントン州 (© T.M. Schultze/TANDEM Stills + Motion)|海食柱で有名なシーシービーチ|![](/ja-JP/2024/11/202411051500ShiShiBeach.jpg)|
