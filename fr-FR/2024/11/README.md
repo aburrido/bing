@@ -5,3 +5,4 @@
 202411022300|YucatanBiosphere|Œufs de flamants roses des Caraïbes dans leur nid, Réserve de biosphère de Ría Lagartos, Yucatán, Mexique (© Claudio Contreras/Minden Pictures)|Quand la nature rencontre le développement durable|![](/fr-FR/2024/11/202411022300YucatanBiosphere.jpg)|
 202411032300|CumbriaAutumn|Grasmere, Lake District, Cumbria, Angleterre (© Thomas Molyneux/Getty Images)|Harmonie automnale au pied des collines|![](/fr-FR/2024/11/202411032300CumbriaAutumn.jpg)|
 202411042300|YucatanFlamingos|Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)|La flamboyance en vol|![](/fr-FR/2024/11/202411042300YucatanFlamingos.jpg)|
+202411052300|ShiShiBeach|Shi Shi Beach, Parc national Olympique, Washington, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Quand la nature s’endort|![](/fr-FR/2024/11/202411052300ShiShiBeach.jpg)|
