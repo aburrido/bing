@@ -5,3 +5,4 @@
 202411020400|BisonYellowstone|American bison in Yellowstone National Park, Wyoming, USA (© Ian Shive/TANDEM Stills + Motion)|Power and grace|![](/en-CA/2024/11/202411020400BisonYellowstone.jpg)|
 202411030400|YucatanBiosphere|Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)|Where nature meets sustainability|![](/en-CA/2024/11/202411030400YucatanBiosphere.jpg)|
 202411040500|CumbriaAutumn|Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)|Worth a thousand words|![](/en-CA/2024/11/202411040500CumbriaAutumn.jpg)|
+202411050500|LencoisMaranhao|Sunset in Lençóis Maranhenses National Park, Maranhão, Brazil (© thanosquest/Shutterstock)|Otherworldly beauty|![](/en-CA/2024/11/202411050500LencoisMaranhao.jpg)|
