@@ -6,3 +6,4 @@
 202411030800|YucatanBiosphere|Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2024/11/202411030800YucatanBiosphere.jpg)|
 ||||![](/en-AU/2024/11/.jpg)|
 202411040800|CumbriaAutumn|Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)|Info|![](/en-AU/2024/11/202411040800CumbriaAutumn.jpg)|
+202411050800|LencoisMaranhao|Sunset in Lençóis Maranhenses National Park, Maranhão, Brazil (© thanosquest/Shutterstock)|Info|![](/en-AU/2024/11/202411050800LencoisMaranhao.jpg)|
