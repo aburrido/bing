@@ -6,3 +6,4 @@
 202411032300|CumbriaAutumn|Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)|Wo Poesie und Natur aufeinandertreffen|![](/de-DE/2024/11/202411032300CumbriaAutumn.jpg)|
 202411042300|LencoisMaranhao|Sonnenuntergang im Nationalpark Lençóis Maranhenses, Maranhão, Brasilien (© thanosquest/Shutterstock)|Überirdische Schönheit|![](/de-DE/2024/11/202411042300LencoisMaranhao.jpg)|
 202411052300|ShiShiBeach|Shi Shi Beach im Olympic-Nationalpark, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)|Magie des Abendlichts|![](/de-DE/2024/11/202411052300ShiShiBeach.jpg)|
+202411062300|CanadaWolves|Kanadische Küstenwölfe im Great Bear Rainforest, British Columbia, Kanada (© Nick Garbutt/Alamy)|Wölfe in freier Wildbahn|![](/de-DE/2024/11/202411062300CanadaWolves.jpg)|
