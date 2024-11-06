@@ -5,3 +5,4 @@
 202411030000|YucatanBiosphere|Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)|Where nature meets sustainability|![](/en-GB/2024/11/202411030000YucatanBiosphere.jpg)|
 202411040000|CumbriaAutumn|Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)|Worth a thousand words|![](/en-GB/2024/11/202411040000CumbriaAutumn.jpg)|
 202411050000|GuyFawkes2024|Fireworks at Bolton Priory, North Yorkshire on Guy Fawkes Night 2015 (© Thomas Holmes/Alamy Stock Photo)|A tale of treason and tradition|![](/en-GB/2024/11/202411050000GuyFawkes2024.jpg)|
+202411060000|ShiShiBeach|Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)|Shades of sunset|![](/en-GB/2024/11/202411060000ShiShiBeach.jpg)|
