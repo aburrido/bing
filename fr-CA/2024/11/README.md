@@ -6,3 +6,4 @@
 202411030400|YucatanBiosphere|Œufs de flamants roses des Caraïbes dans leur nid, Réserve de biosphère de Ría Lagartos, Yucatán, Mexique (© Claudio Contreras/Minden Pictures)|Quand la nature rencontre le développement durable|![](/fr-CA/2024/11/202411030400YucatanBiosphere.jpg)|
 202411040500|CumbriaAutumn|Grasmere, Lake District, Cumbria, Angleterre (© Thomas Molyneux/Getty Images)|Harmonie automnale au pied des collines|![](/fr-CA/2024/11/202411040500CumbriaAutumn.jpg)|
 202411050500|LencoisMaranhao|Coucher de soleil dans le parc national de Lençóis Maranhenses, Maranhão, Brésil (© thanosquest/Shutterstock)|Un parc engagé pour la nature|![](/fr-CA/2024/11/202411050500LencoisMaranhao.jpg)|
+202411060500|ShiShiBeach|Shi Shi Beach, Parc national Olympique, Washington, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Quand la nature s’endort|![](/fr-CA/2024/11/202411060500ShiShiBeach.jpg)|
