@@ -7,3 +7,4 @@
 202411041500|Torinoichi2024|酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)|今日は一の酉|![](/ja-JP/2024/11/202411041500Torinoichi2024.jpg)|
 202411051500|ShiShiBeach|オリンピック国立公園, 米国 ワシントン州 (© T.M. Schultze/TANDEM Stills + Motion)|海食柱で有名なシーシービーチ|![](/ja-JP/2024/11/202411051500ShiShiBeach.jpg)|
 202411061500|AnserAlbifrons2024|マガンの群れ (© feathercollector/Shutterstock)|今日は立冬|![](/ja-JP/2024/11/202411061500AnserAlbifrons2024.jpg)|
+202411071500|GlacialRivers|氷河河川システムの航空写真, アイスランド (© rybarmarekk/Shutterstock)|氷と火の交響曲|![](/ja-JP/2024/11/202411071500GlacialRivers.jpg)|
