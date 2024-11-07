@@ -8,3 +8,4 @@
 202411052300|ShiShiBeach|Shi Shi Beach, Parc national Olympique, Washington, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Quand la nature s’endort|![](/fr-FR/2024/11/202411052300ShiShiBeach.jpg)|
 202411062300|CanadaWolves|Loups côtiers de l’île de Vancouver,  forêt pluviale du Grand Ours, Colombie-Britannique, Canada (© Nick Garbutt/Alamy)|Une espèce de loup unique|![](/fr-FR/2024/11/202411062300CanadaWolves.jpg)|
 ||||![](/fr-FR/2024/11/.jpg)|
+202411072300|GlacialRivers|Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)|De la terre de feu et de glace|![](/fr-FR/2024/11/202411072300GlacialRivers.jpg)|

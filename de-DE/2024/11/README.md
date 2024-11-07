@@ -7,3 +7,4 @@
 202411042300|LencoisMaranhao|Sonnenuntergang im Nationalpark Lençóis Maranhenses, Maranhão, Brasilien (© thanosquest/Shutterstock)|Überirdische Schönheit|![](/de-DE/2024/11/202411042300LencoisMaranhao.jpg)|
 202411052300|ShiShiBeach|Shi Shi Beach im Olympic-Nationalpark, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)|Magie des Abendlichts|![](/de-DE/2024/11/202411052300ShiShiBeach.jpg)|
 202411062300|CanadaWolves|Kanadische Küstenwölfe im Great Bear Rainforest, British Columbia, Kanada (© Nick Garbutt/Alamy)|Wölfe in freier Wildbahn|![](/de-DE/2024/11/202411062300CanadaWolves.jpg)|
+202411072300|GlacialRivers|Luftaufnahme von Gletscherflüssen in Island (© rybarmarekk/Shutterstock)|Das Land aus Feuer und Eis|![](/de-DE/2024/11/202411072300GlacialRivers.jpg)|
