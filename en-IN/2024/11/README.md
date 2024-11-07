@@ -7,3 +7,4 @@
 202411041830|AdinathTemple|Ranakpur Jain temple, Ranakpur, Rajasthan (© Anne-Marie Palmer/Alamy Stock Photo)|Sanctuary of serenity|![](/en-IN/2024/11/202411041830AdinathTemple.jpg)|
 202411051830|ShiShiBeach|Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)|Shades of sunset|![](/en-IN/2024/11/202411051830ShiShiBeach.jpg)|
 202411061830|CanadaWolves|Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy Stock Photo)|Wolves in the wild|![](/en-IN/2024/11/202411061830CanadaWolves.jpg)|
+202411071830|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|From the land of fire and ice|![](/en-IN/2024/11/202411071830GlacialRivers.jpg)|
