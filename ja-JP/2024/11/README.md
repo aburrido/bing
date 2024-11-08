@@ -8,3 +8,4 @@
 202411051500|ShiShiBeach|オリンピック国立公園, 米国 ワシントン州 (© T.M. Schultze/TANDEM Stills + Motion)|海食柱で有名なシーシービーチ|![](/ja-JP/2024/11/202411051500ShiShiBeach.jpg)|
 202411061500|AnserAlbifrons2024|マガンの群れ (© feathercollector/Shutterstock)|今日は立冬|![](/ja-JP/2024/11/202411061500AnserAlbifrons2024.jpg)|
 202411071500|GlacialRivers|氷河河川システムの航空写真, アイスランド (© rybarmarekk/Shutterstock)|氷と火の交響曲|![](/ja-JP/2024/11/202411071500GlacialRivers.jpg)|
+202411081500|MoroccoMilkyWay|アイト・ベン・ハドゥの集落, モロッコ (© Cavan Images/Getty Images)|集落の上空に広がる天の川|![](/ja-JP/2024/11/202411081500MoroccoMilkyWay.jpg)|
