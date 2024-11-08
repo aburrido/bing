@@ -9,3 +9,4 @@
 202411051600|ShiShiBeach|奥林匹克国家公园石狮海滩，华盛顿州，美国 (© T.M. Schultze/TANDEM Stills + Motion)|日落的阴影|![](/zh-CN/2024/11/202411051600ShiShiBeach.jpg)|
 202411061600|LiDong2024|金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)|初冬之美|![](/zh-CN/2024/11/202411061600LiDong2024.jpg)|
 202411071600|GlacialRivers|冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)|来自冰与火之国|![](/zh-CN/2024/11/202411071600GlacialRivers.jpg)|
+202411081600|MoroccoMilkyWay|银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)|红尘中的宇宙美景|![](/zh-CN/2024/11/202411081600MoroccoMilkyWay.jpg)|
