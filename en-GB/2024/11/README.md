@@ -8,3 +8,4 @@
 202411060000|ShiShiBeach|Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)|Shades of sunset|![](/en-GB/2024/11/202411060000ShiShiBeach.jpg)|
 202411070000|CanadaWolves|Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy Stock Photo)|Wolves in the wild|![](/en-GB/2024/11/202411070000CanadaWolves.jpg)|
 ||||![](/en-GB/2024/11/.jpg)|
+202411080000|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|From the land of fire and ice|![](/en-GB/2024/11/202411080000GlacialRivers.jpg)|
