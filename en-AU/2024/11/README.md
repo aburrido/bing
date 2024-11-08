@@ -9,3 +9,4 @@
 202411050800|LencoisMaranhao|Sunset in Lençóis Maranhenses National Park, Maranhão, Brazil (© thanosquest/Shutterstock)|Info|![](/en-AU/2024/11/202411050800LencoisMaranhao.jpg)|
 202411060800|ShiShiBeach|Shi Shi Beach in Olympic National Park, Washington, USA (© T.M. Schultze/TANDEM Stills + Motion)|Info|![](/en-AU/2024/11/202411060800ShiShiBeach.jpg)|
 202411070800|CanadaWolves|Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy Stock Photo)|Info|![](/en-AU/2024/11/202411070800CanadaWolves.jpg)|
+202411080800|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|Info|![](/en-AU/2024/11/202411080800GlacialRivers.jpg)|

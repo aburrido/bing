@@ -8,3 +8,4 @@
 202411050800|DCSunrise|Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)|Out of many, one|![](/en-US/2024/11/202411050800DCSunrise.jpg)|
 202411060800|ShiShiBeach|Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)|Shades of sunset|![](/en-US/2024/11/202411060800ShiShiBeach.jpg)|
 202411070800|CanadaWolves|Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)|Wolves in the wild|![](/en-US/2024/11/202411070800CanadaWolves.jpg)|
+202411080800|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|From the land of fire and ice|![](/en-US/2024/11/202411080800GlacialRivers.jpg)|
