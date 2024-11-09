@@ -9,3 +9,4 @@
 202411060500|ShiShiBeach|Shi Shi Beach, Parc national Olympique, Washington, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Quand la nature s’endort|![](/fr-CA/2024/11/202411060500ShiShiBeach.jpg)|
 202411070500|CanadaWolves|Loups côtiers de l’île de Vancouver,  forêt pluviale du Grand Ours, Colombie-Britannique, Canada (© Nick Garbutt/Alamy)|Une espèce de loup unique|![](/fr-CA/2024/11/202411070500CanadaWolves.jpg)|
 202411080500|GlacialRivers|Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)|De la terre de feu et de glace|![](/fr-CA/2024/11/202411080500GlacialRivers.jpg)|
+202411090500|MoroccoMilkyWay|Voie lactée, Aït Benhaddou, Maroc (© Cavan Images/Getty Images)|En route vers les étoiles|![](/fr-CA/2024/11/202411090500MoroccoMilkyWay.jpg)|
