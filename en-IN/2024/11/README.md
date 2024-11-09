@@ -9,3 +9,4 @@
 202411061830|CanadaWolves|Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy Stock Photo)|Wolves in the wild|![](/en-IN/2024/11/202411061830CanadaWolves.jpg)|
 202411071830|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|From the land of fire and ice|![](/en-IN/2024/11/202411071830GlacialRivers.jpg)|
 202411081830|MoroccoMilkyWay|Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)|Cosmic views over earthly hues|![](/en-IN/2024/11/202411081830MoroccoMilkyWay.jpg)|
+202411091830|YucatanFlamingos|Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)|Flamboyance in flight|![](/en-IN/2024/11/202411091830YucatanFlamingos.jpg)|
