@@ -10,3 +10,4 @@
 202411061600|LiDong2024|金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)|初冬之美|![](/zh-CN/2024/11/202411061600LiDong2024.jpg)|
 202411071600|GlacialRivers|冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)|来自冰与火之国|![](/zh-CN/2024/11/202411071600GlacialRivers.jpg)|
 202411081600|MoroccoMilkyWay|银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)|红尘中的宇宙美景|![](/zh-CN/2024/11/202411081600MoroccoMilkyWay.jpg)|
+202411091600|YucatanFlamingos|加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)|飞行中的火烈鸟|![](/zh-CN/2024/11/202411091600YucatanFlamingos.jpg)|
