@@ -10,3 +10,4 @@
 202411071500|GlacialRivers|氷河河川システムの航空写真, アイスランド (© rybarmarekk/Shutterstock)|氷と火の交響曲|![](/ja-JP/2024/11/202411071500GlacialRivers.jpg)|
 202411081500|MoroccoMilkyWay|アイト・ベン・ハドゥの集落, モロッコ (© Cavan Images/Getty Images)|集落の上空に広がる天の川|![](/ja-JP/2024/11/202411081500MoroccoMilkyWay.jpg)|
 202411091500|YucatanFlamingos|ユカタン半島のベニイロフラミンゴ, メキシコ  (© Claudio Contreras/NPL/Minden Pictures)|上空から見たフラミンゴたちの群舞|![](/ja-JP/2024/11/202411091500YucatanFlamingos.jpg)|
+202411101500|Banff24|バンフ国立公園,カナダ アルバータ州 (© fywPhoto 云卷云舒/Getty Images)|湖に映る雄大な山|![](/ja-JP/2024/11/202411101500Banff24.jpg)|
