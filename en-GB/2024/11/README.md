@@ -10,3 +10,4 @@
 ||||![](/en-GB/2024/11/.jpg)|
 202411080000|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|From the land of fire and ice|![](/en-GB/2024/11/202411080000GlacialRivers.jpg)|
 202411090000|MoroccoMilkyWay|Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)|Cosmic views over earthly hues|![](/en-GB/2024/11/202411090000MoroccoMilkyWay.jpg)|
+202411100000|RemembranceSunday2024|Aberystwyth war memorial, Wales (© ffotocymru/Alamy Stock Photo)|Honouring the fallen|![](/en-GB/2024/11/202411100000RemembranceSunday2024.jpg)|
