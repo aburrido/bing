@@ -10,3 +10,4 @@
 202411070500|CanadaWolves|Loups côtiers de l’île de Vancouver,  forêt pluviale du Grand Ours, Colombie-Britannique, Canada (© Nick Garbutt/Alamy)|Une espèce de loup unique|![](/fr-CA/2024/11/202411070500CanadaWolves.jpg)|
 202411080500|GlacialRivers|Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)|De la terre de feu et de glace|![](/fr-CA/2024/11/202411080500GlacialRivers.jpg)|
 202411090500|MoroccoMilkyWay|Voie lactée, Aït Benhaddou, Maroc (© Cavan Images/Getty Images)|En route vers les étoiles|![](/fr-CA/2024/11/202411090500MoroccoMilkyWay.jpg)|
+202411100500|YucatanFlamingos|Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)|La flamboyance en vol|![](/fr-CA/2024/11/202411100500YucatanFlamingos.jpg)|
