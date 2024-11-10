@@ -11,3 +11,4 @@
 202411071600|GlacialRivers|冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)|来自冰与火之国|![](/zh-CN/2024/11/202411071600GlacialRivers.jpg)|
 202411081600|MoroccoMilkyWay|银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)|红尘中的宇宙美景|![](/zh-CN/2024/11/202411081600MoroccoMilkyWay.jpg)|
 202411091600|YucatanFlamingos|加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)|飞行中的火烈鸟|![](/zh-CN/2024/11/202411091600YucatanFlamingos.jpg)|
+202411101600|Banff24|班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)|旷野里的第一片雪花|![](/zh-CN/2024/11/202411101600Banff24.jpg)|
