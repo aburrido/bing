@@ -11,3 +11,4 @@
 202411072300|GlacialRivers|Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)|De la terre de feu et de glace|![](/fr-FR/2024/11/202411072300GlacialRivers.jpg)|
 202411082300|MoroccoMilkyWay|Voie lactée, Aït Benhaddou, Maroc (© Cavan Images/Getty Images)|En route vers les étoiles|![](/fr-FR/2024/11/202411082300MoroccoMilkyWay.jpg)|
 202411092300|VendeeGlobe|Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)|La flamboyance en vol|![](/fr-FR/2024/11/202411092300VendeeGlobe.jpg)|
+202411102300|Banff24|Parc national de Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|Au cœur des Rocheuses canadiennes|![](/fr-FR/2024/11/202411102300Banff24.jpg)|

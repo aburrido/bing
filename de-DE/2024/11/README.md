@@ -10,3 +10,4 @@
 202411072300|GlacialRivers|Luftaufnahme von Gletscherflüssen in Island (© rybarmarekk/Shutterstock)|Das Land aus Feuer und Eis|![](/de-DE/2024/11/202411072300GlacialRivers.jpg)|
 202411082300|MoroccoMilkyWay|Milchstraße, Aït-Ben-Haddou, Marokko (© Cavan Images/Getty Images)|Unter dem Sternenzelt|![](/de-DE/2024/11/202411082300MoroccoMilkyWay.jpg)|
 202411092300|YucatanFlamingos|Kubaflamingos, Halbinsel Yucatán, Mexiko (© Claudio Contreras/NPL/Minden Pictures)|Eleganz in der Luft|![](/de-DE/2024/11/202411092300YucatanFlamingos.jpg)|
+202411102300|Banff24|Sonnenuntergang im Banff-Nationalpark, Alberta, Kanada (© fywPhoto 云卷云舒/Getty Images)|Winterzauber in den kanadischen Rockies|![](/de-DE/2024/11/202411102300Banff24.jpg)|
