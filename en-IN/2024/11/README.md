@@ -11,3 +11,4 @@
 202411081830|MoroccoMilkyWay|Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)|Cosmic views over earthly hues|![](/en-IN/2024/11/202411081830MoroccoMilkyWay.jpg)|
 202411091830|YucatanFlamingos|Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)|Flamboyance in flight|![](/en-IN/2024/11/202411091830YucatanFlamingos.jpg)|
 202411101830|Banff24|Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|First flakes in the wilderness|![](/en-IN/2024/11/202411101830Banff24.jpg)|
+||||![](/en-IN/2024/11/.jpg)|
