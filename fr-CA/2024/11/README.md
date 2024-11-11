@@ -11,3 +11,4 @@
 202411080500|GlacialRivers|Vue aérienne de rivières glacières, Islande (© rybarmarekk/Shutterstock)|De la terre de feu et de glace|![](/fr-CA/2024/11/202411080500GlacialRivers.jpg)|
 202411090500|MoroccoMilkyWay|Voie lactée, Aït Benhaddou, Maroc (© Cavan Images/Getty Images)|En route vers les étoiles|![](/fr-CA/2024/11/202411090500MoroccoMilkyWay.jpg)|
 202411100500|YucatanFlamingos|Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)|La flamboyance en vol|![](/fr-CA/2024/11/202411100500YucatanFlamingos.jpg)|
+202411110500|Banff24|Parc national de Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|Au cœur des Rocheuses canadiennes|![](/fr-CA/2024/11/202411110500Banff24.jpg)|
