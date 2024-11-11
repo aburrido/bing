@@ -12,3 +12,4 @@
 202411080800|GlacialRivers|Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)|Info|![](/en-AU/2024/11/202411080800GlacialRivers.jpg)|
 202411090800|MoroccoMilkyWay|Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)|Info|![](/en-AU/2024/11/202411090800MoroccoMilkyWay.jpg)|
 202411100800|YucatanFlamingos|Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)|Info|![](/en-AU/2024/11/202411100800YucatanFlamingos.jpg)|
+202411110800|Banff24|Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|Info|![](/en-AU/2024/11/202411110800Banff24.jpg)|
