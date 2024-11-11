@@ -12,3 +12,4 @@
 202411092300|YucatanFlamingos|Kubaflamingos, Halbinsel Yucatán, Mexiko (© Claudio Contreras/NPL/Minden Pictures)|Eleganz in der Luft|![](/de-DE/2024/11/202411092300YucatanFlamingos.jpg)|
 202411102300|Banff24|Sonnenuntergang im Banff-Nationalpark, Alberta, Kanada (© fywPhoto 云卷云舒/Getty Images)|Winterzauber in den kanadischen Rockies|![](/de-DE/2024/11/202411102300Banff24.jpg)|
 ||||![](/de-DE/2024/11/.jpg)|
+202411112300|MoselleValleyChurchTowerFall|Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)|Magische Schleife der Natur|![](/de-DE/2024/11/202411112300MoselleValleyChurchTowerFall.jpg)|
