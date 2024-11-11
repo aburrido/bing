@@ -12,3 +12,4 @@
 202411091830|YucatanFlamingos|Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)|Flamboyance in flight|![](/en-IN/2024/11/202411091830YucatanFlamingos.jpg)|
 202411101830|Banff24|Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|First flakes in the wilderness|![](/en-IN/2024/11/202411101830Banff24.jpg)|
 ||||![](/en-IN/2024/11/.jpg)|
+202411111830|VineyardsBlackForestFall|Aerial view of vineyards, Varnhalt, Black Forest, Germany (© Sabine Gerold/Amazing Aerial Agency)|A proud heritage|![](/en-IN/2024/11/202411111830VineyardsBlackForestFall.jpg)|

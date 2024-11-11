@@ -12,3 +12,4 @@
 202411090800|MoroccoMilkyWay|Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)|Cosmic views over earthly hues|![](/en-US/2024/11/202411090800MoroccoMilkyWay.jpg)|
 202411100800|YucatanFlamingos|Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)|Flamboyance in flight|![](/en-US/2024/11/202411100800YucatanFlamingos.jpg)|
 202411110800|VeteranReflections|Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)|Heroes among us|![](/en-US/2024/11/202411110800VeteranReflections.jpg)|
+||||![](/en-US/2024/11/.jpg)|
