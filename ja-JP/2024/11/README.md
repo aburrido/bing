@@ -12,3 +12,4 @@
 202411091500|YucatanFlamingos|ユカタン半島のベニイロフラミンゴ, メキシコ  (© Claudio Contreras/NPL/Minden Pictures)|上空から見たフラミンゴたちの群舞|![](/ja-JP/2024/11/202411091500YucatanFlamingos.jpg)|
 202411101500|Banff24|バンフ国立公園,カナダ アルバータ州 (© fywPhoto 云卷云舒/Getty Images)|湖に映る雄大な山|![](/ja-JP/2024/11/202411101500Banff24.jpg)|
 ||||![](/ja-JP/2024/11/.jpg)|
+202411111500|CoveArch|アーチーズ国立公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)|自然にできた砂岩のアーチ|![](/ja-JP/2024/11/202411111500CoveArch.jpg)|
