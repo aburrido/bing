@@ -13,3 +13,4 @@
 202411101500|Banff24|バンフ国立公園,カナダ アルバータ州 (© fywPhoto 云卷云舒/Getty Images)|湖に映る雄大な山|![](/ja-JP/2024/11/202411101500Banff24.jpg)|
 ||||![](/ja-JP/2024/11/.jpg)|
 202411111500|CoveArch|アーチーズ国立公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)|自然にできた砂岩のアーチ|![](/ja-JP/2024/11/202411111500CoveArch.jpg)|
+202411121500|KelpForest|海の中にある森, メキシコ バハ・カリフォルニア州  (© Claudio Contreras/Minden Pictures)|オオウキモとカリフォルニアアシカ|![](/ja-JP/2024/11/202411121500KelpForest.jpg)|
