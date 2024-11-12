@@ -13,3 +13,4 @@
 202411091600|YucatanFlamingos|加勒比火烈鸟，尤卡坦半岛，墨西哥 (© Claudio Contreras/NPL/Minden Pictures)|飞行中的火烈鸟|![](/zh-CN/2024/11/202411091600YucatanFlamingos.jpg)|
 202411101600|Banff24|班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)|旷野里的第一片雪花|![](/zh-CN/2024/11/202411101600Banff24.jpg)|
 202411111600|CoveArch|透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)|拱门之下|![](/zh-CN/2024/11/202411111600CoveArch.jpg)|
+202411121600|KelpForest|巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures)|海中的“狮子王”|![](/zh-CN/2024/11/202411121600KelpForest.jpg)|
