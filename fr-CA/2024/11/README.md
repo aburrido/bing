@@ -13,3 +13,4 @@
 202411100500|YucatanFlamingos|Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)|La flamboyance en vol|![](/fr-CA/2024/11/202411100500YucatanFlamingos.jpg)|
 202411110500|Banff24|Parc national de Banff, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|Au cœur des Rocheuses canadiennes|![](/fr-CA/2024/11/202411110500Banff24.jpg)|
 ||||![](/fr-CA/2024/11/.jpg)|
+202411120500|CoveArch|Double Arch vue à travers Cove Arch, parc national des Arches, Utah, États-Unis (© Jeff Foott/Minden Pictures)|Dans le cadre naturel des Arches|![](/fr-CA/2024/11/202411120500CoveArch.jpg)|
