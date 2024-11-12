@@ -13,3 +13,4 @@
 202411101830|Banff24|Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|First flakes in the wilderness|![](/en-IN/2024/11/202411101830Banff24.jpg)|
 ||||![](/en-IN/2024/11/.jpg)|
 202411111830|VineyardsBlackForestFall|Aerial view of vineyards, Varnhalt, Black Forest, Germany (© Sabine Gerold/Amazing Aerial Agency)|A proud heritage|![](/en-IN/2024/11/202411111830VineyardsBlackForestFall.jpg)|
+202411121830|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-IN/2024/11/202411121830KelpForest.jpg)|
