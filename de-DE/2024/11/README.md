@@ -13,3 +13,4 @@
 202411102300|Banff24|Sonnenuntergang im Banff-Nationalpark, Alberta, Kanada (© fywPhoto 云卷云舒/Getty Images)|Winterzauber in den kanadischen Rockies|![](/de-DE/2024/11/202411102300Banff24.jpg)|
 ||||![](/de-DE/2024/11/.jpg)|
 202411112300|MoselleValleyChurchTowerFall|Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)|Magische Schleife der Natur|![](/de-DE/2024/11/202411112300MoselleValleyChurchTowerFall.jpg)|
+202411122300|KelpForest|Kalifornischer Seelöwe in einem Wald aus Riesentang, Baja California, Mexiko (© Claudio Contreras/Minden Pictures)|Der König der Meere|![](/de-DE/2024/11/202411122300KelpForest.jpg)|
