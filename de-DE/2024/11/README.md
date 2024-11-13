@@ -14,3 +14,4 @@
 ||||![](/de-DE/2024/11/.jpg)|
 202411112300|MoselleValleyChurchTowerFall|Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)|Magische Schleife der Natur|![](/de-DE/2024/11/202411112300MoselleValleyChurchTowerFall.jpg)|
 202411122300|KelpForest|Kalifornischer Seelöwe in einem Wald aus Riesentang, Baja California, Mexiko (© Claudio Contreras/Minden Pictures)|Der König der Meere|![](/de-DE/2024/11/202411122300KelpForest.jpg)|
+202411132300|ManarolaItaly|Manarola, Nationalpark Cinque Terre, Ligurien, Italien (© John_Silver/Shutterstock)|Wenn Märchen wahr werden|![](/de-DE/2024/11/202411132300ManarolaItaly.jpg)|
