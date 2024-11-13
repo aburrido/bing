@@ -14,3 +14,4 @@
 ||||![](/en-IN/2024/11/.jpg)|
 202411111830|VineyardsBlackForestFall|Aerial view of vineyards, Varnhalt, Black Forest, Germany (© Sabine Gerold/Amazing Aerial Agency)|A proud heritage|![](/en-IN/2024/11/202411111830VineyardsBlackForestFall.jpg)|
 202411121830|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-IN/2024/11/202411121830KelpForest.jpg)|
+202411131830|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|A cliffside story|![](/en-IN/2024/11/202411131830ManarolaItaly.jpg)|
