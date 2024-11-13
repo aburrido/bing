@@ -14,3 +14,4 @@
 202411110800|VeteranReflections|Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)|Heroes among us|![](/en-US/2024/11/202411110800VeteranReflections.jpg)|
 ||||![](/en-US/2024/11/.jpg)|
 202411120800|CoveArch|Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)|Underneath the arches|![](/en-US/2024/11/202411120800CoveArch.jpg)|
+202411130800|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The forests of the sea|![](/en-US/2024/11/202411130800KelpForest.jpg)|
