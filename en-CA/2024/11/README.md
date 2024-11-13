@@ -14,3 +14,4 @@
 202411110500|Banff24|Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|First flakes in the wilderness|![](/en-CA/2024/11/202411110500Banff24.jpg)|
 ||||![](/en-CA/2024/11/.jpg)|
 202411120500|CoveArch|Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)|Underneath the arches|![](/en-CA/2024/11/202411120500CoveArch.jpg)|
+202411130500|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-CA/2024/11/202411130500KelpForest.jpg)|
