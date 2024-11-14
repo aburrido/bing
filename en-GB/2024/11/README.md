@@ -14,3 +14,4 @@
 202411110000|Banff24|Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|First flakes in the wilderness|![](/en-GB/2024/11/202411110000Banff24.jpg)|
 202411120000|CoveArch|Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)|Underneath the arches|![](/en-GB/2024/11/202411120000CoveArch.jpg)|
 202411130000|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-GB/2024/11/202411130000KelpForest.jpg)|
+202411140000|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|A cliffside story|![](/en-GB/2024/11/202411140000ManarolaItaly.jpg)|
