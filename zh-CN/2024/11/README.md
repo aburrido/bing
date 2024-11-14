@@ -15,3 +15,4 @@
 202411111600|CoveArch|透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)|拱门之下|![](/zh-CN/2024/11/202411111600CoveArch.jpg)|
 202411121600|KelpForest|巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures)|海中的“狮子王”|![](/zh-CN/2024/11/202411121600KelpForest.jpg)|
 202411131600|ManarolaItaly|马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock)|悬崖边的故事|![](/zh-CN/2024/11/202411131600ManarolaItaly.jpg)|
+202411141600|YiPengLanterns|义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)|愿望随灯起飞|![](/zh-CN/2024/11/202411141600YiPengLanterns.jpg)|
