@@ -15,3 +15,4 @@
 202411111830|VineyardsBlackForestFall|Aerial view of vineyards, Varnhalt, Black Forest, Germany (© Sabine Gerold/Amazing Aerial Agency)|A proud heritage|![](/en-IN/2024/11/202411111830VineyardsBlackForestFall.jpg)|
 202411121830|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-IN/2024/11/202411121830KelpForest.jpg)|
 202411131830|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|A cliffside story|![](/en-IN/2024/11/202411131830ManarolaItaly.jpg)|
+202411141830|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Hope takes flight|![](/en-IN/2024/11/202411141830YiPengLanterns.jpg)|
