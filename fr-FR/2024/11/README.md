@@ -15,3 +15,4 @@
 202411112300|Moorea|Coraux et lagon de Moorea, Polynésie française (© bru_greg/Getty Images)|Le lagon enchanté de Moorea|![](/fr-FR/2024/11/202411112300Moorea.jpg)|
 202411122300|KelpForest|Lion de mer dans une forêt de varech géant, Basse-Californie, Mexique (© Claudio Contreras/Minden Pictures)|Le roi lion des mers|![](/fr-FR/2024/11/202411122300KelpForest.jpg)|
 202411132300|ManarolaItaly|Manarola, Parc national des Cinque Terre, Ligurie, Italie (© John_Silver/Shutterstock)|Un voyage au fil des côtes|![](/fr-FR/2024/11/202411132300ManarolaItaly.jpg)|
+202411142300|YiPengLanterns|Festival des lanternes de Yi Peng, Chiang Mai, Thaïlande (© tampatra/Getty Images)|Quand l'espoir prend son envol|![](/fr-FR/2024/11/202411142300YiPengLanterns.jpg)|
