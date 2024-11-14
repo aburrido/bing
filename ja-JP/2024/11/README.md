@@ -15,3 +15,4 @@
 202411111500|CoveArch|アーチーズ国立公園, 米国 ユタ州 (© Jeff Foott/Minden Pictures)|自然にできた砂岩のアーチ|![](/ja-JP/2024/11/202411111500CoveArch.jpg)|
 202411121500|KelpForest|海の中にある森, メキシコ バハ・カリフォルニア州  (© Claudio Contreras/Minden Pictures)|オオウキモとカリフォルニアアシカ|![](/ja-JP/2024/11/202411121500KelpForest.jpg)|
 202411131500|ManarolaItaly|マナローラ,  イタリア リグーリア州 (© John_Silver/Shutterstock)|断崖絶壁にあるカラフルな漁村|![](/ja-JP/2024/11/202411131500ManarolaItaly.jpg)|
+202411141500|YiPengLanterns|夜空に浮かぶ無数の灯籠, タイ (© tampatra/Getty Images)|今日はチェンマイ・イーペン祭り|![](/ja-JP/2024/11/202411141500YiPengLanterns.jpg)|
