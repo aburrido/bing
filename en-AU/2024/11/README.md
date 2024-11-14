@@ -15,3 +15,4 @@
 202411110800|Banff24|Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)|Info|![](/en-AU/2024/11/202411110800Banff24.jpg)|
 202411120800|CoveArch|Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)|Info|![](/en-AU/2024/11/202411120800CoveArch.jpg)|
 202411130800|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2024/11/202411130800KelpForest.jpg)|
+202411140800|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|Info|![](/en-AU/2024/11/202411140800ManarolaItaly.jpg)|
