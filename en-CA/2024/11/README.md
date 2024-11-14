@@ -15,3 +15,4 @@
 ||||![](/en-CA/2024/11/.jpg)|
 202411120500|CoveArch|Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)|Underneath the arches|![](/en-CA/2024/11/202411120500CoveArch.jpg)|
 202411130500|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-CA/2024/11/202411130500KelpForest.jpg)|
+202411140500|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|A cliffside story|![](/en-CA/2024/11/202411140500ManarolaItaly.jpg)|

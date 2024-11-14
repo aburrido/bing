@@ -15,3 +15,4 @@
 ||||![](/fr-CA/2024/11/.jpg)|
 202411120500|CoveArch|Double Arch vue à travers Cove Arch, parc national des Arches, Utah, États-Unis (© Jeff Foott/Minden Pictures)|Dans le cadre naturel des Arches|![](/fr-CA/2024/11/202411120500CoveArch.jpg)|
 202411130500|KelpForest|Lion de mer dans une forêt de varech géant, Basse-Californie, Mexique (© Claudio Contreras/Minden Pictures)|Le roi lion des mers|![](/fr-CA/2024/11/202411130500KelpForest.jpg)|
+202411140500|ManarolaItaly|Manarola, Parc national des Cinque Terre, Ligurie, Italie (© John_Silver/Shutterstock)|Un voyage au fil des côtes|![](/fr-CA/2024/11/202411140500ManarolaItaly.jpg)|
