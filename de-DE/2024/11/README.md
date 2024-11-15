@@ -16,3 +16,4 @@
 202411122300|KelpForest|Kalifornischer Seelöwe in einem Wald aus Riesentang, Baja California, Mexiko (© Claudio Contreras/Minden Pictures)|Der König der Meere|![](/de-DE/2024/11/202411122300KelpForest.jpg)|
 202411132300|ManarolaItaly|Manarola, Nationalpark Cinque Terre, Ligurien, Italien (© John_Silver/Shutterstock)|Wenn Märchen wahr werden|![](/de-DE/2024/11/202411132300ManarolaItaly.jpg)|
 202411142300|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Lichter der Hoffnung|![](/de-DE/2024/11/202411142300YiPengLanterns.jpg)|
+202411152300|FrieslandNetherlands|Wattenmeerküste bei Moddergat, Friesland, Niederlande (© Ron ter Burg/Minden Pictures)|Schlick, Meer und Himmel|![](/de-DE/2024/11/202411152300FrieslandNetherlands.jpg)|
