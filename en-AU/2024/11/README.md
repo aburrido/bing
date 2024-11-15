@@ -16,3 +16,4 @@
 202411120800|CoveArch|Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)|Info|![](/en-AU/2024/11/202411120800CoveArch.jpg)|
 202411130800|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|Info|![](/en-AU/2024/11/202411130800KelpForest.jpg)|
 202411140800|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|Info|![](/en-AU/2024/11/202411140800ManarolaItaly.jpg)|
+202411150800|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Info|![](/en-AU/2024/11/202411150800YiPengLanterns.jpg)|
