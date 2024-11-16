@@ -17,3 +17,4 @@
 202411130500|KelpForest|California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)|The lion king of the sea|![](/en-CA/2024/11/202411130500KelpForest.jpg)|
 202411140500|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|A cliffside story|![](/en-CA/2024/11/202411140500ManarolaItaly.jpg)|
 202411150500|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Hope takes flight|![](/en-CA/2024/11/202411150500YiPengLanterns.jpg)|
+202411160500|FrieslandNetherlands|Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)|Mud, sea and sky|![](/en-CA/2024/11/202411160500FrieslandNetherlands.jpg)|

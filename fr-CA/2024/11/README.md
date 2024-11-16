@@ -17,3 +17,4 @@
 202411130500|KelpForest|Lion de mer dans une forêt de varech géant, Basse-Californie, Mexique (© Claudio Contreras/Minden Pictures)|Le roi lion des mers|![](/fr-CA/2024/11/202411130500KelpForest.jpg)|
 202411140500|ManarolaItaly|Manarola, Parc national des Cinque Terre, Ligurie, Italie (© John_Silver/Shutterstock)|Un voyage au fil des côtes|![](/fr-CA/2024/11/202411140500ManarolaItaly.jpg)|
 202411150500|YiPengLanterns|Festival des lanternes de Yi Peng, Chiang Mai, Thaïlande (© tampatra/Getty Images)|Quand l'espoir prend son envol|![](/fr-CA/2024/11/202411150500YiPengLanterns.jpg)|
+202411160500|FrieslandNetherlands|Le littoral de la mer des Wadden, Frise, Pays-Bas (© Ron ter Burg/Minden Pictures)|Le ciel, la mer et de la vase!|![](/fr-CA/2024/11/202411160500FrieslandNetherlands.jpg)|
