@@ -17,3 +17,4 @@
 202411131600|ManarolaItaly|马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock)|悬崖边的故事|![](/zh-CN/2024/11/202411131600ManarolaItaly.jpg)|
 202411141600|YiPengLanterns|义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)|愿望随灯起飞|![](/zh-CN/2024/11/202411141600YiPengLanterns.jpg)|
 202411151600|FrieslandNetherlands|瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰 (© Ron ter Burg/Minden Pictures)|泥土、大海和天空|![](/zh-CN/2024/11/202411151600FrieslandNetherlands.jpg)|
+202411161600|RedStag|加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)|苏格兰高地的马鹿|![](/zh-CN/2024/11/202411161600RedStag.jpg)|
