@@ -17,3 +17,4 @@
 202411132300|ManarolaItaly|Manarola, Nationalpark Cinque Terre, Ligurien, Italien (© John_Silver/Shutterstock)|Wenn Märchen wahr werden|![](/de-DE/2024/11/202411132300ManarolaItaly.jpg)|
 202411142300|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Lichter der Hoffnung|![](/de-DE/2024/11/202411142300YiPengLanterns.jpg)|
 202411152300|FrieslandNetherlands|Wattenmeerküste bei Moddergat, Friesland, Niederlande (© Ron ter Burg/Minden Pictures)|Schlick, Meer und Himmel|![](/de-DE/2024/11/202411152300FrieslandNetherlands.jpg)|
+202411162300|RedStag|Rothirsch im Caledonian Forest, Glen Affric, Schottische Highlands (© Terry Whittaker/Alamy)|König der schottischen Highlands|![](/de-DE/2024/11/202411162300RedStag.jpg)|
