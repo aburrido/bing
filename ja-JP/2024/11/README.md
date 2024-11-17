@@ -18,3 +18,4 @@
 202411141500|YiPengLanterns|夜空に浮かぶ無数の灯籠, タイ (© tampatra/Getty Images)|今日はチェンマイ・イーペン祭り|![](/ja-JP/2024/11/202411141500YiPengLanterns.jpg)|
 202411151500|FrieslandNetherlands|ワッデン海, オランダ フリースラント州 (© Ron ter Burg/Minden Pictures)|世界最大の干潟地帯|![](/ja-JP/2024/11/202411151500FrieslandNetherlands.jpg)|
 202411161500|RedStag|アフリック峡谷のアカシカ, スコットランド ハイランド地方 (© Terry Whittaker/Alamy)|森の精霊|![](/ja-JP/2024/11/202411161500RedStag.jpg)|
+202411171500|PorthcawlLighthouse|ポースコール灯台, イギリス 南ウェールズ (© Leighton Collins/Alamy)|荒波が打ち付ける灯台|![](/ja-JP/2024/11/202411171500PorthcawlLighthouse.jpg)|
