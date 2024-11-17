@@ -18,3 +18,4 @@
 202411140800|ManarolaItaly|Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)|A cliffside story|![](/en-US/2024/11/202411140800ManarolaItaly.jpg)|
 202411150800|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Hope takes flight|![](/en-US/2024/11/202411150800YiPengLanterns.jpg)|
 202411160800|FrieslandNetherlands|Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)|Mud, sea, and sky|![](/en-US/2024/11/202411160800FrieslandNetherlands.jpg)|
+202411170800|RedStag|Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)|The hart of the Highlands|![](/en-US/2024/11/202411170800RedStag.jpg)|
