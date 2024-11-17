@@ -18,3 +18,4 @@
 202411142300|YiPengLanterns|Festival des lanternes de Yi Peng, Chiang Mai, Thaïlande (© tampatra/Getty Images)|Quand l'espoir prend son envol|![](/fr-FR/2024/11/202411142300YiPengLanterns.jpg)|
 202411152300|FrieslandNetherlands|Le littoral de la mer des Wadden, Frise, Pays-Bas (© Ron ter Burg/Minden Pictures)|Le ciel, la mer et de la vase !|![](/fr-FR/2024/11/202411152300FrieslandNetherlands.jpg)|
 202411162300|RedStag|Cerf élaphe dans la forêt calédonienne, Glen Affric, Highlands, Écosse (© Terry Whittaker/Alamy)|Le maître de ces bois|![](/fr-FR/2024/11/202411162300RedStag.jpg)|
+202411172300|PorthcawlLighthouse|Phare de Porthcawl, Pays de Galles, Royaume-Uni (© Leighton Collins/Alamy)|Le gardien des mers galloises|![](/fr-FR/2024/11/202411172300PorthcawlLighthouse.jpg)|

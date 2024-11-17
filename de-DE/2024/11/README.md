@@ -18,3 +18,4 @@
 202411142300|YiPengLanterns|Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)|Lichter der Hoffnung|![](/de-DE/2024/11/202411142300YiPengLanterns.jpg)|
 202411152300|FrieslandNetherlands|Wattenmeerküste bei Moddergat, Friesland, Niederlande (© Ron ter Burg/Minden Pictures)|Schlick, Meer und Himmel|![](/de-DE/2024/11/202411152300FrieslandNetherlands.jpg)|
 202411162300|RedStag|Rothirsch im Caledonian Forest, Glen Affric, Schottische Highlands (© Terry Whittaker/Alamy)|König der schottischen Highlands|![](/de-DE/2024/11/202411162300RedStag.jpg)|
+202411172300|PorthcawlLighthouse|Porthcawl Lighthouse, Südwales, UK (© Leighton Collins/Alamy)|Seit 1860 ein treuer Wegbegleiter|![](/de-DE/2024/11/202411172300PorthcawlLighthouse.jpg)|
