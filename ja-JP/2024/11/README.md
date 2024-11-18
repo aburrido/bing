@@ -19,3 +19,4 @@
 202411151500|FrieslandNetherlands|ワッデン海, オランダ フリースラント州 (© Ron ter Burg/Minden Pictures)|世界最大の干潟地帯|![](/ja-JP/2024/11/202411151500FrieslandNetherlands.jpg)|
 202411161500|RedStag|アフリック峡谷のアカシカ, スコットランド ハイランド地方 (© Terry Whittaker/Alamy)|森の精霊|![](/ja-JP/2024/11/202411161500RedStag.jpg)|
 202411171500|PorthcawlLighthouse|ポースコール灯台, イギリス 南ウェールズ (© Leighton Collins/Alamy)|荒波が打ち付ける灯台|![](/ja-JP/2024/11/202411171500PorthcawlLighthouse.jpg)|
+202411181500|TasmansArch|タスマン国立公園, オーストラリア タスマニア州 (© Gary Bell/Minden Pictures)|自然の岩のアーチ|![](/ja-JP/2024/11/202411181500TasmansArch.jpg)|
