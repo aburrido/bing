@@ -19,3 +19,4 @@
 202411152300|FrieslandNetherlands|Wattenmeerküste bei Moddergat, Friesland, Niederlande (© Ron ter Burg/Minden Pictures)|Schlick, Meer und Himmel|![](/de-DE/2024/11/202411152300FrieslandNetherlands.jpg)|
 202411162300|RedStag|Rothirsch im Caledonian Forest, Glen Affric, Schottische Highlands (© Terry Whittaker/Alamy)|König der schottischen Highlands|![](/de-DE/2024/11/202411162300RedStag.jpg)|
 202411172300|PorthcawlLighthouse|Porthcawl Lighthouse, Südwales, UK (© Leighton Collins/Alamy)|Seit 1860 ein treuer Wegbegleiter|![](/de-DE/2024/11/202411172300PorthcawlLighthouse.jpg)|
+202411182300|GermanyEuropeanWhiteBirchAutumn|Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)|Hören Sie den Wald flüstern?|![](/de-DE/2024/11/202411182300GermanyEuropeanWhiteBirchAutumn.jpg)|
