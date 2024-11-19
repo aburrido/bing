@@ -19,3 +19,4 @@
 202411160000|FrieslandNetherlands|Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)|Mud, sea and sky|![](/en-GB/2024/11/202411160000FrieslandNetherlands.jpg)|
 202411170000|RedStag|Red deer stag in Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)|The 'hart' of the Highland|![](/en-GB/2024/11/202411170000RedStag.jpg)|
 202411180000|PorthcawlLighthouse|Porthcawl lighthouse, South Wales (© Leighton Collins/Alamy)|Guiding the way since 1860|![](/en-GB/2024/11/202411180000PorthcawlLighthouse.jpg)|
+202411190000|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|An arch that rocks|![](/en-GB/2024/11/202411190000TasmansArch.jpg)|
