@@ -20,3 +20,4 @@
 202411160500|FrieslandNetherlands|Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)|Mud, sea and sky|![](/en-CA/2024/11/202411160500FrieslandNetherlands.jpg)|
 202411170500|RedStag|Red deer stag in Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)|The 'hart' of the Highland|![](/en-CA/2024/11/202411170500RedStag.jpg)|
 202411180500|PorthcawlLighthouse|Porthcawl lighthouse, South Wales, UK (© Leighton Collins/Alamy)|Guiding the way since 1860|![](/en-CA/2024/11/202411180500PorthcawlLighthouse.jpg)|
+202411190500|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|An arch that rocks|![](/en-CA/2024/11/202411190500TasmansArch.jpg)|
