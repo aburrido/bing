@@ -20,3 +20,4 @@
 202411161830|RedStag|Red deer stag in Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)|The 'hart' of the Highland|![](/en-IN/2024/11/202411161830RedStag.jpg)|
 202411171830|PorthcawlLighthouse|Porthcawl lighthouse, South Wales, UK (© Leighton Collins/Alamy)|Guiding the way since 1860|![](/en-IN/2024/11/202411171830PorthcawlLighthouse.jpg)|
 202411181830|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|An arch that rocks|![](/en-IN/2024/11/202411181830TasmansArch.jpg)|
+202411191830|TrulliGrove|Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)|Many centuries of olive trees|![](/en-IN/2024/11/202411191830TrulliGrove.jpg)|
