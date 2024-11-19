@@ -20,3 +20,4 @@
 202411161600|RedStag|加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)|苏格兰高地的马鹿|![](/zh-CN/2024/11/202411161600RedStag.jpg)|
 202411171600|PorthcawlLighthouse|波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)|一直指引着方向|![](/zh-CN/2024/11/202411171600PorthcawlLighthouse.jpg)|
 202411181600|TasmansArch|塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)|令人震撼的拱门|![](/zh-CN/2024/11/202411181600TasmansArch.jpg)|
+202411191600|PontBordeaux|皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)|加龙河上的历史通道|![](/zh-CN/2024/11/202411191600PontBordeaux.jpg)|
