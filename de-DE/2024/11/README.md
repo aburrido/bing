@@ -21,3 +21,4 @@
 202411172300|PorthcawlLighthouse|Porthcawl Lighthouse, Südwales, UK (© Leighton Collins/Alamy)|Seit 1860 ein treuer Wegbegleiter|![](/de-DE/2024/11/202411172300PorthcawlLighthouse.jpg)|
 202411182300|GermanyEuropeanWhiteBirchAutumn|Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)|Hören Sie den Wald flüstern?|![](/de-DE/2024/11/202411182300GermanyEuropeanWhiteBirchAutumn.jpg)|
 202411192300|BeyondSaype|Riesiges Land-Art-Gemälde „Beyond Crisis“ von Saype, Leysin, Schweiz (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Kunst im Einklang mit der Natur|![](/de-DE/2024/11/202411192300BeyondSaype.jpg)|
+202411202300|LionCubs|Zwei Löwenjunge bei Sonnenaufgang, Südafrika (© Ruan Springorum/Getty Images)|Gemeinsam stark|![](/de-DE/2024/11/202411202300LionCubs.jpg)|

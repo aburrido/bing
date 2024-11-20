@@ -21,3 +21,4 @@
 202411172300|PorthcawlLighthouse|Phare de Porthcawl, Pays de Galles, Royaume-Uni (© Leighton Collins/Alamy)|Le gardien des mers galloises|![](/fr-FR/2024/11/202411172300PorthcawlLighthouse.jpg)|
 202411182300|TasmansArch|Arche de Tasmans Tasmanie, Australie (© Gary Bell/Minden Pictures)|Une arche « diabolique »|![](/fr-FR/2024/11/202411182300TasmansArch.jpg)|
 202411192300|BeyondSaype|Fresque géante « Beyond Crisis » de Saype, Leysin, Suisse (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Un avenir à protéger, un présent à respecter|![](/fr-FR/2024/11/202411192300BeyondSaype.jpg)|
+202411202300|LionCubs|Lionceaux au lever du soleil, Afrique du Sud (© Ruan Springorum/Getty Images)|Les jeunes rois de la savane|![](/fr-FR/2024/11/202411202300LionCubs.jpg)|
