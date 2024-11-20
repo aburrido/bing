@@ -21,3 +21,4 @@
 202411171600|PorthcawlLighthouse|波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)|一直指引着方向|![](/zh-CN/2024/11/202411171600PorthcawlLighthouse.jpg)|
 202411181600|TasmansArch|塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)|令人震撼的拱门|![](/zh-CN/2024/11/202411181600TasmansArch.jpg)|
 202411191600|PontBordeaux|皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)|加龙河上的历史通道|![](/zh-CN/2024/11/202411191600PontBordeaux.jpg)|
+202411201600|LionCubs|日出时的两只小狮子，南非 (© Ruan Springorum/Getty Images)|在肩头远眺|![](/zh-CN/2024/11/202411201600LionCubs.jpg)|
