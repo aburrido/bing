@@ -21,3 +21,4 @@
 202411171500|PorthcawlLighthouse|ポースコール灯台, イギリス 南ウェールズ (© Leighton Collins/Alamy)|荒波が打ち付ける灯台|![](/ja-JP/2024/11/202411171500PorthcawlLighthouse.jpg)|
 202411181500|TasmansArch|タスマン国立公園, オーストラリア タスマニア州 (© Gary Bell/Minden Pictures)|自然の岩のアーチ|![](/ja-JP/2024/11/202411181500TasmansArch.jpg)|
 202411191500|BeyondSaype|Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|今日は世界こどもの日|![](/ja-JP/2024/11/202411191500BeyondSaype.jpg)|
+202411201500|LionCubs|寄り添う 2 頭の子ライオン, 南アフリカ (© Ruan Springorum/Getty Images)|未来のサバンナの王者|![](/ja-JP/2024/11/202411201500LionCubs.jpg)|
