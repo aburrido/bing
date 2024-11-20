@@ -21,3 +21,4 @@
 202411170800|RedStag|Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)|The hart of the Highlands|![](/en-US/2024/11/202411170800RedStag.jpg)|
 202411180800|PorthcawlLighthouse|Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)|Guiding the way since 1860|![](/en-US/2024/11/202411180800PorthcawlLighthouse.jpg)|
 202411190800|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|An arch that rocks|![](/en-US/2024/11/202411190800TasmansArch.jpg)|
+202411200800|BeyondSaype|Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|United for World Children’s Day|![](/en-US/2024/11/202411200800BeyondSaype.jpg)|
