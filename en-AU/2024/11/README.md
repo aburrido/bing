@@ -22,3 +22,4 @@
 202411180800|PorthcawlLighthouse|Porthcawl lighthouse, South Wales, UK (© Leighton Collins/Alamy)|Info|![](/en-AU/2024/11/202411180800PorthcawlLighthouse.jpg)|
 202411190800|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2024/11/202411190800TasmansArch.jpg)|
 202411200800|PontBordeaux|Pont de pierre, Bordeaux, France (© SergiyN/Getty Images)|Info|![](/en-AU/2024/11/202411200800PontBordeaux.jpg)|
+202411210800|LionCubs|Two lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)|Info|![](/en-AU/2024/11/202411210800LionCubs.jpg)|
