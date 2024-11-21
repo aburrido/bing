@@ -22,3 +22,4 @@
 202411180500|PorthcawlLighthouse|Porthcawl lighthouse, South Wales, UK (© Leighton Collins/Alamy)|Guiding the way since 1860|![](/en-CA/2024/11/202411180500PorthcawlLighthouse.jpg)|
 202411190500|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|An arch that rocks|![](/en-CA/2024/11/202411190500TasmansArch.jpg)|
 202411200500|BeyondSaype|Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Tiny hands, big dreams|![](/en-CA/2024/11/202411200500BeyondSaype.jpg)|
+202411210500|AspenTrees|Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)|Fall's flaming colours|![](/en-CA/2024/11/202411210500AspenTrees.jpg)|
