@@ -23,3 +23,4 @@
 202411192300|BeyondSaype|Riesiges Land-Art-Gemälde „Beyond Crisis“ von Saype, Leysin, Schweiz (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Kunst im Einklang mit der Natur|![](/de-DE/2024/11/202411192300BeyondSaype.jpg)|
 202411202300|LionCubs|Zwei Löwenjunge bei Sonnenaufgang, Südafrika (© Ruan Springorum/Getty Images)|Gemeinsam stark|![](/de-DE/2024/11/202411202300LionCubs.jpg)|
 202411212300|ZafraCastle|Burg Zafra, Provinz Guadalajara, Spanien (© Eduard Gene/Getty Images)|Echo der Mauern|![](/de-DE/2024/11/202411212300ZafraCastle.jpg)|
+202411222300|FibonacciAloe|Spiralförmige Aloe, Kangaroo Island, Australien (© Michael Melford/Alamy)|Verborgene Geheimnisse der Natur|![](/de-DE/2024/11/202411222300FibonacciAloe.jpg)|
