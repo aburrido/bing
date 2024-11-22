@@ -23,3 +23,4 @@
 202411191600|PontBordeaux|皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)|加龙河上的历史通道|![](/zh-CN/2024/11/202411191600PontBordeaux.jpg)|
 202411201600|LionCubs|日出时的两只小狮子，南非 (© Ruan Springorum/Getty Images)|在肩头远眺|![](/zh-CN/2024/11/202411201600LionCubs.jpg)|
 202411211600|ZafraCastle|萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)|悬崖上的城堡|![](/zh-CN/2024/11/202411211600ZafraCastle.jpg)|
+202411221600|FibonacciAloe|多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)|大自然的密码|![](/zh-CN/2024/11/202411221600FibonacciAloe.jpg)|
