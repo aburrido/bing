@@ -22,3 +22,4 @@
 202411190000|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|An arch that rocks|![](/en-GB/2024/11/202411190000TasmansArch.jpg)|
 202411200000|AssiniboineTS|Mount Assiniboine Provincial Park, British Columbia, Canada (© Jeff Lewis/TANDEM Stills + Motion)|A peak peeks through the clouds|![](/en-GB/2024/11/202411200000AssiniboineTS.jpg)|
 202411210000|LionCubs|Two lion cubs, South Africa (© Ruan Springorum/Getty Images)|A look over the shoulder|![](/en-GB/2024/11/202411210000LionCubs.jpg)|
+202411220000|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Castle on a crag|![](/en-GB/2024/11/202411220000ZafraCastle.jpg)|
