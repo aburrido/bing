@@ -23,3 +23,4 @@
 202411190800|TasmansArch|Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2024/11/202411190800TasmansArch.jpg)|
 202411200800|PontBordeaux|Pont de pierre, Bordeaux, France (© SergiyN/Getty Images)|Info|![](/en-AU/2024/11/202411200800PontBordeaux.jpg)|
 202411210800|LionCubs|Two lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)|Info|![](/en-AU/2024/11/202411210800LionCubs.jpg)|
+202411220800|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Info|![](/en-AU/2024/11/202411220800ZafraCastle.jpg)|
