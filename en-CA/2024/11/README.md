@@ -24,3 +24,4 @@
 202411200500|BeyondSaype|Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Tiny hands, big dreams|![](/en-CA/2024/11/202411200500BeyondSaype.jpg)|
 202411210500|AspenTrees|Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)|Fall's flaming colours|![](/en-CA/2024/11/202411210500AspenTrees.jpg)|
 202411220500|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Castle on a crag|![](/en-CA/2024/11/202411220500ZafraCastle.jpg)|
+202411230500|FibonacciAloe|Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)|Nature's secret code|![](/en-CA/2024/11/202411230500FibonacciAloe.jpg)|

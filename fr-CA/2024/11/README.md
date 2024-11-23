@@ -24,3 +24,4 @@
 202411200500|BeyondSaype|Fresque géante « Beyond Crisis » de Saype, Leysin, Suisse (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Un avenir à protéger, un présent à respecter|![](/fr-CA/2024/11/202411200500BeyondSaype.jpg)|
 202411210500|AspenTrees|Peupliers trembles en automne, route Stewart-Cassiar, Colombie-Britannique (© Yva Momatiuk and John Eastcott/Minden Pictures)|Les couleurs flamboyantes de l'automne|![](/fr-CA/2024/11/202411210500AspenTrees.jpg)|
 202411220500|ZafraCastle|Château de Zafra, Guadalajara, Espagne (© Eduard Gene/Getty Images)|Une fortification dans l'univers d'une série emblématique|![](/fr-CA/2024/11/202411220500ZafraCastle.jpg)|
+202411230500|FibonacciAloe|Aloès en spirale, île Kangaroo, Australie (© Michael Melford/Alamy)|Le code secret de la nature|![](/fr-CA/2024/11/202411230500FibonacciAloe.jpg)|
