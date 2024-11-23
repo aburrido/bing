@@ -24,3 +24,4 @@
 202411200800|BeyondSaype|Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|United for World Children’s Day|![](/en-US/2024/11/202411200800BeyondSaype.jpg)|
 202411210800|LionCubs|Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)|Sunrise on the savanna|![](/en-US/2024/11/202411210800LionCubs.jpg)|
 202411220800|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Castle on a crag|![](/en-US/2024/11/202411220800ZafraCastle.jpg)|
+202411230800|FibonacciAloe|Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)|Nature's secret code|![](/en-US/2024/11/202411230800FibonacciAloe.jpg)|
