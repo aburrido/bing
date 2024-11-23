@@ -24,3 +24,4 @@
 202411202300|LionCubs|Lionceaux au lever du soleil, Afrique du Sud (© Ruan Springorum/Getty Images)|Les jeunes rois de la savane|![](/fr-FR/2024/11/202411202300LionCubs.jpg)|
 202411212300|ZafraCastle|Château de Zafra, Guadalajara, Espagne (© Eduard Gene/Getty Images)|Une fortification dans l'univers d'une série emblématique|![](/fr-FR/2024/11/202411212300ZafraCastle.jpg)|
 202411222300|FibonacciAloe|Aloès en spirale, île Kangaroo, Australie (© Michael Melford/Alamy)|Le code secret de la nature|![](/fr-FR/2024/11/202411222300FibonacciAloe.jpg)|
+202411232300|ParisAutumn|Paris aux couleurs de l’automne (© encrier/Getty Images)|Découvrez les secrets de Paris en automne|![](/fr-FR/2024/11/202411232300ParisAutumn.jpg)|
