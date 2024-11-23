@@ -24,3 +24,4 @@
 202411201500|LionCubs|寄り添う 2 頭の子ライオン, 南アフリカ (© Ruan Springorum/Getty Images)|未来のサバンナの王者|![](/ja-JP/2024/11/202411201500LionCubs.jpg)|
 202411211500|Xiaoxue2024|白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)|今日は小雪|![](/ja-JP/2024/11/202411211500Xiaoxue2024.jpg)|
 202411221500|FibonacciAloe|カンガルー島のスパイラルアロエ, オーストラリア (© Michael Melford/Alamy)|今日はフィボナッチ数の日|![](/ja-JP/2024/11/202411221500FibonacciAloe.jpg)|
+202411231500|SonomaCoast|ソノマコースト州立公園, 米国 カリフォルニア州 (© Rachid Dahnoun/Tandem Stills + Motion)|海に浮かぶ岩礁群|![](/ja-JP/2024/11/202411231500SonomaCoast.jpg)|
