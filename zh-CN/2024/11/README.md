@@ -25,3 +25,4 @@
 202411211600|ZafraCastle|萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)|悬崖上的城堡|![](/zh-CN/2024/11/202411211600ZafraCastle.jpg)|
 202411221600|FibonacciAloe|多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)|大自然的密码|![](/zh-CN/2024/11/202411221600FibonacciAloe.jpg)|
 202411231600|SonomaCoast|州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)|潮汐与暮色|![](/zh-CN/2024/11/202411231600SonomaCoast.jpg)|
+202411241600|AmboseliGiraffes|马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)|野生动物的生活|![](/zh-CN/2024/11/202411241600AmboseliGiraffes.jpg)|
