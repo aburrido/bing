@@ -25,3 +25,4 @@
 202411210800|LionCubs|Two lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)|Info|![](/en-AU/2024/11/202411210800LionCubs.jpg)|
 202411220800|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Info|![](/en-AU/2024/11/202411220800ZafraCastle.jpg)|
 202411230800|FibonacciAloe|Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)|Info|![](/en-AU/2024/11/202411230800FibonacciAloe.jpg)|
+202411240800|SonomaCoast|Sonoma Coast State Park, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Info|![](/en-AU/2024/11/202411240800SonomaCoast.jpg)|
