@@ -25,3 +25,4 @@
 202411210500|AspenTrees|Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)|Fall's flaming colours|![](/en-CA/2024/11/202411210500AspenTrees.jpg)|
 202411220500|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Castle on a crag|![](/en-CA/2024/11/202411220500ZafraCastle.jpg)|
 202411230500|FibonacciAloe|Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)|Nature's secret code|![](/en-CA/2024/11/202411230500FibonacciAloe.jpg)|
+202411240500|SonomaCoast|Sonoma Coast State Park, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Tides and twilight|![](/en-CA/2024/11/202411240500SonomaCoast.jpg)|

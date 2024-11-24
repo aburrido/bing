@@ -25,3 +25,4 @@
 202411210500|AspenTrees|Peupliers trembles en automne, route Stewart-Cassiar, Colombie-Britannique (© Yva Momatiuk and John Eastcott/Minden Pictures)|Les couleurs flamboyantes de l'automne|![](/fr-CA/2024/11/202411210500AspenTrees.jpg)|
 202411220500|ZafraCastle|Château de Zafra, Guadalajara, Espagne (© Eduard Gene/Getty Images)|Une fortification dans l'univers d'une série emblématique|![](/fr-CA/2024/11/202411220500ZafraCastle.jpg)|
 202411230500|FibonacciAloe|Aloès en spirale, île Kangaroo, Australie (© Michael Melford/Alamy)|Le code secret de la nature|![](/fr-CA/2024/11/202411230500FibonacciAloe.jpg)|
+202411240500|SonomaCoast|Parc d'État de la côte de Sonoma, Californie, États-Unis (© Rachid Dahnoun/Tandem Stills + Motion)|Quand la mer rencontre la lumière|![](/fr-CA/2024/11/202411240500SonomaCoast.jpg)|
