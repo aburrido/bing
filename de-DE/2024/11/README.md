@@ -25,3 +25,4 @@
 202411212300|ZafraCastle|Burg Zafra, Provinz Guadalajara, Spanien (© Eduard Gene/Getty Images)|Echo der Mauern|![](/de-DE/2024/11/202411212300ZafraCastle.jpg)|
 202411222300|FibonacciAloe|Spiralförmige Aloe, Kangaroo Island, Australien (© Michael Melford/Alamy)|Verborgene Geheimnisse der Natur|![](/de-DE/2024/11/202411222300FibonacciAloe.jpg)|
 202411232300|SonomaCoast|Sonoma Coast State Park, Kalifornien, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Meer, Nebel und Mysterien|![](/de-DE/2024/11/202411232300SonomaCoast.jpg)|
+202411242300|RegensburgChristmasMarket|Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)|Festliche Vorfreude|![](/de-DE/2024/11/202411242300RegensburgChristmasMarket.jpg)|
