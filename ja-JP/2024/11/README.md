@@ -26,3 +26,4 @@
 202411221500|FibonacciAloe|カンガルー島のスパイラルアロエ, オーストラリア (© Michael Melford/Alamy)|今日はフィボナッチ数の日|![](/ja-JP/2024/11/202411221500FibonacciAloe.jpg)|
 202411231500|SonomaCoast|ソノマコースト州立公園, 米国 カリフォルニア州 (© Rachid Dahnoun/Tandem Stills + Motion)|海に浮かぶ岩礁群|![](/ja-JP/2024/11/202411231500SonomaCoast.jpg)|
 202411241500|AmboseliGiraffes|アンボセリ国立公園, ケニア (© Art Wolfe/DanitaDelimont.com)|広大なサバンナを歩き回るマサイキリン|![](/ja-JP/2024/11/202411241500AmboseliGiraffes.jpg)|
+202411251500|HotBathDay2024|金鱗湖の鳥居, 大分県 由布市 (© T-Mizuguchi/Shutterstock)|今日はいい風呂の日|![](/ja-JP/2024/11/202411251500HotBathDay2024.jpg)|
