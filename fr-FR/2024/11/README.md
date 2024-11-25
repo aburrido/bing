@@ -26,3 +26,4 @@
 202411222300|FibonacciAloe|Aloès en spirale, île Kangaroo, Australie (© Michael Melford/Alamy)|Le code secret de la nature|![](/fr-FR/2024/11/202411222300FibonacciAloe.jpg)|
 202411232300|ParisAutumn|Paris aux couleurs de l’automne (© encrier/Getty Images)|Découvrez les secrets de Paris en automne|![](/fr-FR/2024/11/202411232300ParisAutumn.jpg)|
 202411242300|AmboseliGiraffes|Girafes Masai, parc national d'Amboseli, Kenya (© Art Wolfe/DanitaDelimont.com)|La vie sauvage dans toute sa splendeur|![](/fr-FR/2024/11/202411242300AmboseliGiraffes.jpg)|
+202411252300|TrulliGrove|Oliveraie, vallée d'Itria, Pouilles, Italie (© Massimo Santi/Shutterstock)|Le symbole de paix et de la vie|![](/fr-FR/2024/11/202411252300TrulliGrove.jpg)|

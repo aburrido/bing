@@ -26,3 +26,4 @@
 202411222300|FibonacciAloe|Spiralförmige Aloe, Kangaroo Island, Australien (© Michael Melford/Alamy)|Verborgene Geheimnisse der Natur|![](/de-DE/2024/11/202411222300FibonacciAloe.jpg)|
 202411232300|SonomaCoast|Sonoma Coast State Park, Kalifornien, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Meer, Nebel und Mysterien|![](/de-DE/2024/11/202411232300SonomaCoast.jpg)|
 202411242300|RegensburgChristmasMarket|Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)|Festliche Vorfreude|![](/de-DE/2024/11/202411242300RegensburgChristmasMarket.jpg)|
+202411252300|TrulliGrove|Olivenhain, Valle d'Itria, Apulien, Italien (© Massimo Santi/Shutterstock)|Jahrhundertealtes Erbe|![](/de-DE/2024/11/202411252300TrulliGrove.jpg)|
