@@ -26,3 +26,4 @@
 202411220500|ZafraCastle|Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)|Castle on a crag|![](/en-CA/2024/11/202411220500ZafraCastle.jpg)|
 202411230500|FibonacciAloe|Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)|Nature's secret code|![](/en-CA/2024/11/202411230500FibonacciAloe.jpg)|
 202411240500|SonomaCoast|Sonoma Coast State Park, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Tides and twilight|![](/en-CA/2024/11/202411240500SonomaCoast.jpg)|
+202411250500|AmboseliGiraffes|Maasai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)|Life in the wild|![](/en-CA/2024/11/202411250500AmboseliGiraffes.jpg)|
