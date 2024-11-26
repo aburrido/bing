@@ -27,3 +27,4 @@
 202411231830|SonomaCoast|Sonoma Coast State Park, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Tides and twilight|![](/en-IN/2024/11/202411231830SonomaCoast.jpg)|
 202411241830|AmboseliGiraffes|Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)|Life in the wild|![](/en-IN/2024/11/202411241830AmboseliGiraffes.jpg)|
 202411251830|ConstitutionDay|Dr. B.R. Ambedkar statue, Dharwad, Karnataka (© AnilD/Shutterstock)|Sculpted vision of freedom|![](/en-IN/2024/11/202411251830ConstitutionDay.jpg)|
+202411261830|SemoisRiver|Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)|The giant's resting place|![](/en-IN/2024/11/202411261830SemoisRiver.jpg)|
