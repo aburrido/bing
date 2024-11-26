@@ -26,3 +26,4 @@
 202411230000|FibonacciAloe|Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)|Nature's secret code|![](/en-GB/2024/11/202411230000FibonacciAloe.jpg)|
 202411240000|SonomaCoast|Sonoma Coast State Park, California, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Tides and twilight|![](/en-GB/2024/11/202411240000SonomaCoast.jpg)|
 202411250000|AmboseliGiraffes|Maasai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)|Life in the wild|![](/en-GB/2024/11/202411250000AmboseliGiraffes.jpg)|
+202411260000|TrulliGrove|Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)|Many centuries of olive trees|![](/en-GB/2024/11/202411260000TrulliGrove.jpg)|
