@@ -27,3 +27,4 @@
 202411232300|SonomaCoast|Sonoma Coast State Park, Kalifornien, USA (© Rachid Dahnoun/Tandem Stills + Motion)|Meer, Nebel und Mysterien|![](/de-DE/2024/11/202411232300SonomaCoast.jpg)|
 202411242300|RegensburgChristmasMarket|Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)|Festliche Vorfreude|![](/de-DE/2024/11/202411242300RegensburgChristmasMarket.jpg)|
 202411252300|TrulliGrove|Olivenhain, Valle d'Itria, Apulien, Italien (© Massimo Santi/Shutterstock)|Jahrhundertealtes Erbe|![](/de-DE/2024/11/202411252300TrulliGrove.jpg)|
+202411262300|SemoisRiver|Tombeau du Géant im Herbst, Bouillon, Belgien (© David Briard/Getty)|Wenn Riesen rasten|![](/de-DE/2024/11/202411262300SemoisRiver.jpg)|

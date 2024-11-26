@@ -27,3 +27,4 @@
 202411232300|ParisAutumn|Paris aux couleurs de l’automne (© encrier/Getty Images)|Découvrez les secrets de Paris en automne|![](/fr-FR/2024/11/202411232300ParisAutumn.jpg)|
 202411242300|AmboseliGiraffes|Girafes Masai, parc national d'Amboseli, Kenya (© Art Wolfe/DanitaDelimont.com)|La vie sauvage dans toute sa splendeur|![](/fr-FR/2024/11/202411242300AmboseliGiraffes.jpg)|
 202411252300|TrulliGrove|Oliveraie, vallée d'Itria, Pouilles, Italie (© Massimo Santi/Shutterstock)|Le symbole de paix et de la vie|![](/fr-FR/2024/11/202411252300TrulliGrove.jpg)|
+202411262300|RaidAlyzees|Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)|Une aventure solidaire 100% féminine|![](/fr-FR/2024/11/202411262300RaidAlyzees.jpg)|
