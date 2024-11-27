@@ -28,3 +28,4 @@
 202411242300|RegensburgChristmasMarket|Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)|Festliche Vorfreude|![](/de-DE/2024/11/202411242300RegensburgChristmasMarket.jpg)|
 202411252300|TrulliGrove|Olivenhain, Valle d'Itria, Apulien, Italien (© Massimo Santi/Shutterstock)|Jahrhundertealtes Erbe|![](/de-DE/2024/11/202411252300TrulliGrove.jpg)|
 202411262300|SemoisRiver|Tombeau du Géant im Herbst, Bouillon, Belgien (© David Briard/Getty)|Wenn Riesen rasten|![](/de-DE/2024/11/202411262300SemoisRiver.jpg)|
+202411272300|AssiniboineTS|Aufklarender Sturm bei Sonnenuntergang, Mount Assiniboine Provincial Park, Kanada (© Jeff Lewis/TANDEM Stills + Motion)|Im Atem der Wolken|![](/de-DE/2024/11/202411272300AssiniboineTS.jpg)|
