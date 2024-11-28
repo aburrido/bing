@@ -29,3 +29,4 @@
 202411250800|AmboseliGiraffes|Maasai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)|Info|![](/en-AU/2024/11/202411250800AmboseliGiraffes.jpg)|
 202411260800|TrulliGrove|Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)|Info|![](/en-AU/2024/11/202411260800TrulliGrove.jpg)|
 202411270800|SemoisRiver|Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)|Info|![](/en-AU/2024/11/202411270800SemoisRiver.jpg)|
+202411280800|AssiniboineTS|Mount Assiniboine Provincial Park, British Columbia, Canada (© Jeff Lewis/TANDEM Stills + Motion)|Info|![](/en-AU/2024/11/202411280800AssiniboineTS.jpg)|
