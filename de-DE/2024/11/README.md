@@ -29,3 +29,4 @@
 202411252300|TrulliGrove|Olivenhain, Valle d'Itria, Apulien, Italien (© Massimo Santi/Shutterstock)|Jahrhundertealtes Erbe|![](/de-DE/2024/11/202411252300TrulliGrove.jpg)|
 202411262300|SemoisRiver|Tombeau du Géant im Herbst, Bouillon, Belgien (© David Briard/Getty)|Wenn Riesen rasten|![](/de-DE/2024/11/202411262300SemoisRiver.jpg)|
 202411272300|AssiniboineTS|Aufklarender Sturm bei Sonnenuntergang, Mount Assiniboine Provincial Park, Kanada (© Jeff Lewis/TANDEM Stills + Motion)|Im Atem der Wolken|![](/de-DE/2024/11/202411272300AssiniboineTS.jpg)|
+202411282300|MtStMichel|Mont-Saint-Michel, Normandie, Frankreich (© Captain Skyhigh/Getty Images)|Im Bann der Zeit und Gezeiten|![](/de-DE/2024/11/202411282300MtStMichel.jpg)|

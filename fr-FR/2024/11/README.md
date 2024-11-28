@@ -29,3 +29,4 @@
 202411252300|TrulliGrove|Oliveraie, vallée d'Itria, Pouilles, Italie (© Massimo Santi/Shutterstock)|Le symbole de paix et de la vie|![](/fr-FR/2024/11/202411252300TrulliGrove.jpg)|
 202411262300|RaidAlyzees|Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)|Une aventure solidaire 100% féminine|![](/fr-FR/2024/11/202411262300RaidAlyzees.jpg)|
 202411272300|SemoisRiver|Tombeau des Géants en automne, Bouillon, Belgique (© David Briard/Getty)|L'endroit où repose le géant|![](/fr-FR/2024/11/202411272300SemoisRiver.jpg)|
+202411282300|MtStMichel|Mont Saint-Michel, Normandie (© Captain Skyhigh/Getty Images)|Un site unique et intemporel|![](/fr-FR/2024/11/202411282300MtStMichel.jpg)|
