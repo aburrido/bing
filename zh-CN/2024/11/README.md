@@ -29,3 +29,4 @@
 202411251600|TrulliGrove|橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)|有数百年历史的橄榄树|![](/zh-CN/2024/11/202411251600TrulliGrove.jpg)|
 202411261600|SemoisRiver|秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)|巨人的安息之地|![](/zh-CN/2024/11/202411261600SemoisRiver.jpg)|
 202411271600|AssiniboineTS|日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)|山峰从云层中探出头来|![](/zh-CN/2024/11/202411271600AssiniboineTS.jpg)|
+202411281600|MtStMichel|圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images)|时间与潮汐之岛|![](/zh-CN/2024/11/202411281600MtStMichel.jpg)|
