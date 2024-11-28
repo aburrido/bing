@@ -29,3 +29,4 @@
 202411251830|ConstitutionDay|Dr. B.R. Ambedkar statue, Dharwad, Karnataka (© AnilD/Shutterstock)|Sculpted vision of freedom|![](/en-IN/2024/11/202411251830ConstitutionDay.jpg)|
 202411261830|SemoisRiver|Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)|The giant's resting place|![](/en-IN/2024/11/202411261830SemoisRiver.jpg)|
 202411271830|MurdeshwarTemple|Murudeshwara Temple, Murdeshwar, Karnataka (© Amith Nag Photography/Getty Images)|A divine night|![](/en-IN/2024/11/202411271830MurdeshwarTemple.jpg)|
+202411281830|MtStMichel|Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)|An island of time and tide|![](/en-IN/2024/11/202411281830MtStMichel.jpg)|
