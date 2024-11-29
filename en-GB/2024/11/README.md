@@ -29,3 +29,4 @@
 202411260000|TrulliGrove|Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)|Many centuries of olive trees|![](/en-GB/2024/11/202411260000TrulliGrove.jpg)|
 202411270000|SemoisRiver|Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)|The giant's resting place|![](/en-GB/2024/11/202411270000SemoisRiver.jpg)|
 202411280000|CityHall2024|City Hall, London, England (© coldsnowstorm/iStock/Getty Images)|A twist on modern architecture|![](/en-GB/2024/11/202411280000CityHall2024.jpg)|
+202411290000|MtStMichel|Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)|An island of time and tide|![](/en-GB/2024/11/202411290000MtStMichel.jpg)|
