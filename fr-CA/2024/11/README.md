@@ -30,3 +30,4 @@
 202411260500|TrulliGrove|Oliveraie, vallée d'Itria, Pouilles, Italie (© Massimo Santi/Shutterstock)|Le symbole de paix et de la vie|![](/fr-CA/2024/11/202411260500TrulliGrove.jpg)|
 202411270500|SemoisRiver|Tombeau des Géants en automne, Bouillon, Belgique (© David Briard/Getty)|L'endroit où repose le géant|![](/fr-CA/2024/11/202411270500SemoisRiver.jpg)|
 202411280500|AssiniboineTS|Tempête au coucher du soleil, parc provincial du mont Assiniboine, Colombie-Britannique (© Jeff Lewis/TANDEM Stills + Motion)|Un pic dans les nuages|![](/fr-CA/2024/11/202411280500AssiniboineTS.jpg)|
+202411290500|MtStMichel|Mont Saint-Michel, Normandie (© Captain Skyhigh/Getty Images)|Un site unique et intemporel|![](/fr-CA/2024/11/202411290500MtStMichel.jpg)|
