@@ -30,3 +30,4 @@
 202411260800|TrulliGrove|Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)|Beneath ancient olive trees|![](/en-US/2024/11/202411260800TrulliGrove.jpg)|
 202411270800|SemoisRiver|Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)|The giant's resting place|![](/en-US/2024/11/202411270800SemoisRiver.jpg)|
 202411280800|TomTurkeys|Wild turkeys, New York (© John Cancalosi/Alamy)|Stuffed with gratitude|![](/en-US/2024/11/202411280800TomTurkeys.jpg)|
+202411290800|MtStMichel|Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)|An island of time and tide|![](/en-US/2024/11/202411290800MtStMichel.jpg)|
