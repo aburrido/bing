@@ -30,3 +30,4 @@
 202411261500|SemoisRiver|セモワ川が作り出した壮大な蛇行地形, ベルギー (© David Briard/Getty)|伝説の巨人が眠る場所？|![](/ja-JP/2024/11/202411261500SemoisRiver.jpg)|
 202411271500|ZafraCastle|ザフラ城, スペイン グアダラハラ県 (© Eduard Gene/Getty Images)|岩山の上に建つ難攻不落の城|![](/ja-JP/2024/11/202411271500ZafraCastle.jpg)|
 202411281500|MtStMichel|モンサンミッシェル, フランス (© Captain Skyhigh/Getty Images)|サン・マロ湾の上に浮かぶ美しい修道院|![](/ja-JP/2024/11/202411281500MtStMichel.jpg)|
+202411291500|KilchurnAutumn|水面に映るキルチャーン城, スコットランド (© Tom Mackie/plainpicture)|今日は聖アンデレの日|![](/ja-JP/2024/11/202411291500KilchurnAutumn.jpg)|
