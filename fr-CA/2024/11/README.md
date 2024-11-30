@@ -31,3 +31,4 @@
 202411270500|SemoisRiver|Tombeau des Géants en automne, Bouillon, Belgique (© David Briard/Getty)|L'endroit où repose le géant|![](/fr-CA/2024/11/202411270500SemoisRiver.jpg)|
 202411280500|AssiniboineTS|Tempête au coucher du soleil, parc provincial du mont Assiniboine, Colombie-Britannique (© Jeff Lewis/TANDEM Stills + Motion)|Un pic dans les nuages|![](/fr-CA/2024/11/202411280500AssiniboineTS.jpg)|
 202411290500|MtStMichel|Mont Saint-Michel, Normandie (© Captain Skyhigh/Getty Images)|Un site unique et intemporel|![](/fr-CA/2024/11/202411290500MtStMichel.jpg)|
+202411300500|KilchurnAutumn|Reflet du château de Kilchurn à Loch Awe, Argyll et Bute, Écosse (© Tom Mackie/plainpicture)|Sortez vos kilts!|![](/fr-CA/2024/11/202411300500KilchurnAutumn.jpg)|

@@ -31,3 +31,4 @@
 202411270500|SemoisRiver|Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)|The giant's resting place|![](/en-CA/2024/11/202411270500SemoisRiver.jpg)|
 202411280500|AssiniboineTS|Clearing storm at sunset, Mount Assiniboine Provincial Park, Canada (© Jeff Lewis/TANDEM Stills + Motion)|A peak peeks through the clouds|![](/en-CA/2024/11/202411280500AssiniboineTS.jpg)|
 202411290500|MtStMichel|Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)|An island of time and tide|![](/en-CA/2024/11/202411290500MtStMichel.jpg)|
+202411300500|KilchurnAutumn|Kilchurn Castle reflecting in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)|Reflecting Scotland's heritage|![](/en-CA/2024/11/202411300500KilchurnAutumn.jpg)|
