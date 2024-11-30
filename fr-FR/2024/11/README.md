@@ -31,3 +31,4 @@
 202411272300|SemoisRiver|Tombeau des Géants en automne, Bouillon, Belgique (© David Briard/Getty)|L'endroit où repose le géant|![](/fr-FR/2024/11/202411272300SemoisRiver.jpg)|
 202411282300|MtStMichel|Mont Saint-Michel, Normandie (© Captain Skyhigh/Getty Images)|Un site unique et intemporel|![](/fr-FR/2024/11/202411282300MtStMichel.jpg)|
 202411292300|KilchurnAutumn|Reflet du château de Kilchurn à Loch Awe, Argyll et Bute, Écosse (© Tom Mackie/plainpicture)|Sortez vos kilts !|![](/fr-FR/2024/11/202411292300KilchurnAutumn.jpg)|
+202411302300|IcebergsAntarctica|Icebergs, Antarctique (© Art Wolfe/DanitaDelimont.com)|Protéger les dernières grandes étendues sauvages|![](/fr-FR/2024/11/202411302300IcebergsAntarctica.jpg)|

@@ -31,3 +31,4 @@
 202411272300|AssiniboineTS|Aufklarender Sturm bei Sonnenuntergang, Mount Assiniboine Provincial Park, Kanada (© Jeff Lewis/TANDEM Stills + Motion)|Im Atem der Wolken|![](/de-DE/2024/11/202411272300AssiniboineTS.jpg)|
 202411282300|MtStMichel|Mont-Saint-Michel, Normandie, Frankreich (© Captain Skyhigh/Getty Images)|Im Bann der Zeit und Gezeiten|![](/de-DE/2024/11/202411282300MtStMichel.jpg)|
 202411292300|KilchurnAutumn|Kilchurn Castle spiegelt sich im Loch Awe, Argyll und Bute, Schottland (© Tom Mackie/plainpicture)|Spiegelbild des schottischen Erbes|![](/de-DE/2024/11/202411292300KilchurnAutumn.jpg)|
+202411302300|FreudenbergHistoricHouses|Verschneite Fachwerkhäuser in Freudenberg bei Siegen, Nordrhein-Westfalen (© Thorsten Frisch/Shutterstock)|Zeit der Besinnung|![](/de-DE/2024/11/202411302300FreudenbergHistoricHouses.jpg)|
