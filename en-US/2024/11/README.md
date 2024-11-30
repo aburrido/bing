@@ -31,3 +31,4 @@
 202411270800|SemoisRiver|Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)|The giant's resting place|![](/en-US/2024/11/202411270800SemoisRiver.jpg)|
 202411280800|TomTurkeys|Wild turkeys, New York (© John Cancalosi/Alamy)|Stuffed with gratitude|![](/en-US/2024/11/202411280800TomTurkeys.jpg)|
 202411290800|MtStMichel|Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)|An island of time and tide|![](/en-US/2024/11/202411290800MtStMichel.jpg)|
+202411300800|KilchurnAutumn|Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)|Reflecting Scotland's heritage|![](/en-US/2024/11/202411300800KilchurnAutumn.jpg)|
