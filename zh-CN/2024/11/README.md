@@ -31,3 +31,4 @@
 202411271600|AssiniboineTS|日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)|山峰从云层中探出头来|![](/zh-CN/2024/11/202411271600AssiniboineTS.jpg)|
 202411281600|MtStMichel|圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images)|时间与潮汐之岛|![](/zh-CN/2024/11/202411281600MtStMichel.jpg)|
 202411291600|KilchurnAutumn|基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture)|探秘苏格兰的遗产|![](/zh-CN/2024/11/202411291600KilchurnAutumn.jpg)|
+202411301600|IcebergsAntarctica|南极洲的冰山 (© Art Wolfe/DanitaDelimont.com)|保护最后一片大荒野|![](/zh-CN/2024/11/202411301600IcebergsAntarctica.jpg)|
