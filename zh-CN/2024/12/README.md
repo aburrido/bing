@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202411301600|IcebergsAntarctica|南极洲的冰山 (© Art Wolfe/DanitaDelimont.com)|保护最后一片大荒野|![](/zh-CN/2024/12/202411301600IcebergsAntarctica.jpg)|
+202412011600|SnowMoose|雌性驼鹿，德纳里国家公园，阿拉斯加州，美国 (© Cavan Images/Alamy Stock Photo)|狂野的眼神|![](/zh-CN/2024/12/202412011600SnowMoose.jpg)|
