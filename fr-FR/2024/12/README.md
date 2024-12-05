@@ -5,3 +5,4 @@
 202412022300|JaipurFort|Sattais Katcheri, Fort d'Amber, Amer, Jaipur, Rajasthan, Inde (© Yury Taranik/Shutterstock)|Des piliers et des hommes|![](/fr-FR/2024/12/202412022300JaipurFort.jpg)|
 202412032300|RhinosKenya|Rhinocéros blancs mâles, lac Nakuru, Kenya (© Ingo Arndt/Minden Pictures)|Un animal au bord de l'extinction|![](/fr-FR/2024/12/202412032300RhinosKenya.jpg)|
 202412042300|MonoTufa|Cheminées de fées sur le lac Mono, Californie, États-Unis (© Susanna Patras/TANDEM Stills + Motion)|Un trésor géologique californien|![](/fr-FR/2024/12/202412042300MonoTufa.jpg)|
+202412052300|ColmarHoliday|Maisons traditionnelles alsaciennes à colombages et rivière Lauch Colmar, Alsace (© KavalenkavaVolha/Getty Images)|Magie Hivernale|![](/fr-FR/2024/12/202412052300ColmarHoliday.jpg)|
