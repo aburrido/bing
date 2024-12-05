@@ -5,3 +5,4 @@
 202412021830|JaipurFort|Sattais Katcheri (Court of 27 pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)|A pillared legacy|![](/en-IN/2024/12/202412021830JaipurFort.jpg)|
 202412031830|NavyDayIN|Indian Navy soldiers in front of the Gateway of India, Mumbai (© Danish Siddiqui/REUTERS)|Anchors aweigh to honour|![](/en-IN/2024/12/202412031830NavyDayIN.jpg)|
 202412041830|MonoTufa|Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)|The rise of tufa|![](/en-IN/2024/12/202412041830MonoTufa.jpg)|
+202412051830|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-IN/2024/12/202412051830HelsinkiDusk.jpg)|
