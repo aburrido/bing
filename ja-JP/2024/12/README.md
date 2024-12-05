@@ -5,3 +5,4 @@
 202412021500|ChichibuFestival2024|花火と豪華な山車,埼玉県 秩父市 (© ASSOCIATED PRESS/AP)|今日は秩父夜祭・本祭|![](/ja-JP/2024/12/202412021500ChichibuFestival2024.jpg)|
 202412031500|RhinosKenya|シロサイの顔合わせ, ケニア (© Ingo Arndt/Minden Pictures)|今日は世界動物の日|![](/ja-JP/2024/12/202412031500RhinosKenya.jpg)|
 202412041500|MonoTufa|モノ湖, 米国 カリフォルニア州 (© Susanna Patras/TANDEM Stills + Motion)|石灰岩の柱がそびえる不思議な湖|![](/ja-JP/2024/12/202412041500MonoTufa.jpg)|
+202412051500|HelsinkiDusk|ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)|今日はフィンランドの独立記念日|![](/ja-JP/2024/12/202412051500HelsinkiDusk.jpg)|
