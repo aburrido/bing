@@ -5,3 +5,4 @@
 202412021600|JaipurFort|Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)|柱式遗产|![](/zh-CN/2024/12/202412021600JaipurFort.jpg)|
 202412031600|RhinosKenya|雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures)|濒临灭绝|![](/zh-CN/2024/12/202412031600RhinosKenya.jpg)|
 202412041600|MonoTufa|莫诺湖的石灰华地层，加利福尼亚州，美国 (© Susanna Patras/TANDEM Stills + Motion)|石灰华塔的崛起|![](/zh-CN/2024/12/202412041600MonoTufa.jpg)|
+202412051600|GreaterSnow2024|鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)|一路通往童话之路|![](/zh-CN/2024/12/202412051600GreaterSnow2024.jpg)|
