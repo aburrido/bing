@@ -6,3 +6,4 @@
 202412030500|JaipurFort|Sattais Katcheri (Court of 27 pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)|A pillared legacy|![](/en-CA/2024/12/202412030500JaipurFort.jpg)|
 202412040500|RhinosKenya|Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)|On the frontline of extinction|![](/en-CA/2024/12/202412040500RhinosKenya.jpg)|
 202412050500|MonoTufa|Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)|The rise of tufa|![](/en-CA/2024/12/202412050500MonoTufa.jpg)|
+202412060500|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-CA/2024/12/202412060500HelsinkiDusk.jpg)|
