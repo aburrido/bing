@@ -6,3 +6,4 @@
 202412032300|RhinosKenya|Männliche Breitmaulnashörner, Lake Nakuru, Kenia (© Ingo Arndt/Minden Pictures)|In Gefahr, auszusterben|![](/de-DE/2024/12/202412032300RhinosKenya.jpg)|
 202412042300|MonoTufa|Kalktuff-Formationen am Mono Lake, Kalifornien, USA (© Susanna Patras/TANDEM Stills + Motion)|Wunder der Natur|![](/de-DE/2024/12/202412042300MonoTufa.jpg)|
 202412052300|HelsinkiDusk|Altstadt in Helsinki, Finnland (© Oleksiy Mark/Shutterstock)|Alles Gute Finnland!|![](/de-DE/2024/12/202412052300HelsinkiDusk.jpg)|
+202412062300|ArraialdoCabo|Arraial do Cabo im Bundesstaat Rio de Janeiro, Brasilien (© Derson Santana/Shutterstock)|Flucht ins Paradies?|![](/de-DE/2024/12/202412062300ArraialdoCabo.jpg)|
