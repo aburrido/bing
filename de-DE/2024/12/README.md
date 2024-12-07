@@ -8,3 +8,4 @@
 202412052300|HelsinkiDusk|Altstadt in Helsinki, Finnland (© Oleksiy Mark/Shutterstock)|Alles Gute Finnland!|![](/de-DE/2024/12/202412052300HelsinkiDusk.jpg)|
 202412062300|ArraialdoCabo|Arraial do Cabo im Bundesstaat Rio de Janeiro, Brasilien (© Derson Santana/Shutterstock)|Flucht ins Paradies?|![](/de-DE/2024/12/202412062300ArraialdoCabo.jpg)|
 ||||![](/de-DE/2024/12/.jpg)|
+202412072300|ReopeningNotreDame|Kathedrale Notre-Dame, Paris, Frankreich (© Julien Fromentin/Getty Images)|Das große Comeback|![](/de-DE/2024/12/202412072300ReopeningNotreDame.jpg)|
