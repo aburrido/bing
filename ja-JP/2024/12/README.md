@@ -7,3 +7,4 @@
 202412041500|MonoTufa|モノ湖, 米国 カリフォルニア州 (© Susanna Patras/TANDEM Stills + Motion)|石灰岩の柱がそびえる不思議な湖|![](/ja-JP/2024/12/202412041500MonoTufa.jpg)|
 202412051500|HelsinkiDusk|ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)|今日はフィンランドの独立記念日|![](/ja-JP/2024/12/202412051500HelsinkiDusk.jpg)|
 202412061500|Daxue2024|雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)|今日は大雪|![](/ja-JP/2024/12/202412061500Daxue2024.jpg)|
+||||![](/ja-JP/2024/12/.jpg)|

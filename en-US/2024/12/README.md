@@ -7,3 +7,4 @@
 202412040800|RhinosKenya|Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)|On the front line of extinction|![](/en-US/2024/12/202412040800RhinosKenya.jpg)|
 202412050800|MonoTufa|Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)|The rise of tufa|![](/en-US/2024/12/202412050800MonoTufa.jpg)|
 202412060800|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-US/2024/12/202412060800HelsinkiDusk.jpg)|
+||||![](/en-US/2024/12/.jpg)|

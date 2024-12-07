@@ -7,3 +7,4 @@
 202412041830|MonoTufa|Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)|The rise of tufa|![](/en-IN/2024/12/202412041830MonoTufa.jpg)|
 202412051830|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-IN/2024/12/202412051830HelsinkiDusk.jpg)|
 202412061830|OrchhaFort|Jahangir Mahal inside the Orchha Fort complex, Orchha, Madhya Pradesh (© Mukul Banerjee Photography/Getty Images)|Splendour etched in stone|![](/en-IN/2024/12/202412061830OrchhaFort.jpg)|
+||||![](/en-IN/2024/12/.jpg)|

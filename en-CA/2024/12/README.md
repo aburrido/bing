@@ -8,3 +8,4 @@
 202412050500|MonoTufa|Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)|The rise of tufa|![](/en-CA/2024/12/202412050500MonoTufa.jpg)|
 202412060500|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-CA/2024/12/202412060500HelsinkiDusk.jpg)|
 202412070500|TorontoWinterSkyline|Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)|Where water meets winter|![](/en-CA/2024/12/202412070500TorontoWinterSkyline.jpg)|
+||||![](/en-CA/2024/12/.jpg)|
