@@ -8,3 +8,4 @@
 202412050800|MonoTufa|Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)|The rise of tufa|![](/en-US/2024/12/202412050800MonoTufa.jpg)|
 202412060800|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-US/2024/12/202412060800HelsinkiDusk.jpg)|
 ||||![](/en-US/2024/12/.jpg)|
+202412070800|NewHavenBridge|Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)|Remembering Pearl Harbor|![](/en-US/2024/12/202412070800NewHavenBridge.jpg)|

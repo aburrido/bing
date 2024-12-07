@@ -8,3 +8,4 @@
 202412050800|MonoTufa|Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)|Info|![](/en-AU/2024/12/202412050800MonoTufa.jpg)|
 202412060800|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Info|![](/en-AU/2024/12/202412060800HelsinkiDusk.jpg)|
 ||||![](/en-AU/2024/12/.jpg)|
+202412070800|ArraialdoCabo|Arraial do Cabo in the state of Rio de Janeiro, Brazil (© Derson Santana/Shutterstock)|Info|![](/en-AU/2024/12/202412070800ArraialdoCabo.jpg)|
