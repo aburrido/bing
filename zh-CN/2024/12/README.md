@@ -8,3 +8,4 @@
 202412051600|GreaterSnow2024|鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)|一路通往童话之路|![](/zh-CN/2024/12/202412051600GreaterSnow2024.jpg)|
 202412061600|ArraialdoCabo|里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)|自然奇观的蓝色魅力|![](/zh-CN/2024/12/202412061600ArraialdoCabo.jpg)|
 ||||![](/zh-CN/2024/12/.jpg)|
+202412071600|ReopeningNotreDame|巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)|巴黎圣母院再度回归|![](/zh-CN/2024/12/202412071600ReopeningNotreDame.jpg)|
