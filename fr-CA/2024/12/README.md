@@ -7,3 +7,4 @@
 202412040500|RhinosKenya|Rhinocéros blancs mâles, lac Nakuru, Kenya (© Ingo Arndt/Minden Pictures)|Un animal au bord de l'extinction|![](/fr-CA/2024/12/202412040500RhinosKenya.jpg)|
 202412050500|MonoTufa|Cheminées de fées sur le lac Mono, Californie, États-Unis (© Susanna Patras/TANDEM Stills + Motion)|Un trésor géologique californien|![](/fr-CA/2024/12/202412050500MonoTufa.jpg)|
 202412060500|HelsinkiDusk|Vieille ville d'Helsinki, Finlande (© Oleksiy Mark/Shutterstock)|La Finlande commémore son indépendance|![](/fr-CA/2024/12/202412060500HelsinkiDusk.jpg)|
+202412070500|TorontoWinterSkyline|Lac Ontario en hiver, Toronto (© Brendan Riley/Shutterstock)|Quand l'eau rencontre l'hiver|![](/fr-CA/2024/12/202412070500TorontoWinterSkyline.jpg)|
