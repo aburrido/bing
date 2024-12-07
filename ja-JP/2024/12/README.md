@@ -8,3 +8,4 @@
 202412051500|HelsinkiDusk|ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)|今日はフィンランドの独立記念日|![](/ja-JP/2024/12/202412051500HelsinkiDusk.jpg)|
 202412061500|Daxue2024|雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)|今日は大雪|![](/ja-JP/2024/12/202412061500Daxue2024.jpg)|
 ||||![](/ja-JP/2024/12/.jpg)|
+202412071500|ReopeningNotreDame|ノートルダム大聖堂, フランス パリ (© Julien Fromentin/Getty Images)|炎を越えた大聖堂、再びその扉を開く！|![](/ja-JP/2024/12/202412071500ReopeningNotreDame.jpg)|
