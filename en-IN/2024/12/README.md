@@ -8,3 +8,4 @@
 202412051830|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-IN/2024/12/202412051830HelsinkiDusk.jpg)|
 202412061830|OrchhaFort|Jahangir Mahal inside the Orchha Fort complex, Orchha, Madhya Pradesh (© Mukul Banerjee Photography/Getty Images)|Splendour etched in stone|![](/en-IN/2024/12/202412061830OrchhaFort.jpg)|
 ||||![](/en-IN/2024/12/.jpg)|
+202412071830|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|Stone, light and legends|![](/en-IN/2024/12/202412071830ReopeningNotreDame.jpg)|
