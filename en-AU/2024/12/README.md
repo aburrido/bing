@@ -9,3 +9,4 @@
 202412060800|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Info|![](/en-AU/2024/12/202412060800HelsinkiDusk.jpg)|
 ||||![](/en-AU/2024/12/.jpg)|
 202412070800|ArraialdoCabo|Arraial do Cabo in the state of Rio de Janeiro, Brazil (© Derson Santana/Shutterstock)|Info|![](/en-AU/2024/12/202412070800ArraialdoCabo.jpg)|
+202412080800|Moorea|Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)|Info|![](/en-AU/2024/12/202412080800Moorea.jpg)|
