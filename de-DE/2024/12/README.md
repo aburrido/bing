@@ -9,3 +9,4 @@
 202412062300|ArraialdoCabo|Arraial do Cabo im Bundesstaat Rio de Janeiro, Brasilien (© Derson Santana/Shutterstock)|Flucht ins Paradies?|![](/de-DE/2024/12/202412062300ArraialdoCabo.jpg)|
 ||||![](/de-DE/2024/12/.jpg)|
 202412072300|ReopeningNotreDame|Kathedrale Notre-Dame, Paris, Frankreich (© Julien Fromentin/Getty Images)|Das große Comeback|![](/de-DE/2024/12/202412072300ReopeningNotreDame.jpg)|
+202412082300|GuanacosChile|Zwei Guanakos, Nationalpark Torres del Paine, Chile (© Floris van Breugel/NPL/Minden Pictures)|Wo die Gipfel den Himmel berühren|![](/de-DE/2024/12/202412082300GuanacosChile.jpg)|

@@ -9,3 +9,4 @@
 202412062300|ArraialdoCabo|Arraial do Cabo dans l'État de Rio de Janeiro, Brésil (© Derson Santana/Shutterstock)|Du bleu à perte de vue|![](/fr-FR/2024/12/202412062300ArraialdoCabo.jpg)|
 ||||![](/fr-FR/2024/12/.jpg)|
 202412072300|ReopeningNotreDame|Cathédral Notre-Dame de Paris (© Julien Fromentin/Getty Images)|Notre-Dame renaît de ses cendres|![](/fr-FR/2024/12/202412072300ReopeningNotreDame.jpg)|
+202412082300|GuanacosChile|Guanacos, parc national Torres del Paine, Chili (© Floris van Breugel/NPL/Minden Pictures)|Les gardiens des steppes andines|![](/fr-FR/2024/12/202412082300GuanacosChile.jpg)|
