@@ -8,3 +8,4 @@
 202412060000|HelsinkiDusk|Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)|Happy birthday, Finland!|![](/en-GB/2024/12/202412060000HelsinkiDusk.jpg)|
 202412070000|Stonehenge2024|Stonehenge, Wiltshire, England (© Gavin Hellier/robertharding/Subjects/Getty Images)|The riddle of the stones|![](/en-GB/2024/12/202412070000Stonehenge2024.jpg)|
 ||||![](/en-GB/2024/12/.jpg)|
+202412080000|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|The comeback of Notre-Dame|![](/en-GB/2024/12/202412080000ReopeningNotreDame.jpg)|
