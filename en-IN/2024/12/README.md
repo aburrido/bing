@@ -9,3 +9,4 @@
 202412061830|OrchhaFort|Jahangir Mahal inside the Orchha Fort complex, Orchha, Madhya Pradesh (© Mukul Banerjee Photography/Getty Images)|Splendour etched in stone|![](/en-IN/2024/12/202412061830OrchhaFort.jpg)|
 ||||![](/en-IN/2024/12/.jpg)|
 202412071830|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|Stone, light and legends|![](/en-IN/2024/12/202412071830ReopeningNotreDame.jpg)|
+202412081830|GuanacosChile|Two Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Attitude and altitude|![](/en-IN/2024/12/202412081830GuanacosChile.jpg)|
