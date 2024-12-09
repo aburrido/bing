@@ -9,3 +9,4 @@
 202412070000|Stonehenge2024|Stonehenge, Wiltshire, England (© Gavin Hellier/robertharding/Subjects/Getty Images)|The riddle of the stones|![](/en-GB/2024/12/202412070000Stonehenge2024.jpg)|
 ||||![](/en-GB/2024/12/.jpg)|
 202412080000|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|The comeback of Notre-Dame|![](/en-GB/2024/12/202412080000ReopeningNotreDame.jpg)|
+202412090000|GuanacosChile|Two guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Attitude and altitude|![](/en-GB/2024/12/202412090000GuanacosChile.jpg)|
