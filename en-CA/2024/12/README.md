@@ -10,3 +10,4 @@
 202412070500|TorontoWinterSkyline|Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)|Where water meets winter|![](/en-CA/2024/12/202412070500TorontoWinterSkyline.jpg)|
 ||||![](/en-CA/2024/12/.jpg)|
 202412080500|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|The comeback of Notre-Dame|![](/en-CA/2024/12/202412080500ReopeningNotreDame.jpg)|
+202412090500|GuanacosChile|Two guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Attitude and altitude|![](/en-CA/2024/12/202412090500GuanacosChile.jpg)|
