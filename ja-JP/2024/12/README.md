@@ -11,3 +11,4 @@
 202412071500|ReopeningNotreDame|ノートルダム大聖堂, フランス パリ (© Julien Fromentin/Getty Images)|炎を越えた大聖堂、再びその扉を開く！|![](/ja-JP/2024/12/202412071500ReopeningNotreDame.jpg)|
 202412081500|GuanacosChile|トーレス・デル・パイネ国立公園のグアナコ, チリ (© Floris van Breugel/NPL/Minden Pictures)|今日はリャマの日|![](/ja-JP/2024/12/202412081500GuanacosChile.jpg)|
 202412091500|CornwallSnow|ランズ・エンド, イギリス コーンウォール州 (© Josef FitzGerald-Patrick/Getty Images)|イギリス本土最西端の地|![](/ja-JP/2024/12/202412091500CornwallSnow.jpg)|
+202412101500|DolomitesSky|トレ・チーメ・ディ・ラヴァレード, イタリア (© Daniel Maran/Getty Images)|今日は国際山岳デー|![](/ja-JP/2024/12/202412101500DolomitesSky.jpg)|
