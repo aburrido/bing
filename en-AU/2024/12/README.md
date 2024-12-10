@@ -11,3 +11,4 @@
 202412070800|ArraialdoCabo|Arraial do Cabo in the state of Rio de Janeiro, Brazil (© Derson Santana/Shutterstock)|Info|![](/en-AU/2024/12/202412070800ArraialdoCabo.jpg)|
 202412080800|Moorea|Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)|Info|![](/en-AU/2024/12/202412080800Moorea.jpg)|
 202412090800|GuanacosChile|Two guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Info|![](/en-AU/2024/12/202412090800GuanacosChile.jpg)|
+202412100800|CornwallSnow|The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|Info|![](/en-AU/2024/12/202412100800CornwallSnow.jpg)|

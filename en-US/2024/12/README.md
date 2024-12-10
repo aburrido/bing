@@ -11,3 +11,4 @@
 202412070800|NewHavenBridge|Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)|Remembering Pearl Harbor|![](/en-US/2024/12/202412070800NewHavenBridge.jpg)|
 202412080800|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|The comeback of Notre-Dame|![](/en-US/2024/12/202412080800ReopeningNotreDame.jpg)|
 202412090800|GuanacosChile|Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Attitude and altitude|![](/en-US/2024/12/202412090800GuanacosChile.jpg)|
+202412100800|CornwallSnow|The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|The end? Not quite.|![](/en-US/2024/12/202412100800CornwallSnow.jpg)|
