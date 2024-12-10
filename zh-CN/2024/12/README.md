@@ -11,3 +11,4 @@
 202412071600|ReopeningNotreDame|巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)|巴黎圣母院再度回归|![](/zh-CN/2024/12/202412071600ReopeningNotreDame.jpg)|
 202412081600|GuanacosChile|两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures)|态度和高度|![](/zh-CN/2024/12/202412081600GuanacosChile.jpg)|
 202412091600|CornwallSnow|被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)|世界的尽头？不完全是|![](/zh-CN/2024/12/202412091600CornwallSnow.jpg)|
+202412101600|DolomitesSky|拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)|山峰的“胜利三重奏”|![](/zh-CN/2024/12/202412101600DolomitesSky.jpg)|
