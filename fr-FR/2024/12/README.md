@@ -11,3 +11,4 @@
 202412072300|ReopeningNotreDame|Cathédral Notre-Dame de Paris (© Julien Fromentin/Getty Images)|Notre-Dame renaît de ses cendres|![](/fr-FR/2024/12/202412072300ReopeningNotreDame.jpg)|
 202412082300|GuanacosChile|Guanacos, parc national Torres del Paine, Chili (© Floris van Breugel/NPL/Minden Pictures)|Les gardiens des steppes andines|![](/fr-FR/2024/12/202412082300GuanacosChile.jpg)|
 202412092300|CornwallSnow|Le sentier côtier de Cornouailles recouvert de neige, Land's End, Cornouailles, Angleterre (© Josef FitzGerald-Patrick/Getty Images)|Le Finisterre anglais|![](/fr-FR/2024/12/202412092300CornwallSnow.jpg)|
+202412102300|DolomitesSky|Tre Cime di Lavaredo, Italie (© Daniel Maran/Getty Images)|Les géants des Dolomites italiennes|![](/fr-FR/2024/12/202412102300DolomitesSky.jpg)|
