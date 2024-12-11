@@ -12,3 +12,4 @@
 202412080800|ReopeningNotreDame|Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)|The comeback of Notre-Dame|![](/en-US/2024/12/202412080800ReopeningNotreDame.jpg)|
 202412090800|GuanacosChile|Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Attitude and altitude|![](/en-US/2024/12/202412090800GuanacosChile.jpg)|
 202412100800|CornwallSnow|The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|The end? Not quite.|![](/en-US/2024/12/202412100800CornwallSnow.jpg)|
+202412110800|DolomitesSky|Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)|The triumphant trio|![](/en-US/2024/12/202412110800DolomitesSky.jpg)|

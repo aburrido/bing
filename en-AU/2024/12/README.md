@@ -12,3 +12,4 @@
 202412080800|Moorea|Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)|Info|![](/en-AU/2024/12/202412080800Moorea.jpg)|
 202412090800|GuanacosChile|Two guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Info|![](/en-AU/2024/12/202412090800GuanacosChile.jpg)|
 202412100800|CornwallSnow|The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|Info|![](/en-AU/2024/12/202412100800CornwallSnow.jpg)|
+202412110800|DolomitesSky|Tre Cime di Lavaredo, Italy (© Daniel Maran/Getty Images)|Info|![](/en-AU/2024/12/202412110800DolomitesSky.jpg)|
