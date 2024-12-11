@@ -12,3 +12,4 @@
 202412082300|GuanacosChile|Zwei Guanakos, Nationalpark Torres del Paine, Chile (© Floris van Breugel/NPL/Minden Pictures)|Wo die Gipfel den Himmel berühren|![](/de-DE/2024/12/202412082300GuanacosChile.jpg)|
 202412092300|CornwallSnow|Verschneiter Cornish Coast Path, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|Schnee und Gischt im Morgenlicht?|![](/de-DE/2024/12/202412092300CornwallSnow.jpg)|
 202412102300|DolomitesSky|Drei Zinnen, Italien (© Daniel Maran/Getty Images)|Die glorreichen Drei|![](/de-DE/2024/12/202412102300DolomitesSky.jpg)|
+202412112300|FrozenLakebyWintrySunrise|Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)|Gefrorenes Blau im Morgenrot|![](/de-DE/2024/12/202412112300FrozenLakebyWintrySunrise.jpg)|
