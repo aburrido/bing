@@ -13,3 +13,4 @@
 202412092300|CornwallSnow|Le sentier côtier de Cornouailles recouvert de neige, Land's End, Cornouailles, Angleterre (© Josef FitzGerald-Patrick/Getty Images)|Le Finisterre anglais|![](/fr-FR/2024/12/202412092300CornwallSnow.jpg)|
 202412102300|DolomitesSky|Tre Cime di Lavaredo, Italie (© Daniel Maran/Getty Images)|Les géants des Dolomites italiennes|![](/fr-FR/2024/12/202412102300DolomitesSky.jpg)|
 202412112300|WildPoinsettia|Poinsettia ou Fleur de Noël (© David Hosking/NPL/Minden Pictures)|La fleur de Noël par excellence|![](/fr-FR/2024/12/202412112300WildPoinsettia.jpg)|
+202412122300|ChristmasBudapest|Marché de Noël, basilique Saint-Étienne, Budapest, Hongrie (© Calin Stan/Shutterstock)|Un avant-goût de Noël|![](/fr-FR/2024/12/202412122300ChristmasBudapest.jpg)|

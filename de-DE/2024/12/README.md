@@ -13,3 +13,4 @@
 202412092300|CornwallSnow|Verschneiter Cornish Coast Path, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|Schnee und Gischt im Morgenlicht?|![](/de-DE/2024/12/202412092300CornwallSnow.jpg)|
 202412102300|DolomitesSky|Drei Zinnen, Italien (© Daniel Maran/Getty Images)|Die glorreichen Drei|![](/de-DE/2024/12/202412102300DolomitesSky.jpg)|
 202412112300|FrozenLakebyWintrySunrise|Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)|Gefrorenes Blau im Morgenrot|![](/de-DE/2024/12/202412112300FrozenLakebyWintrySunrise.jpg)|
+202412122300|ChristmasBudapest|Weihnachtsmarkt, St. Stephans Basilika, Budapest, Ungarn (© Calin Stan/Shutterstock)|Advent rund um die Basilika|![](/de-DE/2024/12/202412122300ChristmasBudapest.jpg)|
