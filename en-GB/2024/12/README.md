@@ -12,3 +12,4 @@
 202412090000|GuanacosChile|Two guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)|Attitude and altitude|![](/en-GB/2024/12/202412090000GuanacosChile.jpg)|
 202412100000|CornwallSnow|The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|The end? Not quite.|![](/en-GB/2024/12/202412100000CornwallSnow.jpg)|
 202412110000|DolomitesSky|Tre Cime di Lavaredo, Italy (© Daniel Maran/Getty Images)|The triumphant trio|![](/en-GB/2024/12/202412110000DolomitesSky.jpg)|
+202412120000|WildPoinsettia|Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)|'Red-y' for the holidays|![](/en-GB/2024/12/202412120000WildPoinsettia.jpg)|
