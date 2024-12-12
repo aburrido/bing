@@ -13,3 +13,4 @@
 202412091500|CornwallSnow|ランズ・エンド, イギリス コーンウォール州 (© Josef FitzGerald-Patrick/Getty Images)|イギリス本土最西端の地|![](/ja-JP/2024/12/202412091500CornwallSnow.jpg)|
 202412101500|DolomitesSky|トレ・チーメ・ディ・ラヴァレード, イタリア (© Daniel Maran/Getty Images)|今日は国際山岳デー|![](/ja-JP/2024/12/202412101500DolomitesSky.jpg)|
 202412111500|WildPoinsettia|クリスマスを象徴する美しい植物 (© David Hosking/NPL/Minden Pictures)|今日はポインセチアの日|![](/ja-JP/2024/12/202412111500WildPoinsettia.jpg)|
+202412121500|ChristmasBudapest|聖イシュトヴァーン大聖堂, ハンガリー (© Calin Stan/Shutterstock)|賑やかなクリスマスマーケット|![](/ja-JP/2024/12/202412121500ChristmasBudapest.jpg)|
