@@ -13,3 +13,4 @@
 202412090500|GuanacosChile|Guanacos, parc national Torres del Paine, Chili (© Floris van Breugel/NPL/Minden Pictures)|Les gardiens des steppes andines|![](/fr-CA/2024/12/202412090500GuanacosChile.jpg)|
 202412100500|CornwallSnow|Le sentier côtier de Cornouailles recouvert de neige, Land's End, Cornouailles, Angleterre (© Josef FitzGerald-Patrick/Getty Images)|Le Finisterre anglais|![](/fr-CA/2024/12/202412100500CornwallSnow.jpg)|
 202412110500|DolomitesSky|Tre Cime di Lavaredo, Italie (© Daniel Maran/Getty Images)|Les géants des Dolomites italiennes|![](/fr-CA/2024/12/202412110500DolomitesSky.jpg)|
+202412120500|WildPoinsettia|Poinsettia ou Fleur de Noël (© David Hosking/NPL/Minden Pictures)|La fleur de Noël par excellence|![](/fr-CA/2024/12/202412120500WildPoinsettia.jpg)|
