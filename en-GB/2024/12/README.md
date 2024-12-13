@@ -13,3 +13,4 @@
 202412100000|CornwallSnow|The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)|The end? Not quite.|![](/en-GB/2024/12/202412100000CornwallSnow.jpg)|
 202412110000|DolomitesSky|Tre Cime di Lavaredo, Italy (© Daniel Maran/Getty Images)|The triumphant trio|![](/en-GB/2024/12/202412110000DolomitesSky.jpg)|
 202412120000|WildPoinsettia|Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)|'Red-y' for the holidays|![](/en-GB/2024/12/202412120000WildPoinsettia.jpg)|
+202412130000|ChristmasBudapest|Christmas market, St Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)|Advent at the basilica|![](/en-GB/2024/12/202412130000ChristmasBudapest.jpg)|
