@@ -14,3 +14,4 @@
 202412102300|DolomitesSky|Tre Cime di Lavaredo, Italie (© Daniel Maran/Getty Images)|Les géants des Dolomites italiennes|![](/fr-FR/2024/12/202412102300DolomitesSky.jpg)|
 202412112300|WildPoinsettia|Poinsettia ou Fleur de Noël (© David Hosking/NPL/Minden Pictures)|La fleur de Noël par excellence|![](/fr-FR/2024/12/202412112300WildPoinsettia.jpg)|
 202412122300|ChristmasBudapest|Marché de Noël, basilique Saint-Étienne, Budapest, Hongrie (© Calin Stan/Shutterstock)|Un avant-goût de Noël|![](/fr-FR/2024/12/202412122300ChristmasBudapest.jpg)|
+202412132300|LynxTree|Lynx de Boréal perché dans un arbre, France (© Marc Chesneau/Getty Images)|Le sphinx des bois|![](/fr-FR/2024/12/202412132300LynxTree.jpg)|
