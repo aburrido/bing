@@ -15,3 +15,4 @@
 202412110800|DolomitesSky|Tre Cime di Lavaredo, Italy (© Daniel Maran/Getty Images)|Info|![](/en-AU/2024/12/202412110800DolomitesSky.jpg)|
 202412120800|WildPoinsettia|Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)|Info|![](/en-AU/2024/12/202412120800WildPoinsettia.jpg)|
 202412130800|ChristmasBudapest|Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)|Info|![](/en-AU/2024/12/202412130800ChristmasBudapest.jpg)|
+202412140800|NorthernHawkOwl|Northern hawk-owl, Canada (© pchoui/Getty Images)|Info|![](/en-AU/2024/12/202412140800NorthernHawkOwl.jpg)|
