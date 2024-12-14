@@ -15,3 +15,4 @@
 202412111830|WildPoinsettia|Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)|'Red-y' for the holidays|![](/en-IN/2024/12/202412111830WildPoinsettia.jpg)|
 202412121830|ChristmasBudapest|Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)|Advent at the basilica|![](/en-IN/2024/12/202412121830ChristmasBudapest.jpg)|
 202412131830|NorthernHawkOwl|Northern hawk-owl, Canada (© pchoui/Getty Images)|'Hoo' said that?|![](/en-IN/2024/12/202412131830NorthernHawkOwl.jpg)|
+202412141830|MisurinaLake|Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)|A lake of tears|![](/en-IN/2024/12/202412141830MisurinaLake.jpg)|
