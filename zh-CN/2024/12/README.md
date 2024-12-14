@@ -15,3 +15,4 @@
 202412111600|WildPoinsettia|一品红或圣诞花 (© David Hosking/NPL/Minden Pictures)|为节日做好准备|![](/zh-CN/2024/12/202412111600WildPoinsettia.jpg)|
 202412121600|ChristmasBudapest|圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock)|圣斯蒂芬大教堂的降临节|![](/zh-CN/2024/12/202412121600ChristmasBudapest.jpg)|
 202412131600|NorthernHawkOwl|猛鸮，加拿大 (© pchoui/Getty Images)|"谁"这么说？|![](/zh-CN/2024/12/202412131600NorthernHawkOwl.jpg)|
+202412141600|MisurinaLake|米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)|泪水之湖|![](/zh-CN/2024/12/202412141600MisurinaLake.jpg)|
