@@ -15,3 +15,4 @@
 202412111500|WildPoinsettia|クリスマスを象徴する美しい植物 (© David Hosking/NPL/Minden Pictures)|今日はポインセチアの日|![](/ja-JP/2024/12/202412111500WildPoinsettia.jpg)|
 202412121500|ChristmasBudapest|聖イシュトヴァーン大聖堂, ハンガリー (© Calin Stan/Shutterstock)|賑やかなクリスマスマーケット|![](/ja-JP/2024/12/202412121500ChristmasBudapest.jpg)|
 202412131500|NorthernHawkOwl|オナガフクロウ, カナダ (© pchoui/Getty Images)|今日はクリスマス・バード・カウント|![](/ja-JP/2024/12/202412131500NorthernHawkOwl.jpg)|
+202412141500|MisurinaLake|ミズリーナ湖, イタリア (© Marco Bottigelli/Getty Images)|鏡のように壮大な山々を映す湖|![](/ja-JP/2024/12/202412141500MisurinaLake.jpg)|
