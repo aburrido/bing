@@ -15,3 +15,4 @@
 202412110500|DolomitesSky|Tre Cime di Lavaredo, Italie (© Daniel Maran/Getty Images)|Les géants des Dolomites italiennes|![](/fr-CA/2024/12/202412110500DolomitesSky.jpg)|
 202412120500|WildPoinsettia|Poinsettia ou Fleur de Noël (© David Hosking/NPL/Minden Pictures)|La fleur de Noël par excellence|![](/fr-CA/2024/12/202412120500WildPoinsettia.jpg)|
 202412130500|ChristmasBudapest|Marché de Noël, basilique Saint-Étienne, Budapest, Hongrie (© Calin Stan/Shutterstock)|Un avant-goût de Noël|![](/fr-CA/2024/12/202412130500ChristmasBudapest.jpg)|
+202412140500|NorthernHawkOwl|Hibou des Marais, Canada (© pchoui/Getty Images)|Sortez vos manteaux et vos jumelles!|![](/fr-CA/2024/12/202412140500NorthernHawkOwl.jpg)|
