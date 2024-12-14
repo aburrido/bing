@@ -15,3 +15,4 @@
 202412112300|FrozenLakebyWintrySunrise|Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)|Gefrorenes Blau im Morgenrot|![](/de-DE/2024/12/202412112300FrozenLakebyWintrySunrise.jpg)|
 202412122300|ChristmasBudapest|Weihnachtsmarkt, St. Stephans Basilika, Budapest, Ungarn (© Calin Stan/Shutterstock)|Advent rund um die Basilika|![](/de-DE/2024/12/202412122300ChristmasBudapest.jpg)|
 202412132300|NorthernHawkOwl|Sperbereule, Kanada (© pchoui/Getty Images)|Wachsame Augen|![](/de-DE/2024/12/202412132300NorthernHawkOwl.jpg)|
+202412142300|MisurinaLake|Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)|Gespiegelte Schönheit|![](/de-DE/2024/12/202412142300MisurinaLake.jpg)|
