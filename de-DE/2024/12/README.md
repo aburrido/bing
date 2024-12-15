@@ -16,3 +16,4 @@
 202412122300|ChristmasBudapest|Weihnachtsmarkt, St. Stephans Basilika, Budapest, Ungarn (© Calin Stan/Shutterstock)|Advent rund um die Basilika|![](/de-DE/2024/12/202412122300ChristmasBudapest.jpg)|
 202412132300|NorthernHawkOwl|Sperbereule, Kanada (© pchoui/Getty Images)|Wachsame Augen|![](/de-DE/2024/12/202412132300NorthernHawkOwl.jpg)|
 202412142300|MisurinaLake|Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)|Gespiegelte Schönheit|![](/de-DE/2024/12/202412142300MisurinaLake.jpg)|
+202412152300|SalzburgSnow|Salzburg, Österreich (© bluejayphoto/Getty Images)|Musik liegt in der Luft|![](/de-DE/2024/12/202412152300SalzburgSnow.jpg)|
