@@ -16,3 +16,4 @@
 202412121600|ChristmasBudapest|圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock)|圣斯蒂芬大教堂的降临节|![](/zh-CN/2024/12/202412121600ChristmasBudapest.jpg)|
 202412131600|NorthernHawkOwl|猛鸮，加拿大 (© pchoui/Getty Images)|"谁"这么说？|![](/zh-CN/2024/12/202412131600NorthernHawkOwl.jpg)|
 202412141600|MisurinaLake|米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)|泪水之湖|![](/zh-CN/2024/12/202412141600MisurinaLake.jpg)|
+202412151600|SalzburgSnow|萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)|闪烁的街道和冰峰|![](/zh-CN/2024/12/202412151600SalzburgSnow.jpg)|
