@@ -17,3 +17,4 @@
 202412130500|ChristmasBudapest|Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)|Advent at the basilica|![](/en-CA/2024/12/202412130500ChristmasBudapest.jpg)|
 202412140500|NorthernHawkOwl|Northern hawk-owl, Canada (© pchoui/Getty Images)|'Hoo' said that?|![](/en-CA/2024/12/202412140500NorthernHawkOwl.jpg)|
 202412150500|MisurinaLake|Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)|A lake of tears|![](/en-CA/2024/12/202412150500MisurinaLake.jpg)|
+202412160500|SalzburgSnow|Salzburg, Austria (© bluejayphoto/Getty Images)|Twinkling streets and icy peaks|![](/en-CA/2024/12/202412160500SalzburgSnow.jpg)|
