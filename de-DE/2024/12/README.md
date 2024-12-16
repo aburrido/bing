@@ -17,3 +17,4 @@
 202412132300|NorthernHawkOwl|Sperbereule, Kanada (© pchoui/Getty Images)|Wachsame Augen|![](/de-DE/2024/12/202412132300NorthernHawkOwl.jpg)|
 202412142300|MisurinaLake|Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)|Gespiegelte Schönheit|![](/de-DE/2024/12/202412142300MisurinaLake.jpg)|
 202412152300|SalzburgSnow|Salzburg, Österreich (© bluejayphoto/Getty Images)|Musik liegt in der Luft|![](/de-DE/2024/12/202412152300SalzburgSnow.jpg)|
+202412162300|ReinefjordenNorway|Traditionelle rote Fischerhütten am Ufer des Reinefjords, Norwegen (© Pilat666/Getty Images)|Ein Hauch von Rot im Winterparadies|![](/de-DE/2024/12/202412162300ReinefjordenNorway.jpg)|

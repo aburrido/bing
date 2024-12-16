@@ -17,3 +17,4 @@
 202412132300|LynxTree|Lynx de Boréal perché dans un arbre, France (© Marc Chesneau/Getty Images)|Le sphinx des bois|![](/fr-FR/2024/12/202412132300LynxTree.jpg)|
 202412142300|MisurinaLake|Lac Misurina, Dolomites, Italie (© Marco Bottigelli/Getty Images)|Un lac de larmes|![](/fr-FR/2024/12/202412142300MisurinaLake.jpg)|
 202412152300|SalzburgSnow|Salzbourg, Autriche (© bluejayphoto/Getty Images)|La perle des Alpes|![](/fr-FR/2024/12/202412152300SalzburgSnow.jpg)|
+202412162300|ReinefjordenNorway|Cabanes traditionnelles de pêcheurs sur le rivage de Reinefjorden, Norvège (© Pilat666/Getty Images)|Un paysage magique|![](/fr-FR/2024/12/202412162300ReinefjordenNorway.jpg)|
