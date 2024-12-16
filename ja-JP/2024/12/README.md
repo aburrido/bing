@@ -17,3 +17,4 @@
 202412131500|NorthernHawkOwl|オナガフクロウ, カナダ (© pchoui/Getty Images)|今日はクリスマス・バード・カウント|![](/ja-JP/2024/12/202412131500NorthernHawkOwl.jpg)|
 202412141500|MisurinaLake|ミズリーナ湖, イタリア (© Marco Bottigelli/Getty Images)|鏡のように壮大な山々を映す湖|![](/ja-JP/2024/12/202412141500MisurinaLake.jpg)|
 202412151500|SalzburgSnow|ザルツブルク, オーストリア (© bluejayphoto/Getty Images)|雪化粧した旧市街|![](/ja-JP/2024/12/202412151500SalzburgSnow.jpg)|
+202412161500|ReinefjordenNorway|美しい村レーヌ, ノルウェー (© Pilat666/Getty Images)|赤い木造の漁師小屋|![](/ja-JP/2024/12/202412161500ReinefjordenNorway.jpg)|
