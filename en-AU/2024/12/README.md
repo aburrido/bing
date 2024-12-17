@@ -18,3 +18,4 @@
 202412140800|NorthernHawkOwl|Northern hawk-owl, Canada (© pchoui/Getty Images)|Info|![](/en-AU/2024/12/202412140800NorthernHawkOwl.jpg)|
 202412150800|MisurinaLake|Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2024/12/202412150800MisurinaLake.jpg)|
 202412160800|SalzburgSnow|Salzburg, Austria (© bluejayphoto/Getty Images)|Info|![](/en-AU/2024/12/202412160800SalzburgSnow.jpg)|
+202412170800|ReinefjordenNorway|Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)|Info|![](/en-AU/2024/12/202412170800ReinefjordenNorway.jpg)|
