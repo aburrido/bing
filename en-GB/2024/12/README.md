@@ -17,3 +17,4 @@
 202412140000|NorthernHawkOwl|Northern hawk-owl, Canada (© pchoui/Getty Images)|'Hoo' said that?|![](/en-GB/2024/12/202412140000NorthernHawkOwl.jpg)|
 202412150000|MisurinaLake|Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)|A lake of tears|![](/en-GB/2024/12/202412150000MisurinaLake.jpg)|
 202412160000|SalzburgSnow|Salzburg, Austria (© bluejayphoto/Getty Images)|Twinkling streets and icy peaks|![](/en-GB/2024/12/202412160000SalzburgSnow.jpg)|
+202412170000|ReinefjordenNorway|Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)|A shore to adore|![](/en-GB/2024/12/202412170000ReinefjordenNorway.jpg)|
