@@ -18,3 +18,4 @@
 202412140500|NorthernHawkOwl|Hibou des Marais, Canada (© pchoui/Getty Images)|Sortez vos manteaux et vos jumelles!|![](/fr-CA/2024/12/202412140500NorthernHawkOwl.jpg)|
 202412150500|MisurinaLake|Lac Misurina, Dolomites, Italie (© Marco Bottigelli/Getty Images)|Un lac de larmes|![](/fr-CA/2024/12/202412150500MisurinaLake.jpg)|
 202412160500|SalzburgSnow|Salzbourg, Autriche (© bluejayphoto/Getty Images)|La perle des Alpes|![](/fr-CA/2024/12/202412160500SalzburgSnow.jpg)|
+202412170500|ReinefjordenNorway|Cabanes traditionnelles de pêcheurs sur le rivage de Reinefjorden, Norvège (© Pilat666/Getty Images)|Un paysage magique|![](/fr-CA/2024/12/202412170500ReinefjordenNorway.jpg)|
