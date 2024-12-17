@@ -18,3 +18,4 @@
 202412141600|MisurinaLake|米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)|泪水之湖|![](/zh-CN/2024/12/202412141600MisurinaLake.jpg)|
 202412151600|SalzburgSnow|萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)|闪烁的街道和冰峰|![](/zh-CN/2024/12/202412151600SalzburgSnow.jpg)|
 202412161600|ReinefjordenNorway|传统红色渔民小屋，雷讷峡湾岸边，挪威 (© Pilat666/Getty Images)|值得爱慕的海岸|![](/zh-CN/2024/12/202412161600ReinefjordenNorway.jpg)|
+202412171600|MorningElephants|印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)|壮观的象群队伍|![](/zh-CN/2024/12/202412171600MorningElephants.jpg)|
