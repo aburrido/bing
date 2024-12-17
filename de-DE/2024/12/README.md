@@ -18,3 +18,4 @@
 202412142300|MisurinaLake|Misurinasee, Dolomiten, Italien (© Marco Bottigelli/Getty Images)|Gespiegelte Schönheit|![](/de-DE/2024/12/202412142300MisurinaLake.jpg)|
 202412152300|SalzburgSnow|Salzburg, Österreich (© bluejayphoto/Getty Images)|Musik liegt in der Luft|![](/de-DE/2024/12/202412152300SalzburgSnow.jpg)|
 202412162300|ReinefjordenNorway|Traditionelle rote Fischerhütten am Ufer des Reinefjords, Norwegen (© Pilat666/Getty Images)|Ein Hauch von Rot im Winterparadies|![](/de-DE/2024/12/202412162300ReinefjordenNorway.jpg)|
+202412172300|NutcrackerBallet|English National Ballet bei der Aufführung von „Der Nussknacker“ (© Caroline Holden/Alamy Stock Photo)|Die Magie des Tanzes|![](/de-DE/2024/12/202412172300NutcrackerBallet.jpg)|

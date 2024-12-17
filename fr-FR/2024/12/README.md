@@ -18,3 +18,4 @@
 202412142300|MisurinaLake|Lac Misurina, Dolomites, Italie (© Marco Bottigelli/Getty Images)|Un lac de larmes|![](/fr-FR/2024/12/202412142300MisurinaLake.jpg)|
 202412152300|SalzburgSnow|Salzbourg, Autriche (© bluejayphoto/Getty Images)|La perle des Alpes|![](/fr-FR/2024/12/202412152300SalzburgSnow.jpg)|
 202412162300|ReinefjordenNorway|Cabanes traditionnelles de pêcheurs sur le rivage de Reinefjorden, Norvège (© Pilat666/Getty Images)|Un paysage magique|![](/fr-FR/2024/12/202412162300ReinefjordenNorway.jpg)|
+202412172300|NutcrackerBallet|Représentation de Casse-Noisette par l’English National Ballet (© Caroline Holden/Alamy Stock Photo)|Le ballet incontournable de ces fêtes|![](/fr-FR/2024/12/202412172300NutcrackerBallet.jpg)|
