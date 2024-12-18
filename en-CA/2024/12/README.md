@@ -19,3 +19,4 @@
 202412150500|MisurinaLake|Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)|A lake of tears|![](/en-CA/2024/12/202412150500MisurinaLake.jpg)|
 202412160500|SalzburgSnow|Salzburg, Austria (© bluejayphoto/Getty Images)|Twinkling streets and icy peaks|![](/en-CA/2024/12/202412160500SalzburgSnow.jpg)|
 202412170500|ReinefjordenNorway|Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)|A shore to adore|![](/en-CA/2024/12/202412170500ReinefjordenNorway.jpg)|
+202412180500|NutcrackerBallet|English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy Stock Photo)|Yule really love this ballet|![](/en-CA/2024/12/202412180500NutcrackerBallet.jpg)|
