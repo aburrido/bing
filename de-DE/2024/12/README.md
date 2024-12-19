@@ -20,3 +20,4 @@
 202412162300|ReinefjordenNorway|Traditionelle rote Fischerhütten am Ufer des Reinefjords, Norwegen (© Pilat666/Getty Images)|Ein Hauch von Rot im Winterparadies|![](/de-DE/2024/12/202412162300ReinefjordenNorway.jpg)|
 202412172300|NutcrackerBallet|English National Ballet bei der Aufführung von „Der Nussknacker“ (© Caroline Holden/Alamy Stock Photo)|Die Magie des Tanzes|![](/de-DE/2024/12/202412172300NutcrackerBallet.jpg)|
 202412182300|SibiuRomania|Weihnachtsmarkt in Hermannstadt (Sibiu), Rumänien (© Calin Stan/Alamy Stock Photo)|Winterlicher Lichterzauber|![](/de-DE/2024/12/202412182300SibiuRomania.jpg)|
+202412192300|SantaClausVillage|Weihnachtsmanndorf in Rovaniemi, Lappland, Finnland (© Smelov/Shutterstock)|Ist es schon soweit?|![](/de-DE/2024/12/202412192300SantaClausVillage.jpg)|

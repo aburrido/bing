@@ -20,3 +20,4 @@
 202412162300|ReinefjordenNorway|Cabanes traditionnelles de pêcheurs sur le rivage de Reinefjorden, Norvège (© Pilat666/Getty Images)|Un paysage magique|![](/fr-FR/2024/12/202412162300ReinefjordenNorway.jpg)|
 202412172300|NutcrackerBallet|Représentation de Casse-Noisette par l’English National Ballet (© Caroline Holden/Alamy Stock Photo)|Le ballet incontournable de ces fêtes|![](/fr-FR/2024/12/202412172300NutcrackerBallet.jpg)|
 202412182300|SibiuRomania|Marché de Noël de Sibiu, Roumanie  (© Calin Stan/Alamy)|Noël au Cœur de la Transylvanie|![](/fr-FR/2024/12/202412182300SibiuRomania.jpg)|
+202412192300|SantaClausVillage|Village du Père Noël à Rovaniemi, Laponie, Finlande (© Smelov/Shutterstock)|Là où vit le Père Noël|![](/fr-FR/2024/12/202412192300SantaClausVillage.jpg)|
