@@ -20,3 +20,4 @@
 202412160800|SalzburgSnow|Salzburg, Austria (© bluejayphoto/Getty Images)|Twinkling streets and icy peaks|![](/en-US/2024/12/202412160800SalzburgSnow.jpg)|
 202412170800|ReinefjordenNorway|Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)|A shore to adore|![](/en-US/2024/12/202412170800ReinefjordenNorway.jpg)|
 202412180800|NutcrackerBallet|English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)|Yule really love this ballet|![](/en-US/2024/12/202412180800NutcrackerBallet.jpg)|
+202412190800|SibiuRomania|Christmas market in Sibiu, Romania (© Calin Stan/Alamy)|Twinkle town|![](/en-US/2024/12/202412190800SibiuRomania.jpg)|

@@ -20,3 +20,4 @@
 202412160800|SalzburgSnow|Salzburg, Austria (© bluejayphoto/Getty Images)|Info|![](/en-AU/2024/12/202412160800SalzburgSnow.jpg)|
 202412170800|ReinefjordenNorway|Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)|Info|![](/en-AU/2024/12/202412170800ReinefjordenNorway.jpg)|
 202412180800|MorningElephants|Elephants in Jim Corbett National Park, India (© ABHILASH VISWA PICASSO/Shutterstock)|Info|![](/en-AU/2024/12/202412180800MorningElephants.jpg)|
+202412190800|SibiuRomania|Sibiu Christmas Market, Romania (© Calin Stan/Alamy Stock Photo)|Info|![](/en-AU/2024/12/202412190800SibiuRomania.jpg)|
