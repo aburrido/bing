@@ -20,3 +20,4 @@
 202412161600|ReinefjordenNorway|传统红色渔民小屋，雷讷峡湾岸边，挪威 (© Pilat666/Getty Images)|值得爱慕的海岸|![](/zh-CN/2024/12/202412161600ReinefjordenNorway.jpg)|
 202412171600|MorningElephants|印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)|壮观的象群队伍|![](/zh-CN/2024/12/202412171600MorningElephants.jpg)|
 202412181600|SibiuRomania|锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)|闪烁的小镇|![](/zh-CN/2024/12/202412181600SibiuRomania.jpg)|
+202412191600|SantaClausVillage|罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock)|圣诞老人要来镇上了|![](/zh-CN/2024/12/202412191600SantaClausVillage.jpg)|
