@@ -20,3 +20,4 @@
 202412161500|ReinefjordenNorway|美しい村レーヌ, ノルウェー (© Pilat666/Getty Images)|赤い木造の漁師小屋|![](/ja-JP/2024/12/202412161500ReinefjordenNorway.jpg)|
 202412171500|NutcrackerBallet|くるみ割り人形 (© Caroline Holden/Alamy)|クリスマスシーズン恒例のバレエ公演|![](/ja-JP/2024/12/202412171500NutcrackerBallet.jpg)|
 202412181500|SibiuRomania|歴史的な都市シビウ, ルーマニア (© Calin Stan/Alamy)|大広場で開かれるクリスマスマーケット|![](/ja-JP/2024/12/202412181500SibiuRomania.jpg)|
+202412191500|SantaClausVillage|ロヴァニエミ近郊のサンタクロース村, フィンランド (© Smelov/Shutterstock)|雪に覆われたきらびやかな村|![](/ja-JP/2024/12/202412191500SantaClausVillage.jpg)|
