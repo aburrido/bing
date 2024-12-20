@@ -21,3 +21,4 @@
 202412172300|NutcrackerBallet|English National Ballet bei der Aufführung von „Der Nussknacker“ (© Caroline Holden/Alamy Stock Photo)|Die Magie des Tanzes|![](/de-DE/2024/12/202412172300NutcrackerBallet.jpg)|
 202412182300|SibiuRomania|Weihnachtsmarkt in Hermannstadt (Sibiu), Rumänien (© Calin Stan/Alamy Stock Photo)|Winterlicher Lichterzauber|![](/de-DE/2024/12/202412182300SibiuRomania.jpg)|
 202412192300|SantaClausVillage|Weihnachtsmanndorf in Rovaniemi, Lappland, Finnland (© Smelov/Shutterstock)|Ist es schon soweit?|![](/de-DE/2024/12/202412192300SantaClausVillage.jpg)|
+202412202300|SolsticeHalo|Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)|Ode an die Sonne|![](/de-DE/2024/12/202412202300SolsticeHalo.jpg)|
