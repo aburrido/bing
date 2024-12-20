@@ -21,3 +21,4 @@
 202412171600|MorningElephants|印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)|壮观的象群队伍|![](/zh-CN/2024/12/202412171600MorningElephants.jpg)|
 202412181600|SibiuRomania|锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)|闪烁的小镇|![](/zh-CN/2024/12/202412181600SibiuRomania.jpg)|
 202412191600|SantaClausVillage|罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock)|圣诞老人要来镇上了|![](/zh-CN/2024/12/202412191600SantaClausVillage.jpg)|
+202412201600|WinterSolstice2024|满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)|极致的冬日景色|![](/zh-CN/2024/12/202412201600WinterSolstice2024.jpg)|
