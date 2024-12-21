@@ -22,3 +22,4 @@
 202412182300|SibiuRomania|Marché de Noël de Sibiu, Roumanie  (© Calin Stan/Alamy)|Noël au Cœur de la Transylvanie|![](/fr-FR/2024/12/202412182300SibiuRomania.jpg)|
 202412192300|SantaClausVillage|Village du Père Noël à Rovaniemi, Laponie, Finlande (© Smelov/Shutterstock)|Là où vit le Père Noël|![](/fr-FR/2024/12/202412192300SantaClausVillage.jpg)|
 202412202300|SolsticeHalo|Halo autour du soleil, Monts Métallifères, Saxe, Allemagne (© Martin Ruegner/Getty Images)|Merveille hivernale|![](/fr-FR/2024/12/202412202300SolsticeHalo.jpg)|
+202412212300|CrystalPier|Arbre de Noël à Crystal Pier, Pacific Beach, San Diego, Californie (© SamAntonioPhotography/Getty Images)|Le surf, le sable et le Père Noël !|![](/fr-FR/2024/12/202412212300CrystalPier.jpg)|
