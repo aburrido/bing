@@ -21,3 +21,4 @@
 202412180000|NutcrackerBallet|English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy Stock Photo)|Yule really love this ballet|![](/en-GB/2024/12/202412180000NutcrackerBallet.jpg)|
 202412190000|SibiuRomania|Sibiu Christmas Market, Romania (© Calin Stan/Alamy Stock Photo)|Twinkle town|![](/en-GB/2024/12/202412190000SibiuRomania.jpg)|
 202412200000|SantaClausVillage|Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)|He's coming to town...|![](/en-GB/2024/12/202412200000SantaClausVillage.jpg)|
+202412210000|BurningOfTheClocks2024|Royal Pavilion, Brighton, England (© Michaelasbest/Shutterstock)|When time burns bright|![](/en-GB/2024/12/202412210000BurningOfTheClocks2024.jpg)|
