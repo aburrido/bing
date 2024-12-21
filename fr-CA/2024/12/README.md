@@ -22,3 +22,4 @@
 202412180500|NutcrackerBallet|Représentation de Casse-Noisette par l’English National Ballet (© Caroline Holden/Alamy)|Le ballet incontournable de ces fêtes|![](/fr-CA/2024/12/202412180500NutcrackerBallet.jpg)|
 202412190500|SibiuRomania|Marché de Noël de Sibiu, Roumanie (© Calin Stan/Alamy)|Noël au Cœur de la Transylvanie|![](/fr-CA/2024/12/202412190500SibiuRomania.jpg)|
 202412200500|SantaClausVillage|Village du Père Noël à Rovaniemi, Laponie, Finlande (© Smelov/Shutterstock)|Là où vit le Père Noël|![](/fr-CA/2024/12/202412200500SantaClausVillage.jpg)|
+202412210500|SolsticeHalo|Halo autour du soleil, Monts Métallifères, Saxe, Allemagne (© Martin Ruegner/Getty Images)|Merveille hivernale|![](/fr-CA/2024/12/202412210500SolsticeHalo.jpg)|

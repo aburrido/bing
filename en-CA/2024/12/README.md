@@ -22,3 +22,4 @@
 202412180500|NutcrackerBallet|English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy Stock Photo)|Yule really love this ballet|![](/en-CA/2024/12/202412180500NutcrackerBallet.jpg)|
 202412190500|SibiuRomania|Sibiu Christmas Market, Romania (© Calin Stan/Alamy Stock Photo)|Twinkle town|![](/en-CA/2024/12/202412190500SibiuRomania.jpg)|
 202412200500|SantaClausVillage|Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)|He's coming to town...|![](/en-CA/2024/12/202412200500SantaClausVillage.jpg)|
+202412210500|SolsticeHalo|Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Midwinter wonderland|![](/en-CA/2024/12/202412210500SolsticeHalo.jpg)|
