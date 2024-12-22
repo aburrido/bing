@@ -23,3 +23,4 @@
 202412192300|SantaClausVillage|Weihnachtsmanndorf in Rovaniemi, Lappland, Finnland (© Smelov/Shutterstock)|Ist es schon soweit?|![](/de-DE/2024/12/202412192300SantaClausVillage.jpg)|
 202412202300|SolsticeHalo|Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)|Ode an die Sonne|![](/de-DE/2024/12/202412202300SolsticeHalo.jpg)|
 202412212300|GermanyAdventWreath|Adventskranz, 4. Advent (© Asvolas/Getty Images)|Steht es schon vor der Tür?|![](/de-DE/2024/12/202412212300GermanyAdventWreath.jpg)|
+202412222300|FestivusCranes|Mandschurenkraniche in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)|Yin und Yang?|![](/de-DE/2024/12/202412222300FestivusCranes.jpg)|
