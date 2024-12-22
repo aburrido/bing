@@ -23,3 +23,4 @@
 202412191600|SantaClausVillage|罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock)|圣诞老人要来镇上了|![](/zh-CN/2024/12/202412191600SantaClausVillage.jpg)|
 202412201600|WinterSolstice2024|满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)|极致的冬日景色|![](/zh-CN/2024/12/202412201600WinterSolstice2024.jpg)|
 202412211600|CrystalPier|水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)|冲浪、沙滩和圣诞老人|![](/zh-CN/2024/12/202412211600CrystalPier.jpg)|
+202412221600|FestivusCranes|钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo)|准备好发泄一些压力了吗？|![](/zh-CN/2024/12/202412221600FestivusCranes.jpg)|
