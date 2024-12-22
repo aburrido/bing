@@ -23,3 +23,4 @@
 202412191500|SantaClausVillage|ロヴァニエミ近郊のサンタクロース村, フィンランド (© Smelov/Shutterstock)|雪に覆われたきらびやかな村|![](/ja-JP/2024/12/202412191500SantaClausVillage.jpg)|
 202412201500|BluePond2024|ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)|今日は冬至|![](/ja-JP/2024/12/202412201500BluePond2024.jpg)|
 202412211500|FestivusCranes|釧路湿原のタンチョウ, 北海道 (© Wirestock, Inc./Alamy)|今日は夫婦の日|![](/ja-JP/2024/12/202412211500FestivusCranes.jpg)|
+202412221500|TokyoTower2024|けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)|今日は東京タワー完工の日|![](/ja-JP/2024/12/202412221500TokyoTower2024.jpg)|
