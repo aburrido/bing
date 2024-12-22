@@ -23,3 +23,4 @@
 202412190800|SibiuRomania|Sibiu Christmas Market, Romania (© Calin Stan/Alamy Stock Photo)|Info|![](/en-AU/2024/12/202412190800SibiuRomania.jpg)|
 202412200800|SantaClausVillage|Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)|Info|![](/en-AU/2024/12/202412200800SantaClausVillage.jpg)|
 202412210800|SolsticeHalo|Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Info|![](/en-AU/2024/12/202412210800SolsticeHalo.jpg)|
+202412220800|CrystalPier|Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)|Info|![](/en-AU/2024/12/202412220800CrystalPier.jpg)|
