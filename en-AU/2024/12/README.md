@@ -24,3 +24,4 @@
 202412200800|SantaClausVillage|Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)|Info|![](/en-AU/2024/12/202412200800SantaClausVillage.jpg)|
 202412210800|SolsticeHalo|Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Info|![](/en-AU/2024/12/202412210800SolsticeHalo.jpg)|
 202412220800|CrystalPier|Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)|Info|![](/en-AU/2024/12/202412220800CrystalPier.jpg)|
+202412230800|FestivusCranes|Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)|Info|![](/en-AU/2024/12/202412230800FestivusCranes.jpg)|
