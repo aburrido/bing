@@ -24,3 +24,4 @@
 202412200500|SantaClausVillage|Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)|He's coming to town...|![](/en-CA/2024/12/202412200500SantaClausVillage.jpg)|
 202412210500|SolsticeHalo|Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Midwinter wonderland|![](/en-CA/2024/12/202412210500SolsticeHalo.jpg)|
 202412220500|CrystalPier|Christmas tree at Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)|Surf, sand and Santa|![](/en-CA/2024/12/202412220500CrystalPier.jpg)|
+202412230500|FestivusCranes|Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)|Ready to let off some steam?|![](/en-CA/2024/12/202412230500FestivusCranes.jpg)|
