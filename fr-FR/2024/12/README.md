@@ -24,3 +24,4 @@
 202412202300|SolsticeHalo|Halo autour du soleil, Monts Métallifères, Saxe, Allemagne (© Martin Ruegner/Getty Images)|Merveille hivernale|![](/fr-FR/2024/12/202412202300SolsticeHalo.jpg)|
 202412212300|CrystalPier|Arbre de Noël à Crystal Pier, Pacific Beach, San Diego, Californie (© SamAntonioPhotography/Getty Images)|Le surf, le sable et le Père Noël !|![](/fr-FR/2024/12/202412212300CrystalPier.jpg)|
 202412222300|FestivusCranes|Grues du Japon, Kushiro, Hokkaido, Japon (© Wirestock, Inc./Alamy)|L'art du vol|![](/fr-FR/2024/12/202412222300FestivusCranes.jpg)|
+202412232300|SantaSnowglobe|Marché de Noël en Allemagne (© Cyril Gosselin/Getty Images)|N’oubliez pas vos petits souliers !|![](/fr-FR/2024/12/202412232300SantaSnowglobe.jpg)|

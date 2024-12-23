@@ -24,3 +24,4 @@
 202412202300|SolsticeHalo|Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)|Ode an die Sonne|![](/de-DE/2024/12/202412202300SolsticeHalo.jpg)|
 202412212300|GermanyAdventWreath|Adventskranz, 4. Advent (© Asvolas/Getty Images)|Steht es schon vor der Tür?|![](/de-DE/2024/12/202412212300GermanyAdventWreath.jpg)|
 202412222300|FestivusCranes|Mandschurenkraniche in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)|Yin und Yang?|![](/de-DE/2024/12/202412222300FestivusCranes.jpg)|
+202412232300|SantaSnowglobe|Schneekugel mit dem Weihnachtsmann (© Cyril Gosselin/Getty Images)|Fröhliche Weihnachten allen heut’, Licht und Liebe für alle Leut’|![](/de-DE/2024/12/202412232300SantaSnowglobe.jpg)|
