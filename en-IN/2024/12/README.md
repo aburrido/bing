@@ -25,3 +25,4 @@
 202412211830|CrystalPier|Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)|Surf, sand and Santa|![](/en-IN/2024/12/202412211830CrystalPier.jpg)|
 202412221830|DhamekStupa|Dhamek Stupa, Sarnath, Uttar Pradesh (© Dinodia Photo/Getty Images)|Enlightened foundations|![](/en-IN/2024/12/202412221830DhamekStupa.jpg)|
 202412231830|SantaSnowglobe|Christmas market scene in Germany (© Cyril Gosselin/Getty Images)|Have yourself a very merry Christmas!|![](/en-IN/2024/12/202412231830SantaSnowglobe.jpg)|
+202412241830|ReindeerTrio|Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Merry Christmas!|![](/en-IN/2024/12/202412241830ReindeerTrio.jpg)|
