@@ -25,3 +25,4 @@
 202412211600|CrystalPier|水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)|冲浪、沙滩和圣诞老人|![](/zh-CN/2024/12/202412211600CrystalPier.jpg)|
 202412221600|FestivusCranes|钏路的两只丹顶鹤，北海道，日本 (© Wirestock, Inc./Alamy Stock Photo)|准备好发泄一些压力了吗？|![](/zh-CN/2024/12/202412221600FestivusCranes.jpg)|
 202412231600|SantaSnowglobe|德国圣诞市场 (© Cyril Gosselin/Getty Images)|祝你圣诞快乐！|![](/zh-CN/2024/12/202412231600SantaSnowglobe.jpg)|
+202412241600|CovadongaWinter|科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)|传说中的风景|![](/zh-CN/2024/12/202412241600CovadongaWinter.jpg)|
