@@ -25,3 +25,4 @@
 202412210500|SolsticeHalo|Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)|Midwinter wonderland|![](/en-CA/2024/12/202412210500SolsticeHalo.jpg)|
 202412220500|CrystalPier|Christmas tree at Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)|Surf, sand and Santa|![](/en-CA/2024/12/202412220500CrystalPier.jpg)|
 202412230500|FestivusCranes|Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)|Ready to let off some steam?|![](/en-CA/2024/12/202412230500FestivusCranes.jpg)|
+202412240500|SantaSnowglobe|Christmas market scene in Germany (© Cyril Gosselin/Getty Images)|Have yourself a very merry Christmas!|![](/en-CA/2024/12/202412240500SantaSnowglobe.jpg)|
