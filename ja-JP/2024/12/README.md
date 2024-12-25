@@ -26,3 +26,4 @@
 202412221500|TokyoTower2024|けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)|今日は東京タワー完工の日|![](/ja-JP/2024/12/202412221500TokyoTower2024.jpg)|
 202412231500|SantaSnowglobe|クリスマスマーケットの工芸品, ドイツ (© Cyril Gosselin/Getty Images)|今日はクリスマス・イブ|![](/ja-JP/2024/12/202412231500SantaSnowglobe.jpg)|
 202412241500|ReindeerTrio|スヴァールバル諸島のトナカイ, ノルウェー (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|今日はクリスマス|![](/ja-JP/2024/12/202412241500ReindeerTrio.jpg)|
+202412251500|MouseholeXmas|マウゼル, イングランド (© ianwool/Getty Images)|今日はボクシング・デー|![](/ja-JP/2024/12/202412251500MouseholeXmas.jpg)|
