@@ -26,3 +26,4 @@
 202412220800|CrystalPier|Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)|Info|![](/en-AU/2024/12/202412220800CrystalPier.jpg)|
 202412230800|FestivusCranes|Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)|Info|![](/en-AU/2024/12/202412230800FestivusCranes.jpg)|
 202412240800|FreudenbergHistoricHouses|Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)|Info|![](/en-AU/2024/12/202412240800FreudenbergHistoricHouses.jpg)|
+202412250800|CovadongaWinter|Lakes of Covadonga, Asturias, Spain (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2024/12/202412250800CovadongaWinter.jpg)|
