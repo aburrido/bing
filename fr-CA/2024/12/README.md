@@ -26,3 +26,4 @@
 202412220500|CrystalPier|Arbre de Noël à Crystal Pier, Pacific Beach, San Diego, Californie, États-Unis (© SamAntonioPhotography/Getty Images)|Le surf, le sable et le Père Noël!|![](/fr-CA/2024/12/202412220500CrystalPier.jpg)|
 202412230500|FestivusCranes|Grues du Japon, Kushiro, Hokkaido, Japon (© Wirestock, Inc./Alamy)|L'art du vol|![](/fr-CA/2024/12/202412230500FestivusCranes.jpg)|
 202412240500|SantaSnowglobe|Marché de Noël en Allemagne (© Cyril Gosselin/Getty Images)|N’oubliez pas vos petits souliers!|![](/fr-CA/2024/12/202412240500SantaSnowglobe.jpg)|
+202412250500|Christmas24|Arbres de Noël avec la montagne Three Sisters en arrière-plan, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)|Joyeux Noël!|![](/fr-CA/2024/12/202412250500Christmas24.jpg)|
