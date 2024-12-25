@@ -25,3 +25,4 @@
 202412220000|CrystalPier|Christmas tree at Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)|Surf, sand and Santa|![](/en-GB/2024/12/202412220000CrystalPier.jpg)|
 202412230000|FestivusCranes|Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)|Ready to let off some steam?|![](/en-GB/2024/12/202412230000FestivusCranes.jpg)|
 202412240000|SantaSnowglobe|Christmas market scene in Germany (© Cyril Gosselin/Getty Images)|Have yourself a very merry Christmas!|![](/en-GB/2024/12/202412240000SantaSnowglobe.jpg)|
+202412250000|ReindeerTrio|Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Merry Christmas!|![](/en-GB/2024/12/202412250000ReindeerTrio.jpg)|
