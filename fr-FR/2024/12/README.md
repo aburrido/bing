@@ -26,3 +26,4 @@
 202412222300|FestivusCranes|Grues du Japon, Kushiro, Hokkaido, Japon (© Wirestock, Inc./Alamy)|L'art du vol|![](/fr-FR/2024/12/202412222300FestivusCranes.jpg)|
 202412232300|SantaSnowglobe|Marché de Noël en Allemagne (© Cyril Gosselin/Getty Images)|N’oubliez pas vos petits souliers !|![](/fr-FR/2024/12/202412232300SantaSnowglobe.jpg)|
 202412242300|ReindeerTrio|Rennes du Svalbard, parc national de Van Mijenfjorden, Norvège (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Joyeux Noël !|![](/fr-FR/2024/12/202412242300ReindeerTrio.jpg)|
+202412252300|PointeDiable|Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)|Le souffle du diable et de la nature|![](/fr-FR/2024/12/202412252300PointeDiable.jpg)|
