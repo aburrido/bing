@@ -27,3 +27,4 @@
 202412232300|SantaSnowglobe|Schneekugel mit dem Weihnachtsmann (© Cyril Gosselin/Getty Images)|Fröhliche Weihnachten allen heut’, Licht und Liebe für alle Leut’|![](/de-DE/2024/12/202412232300SantaSnowglobe.jpg)|
 202412242300|ReindeerTrio|Spitzbergen-Rentiere im Van Mijenfjord NP, Norwegen (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Fröhliches Weihnachtsfest!|![](/de-DE/2024/12/202412242300ReindeerTrio.jpg)|
 202412252300|MouseholeXmas|Weihnachtsbeleuchtung im Hafen von Mousehole, Cornwall, England (© ianwool/Getty Images)|Die Ferien gehen weiter|![](/de-DE/2024/12/202412252300MouseholeXmas.jpg)|
+202412262300|LakeBledSnow|Bleder See, Slowenien (© Kesu01/Getty Images)|Wenn Wintermärchen wahr werden|![](/de-DE/2024/12/202412262300LakeBledSnow.jpg)|
