@@ -27,3 +27,4 @@
 202412231600|SantaSnowglobe|德国圣诞市场 (© Cyril Gosselin/Getty Images)|祝你圣诞快乐！|![](/zh-CN/2024/12/202412231600SantaSnowglobe.jpg)|
 202412241600|CovadongaWinter|科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)|传说中的风景|![](/zh-CN/2024/12/202412241600CovadongaWinter.jpg)|
 202412251600|MouseholeXmas|莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)|节日还在继续|![](/zh-CN/2024/12/202412251600MouseholeXmas.jpg)|
+202412261600|LakeBledSnow|布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)|冰雪倒影和积雪覆盖的群峰|![](/zh-CN/2024/12/202412261600LakeBledSnow.jpg)|
