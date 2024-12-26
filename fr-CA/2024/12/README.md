@@ -27,3 +27,4 @@
 202412230500|FestivusCranes|Grues du Japon, Kushiro, Hokkaido, Japon (© Wirestock, Inc./Alamy)|L'art du vol|![](/fr-CA/2024/12/202412230500FestivusCranes.jpg)|
 202412240500|SantaSnowglobe|Marché de Noël en Allemagne (© Cyril Gosselin/Getty Images)|N’oubliez pas vos petits souliers!|![](/fr-CA/2024/12/202412240500SantaSnowglobe.jpg)|
 202412250500|Christmas24|Arbres de Noël avec la montagne Three Sisters en arrière-plan, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)|Joyeux Noël!|![](/fr-CA/2024/12/202412250500Christmas24.jpg)|
+202412260500|BoxingDay24|Horloge à vapeur de Gastown à Vancouver, Colombie-Britannique (© J Duquette/iStock/Getty Images)|La magie se poursuit|![](/fr-CA/2024/12/202412260500BoxingDay24.jpg)|

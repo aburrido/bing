@@ -27,3 +27,4 @@
 202412230500|FestivusCranes|Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)|Ready to let off some steam?|![](/en-CA/2024/12/202412230500FestivusCranes.jpg)|
 202412240500|SantaSnowglobe|Christmas market scene in Germany (© Cyril Gosselin/Getty Images)|Have yourself a very merry Christmas!|![](/en-CA/2024/12/202412240500SantaSnowglobe.jpg)|
 202412250500|Christmas24|Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)|Merry Christmas!|![](/en-CA/2024/12/202412250500Christmas24.jpg)|
+202412260500|BoxingDay24|Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)|The holidays continue|![](/en-CA/2024/12/202412260500BoxingDay24.jpg)|
