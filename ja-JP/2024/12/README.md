@@ -27,3 +27,4 @@
 202412231500|SantaSnowglobe|クリスマスマーケットの工芸品, ドイツ (© Cyril Gosselin/Getty Images)|今日はクリスマス・イブ|![](/ja-JP/2024/12/202412231500SantaSnowglobe.jpg)|
 202412241500|ReindeerTrio|スヴァールバル諸島のトナカイ, ノルウェー (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|今日はクリスマス|![](/ja-JP/2024/12/202412241500ReindeerTrio.jpg)|
 202412251500|MouseholeXmas|マウゼル, イングランド (© ianwool/Getty Images)|今日はボクシング・デー|![](/ja-JP/2024/12/202412251500MouseholeXmas.jpg)|
+202412261500|LakeBledSnow|ブレッド湖, スロベニア (© Kesu01/Getty Images)|おとぎ話の世界|![](/ja-JP/2024/12/202412261500LakeBledSnow.jpg)|
