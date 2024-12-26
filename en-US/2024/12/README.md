@@ -27,3 +27,4 @@
 202412230800|FestivusCranes|Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)|Ready to let off some steam?|![](/en-US/2024/12/202412230800FestivusCranes.jpg)|
 202412240800|SantaSnowglobe|Christmas market scene in Germany (© Cyril Gosselin/Getty Images)|Have yourself a very merry Christmas!|![](/en-US/2024/12/202412240800SantaSnowglobe.jpg)|
 202412250800|ReindeerTrio|Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Merry Christmas!|![](/en-US/2024/12/202412250800ReindeerTrio.jpg)|
+202412260800|MouseholeXmas|Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)|The holidays continue|![](/en-US/2024/12/202412260800MouseholeXmas.jpg)|
