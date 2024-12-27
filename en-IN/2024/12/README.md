@@ -28,3 +28,4 @@
 202412241830|ReindeerTrio|Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Merry Christmas!|![](/en-IN/2024/12/202412241830ReindeerTrio.jpg)|
 202412251830|MouseholeXmas|Christmas lights at Mousehole harbour, Cornwall, England (© ianwool/Getty Images)|The holidays continue|![](/en-IN/2024/12/202412251830MouseholeXmas.jpg)|
 202412261830|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-IN/2024/12/202412261830LakeBledSnow.jpg)|
+202412271830|DudhsagarFalls|Dudhsagar Falls, Goa (© Basavaraj s y/Shutterstock)|Pouring wonders|![](/en-IN/2024/12/202412271830DudhsagarFalls.jpg)|
