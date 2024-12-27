@@ -28,3 +28,4 @@
 202412242300|ReindeerTrio|Rennes du Svalbard, parc national de Van Mijenfjorden, Norvège (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Joyeux Noël !|![](/fr-FR/2024/12/202412242300ReindeerTrio.jpg)|
 202412252300|PointeDiable|Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)|Le souffle du diable et de la nature|![](/fr-FR/2024/12/202412252300PointeDiable.jpg)|
 202412262300|LakeBledSnow|Lac de Bled, Slovénie (© Kesu01/Getty Images)|Des magnifiques reflets glacés|![](/fr-FR/2024/12/202412262300LakeBledSnow.jpg)|
+202412272300|CoralTurtle|Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)|La doyenne de nos océans|![](/fr-FR/2024/12/202412272300CoralTurtle.jpg)|
