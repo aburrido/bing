@@ -28,3 +28,4 @@
 202412240800|FreudenbergHistoricHouses|Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)|Info|![](/en-AU/2024/12/202412240800FreudenbergHistoricHouses.jpg)|
 202412250800|CovadongaWinter|Lakes of Covadonga, Asturias, Spain (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2024/12/202412250800CovadongaWinter.jpg)|
 202412260800|MouseholeXmas|Christmas lights at Mousehole harbour, Cornwall, England (© ianwool/Getty Images)|Info|![](/en-AU/2024/12/202412260800MouseholeXmas.jpg)|
+202412270800|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Info|![](/en-AU/2024/12/202412270800LakeBledSnow.jpg)|
