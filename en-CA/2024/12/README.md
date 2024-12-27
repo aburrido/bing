@@ -28,3 +28,4 @@
 202412240500|SantaSnowglobe|Christmas market scene in Germany (© Cyril Gosselin/Getty Images)|Have yourself a very merry Christmas!|![](/en-CA/2024/12/202412240500SantaSnowglobe.jpg)|
 202412250500|Christmas24|Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)|Merry Christmas!|![](/en-CA/2024/12/202412250500Christmas24.jpg)|
 202412260500|BoxingDay24|Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)|The holidays continue|![](/en-CA/2024/12/202412260500BoxingDay24.jpg)|
+202412270500|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-CA/2024/12/202412270500LakeBledSnow.jpg)|
