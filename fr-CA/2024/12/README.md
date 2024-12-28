@@ -29,3 +29,4 @@
 202412250500|Christmas24|Arbres de Noël avec la montagne Three Sisters en arrière-plan, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)|Joyeux Noël!|![](/fr-CA/2024/12/202412250500Christmas24.jpg)|
 202412260500|BoxingDay24|Horloge à vapeur de Gastown à Vancouver, Colombie-Britannique (© J Duquette/iStock/Getty Images)|La magie se poursuit|![](/fr-CA/2024/12/202412260500BoxingDay24.jpg)|
 202412270500|LakeBledSnow|Lac de Bled, Slovénie (© Kesu01/Getty Images)|Des magnifiques reflets glacés|![](/fr-CA/2024/12/202412270500LakeBledSnow.jpg)|
+202412280500|CoralTurtle|Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)|La doyenne de nos océans|![](/fr-CA/2024/12/202412280500CoralTurtle.jpg)|

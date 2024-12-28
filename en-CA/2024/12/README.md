@@ -29,3 +29,4 @@
 202412250500|Christmas24|Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)|Merry Christmas!|![](/en-CA/2024/12/202412250500Christmas24.jpg)|
 202412260500|BoxingDay24|Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)|The holidays continue|![](/en-CA/2024/12/202412260500BoxingDay24.jpg)|
 202412270500|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-CA/2024/12/202412270500LakeBledSnow.jpg)|
+202412280500|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)|Shell-abrating a life|![](/en-CA/2024/12/202412280500CoralTurtle.jpg)|
