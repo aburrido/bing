@@ -29,3 +29,4 @@
 202412250800|CovadongaWinter|Lakes of Covadonga, Asturias, Spain (© Carlos Fernandez/Getty Images)|Info|![](/en-AU/2024/12/202412250800CovadongaWinter.jpg)|
 202412260800|MouseholeXmas|Christmas lights at Mousehole harbour, Cornwall, England (© ianwool/Getty Images)|Info|![](/en-AU/2024/12/202412260800MouseholeXmas.jpg)|
 202412270800|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Info|![](/en-AU/2024/12/202412270800LakeBledSnow.jpg)|
+202412280800|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)|Info|![](/en-AU/2024/12/202412280800CoralTurtle.jpg)|
