@@ -29,3 +29,4 @@
 202412251600|MouseholeXmas|莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)|节日还在继续|![](/zh-CN/2024/12/202412251600MouseholeXmas.jpg)|
 202412261600|LakeBledSnow|布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)|冰雪倒影和积雪覆盖的群峰|![](/zh-CN/2024/12/202412261600LakeBledSnow.jpg)|
 202412271600|CoralTurtle|一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)|保护海洋生物——绿海龟|![](/zh-CN/2024/12/202412271600CoralTurtle.jpg)|
+202412281600|BorobudurBells|婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)|圣山之上|![](/zh-CN/2024/12/202412281600BorobudurBells.jpg)|
