@@ -29,3 +29,4 @@
 202412252300|PointeDiable|Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)|Le souffle du diable et de la nature|![](/fr-FR/2024/12/202412252300PointeDiable.jpg)|
 202412262300|LakeBledSnow|Lac de Bled, Slovénie (© Kesu01/Getty Images)|Des magnifiques reflets glacés|![](/fr-FR/2024/12/202412262300LakeBledSnow.jpg)|
 202412272300|CoralTurtle|Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)|La doyenne de nos océans|![](/fr-FR/2024/12/202412272300CoralTurtle.jpg)|
+202412282300|BorobudurBells|Temple de Borobudur, Java, Indonésie (© Robertharding/Shutterstock)|La montagne sacrée|![](/fr-FR/2024/12/202412282300BorobudurBells.jpg)|

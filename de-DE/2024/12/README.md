@@ -29,3 +29,4 @@
 202412252300|MouseholeXmas|Weihnachtsbeleuchtung im Hafen von Mousehole, Cornwall, England (© ianwool/Getty Images)|Die Ferien gehen weiter|![](/de-DE/2024/12/202412252300MouseholeXmas.jpg)|
 202412262300|LakeBledSnow|Bleder See, Slowenien (© Kesu01/Getty Images)|Wenn Wintermärchen wahr werden|![](/de-DE/2024/12/202412262300LakeBledSnow.jpg)|
 202412272300|CoralTurtle|Eine Grüne Meeresschildkröte schwimmt im Pazifischen Ozean in der Nähe des französischen Überseegebiets Neukaledonien (© Damsea/Shutterstock)|Schatten im Paradies|![](/de-DE/2024/12/202412272300CoralTurtle.jpg)|
+202412282300|BorobudurBells|Borobudur TeBorobudur-Tempel, Java, Indonesien (© Robertharding/Shutterstock)|Auf dem heiligen Berg|![](/de-DE/2024/12/202412282300BorobudurBells.jpg)|
