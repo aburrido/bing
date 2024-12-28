@@ -29,3 +29,4 @@
 202412251500|MouseholeXmas|マウゼル, イングランド (© ianwool/Getty Images)|今日はボクシング・デー|![](/ja-JP/2024/12/202412251500MouseholeXmas.jpg)|
 202412261500|LakeBledSnow|ブレッド湖, スロベニア (© Kesu01/Getty Images)|おとぎ話の世界|![](/ja-JP/2024/12/202412261500LakeBledSnow.jpg)|
 202412271500|CoralTurtle|アオウミガメ, フランス (© Damsea/Shutterstock)|今日は米国絶滅危惧種保護法制定の日|![](/ja-JP/2024/12/202412271500CoralTurtle.jpg)|
+202412281500|BorobudurBells|ボロブドゥール遺跡, インドネシア (© Robertharding/Shutterstock)|仏教の世界観を表した寺院|![](/ja-JP/2024/12/202412281500BorobudurBells.jpg)|
