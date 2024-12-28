@@ -28,3 +28,4 @@
 202412250000|ReindeerTrio|Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)|Merry Christmas!|![](/en-GB/2024/12/202412250000ReindeerTrio.jpg)|
 202412260000|MouseholeXmas|Christmas lights at Mousehole harbour, Cornwall, England (© ianwool/Getty Images)|The holidays continue|![](/en-GB/2024/12/202412260000MouseholeXmas.jpg)|
 202412270000|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-GB/2024/12/202412270000LakeBledSnow.jpg)|
+202412280000|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)|Shell-abrating a life|![](/en-GB/2024/12/202412280000CoralTurtle.jpg)|
