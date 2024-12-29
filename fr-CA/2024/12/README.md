@@ -30,3 +30,4 @@
 202412260500|BoxingDay24|Horloge à vapeur de Gastown à Vancouver, Colombie-Britannique (© J Duquette/iStock/Getty Images)|La magie se poursuit|![](/fr-CA/2024/12/202412260500BoxingDay24.jpg)|
 202412270500|LakeBledSnow|Lac de Bled, Slovénie (© Kesu01/Getty Images)|Des magnifiques reflets glacés|![](/fr-CA/2024/12/202412270500LakeBledSnow.jpg)|
 202412280500|CoralTurtle|Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)|La doyenne de nos océans|![](/fr-CA/2024/12/202412280500CoralTurtle.jpg)|
+202412290500|BorobudurBells|Temple de Borobudur, Java, Indonésie (© Robertharding/Shutterstock)|La montagne sacrée|![](/fr-CA/2024/12/202412290500BorobudurBells.jpg)|

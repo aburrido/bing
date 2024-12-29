@@ -30,3 +30,4 @@
 202412260500|BoxingDay24|Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)|The holidays continue|![](/en-CA/2024/12/202412260500BoxingDay24.jpg)|
 202412270500|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-CA/2024/12/202412270500LakeBledSnow.jpg)|
 202412280500|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)|Shell-abrating a life|![](/en-CA/2024/12/202412280500CoralTurtle.jpg)|
+202412290500|BorobudurBells|Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)|On the sacred mountain|![](/en-CA/2024/12/202412290500BorobudurBells.jpg)|
