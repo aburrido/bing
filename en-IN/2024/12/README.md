@@ -30,3 +30,4 @@
 202412261830|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-IN/2024/12/202412261830LakeBledSnow.jpg)|
 202412271830|DudhsagarFalls|Dudhsagar Falls, Goa (© Basavaraj s y/Shutterstock)|Pouring wonders|![](/en-IN/2024/12/202412271830DudhsagarFalls.jpg)|
 202412281830|BorobudurBells|Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)|On the sacred mountain|![](/en-IN/2024/12/202412281830BorobudurBells.jpg)|
+202412291830|MountFieldNP|Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)|A park for all seasons|![](/en-IN/2024/12/202412291830MountFieldNP.jpg)|
