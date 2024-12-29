@@ -30,3 +30,4 @@
 202412260800|MouseholeXmas|Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)|The holidays continue|![](/en-US/2024/12/202412260800MouseholeXmas.jpg)|
 202412270800|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Icy reflections and snow-dusted peaks|![](/en-US/2024/12/202412270800LakeBledSnow.jpg)|
 202412280800|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)|Shell-abrating a life|![](/en-US/2024/12/202412280800CoralTurtle.jpg)|
+202412290800|BorobudurBells|Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)|On the sacred mountain|![](/en-US/2024/12/202412290800BorobudurBells.jpg)|
