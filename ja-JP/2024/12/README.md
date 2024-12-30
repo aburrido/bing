@@ -31,3 +31,4 @@
 202412271500|CoralTurtle|アオウミガメ, フランス (© Damsea/Shutterstock)|今日は米国絶滅危惧種保護法制定の日|![](/ja-JP/2024/12/202412271500CoralTurtle.jpg)|
 202412281500|BorobudurBells|ボロブドゥール遺跡, インドネシア (© Robertharding/Shutterstock)|仏教の世界観を表した寺院|![](/ja-JP/2024/12/202412281500BorobudurBells.jpg)|
 202412291500|MountFieldNP|マウントフィールド国立公園, オーストラリア (© Whitworth Images/Getty Images)|タスマニア固有のユニークな植物|![](/ja-JP/2024/12/202412291500MountFieldNP.jpg)|
+202412301500|Omisoka2024|平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)|今日は大晦日|![](/ja-JP/2024/12/202412301500Omisoka2024.jpg)|
