@@ -31,3 +31,4 @@
 202412270800|LakeBledSnow|Lake Bled, Slovenia (© Kesu01/Getty Images)|Info|![](/en-AU/2024/12/202412270800LakeBledSnow.jpg)|
 202412280800|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)|Info|![](/en-AU/2024/12/202412280800CoralTurtle.jpg)|
 202412290800|BorobudurBells|Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)|Info|![](/en-AU/2024/12/202412290800BorobudurBells.jpg)|
+202412300800|MountFieldNP|Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)|Info|![](/en-AU/2024/12/202412300800MountFieldNP.jpg)|
