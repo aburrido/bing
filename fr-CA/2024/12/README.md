@@ -31,3 +31,4 @@
 202412270500|LakeBledSnow|Lac de Bled, Slovénie (© Kesu01/Getty Images)|Des magnifiques reflets glacés|![](/fr-CA/2024/12/202412270500LakeBledSnow.jpg)|
 202412280500|CoralTurtle|Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)|La doyenne de nos océans|![](/fr-CA/2024/12/202412280500CoralTurtle.jpg)|
 202412290500|BorobudurBells|Temple de Borobudur, Java, Indonésie (© Robertharding/Shutterstock)|La montagne sacrée|![](/fr-CA/2024/12/202412290500BorobudurBells.jpg)|
+202412300500|MountFieldNP|Eucalyptus coccifera et pandanus, parc national de Mount Field, Tasmanie, Australie (© Whitworth Images/Getty Images)|Un parc extraordinaire|![](/fr-CA/2024/12/202412300500MountFieldNP.jpg)|
