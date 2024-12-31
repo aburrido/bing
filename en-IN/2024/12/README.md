@@ -32,3 +32,4 @@
 202412281830|BorobudurBells|Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)|On the sacred mountain|![](/en-IN/2024/12/202412281830BorobudurBells.jpg)|
 202412291830|MountFieldNP|Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)|A park for all seasons|![](/en-IN/2024/12/202412291830MountFieldNP.jpg)|
 202412301830|RioNewYear|New Year's Eve fireworks over Copacabana beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)|Midnight in Rio|![](/en-IN/2024/12/202412301830RioNewYear.jpg)|
+202412311830|PolarBearSwim|Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)|Have an ice New Year's Day|![](/en-IN/2024/12/202412311830PolarBearSwim.jpg)|
