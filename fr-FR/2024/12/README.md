@@ -32,3 +32,4 @@
 202412282300|BorobudurBells|Temple de Borobudur, Java, Indonésie (© Robertharding/Shutterstock)|La montagne sacrée|![](/fr-FR/2024/12/202412282300BorobudurBells.jpg)|
 202412292300|MountFieldNP|Eucalyptus coccifera et pandanus, parc national de Mount Field, Tasmanie, Australie (© Whitworth Images/Getty Images)|Un parc extraordinaire|![](/fr-FR/2024/12/202412292300MountFieldNP.jpg)|
 202412302300|ParisNewYearEve|Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)|Le compte à rebours est lancé !|![](/fr-FR/2024/12/202412302300ParisNewYearEve.jpg)|
+202412312300|PolarBearSwim|Ours polaires, Arctique (© Ondrej Prosicky/Shutterstock)|Bienvenue 2025 !|![](/fr-FR/2024/12/202412312300PolarBearSwim.jpg)|

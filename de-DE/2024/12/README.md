@@ -32,3 +32,4 @@
 202412282300|BorobudurBells|Borobudur TeBorobudur-Tempel, Java, Indonesien (© Robertharding/Shutterstock)|Auf dem heiligen Berg|![](/de-DE/2024/12/202412282300BorobudurBells.jpg)|
 202412292300|MountFieldNP|Tasmanischer Schnee-Eukalyptus und Pandani-Pflanzen in der Nähe des Lake Dobson, Mount-Field-Nationalpark, Tasmanien, Australien (© Whitworth Images/Getty Images)|Ein Park für alle Jahreszeiten|![](/de-DE/2024/12/202412292300MountFieldNP.jpg)|
 202412302300|BavariaNewYearsEveFireworks|Silvesterfeuerwerk über der Stadt Garmisch-Partenkirchen mit Blick auf die Zugspitzgruppe, Bayern (© Marc Hohenleitner/Huber/eStock Photo)|Prosit Neujahr!|![](/de-DE/2024/12/202412302300BavariaNewYearsEveFireworks.jpg)|
+202412312300|PolarBearSwim|Eisbären beim Spielen in der Arktis (© Ondrej Prosicky/Shutterstock)|Frohes neues Jahr!|![](/de-DE/2024/12/202412312300PolarBearSwim.jpg)|
