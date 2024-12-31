@@ -32,3 +32,4 @@
 202412281500|BorobudurBells|ボロブドゥール遺跡, インドネシア (© Robertharding/Shutterstock)|仏教の世界観を表した寺院|![](/ja-JP/2024/12/202412281500BorobudurBells.jpg)|
 202412291500|MountFieldNP|マウントフィールド国立公園, オーストラリア (© Whitworth Images/Getty Images)|タスマニア固有のユニークな植物|![](/ja-JP/2024/12/202412291500MountFieldNP.jpg)|
 202412301500|Omisoka2024|平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)|今日は大晦日|![](/ja-JP/2024/12/202412301500Omisoka2024.jpg)|
+202412311500|ShirahigeSunrise2024|朝日と白髭神社の鳥居, 滋賀県 高島市 (© Cavan Images/Alamy Stock Photo)|今日は元日|![](/ja-JP/2024/12/202412311500ShirahigeSunrise2024.jpg)|
