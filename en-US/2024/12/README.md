@@ -32,3 +32,4 @@
 202412280800|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)|Shell-abrating a life|![](/en-US/2024/12/202412280800CoralTurtle.jpg)|
 202412290800|BorobudurBells|Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)|On the sacred mountain|![](/en-US/2024/12/202412290800BorobudurBells.jpg)|
 202412300800|MountFieldNP|Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)|A park for all seasons|![](/en-US/2024/12/202412300800MountFieldNP.jpg)|
+202412310800|RioNewYear|New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)|Midnight in Rio|![](/en-US/2024/12/202412310800RioNewYear.jpg)|
