@@ -32,3 +32,4 @@
 202412281600|BorobudurBells|婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)|圣山之上|![](/zh-CN/2024/12/202412281600BorobudurBells.jpg)|
 202412291600|MountFieldNP|多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)|四季皆美的公园|![](/zh-CN/2024/12/202412291600MountFieldNP.jpg)|
 202412301600|CANYE24|国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)|新年快乐！|![](/zh-CN/2024/12/202412301600CANYE24.jpg)|
+202412311600|PolarBearSwim|在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)|过一个冰雪元旦！|![](/zh-CN/2024/12/202412311600PolarBearSwim.jpg)|
