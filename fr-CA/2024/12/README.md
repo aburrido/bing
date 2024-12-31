@@ -32,3 +32,4 @@
 202412280500|CoralTurtle|Tortue verte, océan Pacifique, Nouvelle-Calédonie (© Damsea/Shutterstock)|La doyenne de nos océans|![](/fr-CA/2024/12/202412280500CoralTurtle.jpg)|
 202412290500|BorobudurBells|Temple de Borobudur, Java, Indonésie (© Robertharding/Shutterstock)|La montagne sacrée|![](/fr-CA/2024/12/202412290500BorobudurBells.jpg)|
 202412300500|MountFieldNP|Eucalyptus coccifera et pandanus, parc national de Mount Field, Tasmanie, Australie (© Whitworth Images/Getty Images)|Un parc extraordinaire|![](/fr-CA/2024/12/202412300500MountFieldNP.jpg)|
+202412310500|CANYE24|Feux d'artifice sur la colline du Parlement, Ottawa, Canada (© naibank/Getty Images)|Minuit au Canada|![](/fr-CA/2024/12/202412310500CANYE24.jpg)|

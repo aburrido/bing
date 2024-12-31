@@ -32,3 +32,4 @@
 202412280500|CoralTurtle|A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)|Shell-abrating a life|![](/en-CA/2024/12/202412280500CoralTurtle.jpg)|
 202412290500|BorobudurBells|Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)|On the sacred mountain|![](/en-CA/2024/12/202412290500BorobudurBells.jpg)|
 202412300500|MountFieldNP|Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)|A park for all seasons|![](/en-CA/2024/12/202412300500MountFieldNP.jpg)|
+202412310500|CANYE24|Fireworks over Parliament Hill with reflection, Ottawa (© naibak/Moment/Getty Images)|Midnight in Canada|![](/en-CA/2024/12/202412310500CANYE24.jpg)|
