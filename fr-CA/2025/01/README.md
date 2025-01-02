@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202412310500|CANYE24|Feux d'artifice sur la colline du Parlement, Ottawa, Canada (© naibank/Getty Images)|Minuit au Canada|![](/fr-CA/2025/01/202412310500CANYE24.jpg)|
 202501010500|PolarBearSwim|Ours polaires, Arctique (© Ondrej Prosicky/Shutterstock)|Bienvenue 2025!|![](/fr-CA/2025/01/202501010500PolarBearSwim.jpg)|
+202501020500|ArdezSwitzerland|Traînées d'étoiles au-dessus du village d'Ardez, Graubunden, Suisse (© Roberto Moiola/Getty Images)|Nuit magique au cœur des Alpes|![](/fr-CA/2025/01/202501020500ArdezSwitzerland.jpg)|
