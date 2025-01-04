@@ -4,3 +4,4 @@
 202501011500|PlumParakeet|コセイインコ, インド カルナータカ州 (© Hira Punjabi/Alamy)|カラフルな鳥|![](/ja-JP/2025/01/202501011500PlumParakeet.jpg)|
 202501021500|TolkienOxford|オックスフォード大学の図書館, イギリス (© atiger/Shutterstock)|今日はトールキンの誕生日|![](/ja-JP/2025/01/202501021500TolkienOxford.jpg)|
 202501031500|BouldersNZ|丸い巨石が転がる海岸, ニュージーランド (© Douglas Pearson/eStock Photo)|今日は石の日|![](/ja-JP/2025/01/202501031500BouldersNZ.jpg)|
+202501041500|ArdezSwitzerland|アルデッツ村, スイス (© Roberto Moiola/Getty Images)|今日は小寒|![](/ja-JP/2025/01/202501041500ArdezSwitzerland.jpg)|
