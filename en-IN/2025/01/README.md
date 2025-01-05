@@ -5,3 +5,4 @@
 202501021830|TolkienOxford|Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)|Ring in the fun|![](/en-IN/2025/01/202501021830TolkienOxford.jpg)|
 202501031830|VietnamFalls|Bản Giốc – Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)|A borderline paradise|![](/en-IN/2025/01/202501031830VietnamFalls.jpg)|
 202501041830|PushkarniTank|Pushkarani, Sri Krishna Temple, Hampi, Karnataka (© ImagesofIndia/Shutterstock)|Steps to serenity|![](/en-IN/2025/01/202501041830PushkarniTank.jpg)|
+202501051830|RavennaBasilica|Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)|Divine depths|![](/en-IN/2025/01/202501051830RavennaBasilica.jpg)|
