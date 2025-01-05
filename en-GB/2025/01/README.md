@@ -4,3 +4,4 @@
 202501020000|ArdezSwitzerland|Star trails over Ardez village, Graubunden, Switzerland (© Roberto Moiola/Getty Images)|The glistening village|![](/en-GB/2025/01/202501020000ArdezSwitzerland.jpg)|
 202501030000|TolkienOxford|Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)|Ring in the fun|![](/en-GB/2025/01/202501030000TolkienOxford.jpg)|
 202501040000|VietnamFalls|Bản Giốc – Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)|A borderline paradise|![](/en-GB/2025/01/202501040000VietnamFalls.jpg)|
+202501050000|PlumParakeet|Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy Stock Photo)|Head-turner on the treetops|![](/en-GB/2025/01/202501050000PlumParakeet.jpg)|
