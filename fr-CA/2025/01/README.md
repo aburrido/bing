@@ -5,3 +5,4 @@
 202501020500|ArdezSwitzerland|Traînées d'étoiles au-dessus du village d'Ardez, Graubunden, Suisse (© Roberto Moiola/Getty Images)|Nuit magique au cœur des Alpes|![](/fr-CA/2025/01/202501020500ArdezSwitzerland.jpg)|
 202501030500|TolkienOxford|Radcliffe Camera et All Souls College, Université d'Oxford, Angleterre (© atiger/Shutterstock)|Là où l’anneau est né|![](/fr-CA/2025/01/202501030500TolkienOxford.jpg)|
 202501040500|VietnamFalls|Chutes de Ban Gioc, Vietnam  (© Shane P. White/Minden Pictures)|Un paradis à la lisière de la frontière|![](/fr-CA/2025/01/202501040500VietnamFalls.jpg)|
+202501050500|PlumParakeet|Perruche à tête de prune, Shimoga, Karnataka, Inde (© Hira Punjabi/Alamy)|Une perruche qui compte pour des prunes!|![](/fr-CA/2025/01/202501050500PlumParakeet.jpg)|
