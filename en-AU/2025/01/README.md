@@ -6,3 +6,4 @@
 202501030800|TolkienOxford|Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)|Info|![](/en-AU/2025/01/202501030800TolkienOxford.jpg)|
 202501040800|VietnamFalls|Bản Giốc – Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)|Info|![](/en-AU/2025/01/202501040800VietnamFalls.jpg)|
 202501050800|PlumParakeet|Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501050800PlumParakeet.jpg)|
+202501060800|RavennaBasilica|Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)|Info|![](/en-AU/2025/01/202501060800RavennaBasilica.jpg)|
