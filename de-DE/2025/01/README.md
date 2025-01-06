@@ -6,3 +6,4 @@
 202501032300|VietnamFalls|Bản-Giốc-Detian-Wasserfälle am Quây Sơn Fluss, Vietnam (© Shane P. White/Minden Pictures)|Sind wir im Paradies?|![](/de-DE/2025/01/202501032300VietnamFalls.jpg)|
 202501042300|WinterLandscapeBavaria|Winterlandschaft in Bayern, Deutschland (© wingmar/Getty Images)|Wo die Stille den Nebel umarmt|![](/de-DE/2025/01/202501042300WinterLandscapeBavaria.jpg)|
 202501052300|RavennaBasilica|Überschwemmte Krypta, Basilika von San Francesco, Ravenna, Italien (© Andrea Pucci/Getty Images)|Heiliges Gewässer?|![](/de-DE/2025/01/202501052300RavennaBasilica.jpg)|
+202501062300|BouldersNZ|Moeraki Boulders bei Sonnenuntergang, Südinsel, Neuseeland (© Douglas Pearson/eStock Photo)|Faszination Steine|![](/de-DE/2025/01/202501062300BouldersNZ.jpg)|
