@@ -6,3 +6,4 @@
 202501031500|BouldersNZ|丸い巨石が転がる海岸, ニュージーランド (© Douglas Pearson/eStock Photo)|今日は石の日|![](/ja-JP/2025/01/202501031500BouldersNZ.jpg)|
 202501041500|ArdezSwitzerland|アルデッツ村, スイス (© Roberto Moiola/Getty Images)|今日は小寒|![](/ja-JP/2025/01/202501041500ArdezSwitzerland.jpg)|
 202501051500|RavennaBasilica|サン・フランチェスコ聖堂, イタリア (© Andrea Pucci/Getty Images)|水没した地下聖堂|![](/ja-JP/2025/01/202501051500RavennaBasilica.jpg)|
+202501061500|VietnamFalls|バンゾック滝, ベトナム (© Shane P. White/Minden Pictures)|豊かな自然に囲まれた壮大な滝|![](/ja-JP/2025/01/202501061500VietnamFalls.jpg)|
