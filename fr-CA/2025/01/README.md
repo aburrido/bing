@@ -6,3 +6,4 @@
 202501030500|TolkienOxford|Radcliffe Camera et All Souls College, Université d'Oxford, Angleterre (© atiger/Shutterstock)|Là où l’anneau est né|![](/fr-CA/2025/01/202501030500TolkienOxford.jpg)|
 202501040500|VietnamFalls|Chutes de Ban Gioc, Vietnam  (© Shane P. White/Minden Pictures)|Un paradis à la lisière de la frontière|![](/fr-CA/2025/01/202501040500VietnamFalls.jpg)|
 202501050500|PlumParakeet|Perruche à tête de prune, Shimoga, Karnataka, Inde (© Hira Punjabi/Alamy)|Une perruche qui compte pour des prunes!|![](/fr-CA/2025/01/202501050500PlumParakeet.jpg)|
+202501060500|RavennaBasilica|Crypte sous l’eau, Basilique Saint-François de Ravenne, Italie (© Andrea Pucci/Getty Images)|L'art à l'italienne|![](/fr-CA/2025/01/202501060500RavennaBasilica.jpg)|
