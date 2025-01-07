@@ -7,3 +7,4 @@
 202501041830|PushkarniTank|Pushkarani, Sri Krishna Temple, Hampi, Karnataka (© ImagesofIndia/Shutterstock)|Steps to serenity|![](/en-IN/2025/01/202501041830PushkarniTank.jpg)|
 202501051830|RavennaBasilica|Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)|Divine depths|![](/en-IN/2025/01/202501051830RavennaBasilica.jpg)|
 202501061830|BouldersNZ|Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)|Rocks and rollers|![](/en-IN/2025/01/202501061830BouldersNZ.jpg)|
+202501071830|GreatWallStairs|Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)|Step up your game|![](/en-IN/2025/01/202501071830GreatWallStairs.jpg)|
