@@ -7,3 +7,4 @@
 202501040500|VietnamFalls|Chutes de Ban Gioc, Vietnam  (© Shane P. White/Minden Pictures)|Un paradis à la lisière de la frontière|![](/fr-CA/2025/01/202501040500VietnamFalls.jpg)|
 202501050500|PlumParakeet|Perruche à tête de prune, Shimoga, Karnataka, Inde (© Hira Punjabi/Alamy)|Une perruche qui compte pour des prunes!|![](/fr-CA/2025/01/202501050500PlumParakeet.jpg)|
 202501060500|RavennaBasilica|Crypte sous l’eau, Basilique Saint-François de Ravenne, Italie (© Andrea Pucci/Getty Images)|L'art à l'italienne|![](/fr-CA/2025/01/202501060500RavennaBasilica.jpg)|
+202501070500|BouldersNZ|Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)|Pierre qui roule….|![](/fr-CA/2025/01/202501070500BouldersNZ.jpg)|
