@@ -7,3 +7,4 @@
 202501041500|ArdezSwitzerland|アルデッツ村, スイス (© Roberto Moiola/Getty Images)|今日は小寒|![](/ja-JP/2025/01/202501041500ArdezSwitzerland.jpg)|
 202501051500|RavennaBasilica|サン・フランチェスコ聖堂, イタリア (© Andrea Pucci/Getty Images)|水没した地下聖堂|![](/ja-JP/2025/01/202501051500RavennaBasilica.jpg)|
 202501061500|VietnamFalls|バンゾック滝, ベトナム (© Shane P. White/Minden Pictures)|豊かな自然に囲まれた壮大な滝|![](/ja-JP/2025/01/202501061500VietnamFalls.jpg)|
+202501071500|GreatWallStairs|雪化粧した万里の長城, 中国 (© View Stock/Alamy)|今日は「勝負事の日」|![](/ja-JP/2025/01/202501071500GreatWallStairs.jpg)|
