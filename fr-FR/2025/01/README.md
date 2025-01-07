@@ -7,3 +7,4 @@
 202501042300|PlumParakeet|Perruche à tête de prune, Shimoga, Karnataka, Inde (© Hira Punjabi/Alamy)|Une perruche qui compte pour des prunes !|![](/fr-FR/2025/01/202501042300PlumParakeet.jpg)|
 202501052300|RavennaBasilica|Crypte sous l’eau, Basilique Saint-François de Ravenne, Italie (© Andrea Pucci/Getty Images)|L'art à l'italienne|![](/fr-FR/2025/01/202501052300RavennaBasilica.jpg)|
 202501062300|BouldersNZ|Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)|Pierre qui roule….|![](/fr-FR/2025/01/202501062300BouldersNZ.jpg)|
+202501072300|GreatWallStairs|La Grande Muraille enneigée, Chine (© View Stock/Alamy)|Il était une fois, la Grande Muraille|![](/fr-FR/2025/01/202501072300GreatWallStairs.jpg)|
