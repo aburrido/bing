@@ -8,3 +8,4 @@
 202501051500|RavennaBasilica|サン・フランチェスコ聖堂, イタリア (© Andrea Pucci/Getty Images)|水没した地下聖堂|![](/ja-JP/2025/01/202501051500RavennaBasilica.jpg)|
 202501061500|VietnamFalls|バンゾック滝, ベトナム (© Shane P. White/Minden Pictures)|豊かな自然に囲まれた壮大な滝|![](/ja-JP/2025/01/202501061500VietnamFalls.jpg)|
 202501071500|GreatWallStairs|雪化粧した万里の長城, 中国 (© View Stock/Alamy)|今日は「勝負事の日」|![](/ja-JP/2025/01/202501071500GreatWallStairs.jpg)|
+202501081500|NamibiaDunes|ナミブ砂漠, ナミビア (© Airpano/Amazing Aerial Agency)|赤く染まる砂丘|![](/ja-JP/2025/01/202501081500NamibiaDunes.jpg)|
