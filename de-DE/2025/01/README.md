@@ -8,3 +8,4 @@
 202501052300|RavennaBasilica|Überschwemmte Krypta, Basilika von San Francesco, Ravenna, Italien (© Andrea Pucci/Getty Images)|Heiliges Gewässer?|![](/de-DE/2025/01/202501052300RavennaBasilica.jpg)|
 202501062300|BouldersNZ|Moeraki Boulders bei Sonnenuntergang, Südinsel, Neuseeland (© Douglas Pearson/eStock Photo)|Faszination Steine|![](/de-DE/2025/01/202501062300BouldersNZ.jpg)|
 202501072300|GreatWallStairs|Schnee auf der Großen Mauer, China (© View Stock/Alamy)|Mauer im Schneekleid|![](/de-DE/2025/01/202501072300GreatWallStairs.jpg)|
+202501082300|NamibiaDunes|Sossusvlei-Sanddünen, Namib-Wüste, Namibia (© Airpano/Amazing Aerial Agency)|Wandelnde Horizonte|![](/de-DE/2025/01/202501082300NamibiaDunes.jpg)|
