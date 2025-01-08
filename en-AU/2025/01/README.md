@@ -8,3 +8,4 @@
 202501050800|PlumParakeet|Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501050800PlumParakeet.jpg)|
 202501060800|RavennaBasilica|Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)|Info|![](/en-AU/2025/01/202501060800RavennaBasilica.jpg)|
 202501070800|BouldersNZ|Moeraki Boulders, South Island, New Zealand (© Douglas Pearson/eStock Photo)|Info|![](/en-AU/2025/01/202501070800BouldersNZ.jpg)|
+202501080800|GreatWallStairs|Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501080800GreatWallStairs.jpg)|
