@@ -9,3 +9,4 @@
 202501060800|RavennaBasilica|Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)|Divine depths|![](/en-US/2025/01/202501060800RavennaBasilica.jpg)|
 202501070800|BouldersNZ|Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)|Rocks and rollers|![](/en-US/2025/01/202501070800BouldersNZ.jpg)|
 202501080800|GreatWallStairs|Snow on the Great Wall of China (© View Stock/Alamy)|Step up your game|![](/en-US/2025/01/202501080800GreatWallStairs.jpg)|
+202501090800|CarterMemorial|The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)|Honoring Jimmy Carter|![](/en-US/2025/01/202501090800CarterMemorial.jpg)|
