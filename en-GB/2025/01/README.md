@@ -8,3 +8,4 @@
 202501060000|RavennaBasilica|Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)|Divine depths|![](/en-GB/2025/01/202501060000RavennaBasilica.jpg)|
 202501070000|BouldersNZ|Moeraki Boulders, South Island, New Zealand (© Douglas Pearson/eStock Photo)|Rocks and rollers|![](/en-GB/2025/01/202501070000BouldersNZ.jpg)|
 202501080000|GreatWallStairs|Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)|A legend carved in stone|![](/en-GB/2025/01/202501080000GreatWallStairs.jpg)|
+202501090000|NamibiaDunes|Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)|Shifting horizons|![](/en-GB/2025/01/202501090000NamibiaDunes.jpg)|
