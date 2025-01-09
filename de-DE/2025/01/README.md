@@ -9,3 +9,4 @@
 202501062300|BouldersNZ|Moeraki Boulders bei Sonnenuntergang, Südinsel, Neuseeland (© Douglas Pearson/eStock Photo)|Faszination Steine|![](/de-DE/2025/01/202501062300BouldersNZ.jpg)|
 202501072300|GreatWallStairs|Schnee auf der Großen Mauer, China (© View Stock/Alamy)|Mauer im Schneekleid|![](/de-DE/2025/01/202501072300GreatWallStairs.jpg)|
 202501082300|NamibiaDunes|Sossusvlei-Sanddünen, Namib-Wüste, Namibia (© Airpano/Amazing Aerial Agency)|Wandelnde Horizonte|![](/de-DE/2025/01/202501082300NamibiaDunes.jpg)|
+202501092300|BubbleLake|Abraham Lake, Alberta, Kanada (© Basic Elements Photography/Getty Images)|Blasen im Eis gefangen|![](/de-DE/2025/01/202501092300BubbleLake.jpg)|

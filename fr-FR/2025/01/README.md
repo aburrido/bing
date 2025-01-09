@@ -9,3 +9,4 @@
 202501062300|BouldersNZ|Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)|Pierre qui roule….|![](/fr-FR/2025/01/202501062300BouldersNZ.jpg)|
 202501072300|GreatWallStairs|La Grande Muraille enneigée, Chine (© View Stock/Alamy)|Il était une fois, la Grande Muraille|![](/fr-FR/2025/01/202501072300GreatWallStairs.jpg)|
 202501082300|NamibiaDunes|Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)|Du sable à perte de vue|![](/fr-FR/2025/01/202501082300NamibiaDunes.jpg)|
+202501092300|DayTintin|Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)|Le plus célèbre des journalistes|![](/fr-FR/2025/01/202501092300DayTintin.jpg)|
