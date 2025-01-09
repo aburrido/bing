@@ -10,3 +10,4 @@
 202501071830|GreatWallStairs|Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)|Step up your game|![](/en-IN/2025/01/202501071830GreatWallStairs.jpg)|
 202501081830|NamibiaDunes|Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)|Shifting horizons|![](/en-IN/2025/01/202501081830NamibiaDunes.jpg)|
 ||||![](/en-IN/2025/01/.jpg)|
+202501091830|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-IN/2025/01/202501091830BubbleLake.jpg)|
