@@ -9,3 +9,4 @@
 202501060500|RavennaBasilica|Crypte sous l’eau, Basilique Saint-François de Ravenne, Italie (© Andrea Pucci/Getty Images)|L'art à l'italienne|![](/fr-CA/2025/01/202501060500RavennaBasilica.jpg)|
 202501070500|BouldersNZ|Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)|Pierre qui roule….|![](/fr-CA/2025/01/202501070500BouldersNZ.jpg)|
 202501080500|GreatWallStairs|La Grande Muraille enneigée, Chine (© View Stock/Alamy)|Il était une fois, la Grande Muraille|![](/fr-CA/2025/01/202501080500GreatWallStairs.jpg)|
+202501090500|NamibiaDunes|Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)|Du sable à perte de vue|![](/fr-CA/2025/01/202501090500NamibiaDunes.jpg)|
