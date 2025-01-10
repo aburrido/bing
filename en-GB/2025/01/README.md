@@ -9,3 +9,4 @@
 202501070000|BouldersNZ|Moeraki Boulders, South Island, New Zealand (© Douglas Pearson/eStock Photo)|Rocks and rollers|![](/en-GB/2025/01/202501070000BouldersNZ.jpg)|
 202501080000|GreatWallStairs|Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)|A legend carved in stone|![](/en-GB/2025/01/202501080000GreatWallStairs.jpg)|
 202501090000|NamibiaDunes|Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)|Shifting horizons|![](/en-GB/2025/01/202501090000NamibiaDunes.jpg)|
+202501100000|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-GB/2025/01/202501100000BubbleLake.jpg)|
