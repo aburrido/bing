@@ -10,3 +10,4 @@
 202501070800|BouldersNZ|Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)|Rocks and rollers|![](/en-US/2025/01/202501070800BouldersNZ.jpg)|
 202501080800|GreatWallStairs|Snow on the Great Wall of China (© View Stock/Alamy)|Step up your game|![](/en-US/2025/01/202501080800GreatWallStairs.jpg)|
 202501090800|CarterMemorial|The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)|Honoring Jimmy Carter|![](/en-US/2025/01/202501090800CarterMemorial.jpg)|
+202501100800|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-US/2025/01/202501100800BubbleLake.jpg)|
