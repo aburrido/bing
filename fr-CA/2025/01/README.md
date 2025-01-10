@@ -10,3 +10,4 @@
 202501070500|BouldersNZ|Moeraki Boulders, Île du Sud, Nouvelle-Zélande (© Douglas Pearson/eStock Photo)|Pierre qui roule….|![](/fr-CA/2025/01/202501070500BouldersNZ.jpg)|
 202501080500|GreatWallStairs|La Grande Muraille enneigée, Chine (© View Stock/Alamy)|Il était une fois, la Grande Muraille|![](/fr-CA/2025/01/202501080500GreatWallStairs.jpg)|
 202501090500|NamibiaDunes|Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)|Du sable à perte de vue|![](/fr-CA/2025/01/202501090500NamibiaDunes.jpg)|
+202501100500|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Des bulles à perte de vue!|![](/fr-CA/2025/01/202501100500BubbleLake.jpg)|
