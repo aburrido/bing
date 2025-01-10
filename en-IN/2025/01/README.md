@@ -11,3 +11,4 @@
 202501081830|NamibiaDunes|Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)|Shifting horizons|![](/en-IN/2025/01/202501081830NamibiaDunes.jpg)|
 ||||![](/en-IN/2025/01/.jpg)|
 202501091830|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-IN/2025/01/202501091830BubbleLake.jpg)|
+202501101830|MeknesMorocco|Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)|Arches of a bygone era|![](/en-IN/2025/01/202501101830MeknesMorocco.jpg)|
