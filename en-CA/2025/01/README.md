@@ -11,3 +11,4 @@
 202501080500|GreatWallStairs|Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)|Step up your game|![](/en-CA/2025/01/202501080500GreatWallStairs.jpg)|
 202501090500|NamibiaDunes|Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)|Shifting horizons|![](/en-CA/2025/01/202501090500NamibiaDunes.jpg)|
 202501100500|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-CA/2025/01/202501100500BubbleLake.jpg)|
+202501110500|MeknesMorocco|Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)|Arches of a bygone era|![](/en-CA/2025/01/202501110500MeknesMorocco.jpg)|

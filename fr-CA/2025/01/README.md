@@ -11,3 +11,4 @@
 202501080500|GreatWallStairs|La Grande Muraille enneigée, Chine (© View Stock/Alamy)|Il était une fois, la Grande Muraille|![](/fr-CA/2025/01/202501080500GreatWallStairs.jpg)|
 202501090500|NamibiaDunes|Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)|Du sable à perte de vue|![](/fr-CA/2025/01/202501090500NamibiaDunes.jpg)|
 202501100500|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Des bulles à perte de vue!|![](/fr-CA/2025/01/202501100500BubbleLake.jpg)|
+202501110500|MeknesMorocco|Monument de Hri souani, Meknès, Maroc  (© Calin Stan/Shutterstock)|Des arches d'un autre temps|![](/fr-CA/2025/01/202501110500MeknesMorocco.jpg)|
