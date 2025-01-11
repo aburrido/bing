@@ -11,3 +11,4 @@
 202501082300|NamibiaDunes|Dunes de Sossusvlei, désert du Namib, Namibie (© Airpano/Amazing Aerial Agency)|Du sable à perte de vue|![](/fr-FR/2025/01/202501082300NamibiaDunes.jpg)|
 202501092300|DayTintin|Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)|Le plus célèbre des journalistes|![](/fr-FR/2025/01/202501092300DayTintin.jpg)|
 202501102300|MeknesMorocco|Monument de Hri souani, Meknès, Maroc (© Calin Stan/Shutterstock)|Des arches d'un autre temps|![](/fr-FR/2025/01/202501102300MeknesMorocco.jpg)|
+202501112300|CrescentTail|Poisson Gros-Yeux, Grande Barrière de Corail, Australie (© Fred Bavendam/Minden Pictures)|Les yeux des abysses|![](/fr-FR/2025/01/202501112300CrescentTail.jpg)|
