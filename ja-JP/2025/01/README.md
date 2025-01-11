@@ -11,3 +11,4 @@
 202501081500|NamibiaDunes|ナミブ砂漠, ナミビア (© Airpano/Amazing Aerial Agency)|赤く染まる砂丘|![](/ja-JP/2025/01/202501081500NamibiaDunes.jpg)|
 202501091500|BubbleLake|アブラハム湖, カナダ アルバータ州 (© Basic Elements Photography/Getty Images)|アイスバブルの聖地|![](/ja-JP/2025/01/202501091500BubbleLake.jpg)|
 202501101500|MeknesMorocco|古都メクネス, モロッコ (© Calin Stan/Shutterstock)|巨大な穀物倉庫|![](/ja-JP/2025/01/202501101500MeknesMorocco.jpg)|
+202501111500|CadizSpain|サアラ・デ・ラ・シエラ,  スペイン (© SEN LI/Getty Images)|エメラルド色の湖と白い村|![](/ja-JP/2025/01/202501111500CadizSpain.jpg)|
