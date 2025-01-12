@@ -13,3 +13,4 @@
 202501091830|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-IN/2025/01/202501091830BubbleLake.jpg)|
 202501101830|MeknesMorocco|Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)|Arches of a bygone era|![](/en-IN/2025/01/202501101830MeknesMorocco.jpg)|
 202501111830|CrescentTail|Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)|Sharp vision in the depths|![](/en-IN/2025/01/202501111830CrescentTail.jpg)|
+202501121830|CoastalWales|Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)|'Welsh' you a Happy Hen Galan!|![](/en-IN/2025/01/202501121830CoastalWales.jpg)|
