@@ -12,3 +12,4 @@
 202501092300|BubbleLake|Abraham Lake, Alberta, Kanada (© Basic Elements Photography/Getty Images)|Blasen im Eis gefangen|![](/de-DE/2025/01/202501092300BubbleLake.jpg)|
 202501102300|GermanyAppleOnWinterTree|Apfel hängt an einem verschneiten Baum, Deutschland (© Westend61/Getty Images)|Ein Hauch von Rot im Winter|![](/de-DE/2025/01/202501102300GermanyAppleOnWinterTree.jpg)|
 202501112300|CrescentTail|Riff-Großaugenbarsch im Great Barrier Reef, Australien (© Fred Bavendam/Minden Pictures)|Unterwasser-Zauber|![](/de-DE/2025/01/202501112300CrescentTail.jpg)|
+202501122300|CoastalWales|Cottage und Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Wales, UK (© Westend61 on Offset/Shutterstock)|Ruhe und Frieden|![](/de-DE/2025/01/202501122300CoastalWales.jpg)|
