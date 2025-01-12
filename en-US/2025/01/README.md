@@ -12,3 +12,4 @@
 202501090800|CarterMemorial|The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)|Honoring Jimmy Carter|![](/en-US/2025/01/202501090800CarterMemorial.jpg)|
 202501100800|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Bubbles, bubbles everywhere|![](/en-US/2025/01/202501100800BubbleLake.jpg)|
 202501110800|MeknesMorocco|Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)|Arches of a bygone era|![](/en-US/2025/01/202501110800MeknesMorocco.jpg)|
+202501120800|CrescentTail|Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)|Sharp vision in the depths|![](/en-US/2025/01/202501120800CrescentTail.jpg)|

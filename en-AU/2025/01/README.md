@@ -12,3 +12,4 @@
 202501090800|NamibiaDunes|Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)|Info|![](/en-AU/2025/01/202501090800NamibiaDunes.jpg)|
 202501100800|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Info|![](/en-AU/2025/01/202501100800BubbleLake.jpg)|
 202501110800|MeknesMorocco|Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)|Info|![](/en-AU/2025/01/202501110800MeknesMorocco.jpg)|
+202501120800|CrescentTail|Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)|Info|![](/en-AU/2025/01/202501120800CrescentTail.jpg)|
