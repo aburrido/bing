@@ -12,3 +12,4 @@
 202501091600|BubbleLake|亚伯拉罕湖，阿尔伯塔省，加拿大 (© Basic Elements Photography/Getty Images)|冰层中气泡奇观|![](/zh-CN/2025/01/202501091600BubbleLake.jpg)|
 202501101600|MeknesMorocco|梅克内斯的Heri es-Swani，摩洛哥 (© Calin Stan/Shutterstock)|旧时代的古老拱门|![](/zh-CN/2025/01/202501101600MeknesMorocco.jpg)|
 202501111600|CrescentTail|大堡礁的宝石大眼鲷鱼，澳大利亚 (© Fred Bavendam/Minden Pictures)|深海中的锐利目光|![](/zh-CN/2025/01/202501111600CrescentTail.jpg)|
+202501121600|CoastalWales|小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国 (© Westend61 on Offset/Shutterstock)|“威尔士”祝你新年快乐！|![](/zh-CN/2025/01/202501121600CoastalWales.jpg)|
