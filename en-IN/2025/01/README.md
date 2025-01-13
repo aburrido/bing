@@ -14,3 +14,4 @@
 202501101830|MeknesMorocco|Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)|Arches of a bygone era|![](/en-IN/2025/01/202501101830MeknesMorocco.jpg)|
 202501111830|CrescentTail|Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)|Sharp vision in the depths|![](/en-IN/2025/01/202501111830CrescentTail.jpg)|
 202501121830|CoastalWales|Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)|'Welsh' you a Happy Hen Galan!|![](/en-IN/2025/01/202501121830CoastalWales.jpg)|
+202501131830|SkyKites|Sky full of kites (© anand purohit/Getty Images)|Stringing traditions in the sky|![](/en-IN/2025/01/202501131830SkyKites.jpg)|
