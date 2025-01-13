@@ -13,3 +13,4 @@
 202501100500|BubbleLake|Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)|Des bulles à perte de vue!|![](/fr-CA/2025/01/202501100500BubbleLake.jpg)|
 202501110500|MeknesMorocco|Monument de Hri souani, Meknès, Maroc  (© Calin Stan/Shutterstock)|Des arches d'un autre temps|![](/fr-CA/2025/01/202501110500MeknesMorocco.jpg)|
 202501120500|CrescentTail|Poisson Gros-Yeux, Grande Barrière de Corail, Australie (© Fred Bavendam/Minden Pictures)|Les yeux des abysses|![](/fr-CA/2025/01/202501120500CrescentTail.jpg)|
+202501130500|CoastalWales|Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)|Un nouvel an retardataire|![](/fr-CA/2025/01/202501130500CoastalWales.jpg)|
