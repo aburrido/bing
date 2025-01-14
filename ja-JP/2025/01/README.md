@@ -15,3 +15,4 @@
 202501121500|CoastalWales|イニス・ランドウィン, ウェールズ (© Westend61 on Offset/Shutterstock)|今日はウェールズの新年|![](/ja-JP/2025/01/202501121500CoastalWales.jpg)|
 202501131500|MuseumCourt|大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)|明日は大英博物館の開館日|![](/ja-JP/2025/01/202501131500MuseumCourt.jpg)|
 ||||![](/ja-JP/2025/01/.jpg)|
+202501141500|Mochibana2025|カラフルな餅花, 愛知県 豊田市 (© Photo taken by Bong Grit/Getty Images)|今日は小正月|![](/ja-JP/2025/01/202501141500Mochibana2025.jpg)|
