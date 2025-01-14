@@ -14,3 +14,4 @@
 202501111500|CadizSpain|サアラ・デ・ラ・シエラ,  スペイン (© SEN LI/Getty Images)|エメラルド色の湖と白い村|![](/ja-JP/2025/01/202501111500CadizSpain.jpg)|
 202501121500|CoastalWales|イニス・ランドウィン, ウェールズ (© Westend61 on Offset/Shutterstock)|今日はウェールズの新年|![](/ja-JP/2025/01/202501121500CoastalWales.jpg)|
 202501131500|MuseumCourt|大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)|明日は大英博物館の開館日|![](/ja-JP/2025/01/202501131500MuseumCourt.jpg)|
+||||![](/ja-JP/2025/01/.jpg)|

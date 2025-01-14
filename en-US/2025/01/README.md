@@ -15,3 +15,4 @@
 202501120800|CrescentTail|Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)|Sharp vision in the depths|![](/en-US/2025/01/202501120800CrescentTail.jpg)|
 202501130800|CoastalWales|Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)|'Welsh' you a Happy Hen Galan!|![](/en-US/2025/01/202501130800CoastalWales.jpg)|
 202501140800|CadizSpain|Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)|Calmness overload|![](/en-US/2025/01/202501140800CadizSpain.jpg)|
+||||![](/en-US/2025/01/.jpg)|

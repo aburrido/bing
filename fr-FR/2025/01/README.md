@@ -14,3 +14,4 @@
 202501112300|CrescentTail|Poisson Gros-Yeux, Grande Barrière de Corail, Australie (© Fred Bavendam/Minden Pictures)|Les yeux des abysses|![](/fr-FR/2025/01/202501112300CrescentTail.jpg)|
 202501122300|CoastalWales|Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)|Un nouvel an retardataire|![](/fr-FR/2025/01/202501122300CoastalWales.jpg)|
 202501132300|CadizSpain|Zahara de la Sierra, Cadix, Espagne (© SEN LI/Getty Images)|Un véritable havre de paix|![](/fr-FR/2025/01/202501132300CadizSpain.jpg)|
+||||![](/fr-FR/2025/01/.jpg)|
