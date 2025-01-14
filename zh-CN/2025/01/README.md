@@ -15,3 +15,4 @@
 202501121600|CoastalWales|小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国 (© Westend61 on Offset/Shutterstock)|“威尔士”祝你新年快乐！|![](/zh-CN/2025/01/202501121600CoastalWales.jpg)|
 202501131600|CadizSpain|Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images)|宁静之地|![](/zh-CN/2025/01/202501131600CadizSpain.jpg)|
 ||||![](/zh-CN/2025/01/.jpg)|
+202501141600|PointeDiable|Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)|魔鬼与自然的气息|![](/zh-CN/2025/01/202501141600PointeDiable.jpg)|
