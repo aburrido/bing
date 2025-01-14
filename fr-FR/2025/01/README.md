@@ -15,3 +15,4 @@
 202501122300|CoastalWales|Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)|Un nouvel an retardataire|![](/fr-FR/2025/01/202501122300CoastalWales.jpg)|
 202501132300|CadizSpain|Zahara de la Sierra, Cadix, Espagne (© SEN LI/Getty Images)|Un véritable havre de paix|![](/fr-FR/2025/01/202501132300CadizSpain.jpg)|
 ||||![](/fr-FR/2025/01/.jpg)|
+202501142300|MuseumCourt|Grande Cour Élisabeth II, British Museum, Londres, Angleterre (© Cavan Images/Offset/Shutterstock)|Là où le passé est toujours présent|![](/fr-FR/2025/01/202501142300MuseumCourt.jpg)|

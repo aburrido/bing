@@ -15,3 +15,4 @@
 202501122300|CoastalWales|Cottage und Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Wales, UK (© Westend61 on Offset/Shutterstock)|Ruhe und Frieden|![](/de-DE/2025/01/202501122300CoastalWales.jpg)|
 202501132300|CadizSpain|Zahara de la Sierra, Cádiz, Spanien (© SEN LI/Getty Images)|Andalusische Idylle|![](/de-DE/2025/01/202501132300CadizSpain.jpg)|
 ||||![](/de-DE/2025/01/.jpg)|
+202501142300|MuseumCourt|Der Große Hof des British Museum, London, England (© Cavan Images/Offset/Shutterstock)|Wo die Geschichte lebendig bleibt|![](/de-DE/2025/01/202501142300MuseumCourt.jpg)|
