@@ -16,3 +16,4 @@
 202501131600|CadizSpain|Village of Zahara de la Sierra, Cádiz province, Spain (© SEN LI/Getty Images)|宁静之地|![](/zh-CN/2025/01/202501131600CadizSpain.jpg)|
 ||||![](/zh-CN/2025/01/.jpg)|
 202501141600|PointeDiable|Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)|魔鬼与自然的气息|![](/zh-CN/2025/01/202501141600PointeDiable.jpg)|
+202501151600|PinnaclesPeaks|尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国 (© yhelfman/Getty Images)|诞生于火，历久弥坚|![](/zh-CN/2025/01/202501151600PinnaclesPeaks.jpg)|
