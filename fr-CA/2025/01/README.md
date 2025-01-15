@@ -16,3 +16,4 @@
 202501130500|CoastalWales|Cottage et phare de Tŵr Mawr, Ynys Llanddwyn, Pays de Galles, Royaume-Uni (© Westend61 on Offset/Shutterstock)|Un nouvel an retardataire|![](/fr-CA/2025/01/202501130500CoastalWales.jpg)|
 202501140500|CadizSpain|Zahara de la Sierra, Cadix, Espagne (© SEN LI/Getty Images)|Un véritable havre de paix|![](/fr-CA/2025/01/202501140500CadizSpain.jpg)|
 ||||![](/fr-CA/2025/01/.jpg)|
+202501150500|FrozenLakeSuperior|Lac Supérieur en hiver, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)|Ça gèle!|![](/fr-CA/2025/01/202501150500FrozenLakeSuperior.jpg)|

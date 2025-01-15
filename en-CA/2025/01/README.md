@@ -16,3 +16,4 @@
 202501130500|CoastalWales|Cottage and Tŵr Mawr lighthouse, Ynys Llanddwyn, Wales, United Kingdom (© Westend61 on Offset/Shutterstock)|'Welsh' you a Happy Hen Galan!|![](/en-CA/2025/01/202501130500CoastalWales.jpg)|
 202501140500|CadizSpain|Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)|Calmness overload|![](/en-CA/2025/01/202501140500CadizSpain.jpg)|
 ||||![](/en-CA/2025/01/.jpg)|
+202501150500|FrozenLakeSuperior|Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)|Freeze the day|![](/en-CA/2025/01/202501150500FrozenLakeSuperior.jpg)|
