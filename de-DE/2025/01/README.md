@@ -16,3 +16,4 @@
 202501132300|CadizSpain|Zahara de la Sierra, Cádiz, Spanien (© SEN LI/Getty Images)|Andalusische Idylle|![](/de-DE/2025/01/202501132300CadizSpain.jpg)|
 ||||![](/de-DE/2025/01/.jpg)|
 202501142300|MuseumCourt|Der Große Hof des British Museum, London, England (© Cavan Images/Offset/Shutterstock)|Wo die Geschichte lebendig bleibt|![](/de-DE/2025/01/202501142300MuseumCourt.jpg)|
+202501152300|BeardedTitsInSnowyReeds|Bartmeisen (Panurus biarmicus) Männchen und Weibchen auf Nahrungssuche in verschneiten Schilfrohren, Baden-Wuerttemberg (© Martin Grimm/Alamy Stock Photo)|Flügel der Treue|![](/de-DE/2025/01/202501152300BeardedTitsInSnowyReeds.jpg)|
