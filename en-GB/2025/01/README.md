@@ -15,3 +15,4 @@
 202501130000|CoastalWales|Cottage and Tŵr Mawr lighthouse, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)|'Welsh' you a Happy Hen Galan!|![](/en-GB/2025/01/202501130000CoastalWales.jpg)|
 202501140000|CadizSpain|Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)|Calmness overload|![](/en-GB/2025/01/202501140000CadizSpain.jpg)|
 ||||![](/en-GB/2025/01/.jpg)|
+202501150000|MuseumCourt|The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)|Where the past is always present|![](/en-GB/2025/01/202501150000MuseumCourt.jpg)|
