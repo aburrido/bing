@@ -16,3 +16,4 @@
 202501130800|CoastalWales|Cottage and Tŵr Mawr lighthouse, Ynys Llanddwyn, Wales, United Kingdom (© Westend61 on Offset/Shutterstock)|Info|![](/en-AU/2025/01/202501130800CoastalWales.jpg)|
 202501140800|CadizSpain|Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)|Info|![](/en-AU/2025/01/202501140800CadizSpain.jpg)|
 ||||![](/en-AU/2025/01/.jpg)|
+202501150800|PointeDiable|Pointe du Diable, Saint-Pierre, Réunion Island (© MONTICO Lionel/Alamy)|Info|![](/en-AU/2025/01/202501150800PointeDiable.jpg)|
