@@ -17,3 +17,4 @@
 202501140500|CadizSpain|Zahara de la Sierra, Cadix, Espagne (© SEN LI/Getty Images)|Un véritable havre de paix|![](/fr-CA/2025/01/202501140500CadizSpain.jpg)|
 ||||![](/fr-CA/2025/01/.jpg)|
 202501150500|FrozenLakeSuperior|Lac Supérieur en hiver, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)|Ça gèle!|![](/fr-CA/2025/01/202501150500FrozenLakeSuperior.jpg)|
+202501160500|PinnaclesPeaks|Parc national des Pinnacles, comté de San Benito, Californie, États-Unis (© yhelfman/Getty Images)|Merveilles volcaniques|![](/fr-CA/2025/01/202501160500PinnaclesPeaks.jpg)|

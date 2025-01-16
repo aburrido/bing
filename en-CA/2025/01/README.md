@@ -17,3 +17,4 @@
 202501140500|CadizSpain|Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)|Calmness overload|![](/en-CA/2025/01/202501140500CadizSpain.jpg)|
 ||||![](/en-CA/2025/01/.jpg)|
 202501150500|FrozenLakeSuperior|Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)|Freeze the day|![](/en-CA/2025/01/202501150500FrozenLakeSuperior.jpg)|
+202501160500|PinnaclesPeaks|High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)|Born from fire, built to last|![](/en-CA/2025/01/202501160500PinnaclesPeaks.jpg)|
