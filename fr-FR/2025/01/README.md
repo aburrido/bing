@@ -17,3 +17,4 @@
 ||||![](/fr-FR/2025/01/.jpg)|
 202501142300|MuseumCourt|Grande Cour Élisabeth II, British Museum, Londres, Angleterre (© Cavan Images/Offset/Shutterstock)|Là où le passé est toujours présent|![](/fr-FR/2025/01/202501142300MuseumCourt.jpg)|
 202501152300|PinnaclesPeaks|Parc national des Pinnacles, comté de San Benito, Californie, États-Unis (© yhelfman/Getty Images)|Merveilles volcaniques|![](/fr-FR/2025/01/202501152300PinnaclesPeaks.jpg)|
+202501162300|PelicanPortrait|Pélican brun, San Diego, Californie, États-Unis (© Arthur Morris/BIRDS AS ART/Getty Images)|Un pélican pas comme les autres|![](/fr-FR/2025/01/202501162300PelicanPortrait.jpg)|

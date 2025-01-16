@@ -17,3 +17,4 @@
 ||||![](/de-DE/2025/01/.jpg)|
 202501142300|MuseumCourt|Der Große Hof des British Museum, London, England (© Cavan Images/Offset/Shutterstock)|Wo die Geschichte lebendig bleibt|![](/de-DE/2025/01/202501142300MuseumCourt.jpg)|
 202501152300|BeardedTitsInSnowyReeds|Bartmeisen (Panurus biarmicus) Männchen und Weibchen auf Nahrungssuche in verschneiten Schilfrohren, Baden-Wuerttemberg (© Martin Grimm/Alamy Stock Photo)|Flügel der Treue|![](/de-DE/2025/01/202501152300BeardedTitsInSnowyReeds.jpg)|
+202501162300|NapoliPizza|Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)|Pizza im Paradies|![](/de-DE/2025/01/202501162300NapoliPizza.jpg)|
