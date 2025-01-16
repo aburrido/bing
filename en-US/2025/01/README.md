@@ -17,3 +17,4 @@
 202501140800|CadizSpain|Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)|Calmness overload|![](/en-US/2025/01/202501140800CadizSpain.jpg)|
 ||||![](/en-US/2025/01/.jpg)|
 202501150800|MuseumCourt|The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)|Where the past is always present|![](/en-US/2025/01/202501150800MuseumCourt.jpg)|
+202501160800|PinnaclesPeaks|High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)|Born from fire, built to last|![](/en-US/2025/01/202501160800PinnaclesPeaks.jpg)|
