@@ -19,3 +19,4 @@
 202501152300|BeardedTitsInSnowyReeds|Bartmeisen (Panurus biarmicus) Männchen und Weibchen auf Nahrungssuche in verschneiten Schilfrohren, Baden-Wuerttemberg (© Martin Grimm/Alamy Stock Photo)|Flügel der Treue|![](/de-DE/2025/01/202501152300BeardedTitsInSnowyReeds.jpg)|
 202501162300|NapoliPizza|Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)|Pizza im Paradies|![](/de-DE/2025/01/202501162300NapoliPizza.jpg)|
 202501172300|WhiteSandsNP|Sonnenuntergang im White-Sands-Nationalpark, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|Weißes Paradies|![](/de-DE/2025/01/202501172300WhiteSandsNP.jpg)|
+202501182300|NeptunesGrotto|Grotta di Nettuno, Alghero, Sardinien, Italien (© Carlo Murenu/Getty Images)|Götter-Grotte|![](/de-DE/2025/01/202501182300NeptunesGrotto.jpg)|
