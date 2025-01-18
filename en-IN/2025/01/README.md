@@ -19,3 +19,4 @@
 202501151830|PinnaclesPeaks|High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)|Born from fire, built to last|![](/en-IN/2025/01/202501151830PinnaclesPeaks.jpg)|
 202501161830|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-IN/2025/01/202501161830PelicanPortrait.jpg)|
 202501171830|WhiteSandsNP|Sunset at White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|1,001 Mexican dunes|![](/en-IN/2025/01/202501171830WhiteSandsNP.jpg)|
+202501181830|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-IN/2025/01/202501181830NeptunesGrotto.jpg)|
