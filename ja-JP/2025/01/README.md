@@ -19,3 +19,4 @@
 202501151500|PinnaclesPeaks|ピナクルズ国立公園, 米国 カリフォルニア州 (© yhelfman/Getty Images)|夕日に輝く奇石群|![](/ja-JP/2025/01/202501151500PinnaclesPeaks.jpg)|
 202501161500|AssiniboineTS|マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)|天を突き刺すような山と雪煙|![](/ja-JP/2025/01/202501161500AssiniboineTS.jpg)|
 202501171500|WhiteSandsNP|ホワイトサンズ国立公園, 米国 ニューメキシコ州  (© Image Professionals GmbH/Alamy)|雪原のような石膏砂漠|![](/ja-JP/2025/01/202501171500WhiteSandsNP.jpg)|
+202501181500|NeptunesGrotto|ネプチューンの洞窟, イタリア (© Carlo Murenu/Getty Images)|鍾乳石と石筍の世界|![](/ja-JP/2025/01/202501181500NeptunesGrotto.jpg)|
