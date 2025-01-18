@@ -19,3 +19,4 @@
 202501150800|MuseumCourt|The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)|Where the past is always present|![](/en-US/2025/01/202501150800MuseumCourt.jpg)|
 202501160800|PinnaclesPeaks|High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)|Born from fire, built to last|![](/en-US/2025/01/202501160800PinnaclesPeaks.jpg)|
 202501170800|PelicanPortrait|Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-US/2025/01/202501170800PelicanPortrait.jpg)|
+202501180800|WhiteSandsNP|Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)|1,001 New Mexican dunes|![](/en-US/2025/01/202501180800WhiteSandsNP.jpg)|
