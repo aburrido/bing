@@ -19,3 +19,4 @@
 202501150500|FrozenLakeSuperior|Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)|Freeze the day|![](/en-CA/2025/01/202501150500FrozenLakeSuperior.jpg)|
 202501160500|PinnaclesPeaks|High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)|Born from fire, built to last|![](/en-CA/2025/01/202501160500PinnaclesPeaks.jpg)|
 202501170500|NapoliPizza|Looking over the Gulf of Naples towards Mount Vesuvius, Italy (© ezypix/Getty Images)|A pizza margherita è Napule|![](/en-CA/2025/01/202501170500NapoliPizza.jpg)|
+202501180500|WhiteSandsNP|Sunset at White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|1,001 Mexican dunes|![](/en-CA/2025/01/202501180500WhiteSandsNP.jpg)|
