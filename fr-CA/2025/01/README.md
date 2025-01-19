@@ -20,3 +20,4 @@
 202501160500|PinnaclesPeaks|Parc national des Pinnacles, comté de San Benito, Californie, États-Unis (© yhelfman/Getty Images)|Merveilles volcaniques|![](/fr-CA/2025/01/202501160500PinnaclesPeaks.jpg)|
 202501170500|PelicanPortrait|Pélican brun, San Diego, Californie, États-Unis (© Arthur Morris/BIRDS AS ART/Getty Images)|Un pélican pas comme les autres|![](/fr-CA/2025/01/202501170500PelicanPortrait.jpg)|
 202501180500|WhiteSandsNP|Coucher de soleil, parc national de White Sands, Nouveau Mexique, États-Unis (© Image Professionals GmbH/Alamy)|Le désert mexicain|![](/fr-CA/2025/01/202501180500WhiteSandsNP.jpg)|
+202501190500|NeptunesGrotto|Grotte de Neptune, Sardaigne, Italie (© Carlo Murenu/Getty Images)|Une grotte divine|![](/fr-CA/2025/01/202501190500NeptunesGrotto.jpg)|
