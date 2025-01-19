@@ -20,3 +20,4 @@
 202501162300|NapoliPizza|Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)|Pizza im Paradies|![](/de-DE/2025/01/202501162300NapoliPizza.jpg)|
 202501172300|WhiteSandsNP|Sonnenuntergang im White-Sands-Nationalpark, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|Weißes Paradies|![](/de-DE/2025/01/202501172300WhiteSandsNP.jpg)|
 202501182300|NeptunesGrotto|Grotta di Nettuno, Alghero, Sardinien, Italien (© Carlo Murenu/Getty Images)|Götter-Grotte|![](/de-DE/2025/01/202501182300NeptunesGrotto.jpg)|
+202501192300|PelicanPortrait|Braunpelikan, San Diego, Kalifornien, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Scharf beobachtet|![](/de-DE/2025/01/202501192300PelicanPortrait.jpg)|

@@ -20,3 +20,4 @@
 202501162300|PelicanPortrait|Pélican brun, San Diego, Californie, États-Unis (© Arthur Morris/BIRDS AS ART/Getty Images)|Un pélican pas comme les autres|![](/fr-FR/2025/01/202501162300PelicanPortrait.jpg)|
 202501172300|WhiteSandsNP|Coucher de soleil, parc national de White Sands, Nouveau Mexique, États-Unis (© Image Professionals GmbH/Alamy)|Le désert mexicain|![](/fr-FR/2025/01/202501172300WhiteSandsNP.jpg)|
 202501182300|NeptunesGrotto|Grotte de Neptune, Sardaigne, Italie (© Carlo Murenu/Getty Images)|Une grotte divine|![](/fr-FR/2025/01/202501182300NeptunesGrotto.jpg)|
+202501192300|BubbleLake|Lac Abraham, Alberta, Canada (© Basic Elements Photography/Getty Images)|Des bulles à perte de vue !|![](/fr-FR/2025/01/202501192300BubbleLake.jpg)|
