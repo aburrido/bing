@@ -19,3 +19,4 @@
 202501160000|PinnaclesPeaks|High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)|Born from fire, built to last|![](/en-GB/2025/01/202501160000PinnaclesPeaks.jpg)|
 202501170000|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-GB/2025/01/202501170000PelicanPortrait.jpg)|
 202501180000|PoohDay2025|Ashdown Forest, East Sussex, England (© Mark Holme photo/Alamy Stock Photo)|Home of Winnie-the-Pooh|![](/en-GB/2025/01/202501180000PoohDay2025.jpg)|
+202501190000|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-GB/2025/01/202501190000NeptunesGrotto.jpg)|
