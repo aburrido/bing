@@ -20,3 +20,4 @@
 202501160800|PinnaclesPeaks|High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)|Info|![](/en-AU/2025/01/202501160800PinnaclesPeaks.jpg)|
 202501170800|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Info|![](/en-AU/2025/01/202501170800PelicanPortrait.jpg)|
 202501180800|WhiteSandsNP|Sunset at White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501180800WhiteSandsNP.jpg)|
+202501190800|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|Info|![](/en-AU/2025/01/202501190800NeptunesGrotto.jpg)|
