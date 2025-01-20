@@ -21,3 +21,4 @@
 202501171500|WhiteSandsNP|ホワイトサンズ国立公園, 米国 ニューメキシコ州  (© Image Professionals GmbH/Alamy)|雪原のような石膏砂漠|![](/ja-JP/2025/01/202501171500WhiteSandsNP.jpg)|
 202501181500|NeptunesGrotto|ネプチューンの洞窟, イタリア (© Carlo Murenu/Getty Images)|鍾乳石と石筍の世界|![](/ja-JP/2025/01/202501181500NeptunesGrotto.jpg)|
 202501191500|Daikan2025|コタンの湯, 北海道 川上郡 (© NitiChuysakul Photography/Getty Images)|今日は「大寒」|![](/ja-JP/2025/01/202501191500Daikan2025.jpg)|
+202501201500|DutchSquirrel|キタリスとキノコ, オランダ (© Edwin Giesbers/Minden Pictures)|今日は米国の「リス感謝デー」|![](/ja-JP/2025/01/202501201500DutchSquirrel.jpg)|
