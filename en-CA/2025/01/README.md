@@ -21,3 +21,4 @@
 202501170500|NapoliPizza|Looking over the Gulf of Naples towards Mount Vesuvius, Italy (© ezypix/Getty Images)|A pizza margherita è Napule|![](/en-CA/2025/01/202501170500NapoliPizza.jpg)|
 202501180500|WhiteSandsNP|Sunset at White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|1,001 Mexican dunes|![](/en-CA/2025/01/202501180500WhiteSandsNP.jpg)|
 202501190500|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-CA/2025/01/202501190500NeptunesGrotto.jpg)|
+202501200500|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-CA/2025/01/202501200500PelicanPortrait.jpg)|
