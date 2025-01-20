@@ -21,3 +21,4 @@
 202501171600|WhiteSandsNP|白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)|1,001座白色沙丘|![](/zh-CN/2025/01/202501171600WhiteSandsNP.jpg)|
 202501181600|NeptunesGrotto|海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)|一座适合神居住的石窟|![](/zh-CN/2025/01/202501181600NeptunesGrotto.jpg)|
 202501191600|DutchSquirrel|欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)|松鼠之趣|![](/zh-CN/2025/01/202501191600DutchSquirrel.jpg)|
+202501201600|NapoliPizza|俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)|迷人的海湾风光|![](/zh-CN/2025/01/202501201600NapoliPizza.jpg)|
