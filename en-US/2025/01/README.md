@@ -21,3 +21,4 @@
 202501170800|PelicanPortrait|Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-US/2025/01/202501170800PelicanPortrait.jpg)|
 202501180800|WhiteSandsNP|Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)|1,001 New Mexican dunes|![](/en-US/2025/01/202501180800WhiteSandsNP.jpg)|
 202501190800|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-US/2025/01/202501190800NeptunesGrotto.jpg)|
+202501200800|KingMemorial|Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)|Honoring the dream|![](/en-US/2025/01/202501200800KingMemorial.jpg)|
