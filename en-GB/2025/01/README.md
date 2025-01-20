@@ -20,3 +20,4 @@
 202501170000|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-GB/2025/01/202501170000PelicanPortrait.jpg)|
 202501180000|PoohDay2025|Ashdown Forest, East Sussex, England (© Mark Holme photo/Alamy Stock Photo)|Home of Winnie-the-Pooh|![](/en-GB/2025/01/202501180000PoohDay2025.jpg)|
 202501190000|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-GB/2025/01/202501190000NeptunesGrotto.jpg)|
+202501200000|WhiteSandsNP|White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|1,001 Mexican dunes|![](/en-GB/2025/01/202501200000WhiteSandsNP.jpg)|
