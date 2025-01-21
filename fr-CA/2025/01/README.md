@@ -22,3 +22,4 @@
 202501180500|WhiteSandsNP|Coucher de soleil, parc national de White Sands, Nouveau Mexique, États-Unis (© Image Professionals GmbH/Alamy)|Le désert mexicain|![](/fr-CA/2025/01/202501180500WhiteSandsNP.jpg)|
 202501190500|NeptunesGrotto|Grotte de Neptune, Sardaigne, Italie (© Carlo Murenu/Getty Images)|Une grotte divine|![](/fr-CA/2025/01/202501190500NeptunesGrotto.jpg)|
 202501200500|MuseumCourt|Grande Cour Élisabeth II, British Museum, Londres, Angleterre (© Cavan Images/Offset/Shutterstock)|Là où le passé est toujours présent|![](/fr-CA/2025/01/202501200500MuseumCourt.jpg)|
+202501210500|DutchSquirrel|Écureuil roux avec un champignon (© Edwin Giesbers/Minden Pictures)|Les acrobates de la forêt|![](/fr-CA/2025/01/202501210500DutchSquirrel.jpg)|
