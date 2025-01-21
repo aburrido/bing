@@ -22,3 +22,4 @@
 202501181600|NeptunesGrotto|海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)|一座适合神居住的石窟|![](/zh-CN/2025/01/202501181600NeptunesGrotto.jpg)|
 202501191600|DutchSquirrel|欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)|松鼠之趣|![](/zh-CN/2025/01/202501191600DutchSquirrel.jpg)|
 202501201600|NapoliPizza|俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)|迷人的海湾风光|![](/zh-CN/2025/01/202501201600NapoliPizza.jpg)|
+202501211600|PetraMonastery|代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)|在失落之城发现美|![](/zh-CN/2025/01/202501211600PetraMonastery.jpg)|
