@@ -22,3 +22,4 @@
 202501181830|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-IN/2025/01/202501181830NeptunesGrotto.jpg)|
 202501191830|CadizSpain|Zahara de la Sierra, Cadiz, Spain (© SEN LI/Getty Images)|Calmness overload|![](/en-IN/2025/01/202501191830CadizSpain.jpg)|
 202501201830|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Feeling squirrely?|![](/en-IN/2025/01/202501201830DutchSquirrel.jpg)|
+202501211830|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-IN/2025/01/202501211830PetraMonastery.jpg)|
