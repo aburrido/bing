@@ -22,3 +22,4 @@
 202501180800|WhiteSandsNP|Sunset at White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501180800WhiteSandsNP.jpg)|
 202501190800|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|Info|![](/en-AU/2025/01/202501190800NeptunesGrotto.jpg)|
 202501200800|NapoliPizza|Looking over the Gulf of Naples towards Mount Vesuvius, Italy (© ezypix/Getty Images)|Info|![](/en-AU/2025/01/202501200800NapoliPizza.jpg)|
+202501210800|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Info|![](/en-AU/2025/01/202501210800DutchSquirrel.jpg)|
