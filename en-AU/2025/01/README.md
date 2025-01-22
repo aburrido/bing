@@ -23,3 +23,4 @@
 202501190800|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|Info|![](/en-AU/2025/01/202501190800NeptunesGrotto.jpg)|
 202501200800|NapoliPizza|Looking over the Gulf of Naples towards Mount Vesuvius, Italy (© ezypix/Getty Images)|Info|![](/en-AU/2025/01/202501200800NapoliPizza.jpg)|
 202501210800|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Info|![](/en-AU/2025/01/202501210800DutchSquirrel.jpg)|
+202501220800|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Info|![](/en-AU/2025/01/202501220800PetraMonastery.jpg)|

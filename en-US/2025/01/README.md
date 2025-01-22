@@ -23,3 +23,4 @@
 202501190800|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-US/2025/01/202501190800NeptunesGrotto.jpg)|
 202501200800|KingMemorial|Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)|Honoring the dream|![](/en-US/2025/01/202501200800KingMemorial.jpg)|
 202501210800|DutchSquirrel|Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)|Feeling squirrely?|![](/en-US/2025/01/202501210800DutchSquirrel.jpg)|
+202501220800|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-US/2025/01/202501220800PetraMonastery.jpg)|
