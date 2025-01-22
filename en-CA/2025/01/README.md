@@ -23,3 +23,4 @@
 202501190500|NeptunesGrotto|Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)|A grotto fit for a god|![](/en-CA/2025/01/202501190500NeptunesGrotto.jpg)|
 202501200500|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-CA/2025/01/202501200500PelicanPortrait.jpg)|
 202501210500|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Feeling squirrely?|![](/en-CA/2025/01/202501210500DutchSquirrel.jpg)|
+202501220500|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-CA/2025/01/202501220500PetraMonastery.jpg)|
