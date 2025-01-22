@@ -23,3 +23,4 @@
 202501192300|PelicanPortrait|Braunpelikan, San Diego, Kalifornien, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Scharf beobachtet|![](/de-DE/2025/01/202501192300PelicanPortrait.jpg)|
 202501202300|DutchSquirrel|Eurasisches Eichhörnchen mit Fliegenpilz (© Edwin Giesbers/Minden Pictures)|Aufmerksamer Beobachter|![](/de-DE/2025/01/202501202300DutchSquirrel.jpg)|
 202501212300|PetraMonastery|Ad-Deir, Petra, Jordanien (© Punnawit Suwuttananun/Getty Images)|Die verlorene Stadt?|![](/de-DE/2025/01/202501212300PetraMonastery.jpg)|
+202501222300|DeerValley|Deer Valley in der Abenddämmerung, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Abfahrt ins Kino|![](/de-DE/2025/01/202501222300DeerValley.jpg)|
