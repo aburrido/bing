@@ -24,3 +24,4 @@
 202501201600|NapoliPizza|俯瞰那不勒斯湾和维苏威火山，意大利 (© ezypix/Getty Images)|迷人的海湾风光|![](/zh-CN/2025/01/202501201600NapoliPizza.jpg)|
 202501211600|PetraMonastery|代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)|在失落之城发现美|![](/zh-CN/2025/01/202501211600PetraMonastery.jpg)|
 202501221600|DeerValley|黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)|电影、山脉和魔法|![](/zh-CN/2025/01/202501221600DeerValley.jpg)|
+202501231600|IcelandGeyser|冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)|力量沸腾|![](/zh-CN/2025/01/202501231600IcelandGeyser.jpg)|
