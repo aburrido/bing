@@ -23,3 +23,4 @@
 202501200000|WhiteSandsNP|White Sands National Park, New Mexico, USA (© Image Professionals GmbH/Alamy Stock Photo)|1,001 Mexican dunes|![](/en-GB/2025/01/202501200000WhiteSandsNP.jpg)|
 202501210000|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Feeling squirrely?|![](/en-GB/2025/01/202501210000DutchSquirrel.jpg)|
 202501220000|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-GB/2025/01/202501220000PetraMonastery.jpg)|
+202501230000|DeerValley|Deer Valley, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Movies, mountains and magic|![](/en-GB/2025/01/202501230000DeerValley.jpg)|
