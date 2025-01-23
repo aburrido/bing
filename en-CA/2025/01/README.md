@@ -24,3 +24,4 @@
 202501200500|PelicanPortrait|Brown pelican, San Diego, California, USA (© Arthur Morris/BIRDS AS ART/Getty Images)|Pouch perfect|![](/en-CA/2025/01/202501200500PelicanPortrait.jpg)|
 202501210500|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Feeling squirrely?|![](/en-CA/2025/01/202501210500DutchSquirrel.jpg)|
 202501220500|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-CA/2025/01/202501220500PetraMonastery.jpg)|
+202501230500|DeerValley|Deer Valley at dusk, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Movies, mountains and magic|![](/en-CA/2025/01/202501230500DeerValley.jpg)|
