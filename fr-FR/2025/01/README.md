@@ -24,3 +24,4 @@
 202501202300|ColourfulBlueMonday|Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)|Dites non au Blue Monday !|![](/fr-FR/2025/01/202501202300ColourfulBlueMonday.jpg)|
 202501212300|PetraMonastery|Ad-Deir, Pétra, Jordanie (© Punnawit Suwuttananun/Getty Images)|La plus belle des cités perdues|![](/fr-FR/2025/01/202501212300PetraMonastery.jpg)|
 202501222300|DeerValley|Deer Valley au crépuscule, Park City, Utah, États-Unis (© Adventure_Photo/Getty Images)|Cinéma, montagnes et magie|![](/fr-FR/2025/01/202501222300DeerValley.jpg)|
+202501232300|IcelandGeyser|Geyser Strokkur, Islande (© John and Tina Reid/Getty Images)|La puissance en ébullition|![](/fr-FR/2025/01/202501232300IcelandGeyser.jpg)|
