@@ -24,3 +24,4 @@
 202501200800|KingMemorial|Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)|Honoring the dream|![](/en-US/2025/01/202501200800KingMemorial.jpg)|
 202501210800|DutchSquirrel|Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)|Feeling squirrely?|![](/en-US/2025/01/202501210800DutchSquirrel.jpg)|
 202501220800|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-US/2025/01/202501220800PetraMonastery.jpg)|
+202501230800|DeerValley|Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)|Movies, mountains, and magic|![](/en-US/2025/01/202501230800DeerValley.jpg)|
