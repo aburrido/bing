@@ -25,3 +25,4 @@
 202501212300|PetraMonastery|Ad-Deir, Petra, Jordanien (© Punnawit Suwuttananun/Getty Images)|Die verlorene Stadt?|![](/de-DE/2025/01/202501212300PetraMonastery.jpg)|
 202501222300|DeerValley|Deer Valley in der Abenddämmerung, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Abfahrt ins Kino|![](/de-DE/2025/01/202501222300DeerValley.jpg)|
 202501232300|IcelandGeyser|Strokkur-Geysir in Island (© John and Tina Reid/Getty Images)|Spektakuläres Naturschauspiel|![](/de-DE/2025/01/202501232300IcelandGeyser.jpg)|
+202501242300|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Die goldene Stunde|![](/de-DE/2025/01/202501242300PortoSunset.jpg)|
