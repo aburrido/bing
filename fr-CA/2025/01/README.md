@@ -25,3 +25,4 @@
 202501210500|DutchSquirrel|Écureuil roux avec un champignon (© Edwin Giesbers/Minden Pictures)|Les acrobates de la forêt|![](/fr-CA/2025/01/202501210500DutchSquirrel.jpg)|
 202501220500|PetraMonastery|Ad-Deir, Pétra, Jordanie (© Punnawit Suwuttananun/Getty Images)|La plus belle des cités perdues|![](/fr-CA/2025/01/202501220500PetraMonastery.jpg)|
 202501230500|DeerValley|Deer Valley au crépuscule, Park City, Utah, États-Unis (© Adventure_Photo/Getty Images)|Cinéma, montagnes et magie|![](/fr-CA/2025/01/202501230500DeerValley.jpg)|
+202501240500|IcelandGeyser|Geyser Strokkur, Islande (© John and Tina Reid/Getty Images)|La puissance en ébullition|![](/fr-CA/2025/01/202501240500IcelandGeyser.jpg)|
