@@ -25,3 +25,4 @@
 202501210800|DutchSquirrel|Eurasian red squirrel with toadstool (© Edwin Giesbers/Minden Pictures)|Info|![](/en-AU/2025/01/202501210800DutchSquirrel.jpg)|
 202501220800|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Info|![](/en-AU/2025/01/202501220800PetraMonastery.jpg)|
 202501230800|DeerValley|Deer Valley at dusk, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Info|![](/en-AU/2025/01/202501230800DeerValley.jpg)|
+202501240800|IcelandGeyser|Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)|Info|![](/en-AU/2025/01/202501240800IcelandGeyser.jpg)|
