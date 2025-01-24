@@ -25,3 +25,4 @@
 202501211600|PetraMonastery|代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)|在失落之城发现美|![](/zh-CN/2025/01/202501211600PetraMonastery.jpg)|
 202501221600|DeerValley|黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)|电影、山脉和魔法|![](/zh-CN/2025/01/202501221600DeerValley.jpg)|
 202501231600|IcelandGeyser|冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)|力量沸腾|![](/zh-CN/2025/01/202501231600IcelandGeyser.jpg)|
+202501241600|PortoSunset|波尔图，葡萄牙 (© Starcevic/Getty Images)|波尔图的黄金时刻|![](/zh-CN/2025/01/202501241600PortoSunset.jpg)|
