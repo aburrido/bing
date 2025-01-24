@@ -25,3 +25,4 @@
 202501211500|PetraMonastery|ペトラ, ヨルダン (© Punnawit Suwuttananun/Getty Images)|バラ色に染まる古代都市|![](/ja-JP/2025/01/202501211500PetraMonastery.jpg)|
 202501221500|DeerValley|雪化粧したパークシティ, 米国 ユタ州 (© Adventure_Photo/Getty Images)|今日からサンダンス映画祭|![](/ja-JP/2025/01/202501221500DeerValley.jpg)|
 202501231500|IcelandGeyser|ストロックル間欠泉, アイスランド (© John and Tina Reid/Getty Images)|地球の息吹を感じる場所|![](/ja-JP/2025/01/202501231500IcelandGeyser.jpg)|
+202501241500|PortoSunset|ポルト, ポルトガル (© Starcevic/Getty Images)|ドウロ川の夕暮れ|![](/ja-JP/2025/01/202501241500PortoSunset.jpg)|
