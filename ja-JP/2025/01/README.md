@@ -26,3 +26,4 @@
 202501221500|DeerValley|雪化粧したパークシティ, 米国 ユタ州 (© Adventure_Photo/Getty Images)|今日からサンダンス映画祭|![](/ja-JP/2025/01/202501221500DeerValley.jpg)|
 202501231500|IcelandGeyser|ストロックル間欠泉, アイスランド (© John and Tina Reid/Getty Images)|地球の息吹を感じる場所|![](/ja-JP/2025/01/202501231500IcelandGeyser.jpg)|
 202501241500|PortoSunset|ポルト, ポルトガル (© Starcevic/Getty Images)|ドウロ川の夕暮れ|![](/ja-JP/2025/01/202501241500PortoSunset.jpg)|
+202501251500|FrostedBeech|霧氷のブナ林, ベルギー (© Philippe Moes/Minden Pictures)|見渡す限りの銀世界|![](/ja-JP/2025/01/202501251500FrostedBeech.jpg)|
