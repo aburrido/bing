@@ -26,3 +26,4 @@
 202501220500|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-CA/2025/01/202501220500PetraMonastery.jpg)|
 202501230500|DeerValley|Deer Valley at dusk, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Movies, mountains and magic|![](/en-CA/2025/01/202501230500DeerValley.jpg)|
 202501240500|IcelandGeyser|Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)|Bubbling with power|![](/en-CA/2025/01/202501240500IcelandGeyser.jpg)|
+202501250500|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Golden hour in Porto|![](/en-CA/2025/01/202501250500PortoSunset.jpg)|
