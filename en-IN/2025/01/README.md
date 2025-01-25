@@ -26,3 +26,4 @@
 202501221830|DeerValley|Deer Valley at dusk, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Movies, mountains and magic|![](/en-IN/2025/01/202501221830DeerValley.jpg)|
 202501231830|IcelandGeyser|Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)|Bubbling with power|![](/en-IN/2025/01/202501231830IcelandGeyser.jpg)|
 202501241830|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Golden hour in Porto|![](/en-IN/2025/01/202501241830PortoSunset.jpg)|
+202501251830|IndiaGateTriColour|India Gate, New Delhi (© Amith Nag Photography/Getty Images)|Three shades, one spirit|![](/en-IN/2025/01/202501251830IndiaGateTriColour.jpg)|
