@@ -25,3 +25,4 @@
 202501220000|PetraMonastery|Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)|Finding beauty in the Lost City|![](/en-GB/2025/01/202501220000PetraMonastery.jpg)|
 202501230000|DeerValley|Deer Valley, Park City, Utah, USA (© Adventure_Photo/Getty Images)|Movies, mountains and magic|![](/en-GB/2025/01/202501230000DeerValley.jpg)|
 202501240000|IcelandGeyser|Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)|Bubbling with power|![](/en-GB/2025/01/202501240000IcelandGeyser.jpg)|
+202501250000|BurnsNight2025|Devorgilla Bridge in Dumfries Galloway Scotland, UK (© jazman/Shutterstock)|Ode over the bridge|![](/en-GB/2025/01/202501250000BurnsNight2025.jpg)|
