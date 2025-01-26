@@ -27,3 +27,4 @@
 202501230800|DeerValley|Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)|Movies, mountains, and magic|![](/en-US/2025/01/202501230800DeerValley.jpg)|
 202501240800|IcelandGeyser|Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)|Bubbling with power|![](/en-US/2025/01/202501240800IcelandGeyser.jpg)|
 202501250800|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Golden hour in Porto|![](/en-US/2025/01/202501250800PortoSunset.jpg)|
+202501260800|FrostedBeech|European beech forest in Belgium (© Philippe Moes/Minden Pictures)|Aging gracefully|![](/en-US/2025/01/202501260800FrostedBeech.jpg)|
