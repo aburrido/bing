@@ -27,3 +27,4 @@
 202501231600|IcelandGeyser|冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)|力量沸腾|![](/zh-CN/2025/01/202501231600IcelandGeyser.jpg)|
 202501241600|PortoSunset|波尔图，葡萄牙 (© Starcevic/Getty Images)|波尔图的黄金时刻|![](/zh-CN/2025/01/202501241600PortoSunset.jpg)|
 202501251600|FrostedBeech|比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures)|优雅地老去|![](/zh-CN/2025/01/202501251600FrostedBeech.jpg)|
+202501261600|CanyonSnow|琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion)|激发你的好奇心|![](/zh-CN/2025/01/202501261600CanyonSnow.jpg)|
