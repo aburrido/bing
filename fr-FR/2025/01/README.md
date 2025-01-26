@@ -27,3 +27,4 @@
 202501232300|IcelandGeyser|Geyser Strokkur, Islande (© John and Tina Reid/Getty Images)|La puissance en ébullition|![](/fr-FR/2025/01/202501232300IcelandGeyser.jpg)|
 202501242300|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|L'heure dorée à Porto|![](/fr-FR/2025/01/202501242300PortoSunset.jpg)|
 202501252300|FrostedBeech|Forêt de hêtres, Belgique (© Philippe Moes/Minden Pictures)|Vieillir avec grâce|![](/fr-FR/2025/01/202501252300FrostedBeech.jpg)|
+202501262300|ParisSnow|La tour Eiffel sous la neige, Paris (© Orbon Alija/Getty Images)|Flocons sur la Ville Lumière|![](/fr-FR/2025/01/202501262300ParisSnow.jpg)|

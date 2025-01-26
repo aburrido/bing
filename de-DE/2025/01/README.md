@@ -27,3 +27,4 @@
 202501232300|IcelandGeyser|Strokkur-Geysir in Island (© John and Tina Reid/Getty Images)|Spektakuläres Naturschauspiel|![](/de-DE/2025/01/202501232300IcelandGeyser.jpg)|
 202501242300|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Die goldene Stunde|![](/de-DE/2025/01/202501242300PortoSunset.jpg)|
 202501252300|FrostedBeech|Rotbuchenwald in Belgien (© Philippe Moes/Minden Pictures)|Elegantes Altern|![](/de-DE/2025/01/202501252300FrostedBeech.jpg)|
+202501262300|CanyonSnow|Zoroaster Temple, Grand-Canyon-Nationalpark, Arizona, USA (© Nick Lake/Tandem Stills + Motion)|Schauspiel aus Farben und Formen|![](/de-DE/2025/01/202501262300CanyonSnow.jpg)|
