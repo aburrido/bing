@@ -28,3 +28,4 @@
 202501241500|PortoSunset|ポルト, ポルトガル (© Starcevic/Getty Images)|ドウロ川の夕暮れ|![](/ja-JP/2025/01/202501241500PortoSunset.jpg)|
 202501251500|FrostedBeech|霧氷のブナ林, ベルギー (© Philippe Moes/Minden Pictures)|見渡す限りの銀世界|![](/ja-JP/2025/01/202501251500FrostedBeech.jpg)|
 202501261500|CanyonSnow|グランド・キャニオン国立公園, 米国 アリゾナ州 (© Nick Lake/Tandem Stills + Motion)|時の流れが刻んだ奇跡の大地|![](/ja-JP/2025/01/202501261500CanyonSnow.jpg)|
+202501271500|FlyingOwl|吹雪の中を飛ぶコミミズク (© Dilshan Muthalib/Getty Images)|狩りの名手|![](/ja-JP/2025/01/202501271500FlyingOwl.jpg)|
