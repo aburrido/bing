@@ -28,3 +28,4 @@
 202501240500|IcelandGeyser|Geyser Strokkur, Islande (© John and Tina Reid/Getty Images)|La puissance en ébullition|![](/fr-CA/2025/01/202501240500IcelandGeyser.jpg)|
 202501250500|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|L'heure dorée à Porto|![](/fr-CA/2025/01/202501250500PortoSunset.jpg)|
 202501260500|FrostedBeech|Forêt de hêtres, Belgique (© Philippe Moes/Minden Pictures)|Vieillir avec grâce|![](/fr-CA/2025/01/202501260500FrostedBeech.jpg)|
+202501270500|CanyonSnow|Temple de Zoroastre, Parc national du Grand Canyon, Arizona, États-Unis (© Nick Lake/Tandem Stills + Motion)|Un parc américain légendaire|![](/fr-CA/2025/01/202501270500CanyonSnow.jpg)|
