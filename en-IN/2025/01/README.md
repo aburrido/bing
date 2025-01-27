@@ -28,3 +28,4 @@
 202501241830|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Golden hour in Porto|![](/en-IN/2025/01/202501241830PortoSunset.jpg)|
 202501251830|IndiaGateTriColour|India Gate, New Delhi (© Amith Nag Photography/Getty Images)|Three shades, one spirit|![](/en-IN/2025/01/202501251830IndiaGateTriColour.jpg)|
 202501261830|CanyonSnow|Zoroaster Temple, Grand Canyon National Park, Arizona, USA (© Nick Lake/Tandem Stills + Motion)|Peaked your curiosity|![](/en-IN/2025/01/202501261830CanyonSnow.jpg)|
+202501271830|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Snow-way you'll miss it|![](/en-IN/2025/01/202501271830FlyingOwl.jpg)|
