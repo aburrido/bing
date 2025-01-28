@@ -29,3 +29,4 @@
 202501250800|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Golden hour in Porto|![](/en-US/2025/01/202501250800PortoSunset.jpg)|
 202501260800|FrostedBeech|European beech forest in Belgium (© Philippe Moes/Minden Pictures)|Aging gracefully|![](/en-US/2025/01/202501260800FrostedBeech.jpg)|
 202501270800|CanyonSnow|Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)|Peaked your curiosity|![](/en-US/2025/01/202501270800CanyonSnow.jpg)|
+202501280800|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Snow-way you'll miss it|![](/en-US/2025/01/202501280800FlyingOwl.jpg)|
