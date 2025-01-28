@@ -28,3 +28,4 @@
 202501250000|BurnsNight2025|Devorgilla Bridge in Dumfries Galloway Scotland, UK (© jazman/Shutterstock)|Ode over the bridge|![](/en-GB/2025/01/202501250000BurnsNight2025.jpg)|
 202501260000|FrostedBeech|European beech forest in Belgium (© Philippe Moes/Minden Pictures)|Ageing gracefully|![](/en-GB/2025/01/202501260000FrostedBeech.jpg)|
 202501270000|CanyonSnow|Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)|Peaked your curiosity|![](/en-GB/2025/01/202501270000CanyonSnow.jpg)|
+202501280000|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Snow-way you'll miss it|![](/en-GB/2025/01/202501280000FlyingOwl.jpg)|
