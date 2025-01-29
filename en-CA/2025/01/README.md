@@ -30,3 +30,4 @@
 202501260500|FrostedBeech|European beech forest in Belgium (© Philippe Moes/Minden Pictures)|Ageing gracefully|![](/en-CA/2025/01/202501260500FrostedBeech.jpg)|
 202501270500|CanyonSnow|Zoroaster Temple, Grand Canyon National Park, Arizona, USA (© Nick Lake/Tandem Stills + Motion)|Peaked your curiosity|![](/en-CA/2025/01/202501270500CanyonSnow.jpg)|
 202501280500|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Snow-way you'll miss it|![](/en-CA/2025/01/202501280500FlyingOwl.jpg)|
+202501290500|LunarDragon|Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Happy Chinese New Year!|![](/en-CA/2025/01/202501290500LunarDragon.jpg)|

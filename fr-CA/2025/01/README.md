@@ -30,3 +30,4 @@
 202501260500|FrostedBeech|Forêt de hêtres, Belgique (© Philippe Moes/Minden Pictures)|Vieillir avec grâce|![](/fr-CA/2025/01/202501260500FrostedBeech.jpg)|
 202501270500|CanyonSnow|Temple de Zoroastre, Parc national du Grand Canyon, Arizona, États-Unis (© Nick Lake/Tandem Stills + Motion)|Un parc américain légendaire|![](/fr-CA/2025/01/202501270500CanyonSnow.jpg)|
 202501280500|FlyingOwl|Hibou des marais chassant sous une neige épaisse (© Dilshan Muthalib/Getty Images)|Un chasseur hors pair|![](/fr-CA/2025/01/202501280500FlyingOwl.jpg)|
+202501290500|LunarDragon|Danse du dragon, Wuhan, Chine (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Une année de sagesse et renouveau|![](/fr-CA/2025/01/202501290500LunarDragon.jpg)|
