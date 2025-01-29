@@ -30,3 +30,4 @@
 202501262300|ParisSnow|La tour Eiffel sous la neige, Paris (© Orbon Alija/Getty Images)|Flocons sur la Ville Lumière|![](/fr-FR/2025/01/202501262300ParisSnow.jpg)|
 202501272300|FlyingOwl|Hibou des marais chassant sous une neige épaisse (© Dilshan Muthalib/Getty Images)|Un chasseur hors pair|![](/fr-FR/2025/01/202501272300FlyingOwl.jpg)|
 202501282300|LunarDragon|Danse du dragon, Wuhan, Chine (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Une année de sagesse et renouveau|![](/fr-FR/2025/01/202501282300LunarDragon.jpg)|
+202501292300|OrdesaSpain|Brèche de Roland, Parc national d'Ordesa et de Monte Perdido, Espagne (© Inaki Relanzon/Nature Picture Library/Alamy)|Être toujours sur la brèche !|![](/fr-FR/2025/01/202501292300OrdesaSpain.jpg)|

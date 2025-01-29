@@ -30,3 +30,4 @@
 202501262300|CanyonSnow|Zoroaster Temple, Grand-Canyon-Nationalpark, Arizona, USA (© Nick Lake/Tandem Stills + Motion)|Schauspiel aus Farben und Formen|![](/de-DE/2025/01/202501262300CanyonSnow.jpg)|
 202501272300|FlyingOwl|Sumpfohreule bei der Jagd im starken Schneefall (© Dilshan Muthalib/Getty Images)|Anmut im Schneegestöber|![](/de-DE/2025/01/202501272300FlyingOwl.jpg)|
 202501282300|LunarDragon|Drachentanz, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Möge der Drache mit Ihnen sein|![](/de-DE/2025/01/202501282300LunarDragon.jpg)|
+202501292300|OrdesaSpain|Rolandsbresche, Nationalpark Ordesa y Monte Perdido, Spanien (© Inaki Relanzon/Nature Picture Library/Alamy)|In schwindelnden Höhen|![](/de-DE/2025/01/202501292300OrdesaSpain.jpg)|
