@@ -30,3 +30,4 @@
 202501260800|FrostedBeech|European beech forest in Belgium (© Philippe Moes/Minden Pictures)|Info|![](/en-AU/2025/01/202501260800FrostedBeech.jpg)|
 202501270800|CanyonSnow|Zoroaster Temple, Grand Canyon National Park, Arizona, USA (© Nick Lake/Tandem Stills + Motion)|Info|![](/en-AU/2025/01/202501270800CanyonSnow.jpg)|
 202501280800|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Info|![](/en-AU/2025/01/202501280800FlyingOwl.jpg)|
+202501290800|PrioroWinter|Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)|Info|![](/en-AU/2025/01/202501290800PrioroWinter.jpg)|
