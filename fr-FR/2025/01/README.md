@@ -31,3 +31,4 @@
 202501272300|FlyingOwl|Hibou des marais chassant sous une neige épaisse (© Dilshan Muthalib/Getty Images)|Un chasseur hors pair|![](/fr-FR/2025/01/202501272300FlyingOwl.jpg)|
 202501282300|LunarDragon|Danse du dragon, Wuhan, Chine (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Une année de sagesse et renouveau|![](/fr-FR/2025/01/202501282300LunarDragon.jpg)|
 202501292300|OrdesaSpain|Brèche de Roland, Parc national d'Ordesa et de Monte Perdido, Espagne (© Inaki Relanzon/Nature Picture Library/Alamy)|Être toujours sur la brèche !|![](/fr-FR/2025/01/202501292300OrdesaSpain.jpg)|
+202501302300|PlainsZebra|Zèbres des plaines au lever du soleil, parc national de Mokala, Afrique du Sud (© EcoPrint/Shutterstock)|Sortez vos plus beaux modèles à rayures !|![](/fr-FR/2025/01/202501302300PlainsZebra.jpg)|
