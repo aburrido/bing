@@ -31,3 +31,4 @@
 202501270800|CanyonSnow|Zoroaster Temple, Grand Canyon National Park, Arizona, USA (© Nick Lake/Tandem Stills + Motion)|Info|![](/en-AU/2025/01/202501270800CanyonSnow.jpg)|
 202501280800|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Info|![](/en-AU/2025/01/202501280800FlyingOwl.jpg)|
 202501290800|PrioroWinter|Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)|Info|![](/en-AU/2025/01/202501290800PrioroWinter.jpg)|
+202501300800|OrdesaSpain|Roland's Breach, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501300800OrdesaSpain.jpg)|
