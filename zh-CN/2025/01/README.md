@@ -31,3 +31,4 @@
 202501271600|LunarNewYearEve25Y|夜空中的烟花表演，长沙，湖南省，中国 (© Sino Images/Getty Images)|祝您阖家欢乐，万事如意！|![](/zh-CN/2025/01/202501271600LunarNewYearEve25Y.jpg)|
 202501281600|SpringFestival25Y|南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)|春节快乐！|![](/zh-CN/2025/01/202501281600SpringFestival25Y.jpg)|
 202501291600|OrdesaSpain|罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)|再次冲向战斗|![](/zh-CN/2025/01/202501291600OrdesaSpain.jpg)|
+202501301600|PlainsZebra|日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock)|一点都不普通|![](/zh-CN/2025/01/202501301600PlainsZebra.jpg)|
