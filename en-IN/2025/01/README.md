@@ -32,3 +32,4 @@
 202501281830|LunarDragon|Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Happy Chinese New Year!|![](/en-IN/2025/01/202501281830LunarDragon.jpg)|
 202501291830|OrdesaSpain|Roland's Breach, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)|Once more unto the breach|![](/en-IN/2025/01/202501291830OrdesaSpain.jpg)|
 202501301830|PlainsZebra|Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)|Anything but plain|![](/en-IN/2025/01/202501301830PlainsZebra.jpg)|
+202501311830|FrostedBeech|European beech forest in Belgium (© Philippe Moes/Minden Pictures)|Ageing gracefully|![](/en-IN/2025/01/202501311830FrostedBeech.jpg)|
