@@ -32,3 +32,4 @@
 202501281500|LunarDragon|鉄の花の中で舞う龍舞, 中国 湖北省 (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|今日は中国の春節|![](/ja-JP/2025/01/202501281500LunarDragon.jpg)|
 202501291500|OrdesaSpain|オルデサ・イ・モンテ・ペルディード国立公園, スペイン (© Inaki Relanzon/Nature Picture Library/Alamy)|ローランの裂け目|![](/ja-JP/2025/01/202501291500OrdesaSpain.jpg)|
 202501301500|PlainsZebra|モカラ国立公園, 南アフリカ (© EcoPrint/Shutterstock)|今日は国際シマウマの日|![](/ja-JP/2025/01/202501301500PlainsZebra.jpg)|
+202501311500|GoldenBridge|ゴールデンブリッジ, ベトナム (© Hien Phung Thu/Shutterstock)|「神の手」に支えられた橋|![](/ja-JP/2025/01/202501311500GoldenBridge.jpg)|
