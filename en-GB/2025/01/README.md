@@ -31,3 +31,4 @@
 202501280000|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Snow-way you'll miss it|![](/en-GB/2025/01/202501280000FlyingOwl.jpg)|
 202501290000|PortoSunset|Porto, Portugal (© Starcevic/Getty Images)|Golden hour in Porto|![](/en-GB/2025/01/202501290000PortoSunset.jpg)|
 202501300000|OrdesaSpain|Roland's Breach, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)|Once more unto the breach|![](/en-GB/2025/01/202501300000OrdesaSpain.jpg)|
+202501310000|PlainsZebra|Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)|Anything but plain|![](/en-GB/2025/01/202501310000PlainsZebra.jpg)|
