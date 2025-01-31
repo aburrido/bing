@@ -32,3 +32,4 @@
 202501280500|FlyingOwl|Hibou des marais chassant sous une neige épaisse (© Dilshan Muthalib/Getty Images)|Un chasseur hors pair|![](/fr-CA/2025/01/202501280500FlyingOwl.jpg)|
 202501290500|LunarDragon|Danse du dragon, Wuhan, Chine (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Une année de sagesse et renouveau|![](/fr-CA/2025/01/202501290500LunarDragon.jpg)|
 202501300500|BoatShowVan|L'île de Granville à Vancouver, Colombie-Britannique, Canada (© AWL Images/DanitaDelimont.com)|Ancré dans la beauté|![](/fr-CA/2025/01/202501300500BoatShowVan.jpg)|
+202501310500|PlainsZebra|Zèbres des plaines au lever du soleil, parc national de Mokala, Afrique du Sud (© EcoPrint/Shutterstock)|Sortez vos plus beaux modèles à rayures!|![](/fr-CA/2025/01/202501310500PlainsZebra.jpg)|
