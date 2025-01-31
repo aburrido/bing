@@ -32,3 +32,4 @@
 202501282300|LunarDragon|Danse du dragon, Wuhan, Chine (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Une année de sagesse et renouveau|![](/fr-FR/2025/01/202501282300LunarDragon.jpg)|
 202501292300|OrdesaSpain|Brèche de Roland, Parc national d'Ordesa et de Monte Perdido, Espagne (© Inaki Relanzon/Nature Picture Library/Alamy)|Être toujours sur la brèche !|![](/fr-FR/2025/01/202501292300OrdesaSpain.jpg)|
 202501302300|PlainsZebra|Zèbres des plaines au lever du soleil, parc national de Mokala, Afrique du Sud (© EcoPrint/Shutterstock)|Sortez vos plus beaux modèles à rayures !|![](/fr-FR/2025/01/202501302300PlainsZebra.jpg)|
+202501312300|DeerForest|Cerf élaphe, forêt de Rambouillet,  Île-de-France (© Nicolas Le Boulanger/500px/Getty Image)|La noblesse du cerf|![](/fr-FR/2025/01/202501312300DeerForest.jpg)|

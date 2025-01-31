@@ -32,3 +32,4 @@
 202501282300|LunarDragon|Drachentanz, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Möge der Drache mit Ihnen sein|![](/de-DE/2025/01/202501282300LunarDragon.jpg)|
 202501292300|OrdesaSpain|Rolandsbresche, Nationalpark Ordesa y Monte Perdido, Spanien (© Inaki Relanzon/Nature Picture Library/Alamy)|In schwindelnden Höhen|![](/de-DE/2025/01/202501292300OrdesaSpain.jpg)|
 202501302300|PlainsZebra|Steppenzebras bei Sonnenaufgang, Mokala-Nationalpark, Südafrika (© EcoPrint/Shutterstock)|Einzigartige Anpassungskünstler|![](/de-DE/2025/01/202501302300PlainsZebra.jpg)|
+202501312300|FestungKonigsteinElbsandsteingebirge|Festung Königstein, Sächsische Schweiz, Deutschland (© Bildagentur-online/Exss/Alamy)|Schnee und Stein|![](/de-DE/2025/01/202501312300FestungKonigsteinElbsandsteingebirge.jpg)|
