@@ -32,3 +32,4 @@
 202501280800|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Info|![](/en-AU/2025/01/202501280800FlyingOwl.jpg)|
 202501290800|PrioroWinter|Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)|Info|![](/en-AU/2025/01/202501290800PrioroWinter.jpg)|
 202501300800|OrdesaSpain|Roland's Breach, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)|Info|![](/en-AU/2025/01/202501300800OrdesaSpain.jpg)|
+202501310800|PlainsZebra|Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)|Info|![](/en-AU/2025/01/202501310800PlainsZebra.jpg)|

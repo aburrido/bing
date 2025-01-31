@@ -32,3 +32,4 @@
 202501280800|FlyingOwl|Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)|Snow-way you'll miss it|![](/en-US/2025/01/202501280800FlyingOwl.jpg)|
 202501290800|LunarDragon|Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)|Happy Chinese New Year!|![](/en-US/2025/01/202501290800LunarDragon.jpg)|
 202501300800|OrdesaSpain|La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)|Once more unto the breach|![](/en-US/2025/01/202501300800OrdesaSpain.jpg)|
+202501310800|PlainsZebra|Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)|Anything but plain|![](/en-US/2025/01/202501310800PlainsZebra.jpg)|
