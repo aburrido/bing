@@ -4,3 +4,4 @@
 ||||![](/ja-JP/2025/02/.jpg)|
 202502011500|AustriaMarmot|アルプスマーモット, 米国 ペンシルバニア州 (© Jonas Fichtner-Pflaum/Getty Images)|今日はグラウンドホッグデー|![](/ja-JP/2025/02/202502011500AustriaMarmot.jpg)|
 202502021500|Risshun2025|梅の花で吸蜜するメジロ (© yankane/shutterstock)|今日は立春|![](/ja-JP/2025/02/202502021500Risshun2025.jpg)|
+202502031500|YukiMatsuri2025|犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)|今日からさっぽろ雪まつり|![](/ja-JP/2025/02/202502031500YukiMatsuri2025.jpg)|
