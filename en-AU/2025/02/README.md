@@ -6,3 +6,4 @@
 202502020800|AustriaMarmot|Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)|Info|![](/en-AU/2025/02/202502020800AustriaMarmot.jpg)|
 202502030800|RibbleheadViaduct|Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England, United Kingdom (© AWL Images/DanitaDelimont.com)|Info|![](/en-AU/2025/02/202502030800RibbleheadViaduct.jpg)|
 202502040800|GoldenBridge|Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)|Info|![](/en-AU/2025/02/202502040800GoldenBridge.jpg)|
+202502050800|ScottishSheep|Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)|Info|![](/en-AU/2025/02/202502050800ScottishSheep.jpg)|
