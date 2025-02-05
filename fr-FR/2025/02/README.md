@@ -6,3 +6,4 @@
 202502022300|RibbleheadViaduct|Viaduc de Ribblehead et sommet d’Ingleborough, Nord de l'Angleterre, Royaume-Uni (© AWL Images/DanitaDelimont.com)|Relier le passé, pierre par pierre|![](/fr-FR/2025/02/202502022300RibbleheadViaduct.jpg)|
 202502032300|GoldenBridge|Pont doré, collines Bà Nà, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)|Une balade au-dessus des nuages|![](/fr-FR/2025/02/202502032300GoldenBridge.jpg)|
 202502042300|ScottishSheep|Moutons Scottish Blackface, Écosse (© Mike Powles/Getty Images)|Des bêêh-liers pas comme les autres|![](/fr-FR/2025/02/202502042300ScottishSheep.jpg)|
+202502052300|WhararikiBeach|Îles Archway, plage de Wharariki, Tasman, Nouvelle-Zélande (© Francesco Vaninetti/AWL/plainpicture)|Reflets d'un héritage national|![](/fr-FR/2025/02/202502052300WhararikiBeach.jpg)|
