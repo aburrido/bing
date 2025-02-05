@@ -6,3 +6,4 @@
 202502031600|GoldenBridge|金桥，巴拿山，岘港，越南 (© Hien Phung Thu/Shutterstock)|云端漫步|![](/zh-CN/2025/02/202502031600GoldenBridge.jpg)|
 ||||![](/zh-CN/2025/02/.jpg)|
 202502041600|ScottishSheep|拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)|对国家遗产的思考|![](/zh-CN/2025/02/202502041600ScottishSheep.jpg)|
+202502051600|WhararikiBeach|拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)|对国家遗产的思考|![](/zh-CN/2025/02/202502051600WhararikiBeach.jpg)|
