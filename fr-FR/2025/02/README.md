@@ -7,3 +7,4 @@
 202502032300|GoldenBridge|Pont doré, collines Bà Nà, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)|Une balade au-dessus des nuages|![](/fr-FR/2025/02/202502032300GoldenBridge.jpg)|
 202502042300|ScottishSheep|Moutons Scottish Blackface, Écosse (© Mike Powles/Getty Images)|Des bêêh-liers pas comme les autres|![](/fr-FR/2025/02/202502042300ScottishSheep.jpg)|
 202502052300|WhararikiBeach|Îles Archway, plage de Wharariki, Tasman, Nouvelle-Zélande (© Francesco Vaninetti/AWL/plainpicture)|Reflets d'un héritage national|![](/fr-FR/2025/02/202502052300WhararikiBeach.jpg)|
+202502062300|LouvreRainyDay|Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)|Passé et présent en miroir|![](/fr-FR/2025/02/202502062300LouvreRainyDay.jpg)|
