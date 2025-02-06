@@ -7,3 +7,4 @@
 202502030800|RibbleheadViaduct|Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England, United Kingdom (© AWL Images/DanitaDelimont.com)|Info|![](/en-AU/2025/02/202502030800RibbleheadViaduct.jpg)|
 202502040800|GoldenBridge|Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)|Info|![](/en-AU/2025/02/202502040800GoldenBridge.jpg)|
 202502050800|ScottishSheep|Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)|Info|![](/en-AU/2025/02/202502050800ScottishSheep.jpg)|
+202502060800|WhararikiBeach|Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)|Info|![](/en-AU/2025/02/202502060800WhararikiBeach.jpg)|
