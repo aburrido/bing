@@ -7,3 +7,4 @@
 202502031500|YukiMatsuri2025|犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)|今日からさっぽろ雪まつり|![](/ja-JP/2025/02/202502031500YukiMatsuri2025.jpg)|
 202502041500|ScottishSheep|ブラックフェース, スコットランド  (© Mike Powles/Getty Images)|黒い顔の羊|![](/ja-JP/2025/02/202502041500ScottishSheep.jpg)|
 202502051500|WhararikiBeach|アーチウェイ諸島, ニュージーランド (© Francesco Vaninetti/AWL/plainpicture)|今日はワイタンギ・デー|![](/ja-JP/2025/02/202502051500WhararikiBeach.jpg)|
+202502061500|BlueNorway|トロンハイム, ノルウェー (© Jeanny Mueller/Getty Images)|濃い青色に染まる街|![](/ja-JP/2025/02/202502061500BlueNorway.jpg)|
