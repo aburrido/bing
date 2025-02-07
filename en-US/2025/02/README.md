@@ -8,3 +8,4 @@
 202502040800|GoldenBridge|Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)|A walk among the clouds|![](/en-US/2025/02/202502040800GoldenBridge.jpg)|
 202502050800|ScottishSheep|Scottish Blackface sheep, Aberdeenshire, Scotland  (© Mike Powles/Getty Images)|Baa, baa, black sheep? No.|![](/en-US/2025/02/202502050800ScottishSheep.jpg)|
 202502060800|WhararikiBeach|Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)|Reflections of a nation's legacy|![](/en-US/2025/02/202502060800WhararikiBeach.jpg)|
+202502070800|BlueNorway|Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)|Stuck in a blue moment|![](/en-US/2025/02/202502070800BlueNorway.jpg)|
