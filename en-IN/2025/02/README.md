@@ -7,3 +7,4 @@
 202502041830|WhararikiBeach|Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)|Reflections of a nation's legacy|![](/en-IN/2025/02/202502041830WhararikiBeach.jpg)|
 202502051830|ScottishSheep|Scottish Blackface sheep, Aberdeenshire, Scotland (© Mike Powles/Getty Images)|Baa, baa, black sheep? No.|![](/en-IN/2025/02/202502051830ScottishSheep.jpg)|
 202502061830|BlueNorway|Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)|Stuck in a blue moment|![](/en-IN/2025/02/202502061830BlueNorway.jpg)|
+202502071830|SnowySvaneti|Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)|Frozen in time|![](/en-IN/2025/02/202502071830SnowySvaneti.jpg)|
