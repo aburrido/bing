@@ -8,3 +8,4 @@
 202502041600|ScottishSheep|拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)|对国家遗产的思考|![](/zh-CN/2025/02/202502041600ScottishSheep.jpg)|
 202502051600|WhararikiBeach|拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)|对国家遗产的思考|![](/zh-CN/2025/02/202502051600WhararikiBeach.jpg)|
 202502061600|BlueNorway|特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)|沉浸在蓝调时分|![](/zh-CN/2025/02/202502061600BlueNorway.jpg)|
+202502071600|SnowySvaneti|梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)|凝固的时光|![](/zh-CN/2025/02/202502071600SnowySvaneti.jpg)|
