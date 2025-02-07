@@ -7,3 +7,4 @@
 202502040500|GoldenBridge|Pont doré, collines Bà Nà, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)|Une balade au-dessus des nuages|![](/fr-CA/2025/02/202502040500GoldenBridge.jpg)|
 202502050500|ScottishSheep|Moutons Scottish Blackface, Écosse (© Mike Powles/Getty Images)|Des bêêh-liers pas comme les autres|![](/fr-CA/2025/02/202502050500ScottishSheep.jpg)|
 202502060500|WhararikiBeach|Îles Archway, plage de Wharariki, Tasman, Nouvelle-Zélande (© Francesco Vaninetti/AWL/plainpicture)|Reflets d'un héritage national|![](/fr-CA/2025/02/202502060500WhararikiBeach.jpg)|
+202502070500|BlueNorway|Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)|Bleu comme la Norvège|![](/fr-CA/2025/02/202502070500BlueNorway.jpg)|
