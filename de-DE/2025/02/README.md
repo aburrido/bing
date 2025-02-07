@@ -7,3 +7,4 @@
 202502042300|ScottishSheep|Scottish Blackface-Schaf, Aberdeenshire, Schottland (© Mike Powles/Getty Images)|Von wegen schwarzes Schaf|![](/de-DE/2025/02/202502042300ScottishSheep.jpg)|
 202502052300|WhararikiBeach|Archway Islands, Wharariki Beach, Südinsel, Neuseeland (© Francesco Vaninetti/AWL/plainpicture)|Die Sprache der Felsen|![](/de-DE/2025/02/202502052300WhararikiBeach.jpg)|
 202502062300|BlueNorway|Blaue Stunde in Trondheim, Norwegen (© Jeanny Mueller/Getty Images)|Die blaue Stunde|![](/de-DE/2025/02/202502062300BlueNorway.jpg)|
+||||![](/de-DE/2025/02/.jpg)|
