@@ -9,3 +9,4 @@
 202502051500|WhararikiBeach|アーチウェイ諸島, ニュージーランド (© Francesco Vaninetti/AWL/plainpicture)|今日はワイタンギ・デー|![](/ja-JP/2025/02/202502051500WhararikiBeach.jpg)|
 202502061500|BlueNorway|トロンハイム, ノルウェー (© Jeanny Mueller/Getty Images)|濃い青色に染まる街|![](/ja-JP/2025/02/202502061500BlueNorway.jpg)|
 202502071500|SnowySvaneti|メスティア, ジョージア スヴァネティ (© photoaliona/Getty Images)|塔が立ち並ぶ町|![](/ja-JP/2025/02/202502071500SnowySvaneti.jpg)|
+202502081500|AlstromPoint|アルストロムポイント, 米国ユタ州 (© T.M. Schultze/TANDEM Stills + Motion)|パウエル湖を望む絶景ポイント|![](/ja-JP/2025/02/202502081500AlstromPoint.jpg)|
