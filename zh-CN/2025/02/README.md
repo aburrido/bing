@@ -9,3 +9,4 @@
 202502051600|WhararikiBeach|拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)|对国家遗产的思考|![](/zh-CN/2025/02/202502051600WhararikiBeach.jpg)|
 202502061600|BlueNorway|特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)|沉浸在蓝调时分|![](/zh-CN/2025/02/202502061600BlueNorway.jpg)|
 202502071600|SnowySvaneti|梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)|凝固的时光|![](/zh-CN/2025/02/202502071600SnowySvaneti.jpg)|
+202502081600|AlstromPoint|阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)|值得深思的高地|![](/zh-CN/2025/02/202502081600AlstromPoint.jpg)|
