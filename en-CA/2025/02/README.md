@@ -9,3 +9,4 @@
 202502060500|WhararikiBeach|Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)|Reflections of a nation's legacy|![](/en-CA/2025/02/202502060500WhararikiBeach.jpg)|
 202502070500|BlueNorway|Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)|Stuck in a blue moment|![](/en-CA/2025/02/202502070500BlueNorway.jpg)|
 ||||![](/en-CA/2025/02/.jpg)|
+202502080500|SnowySvaneti|Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)|Frozen in time|![](/en-CA/2025/02/202502080500SnowySvaneti.jpg)|
