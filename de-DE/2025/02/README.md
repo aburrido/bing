@@ -9,3 +9,4 @@
 202502062300|BlueNorway|Blaue Stunde in Trondheim, Norwegen (© Jeanny Mueller/Getty Images)|Die blaue Stunde|![](/de-DE/2025/02/202502062300BlueNorway.jpg)|
 ||||![](/de-DE/2025/02/.jpg)|
 202502072300|SnowySvaneti|Mittelalterliche Türme in Mestia, Oberswanetien, Georgien (© photoaliona/Getty Images)|Eingefroren in der Zeit|![](/de-DE/2025/02/202502072300SnowySvaneti.jpg)|
+202502082300|LeonardoGlassCubeBadDriburg|Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)|Design und Avantgarde|![](/de-DE/2025/02/202502082300LeonardoGlassCubeBadDriburg.jpg)|
