@@ -10,3 +10,4 @@
 202502061500|BlueNorway|トロンハイム, ノルウェー (© Jeanny Mueller/Getty Images)|濃い青色に染まる街|![](/ja-JP/2025/02/202502061500BlueNorway.jpg)|
 202502071500|SnowySvaneti|メスティア, ジョージア スヴァネティ (© photoaliona/Getty Images)|塔が立ち並ぶ町|![](/ja-JP/2025/02/202502071500SnowySvaneti.jpg)|
 202502081500|AlstromPoint|アルストロムポイント, 米国ユタ州 (© T.M. Schultze/TANDEM Stills + Motion)|パウエル湖を望む絶景ポイント|![](/ja-JP/2025/02/202502081500AlstromPoint.jpg)|
+202502091500|UmbrellaDay|バラマーケット, イギリス ロンドン (© Malcolm P Chapman/Getty Images)|カラフルな傘が広がる「アンブレラスカイ」|![](/ja-JP/2025/02/202502091500UmbrellaDay.jpg)|
