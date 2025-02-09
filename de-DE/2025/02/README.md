@@ -10,3 +10,4 @@
 ||||![](/de-DE/2025/02/.jpg)|
 202502072300|SnowySvaneti|Mittelalterliche Türme in Mestia, Oberswanetien, Georgien (© photoaliona/Getty Images)|Eingefroren in der Zeit|![](/de-DE/2025/02/202502072300SnowySvaneti.jpg)|
 202502082300|LeonardoGlassCubeBadDriburg|Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)|Design und Avantgarde|![](/de-DE/2025/02/202502082300LeonardoGlassCubeBadDriburg.jpg)|
+202502092300|UmbrellaDay|Kunstinstallation von Regenschirmen, Borough Market, London, England (© Malcolm P Chapman/Getty Images)|Regenschirme, soweit das Auge reicht|![](/de-DE/2025/02/202502092300UmbrellaDay.jpg)|

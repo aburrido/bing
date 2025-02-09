@@ -10,3 +10,4 @@
 202502062300|LouvreRainyDay|Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)|Passé et présent en miroir|![](/fr-FR/2025/02/202502062300LouvreRainyDay.jpg)|
 202502072300|SnowySvaneti|Tours médiévales, Mestia, Haut-Svaneti, Géorgie (© photoaliona/Getty Images)|Figé dans le temps|![](/fr-FR/2025/02/202502072300SnowySvaneti.jpg)|
 202502082300|AlstromPoint|Alstrom Point, lac Powell, Utah, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Un point de vue à ne pas perdre !|![](/fr-FR/2025/02/202502082300AlstromPoint.jpg)|
+202502092300|UmbrellaDay|Installation artistique de parapluies, Borough Market, Londres, Angleterre (© Malcolm P Chapman/Getty Images)|Un p’tit coin d’parapluie...|![](/fr-FR/2025/02/202502092300UmbrellaDay.jpg)|
