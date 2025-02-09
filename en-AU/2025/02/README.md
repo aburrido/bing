@@ -10,3 +10,4 @@
 202502060800|WhararikiBeach|Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)|Info|![](/en-AU/2025/02/202502060800WhararikiBeach.jpg)|
 202502070800|BlueNorway|Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)|Info|![](/en-AU/2025/02/202502070800BlueNorway.jpg)|
 202502080800|SnowySvaneti|Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)|Info|![](/en-AU/2025/02/202502080800SnowySvaneti.jpg)|
+202502090800|AlstromPoint|Alstrom Point, Lake Powell, Utah, United States (© T.M. Schultze/TANDEM Stills + Motion)|Info|![](/en-AU/2025/02/202502090800AlstromPoint.jpg)|
