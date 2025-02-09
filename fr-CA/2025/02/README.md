@@ -9,3 +9,4 @@
 202502060500|WhararikiBeach|Îles Archway, plage de Wharariki, Tasman, Nouvelle-Zélande (© Francesco Vaninetti/AWL/plainpicture)|Reflets d'un héritage national|![](/fr-CA/2025/02/202502060500WhararikiBeach.jpg)|
 202502070500|BlueNorway|Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)|Bleu comme la Norvège|![](/fr-CA/2025/02/202502070500BlueNorway.jpg)|
 202502080500|SnowySvaneti|Tours médiévales, Mestia, Haute-Svaneti, Géorgie (© photoaliona/Getty Images)|Figé dans le temps|![](/fr-CA/2025/02/202502080500SnowySvaneti.jpg)|
+202502090500|AlstromPoint|Alstrom Point, lac Powell, Utah, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Un point de vue à ne pas perdre!|![](/fr-CA/2025/02/202502090500AlstromPoint.jpg)|
