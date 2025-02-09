@@ -10,3 +10,4 @@
 202502071830|SnowySvaneti|Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)|Frozen in time|![](/en-IN/2025/02/202502071830SnowySvaneti.jpg)|
 ||||![](/en-IN/2025/02/.jpg)|
 202502081830|AlstromPoint|Alstrom Point, Lake Powell, Utah, United States (© T.M. Schultze/TANDEM Stills + Motion)|A point worth pondering|![](/en-IN/2025/02/202502081830AlstromPoint.jpg)|
+202502091830|UmbrellaDay|Art installation of umbrellas, Borough Market, London, England (© Malcolm P Chapman/Getty Images)|Under my umbrella|![](/en-IN/2025/02/202502091830UmbrellaDay.jpg)|
