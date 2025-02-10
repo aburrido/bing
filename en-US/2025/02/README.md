@@ -11,3 +11,4 @@
 202502070800|BlueNorway|Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)|Stuck in a blue moment|![](/en-US/2025/02/202502070800BlueNorway.jpg)|
 202502080800|SnowySvaneti|Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)|Frozen in time|![](/en-US/2025/02/202502080800SnowySvaneti.jpg)|
 202502090800|AlstromPoint|Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)|A point worth pondering|![](/en-US/2025/02/202502090800AlstromPoint.jpg)|
+202502100800|UmbrellaDay|Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)|Under my umbrella|![](/en-US/2025/02/202502100800UmbrellaDay.jpg)|
