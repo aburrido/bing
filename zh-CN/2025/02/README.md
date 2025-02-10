@@ -11,3 +11,4 @@
 202502071600|SnowySvaneti|梅斯蒂亚的中世纪塔楼，上斯瓦涅季，格鲁吉亚 (© photoaliona/Getty Images)|凝固的时光|![](/zh-CN/2025/02/202502071600SnowySvaneti.jpg)|
 202502081600|AlstromPoint|阿尔斯特罗姆角，鲍威尔湖，犹他州，美国 (© T.M. Schultze/TANDEM Stills + Motion)|值得深思的高地|![](/zh-CN/2025/02/202502081600AlstromPoint.jpg)|
 202502091600|UmbrellaDay|雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)|在伞下|![](/zh-CN/2025/02/202502091600UmbrellaDay.jpg)|
+202502101600|YungangGrottoes|云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)|历史的守望之眼|![](/zh-CN/2025/02/202502101600YungangGrottoes.jpg)|
