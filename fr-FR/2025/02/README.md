@@ -12,3 +12,4 @@
 202502082300|AlstromPoint|Alstrom Point, lac Powell, Utah, États-Unis (© T.M. Schultze/TANDEM Stills + Motion)|Un point de vue à ne pas perdre !|![](/fr-FR/2025/02/202502082300AlstromPoint.jpg)|
 202502092300|UmbrellaDay|Installation artistique de parapluies, Borough Market, Londres, Angleterre (© Malcolm P Chapman/Getty Images)|Un p’tit coin d’parapluie...|![](/fr-FR/2025/02/202502092300UmbrellaDay.jpg)|
 202502102300|YungangGrottoes|Grottes de Yungang, Datong, province de Shanxi, Chine (© Eric Yang/Getty Images)|Le regard attentif de l'Histoire|![](/fr-FR/2025/02/202502102300YungangGrottoes.jpg)|
+202502112300|GalapagosIguana|Iguanes marins, îles Galápagos, Équateur (© helovi/Getty Images)|La théorie de Darwin|![](/fr-FR/2025/02/202502112300GalapagosIguana.jpg)|

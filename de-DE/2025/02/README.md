@@ -12,3 +12,4 @@
 202502082300|LeonardoGlassCubeBadDriburg|Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)|Design und Avantgarde|![](/de-DE/2025/02/202502082300LeonardoGlassCubeBadDriburg.jpg)|
 202502092300|UmbrellaDay|Kunstinstallation von Regenschirmen, Borough Market, London, England (© Malcolm P Chapman/Getty Images)|Regenschirme, soweit das Auge reicht|![](/de-DE/2025/02/202502092300UmbrellaDay.jpg)|
 202502102300|YungangGrottoes|Yungang-Grotten, Datong, Provinz Shanxi, China (© Eric Yang/Getty Images)|Wächter unendlicher Weisheit|![](/de-DE/2025/02/202502102300YungangGrottoes.jpg)|
+202502112300|GalapagosIguana|Meerechsen, Galápagos-Inseln, Ecuador (© helovi/Getty Images)|Revolution der Wissenschaft|![](/de-DE/2025/02/202502112300GalapagosIguana.jpg)|
