@@ -13,3 +13,4 @@
 202502100500|UmbrellaDay|Installation artistique de parapluies, Borough Market, Londres, Angleterre (© Malcolm P Chapman/Getty Images)|Un p’tit coin d’parapluie...|![](/fr-CA/2025/02/202502100500UmbrellaDay.jpg)|
 ||||![](/fr-CA/2025/02/.jpg)|
 202502110500|YungangGrottoes|Grottes de Yungang, Datong, province de Shanxi, Chine (© Eric Yang/Getty Images)|Le regard attentif de l'Histoire|![](/fr-CA/2025/02/202502110500YungangGrottoes.jpg)|
+202502120500|GalapagosIguana|Iguanes marins, îles Galápagos, Équateur (© helovi/Getty Images)|La théorie de Darwin|![](/fr-CA/2025/02/202502120500GalapagosIguana.jpg)|

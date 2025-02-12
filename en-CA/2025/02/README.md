@@ -13,3 +13,4 @@
 202502090500|AlstromPoint|Alstrom Point, Lake Powell, Utah, United States (© T.M. Schultze/TANDEM Stills + Motion)|A point worth pondering|![](/en-CA/2025/02/202502090500AlstromPoint.jpg)|
 202502100500|BanffSnow25|Banff National Park in winter, Alberta, Canada (© Waitforlight/Moment/Getty Images)|Chill out in one of the coolest spots|![](/en-CA/2025/02/202502100500BanffSnow25.jpg)|
 202502110500|YungangGrottoes|Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)|The watchful eyes of history|![](/en-CA/2025/02/202502110500YungangGrottoes.jpg)|
+202502120500|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Darwin's blueprint|![](/en-CA/2025/02/202502120500GalapagosIguana.jpg)|
