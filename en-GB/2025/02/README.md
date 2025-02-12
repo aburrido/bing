@@ -12,3 +12,4 @@
 202502090000|AlstromPoint|Alstrom Point, Lake Powell, Utah, United States (© T.M. Schultze/TANDEM Stills + Motion)|A point worth pondering|![](/en-GB/2025/02/202502090000AlstromPoint.jpg)|
 202502100000|UmbrellaDay|Art installation of umbrellas, Borough Market, London, England (© Malcolm P Chapman/Getty Images)|Under my umbrella|![](/en-GB/2025/02/202502100000UmbrellaDay.jpg)|
 202502110000|YungangGrottoes|Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)|The watchful eyes of history|![](/en-GB/2025/02/202502110000YungangGrottoes.jpg)|
+202502120000|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Darwin's blueprint|![](/en-GB/2025/02/202502120000GalapagosIguana.jpg)|
