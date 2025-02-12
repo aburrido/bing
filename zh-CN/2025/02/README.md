@@ -13,3 +13,4 @@
 202502091600|UmbrellaDay|雨伞艺术装置，博罗市场，伦敦，英国 (© Malcolm P Chapman/Getty Images)|在伞下|![](/zh-CN/2025/02/202502091600UmbrellaDay.jpg)|
 202502101600|YungangGrottoes|云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)|历史的守望之眼|![](/zh-CN/2025/02/202502101600YungangGrottoes.jpg)|
 202502111600|LanterFestival25Y|上海豫园的灯会，元宵节，上海市，中国 (© atiger/Shutterstock)|喜气洋洋的元宵节|![](/zh-CN/2025/02/202502111600LanterFestival25Y.jpg)|
+202502121600|LakeTyrrell|泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)|大地之盐|![](/zh-CN/2025/02/202502121600LakeTyrrell.jpg)|
