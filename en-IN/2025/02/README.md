@@ -13,3 +13,4 @@
 202502091830|UmbrellaDay|Art installation of umbrellas, Borough Market, London, England (© Malcolm P Chapman/Getty Images)|Under my umbrella|![](/en-IN/2025/02/202502091830UmbrellaDay.jpg)|
 202502101830|YungangGrottoes|Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)|The watchful eyes of history|![](/en-IN/2025/02/202502101830YungangGrottoes.jpg)|
 202502111830|AshokaPillar|Ashoka pillar, Kutagarasala Vihara, Vaishali, Bihar (© Memoryfor/Shutterstock)|Rising high, rooted deep|![](/en-IN/2025/02/202502111830AshokaPillar.jpg)|
+202502121830|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-IN/2025/02/202502121830LakeTyrrell.jpg)|
