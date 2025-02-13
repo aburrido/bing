@@ -14,3 +14,4 @@
 202502101600|YungangGrottoes|云冈石窟，大同，山西省，中国 (© Eric Yang/Getty Images)|历史的守望之眼|![](/zh-CN/2025/02/202502101600YungangGrottoes.jpg)|
 202502111600|LanterFestival25Y|上海豫园的灯会，元宵节，上海市，中国 (© atiger/Shutterstock)|喜气洋洋的元宵节|![](/zh-CN/2025/02/202502111600LanterFestival25Y.jpg)|
 202502121600|LakeTyrrell|泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)|大地之盐|![](/zh-CN/2025/02/202502121600LakeTyrrell.jpg)|
+202502131600|PenguinLove|两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|瞧这对恩爱的情侣|![](/zh-CN/2025/02/202502131600PenguinLove.jpg)|
