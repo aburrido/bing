@@ -14,3 +14,4 @@
 202502102300|YungangGrottoes|Yungang-Grotten, Datong, Provinz Shanxi, China (© Eric Yang/Getty Images)|Wächter unendlicher Weisheit|![](/de-DE/2025/02/202502102300YungangGrottoes.jpg)|
 202502112300|GalapagosIguana|Meerechsen, Galápagos-Inseln, Ecuador (© helovi/Getty Images)|Revolution der Wissenschaft|![](/de-DE/2025/02/202502112300GalapagosIguana.jpg)|
 202502122300|BerlinKinoZooPalast|Kino Zoo Palast, Berlin (© Ponizak/Agencja Fotograficzna Caro/Alamy Stock Photo)|Film ab!|![](/de-DE/2025/02/202502122300BerlinKinoZooPalast.jpg)|
+202502132300|PenguinLove|Zwei Magellanpinguine, Falklandinseln (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Schaut euch diese Turteltauben an!|![](/de-DE/2025/02/202502132300PenguinLove.jpg)|
