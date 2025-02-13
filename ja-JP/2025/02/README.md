@@ -14,3 +14,4 @@
 202502101500|KairakuUme2025|春の訪れを告げる梅の花, 茨城県 水戸市 (© dekitateyo/shutterstock)|今日から水戸の梅まつり|![](/ja-JP/2025/02/202502101500KairakuUme2025.jpg)|
 202502111500|PolarBearSwim|ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)|今日はダーウィンの日|![](/ja-JP/2025/02/202502111500PolarBearSwim.jpg)|
 202502121500|LakeTyrrell|ティレル湖, オーストラリア ビクトリア州 (© Monica Bertolazzi/Getty Images)|雪のように白く輝く塩湖|![](/ja-JP/2025/02/202502121500LakeTyrrell.jpg)|
+202502131500|PenguinLove|マゼランペンギンのペア, イギリス (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日はバレンタインデー|![](/ja-JP/2025/02/202502131500PenguinLove.jpg)|
