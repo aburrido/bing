@@ -14,3 +14,4 @@
 202502100800|UmbrellaDay|Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)|Under my umbrella|![](/en-US/2025/02/202502100800UmbrellaDay.jpg)|
 202502110800|YungangGrottoes|Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)|The watchful eyes of history|![](/en-US/2025/02/202502110800YungangGrottoes.jpg)|
 202502120800|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Darwin's blueprint|![](/en-US/2025/02/202502120800GalapagosIguana.jpg)|
+202502130800|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-US/2025/02/202502130800LakeTyrrell.jpg)|
