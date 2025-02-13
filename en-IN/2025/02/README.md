@@ -14,3 +14,4 @@
 202502101830|YungangGrottoes|Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)|The watchful eyes of history|![](/en-IN/2025/02/202502101830YungangGrottoes.jpg)|
 202502111830|AshokaPillar|Ashoka pillar, Kutagarasala Vihara, Vaishali, Bihar (© Memoryfor/Shutterstock)|Rising high, rooted deep|![](/en-IN/2025/02/202502111830AshokaPillar.jpg)|
 202502121830|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-IN/2025/02/202502121830LakeTyrrell.jpg)|
+202502131830|PenguinLove|Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Look at these lovebirds|![](/en-IN/2025/02/202502131830PenguinLove.jpg)|
