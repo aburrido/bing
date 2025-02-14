@@ -15,3 +15,4 @@
 202502111500|PolarBearSwim|ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)|今日はダーウィンの日|![](/ja-JP/2025/02/202502111500PolarBearSwim.jpg)|
 202502121500|LakeTyrrell|ティレル湖, オーストラリア ビクトリア州 (© Monica Bertolazzi/Getty Images)|雪のように白く輝く塩湖|![](/ja-JP/2025/02/202502121500LakeTyrrell.jpg)|
 202502131500|PenguinLove|マゼランペンギンのペア, イギリス (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日はバレンタインデー|![](/ja-JP/2025/02/202502131500PenguinLove.jpg)|
+202502141500|Misotsuchi2025|三十槌の氷柱, 埼玉県 秩父市 (© watayu0821/Shutterstock)|ライトアップされた幻想的な氷柱|![](/ja-JP/2025/02/202502141500Misotsuchi2025.jpg)|
