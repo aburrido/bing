@@ -15,3 +15,4 @@
 202502110500|YungangGrottoes|Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)|The watchful eyes of history|![](/en-CA/2025/02/202502110500YungangGrottoes.jpg)|
 202502120500|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Darwin's blueprint|![](/en-CA/2025/02/202502120500GalapagosIguana.jpg)|
 202502130500|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-CA/2025/02/202502130500LakeTyrrell.jpg)|
+202502140500|PenguinLove|Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Look at these lovebirds|![](/en-CA/2025/02/202502140500PenguinLove.jpg)|
