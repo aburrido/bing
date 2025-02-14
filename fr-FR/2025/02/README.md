@@ -15,3 +15,4 @@
 202502112300|GalapagosIguana|Iguanes marins, îles Galápagos, Équateur (© helovi/Getty Images)|La théorie de Darwin|![](/fr-FR/2025/02/202502112300GalapagosIguana.jpg)|
 202502122300|LakeTyrrell|Lac Tyrrell, Victoria, Australie (© Monica Bertolazzi/Getty Images)|Le sel de la Terre|![](/fr-FR/2025/02/202502122300LakeTyrrell.jpg)|
 202502132300|PenguinLove|Deux manchots de Magellan, îles Malouines (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Regardez ces tourtereaux|![](/fr-FR/2025/02/202502132300PenguinLove.jpg)|
+202502142300|CarnivalNice|Défilé du Carnaval de Nice, le Roi sur la Promenade des Anglais (© aerial-photos.com/Alamy Stock Photo)|C'est toute une parade !|![](/fr-FR/2025/02/202502142300CarnivalNice.jpg)|
