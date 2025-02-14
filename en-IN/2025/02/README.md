@@ -15,3 +15,4 @@
 202502111830|AshokaPillar|Ashoka pillar, Kutagarasala Vihara, Vaishali, Bihar (© Memoryfor/Shutterstock)|Rising high, rooted deep|![](/en-IN/2025/02/202502111830AshokaPillar.jpg)|
 202502121830|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-IN/2025/02/202502121830LakeTyrrell.jpg)|
 202502131830|PenguinLove|Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Look at these lovebirds|![](/en-IN/2025/02/202502131830PenguinLove.jpg)|
+202502141830|Misotsuchi2025|Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/shutterstock)|These are so nice-icle|![](/en-IN/2025/02/202502141830Misotsuchi2025.jpg)|
