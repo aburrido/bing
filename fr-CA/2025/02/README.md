@@ -16,3 +16,4 @@
 202502120500|GalapagosIguana|Iguanes marins, îles Galápagos, Équateur (© helovi/Getty Images)|La théorie de Darwin|![](/fr-CA/2025/02/202502120500GalapagosIguana.jpg)|
 202502130500|LakeTyrrell|Lac Tyrrell, Victoria, Australie (© Monica Bertolazzi/Getty Images)|Le sel de la Terre|![](/fr-CA/2025/02/202502130500LakeTyrrell.jpg)|
 202502140500|PenguinLove|Deux manchots de Magellan, îles Malouines (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Regardez ces tourtereaux|![](/fr-CA/2025/02/202502140500PenguinLove.jpg)|
+202502150500|Misotsuchi2025|Stalactites de Misotsuchi, Chichibu, Japon (© watayu0821/shutterstock)|Une beauté glaçante|![](/fr-CA/2025/02/202502150500Misotsuchi2025.jpg)|
