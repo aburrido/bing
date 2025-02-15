@@ -15,3 +15,4 @@
 202502120000|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Darwin's blueprint|![](/en-GB/2025/02/202502120000GalapagosIguana.jpg)|
 202502130000|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-GB/2025/02/202502130000LakeTyrrell.jpg)|
 202502140000|PenguinLove|Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Look at these lovebirds|![](/en-GB/2025/02/202502140000PenguinLove.jpg)|
+202502150000|BigGardenBirdwatch2025|A kingfisher perched on a branch (© NJphoto/Alamy Stock Photo)|Winter's brightest catch|![](/en-GB/2025/02/202502150000BigGardenBirdwatch2025.jpg)|
