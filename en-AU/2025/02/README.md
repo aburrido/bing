@@ -16,3 +16,4 @@
 202502120800|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Info|![](/en-AU/2025/02/202502120800GalapagosIguana.jpg)|
 202502130800|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Info|![](/en-AU/2025/02/202502130800LakeTyrrell.jpg)|
 202502140800|PenguinLove|Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2025/02/202502140800PenguinLove.jpg)|
+202502150800|Misotsuchi2025|Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/shutterstock)|Info|![](/en-AU/2025/02/202502150800Misotsuchi2025.jpg)|
