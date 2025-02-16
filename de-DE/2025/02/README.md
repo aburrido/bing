@@ -17,3 +17,4 @@
 202502132300|PenguinLove|Zwei Magellanpinguine, Falklandinseln (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Schaut euch diese Turteltauben an!|![](/de-DE/2025/02/202502132300PenguinLove.jpg)|
 202502142300|Misotsuchi2025|Eiszapfen von Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)|Eisige Magie|![](/de-DE/2025/02/202502142300Misotsuchi2025.jpg)|
 202502152300|HumpbackMother|Buckelwal-Mutter und Kalb, Tonga (© Chase Dekker/Minden Pictures)|Den Riesen des Meeres Schutz bieten|![](/de-DE/2025/02/202502152300HumpbackMother.jpg)|
+202502162300|CatalanPyrenees|Coll d’Ares, Katalanische Pyrenäen (© CRISTIAN IONUT ZAHARIA/Shutterstock)|Eine Grenze im Schnee|![](/de-DE/2025/02/202502162300CatalanPyrenees.jpg)|
