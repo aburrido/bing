@@ -16,3 +16,4 @@
 202502130000|LakeTyrrell|Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)|Salt of the earth|![](/en-GB/2025/02/202502130000LakeTyrrell.jpg)|
 202502140000|PenguinLove|Two Magellanic penguins, Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Look at these lovebirds|![](/en-GB/2025/02/202502140000PenguinLove.jpg)|
 202502150000|BigGardenBirdwatch2025|A kingfisher perched on a branch (© NJphoto/Alamy Stock Photo)|Winter's brightest catch|![](/en-GB/2025/02/202502150000BigGardenBirdwatch2025.jpg)|
+202502160000|HumpbackMother|Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)|Protecting the giants of the sea|![](/en-GB/2025/02/202502160000HumpbackMother.jpg)|
