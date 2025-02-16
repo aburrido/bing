@@ -17,3 +17,4 @@
 202502131500|PenguinLove|マゼランペンギンのペア, イギリス (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日はバレンタインデー|![](/ja-JP/2025/02/202502131500PenguinLove.jpg)|
 202502141500|Misotsuchi2025|三十槌の氷柱, 埼玉県 秩父市 (© watayu0821/Shutterstock)|ライトアップされた幻想的な氷柱|![](/ja-JP/2025/02/202502141500Misotsuchi2025.jpg)|
 202502151500|HumpbackMother|ザトウクジラの親子, トンガ (© Chase Dekker/Minden Pictures)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2025/02/202502151500HumpbackMother.jpg)|
+202502161500|YungangGrottoes|雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)|岩壁に彫られた巨大な仏像|![](/ja-JP/2025/02/202502161500YungangGrottoes.jpg)|
