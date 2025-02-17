@@ -18,3 +18,4 @@
 202502140500|PenguinLove|Deux manchots de Magellan, îles Malouines (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Regardez ces tourtereaux|![](/fr-CA/2025/02/202502140500PenguinLove.jpg)|
 202502150500|Misotsuchi2025|Stalactites de Misotsuchi, Chichibu, Japon (© watayu0821/shutterstock)|Une beauté glaçante|![](/fr-CA/2025/02/202502150500Misotsuchi2025.jpg)|
 202502160500|HumpbackMother|Baleine à bosse et son baleineau, Tonga (© Chase Dekker/Minden Pictures)|Protégeons les géants de l’océan|![](/fr-CA/2025/02/202502160500HumpbackMother.jpg)|
+202502170500|BanffSnow25|Parc national Banff, Alberta, Canada (© Waitforlight/Moment/Getty Images)|Le regard glacé de la Reine des Neiges|![](/fr-CA/2025/02/202502170500BanffSnow25.jpg)|
