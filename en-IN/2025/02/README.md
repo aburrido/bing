@@ -18,3 +18,4 @@
 202502141830|Misotsuchi2025|Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/shutterstock)|These are so nice-icle|![](/en-IN/2025/02/202502141830Misotsuchi2025.jpg)|
 202502151830|HumpbackMother|Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)|Protecting the giants of the sea|![](/en-IN/2025/02/202502151830HumpbackMother.jpg)|
 202502161830|SikriComplex|Fatehpur Sikri, Agra, Uttar Pradesh (© Catalin Lazar/Shutterstock)|City of vision and faith|![](/en-IN/2025/02/202502161830SikriComplex.jpg)|
+202502171830|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endless blue|![](/en-IN/2025/02/202502171830BlueBelize.jpg)|
