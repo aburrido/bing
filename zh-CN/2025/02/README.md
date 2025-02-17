@@ -18,3 +18,4 @@
 202502141600|Misotsuchi2025|三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock)|冰雪奇景|![](/zh-CN/2025/02/202502141600Misotsuchi2025.jpg)|
 202502151600|HumpbackMother|座头鲸妈妈和宝宝，汤加 (© Chase Dekker/Minden Pictures)|守护海洋巨兽|![](/zh-CN/2025/02/202502151600HumpbackMother.jpg)|
 202502161600|CatalanPyrenees|Coll d'Ares，加泰罗尼亚比利牛斯​​山脉 (© CRISTIAN IONUT ZAHARIA/Shutterstock)|冰雪边界|![](/zh-CN/2025/02/202502161600CatalanPyrenees.jpg)|
+202502171600|BlueBelize|大蓝洞，伯利兹 (© JamiesOnAMission/Shutterstock)|无尽的蓝色|![](/zh-CN/2025/02/202502171600BlueBelize.jpg)|
