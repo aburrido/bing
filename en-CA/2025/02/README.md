@@ -19,3 +19,4 @@
 202502150500|Misotsuchi2025|Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/shutterstock)|These are so nice-icle|![](/en-CA/2025/02/202502150500Misotsuchi2025.jpg)|
 202502160500|HumpbackMother|Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)|Protecting the giants of the sea|![](/en-CA/2025/02/202502160500HumpbackMother.jpg)|
 202502170500|CatalanPyrenees|Coll d'Ares, Catalan Pyrenees (© CRISTIAN IONUT ZAHARIA/Shutterstock)|An icy border|![](/en-CA/2025/02/202502170500CatalanPyrenees.jpg)|
+202502180500|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endless blue|![](/en-CA/2025/02/202502180500BlueBelize.jpg)|
