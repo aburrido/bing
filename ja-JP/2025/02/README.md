@@ -19,3 +19,4 @@
 202502151500|HumpbackMother|ザトウクジラの親子, トンガ (© Chase Dekker/Minden Pictures)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2025/02/202502151500HumpbackMother.jpg)|
 202502161500|YungangGrottoes|雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)|岩壁に彫られた巨大な仏像|![](/ja-JP/2025/02/202502161500YungangGrottoes.jpg)|
 202502171500|BlueBelize|グレート・ブルーホール, ベリーズ (© JamiesOnAMission/Shutterstock)|カリブ海の宝石|![](/ja-JP/2025/02/202502171500BlueBelize.jpg)|
+202502181500|IceHoleOtter|ユーラシアカワウソ, オランダ (© Ernst Dirksen/Minden Pictures)|可愛い水中ダンサー|![](/ja-JP/2025/02/202502181500IceHoleOtter.jpg)|
