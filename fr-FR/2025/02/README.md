@@ -19,3 +19,4 @@
 202502152300|HumpbackMother|Baleine à bosse et son baleineau, Tonga (© Chase Dekker/Minden Pictures)|Protégeons les géants de l’océan|![](/fr-FR/2025/02/202502152300HumpbackMother.jpg)|
 202502162300|Misotsuchi2025|Stalactites de Misotsuchi, Chichibu, Japon (© watayu0821/Shutterstock)|Une beauté glaçante|![](/fr-FR/2025/02/202502162300Misotsuchi2025.jpg)|
 202502172300|BlueBelize|Le Grand Trou Bleu, Belize (© JamiesOnAMission/Shutterstock)|Le Grand Bleu|![](/fr-FR/2025/02/202502172300BlueBelize.jpg)|
+202502182300|IceHoleOtter|Loutre d'Europe, Lelystad, Pays-Bas (© Ernst Dirksen/Minden Pictures)|Je nage loutrement bien !|![](/fr-FR/2025/02/202502182300IceHoleOtter.jpg)|

@@ -19,3 +19,4 @@
 202502152300|HumpbackMother|Buckelwal-Mutter und Kalb, Tonga (© Chase Dekker/Minden Pictures)|Den Riesen des Meeres Schutz bieten|![](/de-DE/2025/02/202502152300HumpbackMother.jpg)|
 202502162300|CatalanPyrenees|Coll d’Ares, Katalanische Pyrenäen (© CRISTIAN IONUT ZAHARIA/Shutterstock)|Eine Grenze im Schnee|![](/de-DE/2025/02/202502162300CatalanPyrenees.jpg)|
 202502172300|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endloses Blau|![](/de-DE/2025/02/202502172300BlueBelize.jpg)|
+202502182300|IceHoleOtter|Europäischer Flussotter, Lelystad, Niederlande (© Ernst Dirksen/Minden Pictures)|Ein charmanter Einzelgänger|![](/de-DE/2025/02/202502182300IceHoleOtter.jpg)|
