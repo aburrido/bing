@@ -19,3 +19,4 @@
 202502160000|HumpbackMother|Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)|Protecting the giants of the sea|![](/en-GB/2025/02/202502160000HumpbackMother.jpg)|
 202502170000|JorvikVikingFestival2025|Fireworks at Clifford's Tower during the Jorvik Viking Festival (© Ian Forsyth/Stringer/Getty Images)|A week of Viking wonders|![](/en-GB/2025/02/202502170000JorvikVikingFestival2025.jpg)|
 202502180000|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endless blue|![](/en-GB/2025/02/202502180000BlueBelize.jpg)|
+202502190000|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|The 'otter' side of life|![](/en-GB/2025/02/202502190000IceHoleOtter.jpg)|
