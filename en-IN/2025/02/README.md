@@ -20,3 +20,4 @@
 202502161830|SikriComplex|Fatehpur Sikri, Agra, Uttar Pradesh (© Catalin Lazar/Shutterstock)|City of vision and faith|![](/en-IN/2025/02/202502161830SikriComplex.jpg)|
 202502171830|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endless blue|![](/en-IN/2025/02/202502171830BlueBelize.jpg)|
 202502181830|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|The 'otter' side of life|![](/en-IN/2025/02/202502181830IceHoleOtter.jpg)|
+202502191830|CanadaDeer|Red deer, Canada (© Delbars/Getty Images)|A regal duo|![](/en-IN/2025/02/202502191830CanadaDeer.jpg)|
