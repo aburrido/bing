@@ -20,3 +20,4 @@
 202502161500|YungangGrottoes|雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)|岩壁に彫られた巨大な仏像|![](/ja-JP/2025/02/202502161500YungangGrottoes.jpg)|
 202502171500|BlueBelize|グレート・ブルーホール, ベリーズ (© JamiesOnAMission/Shutterstock)|カリブ海の宝石|![](/ja-JP/2025/02/202502171500BlueBelize.jpg)|
 202502181500|IceHoleOtter|ユーラシアカワウソ, オランダ (© Ernst Dirksen/Minden Pictures)|可愛い水中ダンサー|![](/ja-JP/2025/02/202502181500IceHoleOtter.jpg)|
+202502191500|FestungKonigsteinElbsandsteingebirge|ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)|台形の山上にそびえる要塞|![](/ja-JP/2025/02/202502191500FestungKonigsteinElbsandsteingebirge.jpg)|
