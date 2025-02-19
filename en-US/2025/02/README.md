@@ -20,3 +20,4 @@
 202502160800|HumpbackMother|Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)|Protecting the giants of the sea|![](/en-US/2025/02/202502160800HumpbackMother.jpg)|
 202502170800|LincolnSunrise|The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)|Honoring our presidents|![](/en-US/2025/02/202502170800LincolnSunrise.jpg)|
 202502180800|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endless blue|![](/en-US/2025/02/202502180800BlueBelize.jpg)|
+202502190800|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|The 'otter' side of life|![](/en-US/2025/02/202502190800IceHoleOtter.jpg)|
