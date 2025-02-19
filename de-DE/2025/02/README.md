@@ -20,3 +20,4 @@
 202502162300|CatalanPyrenees|Coll d’Ares, Katalanische Pyrenäen (© CRISTIAN IONUT ZAHARIA/Shutterstock)|Eine Grenze im Schnee|![](/de-DE/2025/02/202502162300CatalanPyrenees.jpg)|
 202502172300|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endloses Blau|![](/de-DE/2025/02/202502172300BlueBelize.jpg)|
 202502182300|IceHoleOtter|Europäischer Flussotter, Lelystad, Niederlande (© Ernst Dirksen/Minden Pictures)|Ein charmanter Einzelgänger|![](/de-DE/2025/02/202502182300IceHoleOtter.jpg)|
+202502192300|CanadaDeer|Rothirsch, Kanada (© Delbars/Getty Images)|Ein königliches Duo|![](/de-DE/2025/02/202502192300CanadaDeer.jpg)|
