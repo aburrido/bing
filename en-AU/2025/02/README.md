@@ -21,3 +21,4 @@
 202502170800|CatalanPyrenees|Coll d'Ares, Catalan Pyrenees (© CRISTIAN IONUT ZAHARIA/Shutterstock)|Info|![](/en-AU/2025/02/202502170800CatalanPyrenees.jpg)|
 202502180800|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Info|![](/en-AU/2025/02/202502180800BlueBelize.jpg)|
 202502190800|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|Info|![](/en-AU/2025/02/202502190800IceHoleOtter.jpg)|
+202502200800|CanadaDeer|Red deer, Canada (© Delbars/Getty Images)|Info|![](/en-AU/2025/02/202502200800CanadaDeer.jpg)|
