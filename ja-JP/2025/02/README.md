@@ -21,3 +21,4 @@
 202502171500|BlueBelize|グレート・ブルーホール, ベリーズ (© JamiesOnAMission/Shutterstock)|カリブ海の宝石|![](/ja-JP/2025/02/202502171500BlueBelize.jpg)|
 202502181500|IceHoleOtter|ユーラシアカワウソ, オランダ (© Ernst Dirksen/Minden Pictures)|可愛い水中ダンサー|![](/ja-JP/2025/02/202502181500IceHoleOtter.jpg)|
 202502191500|FestungKonigsteinElbsandsteingebirge|ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)|台形の山上にそびえる要塞|![](/ja-JP/2025/02/202502191500FestungKonigsteinElbsandsteingebirge.jpg)|
+202502201500|ChampakaSarasi|チャンパカ・サラシール, インド カルナータカ州 (© Amith Nag Photography/Getty Images)|魅力的な古代の水槽|![](/ja-JP/2025/02/202502201500ChampakaSarasi.jpg)|
