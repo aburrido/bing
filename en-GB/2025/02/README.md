@@ -20,3 +20,4 @@
 202502170000|JorvikVikingFestival2025|Fireworks at Clifford's Tower during the Jorvik Viking Festival (© Ian Forsyth/Stringer/Getty Images)|A week of Viking wonders|![](/en-GB/2025/02/202502170000JorvikVikingFestival2025.jpg)|
 202502180000|BlueBelize|Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)|Endless blue|![](/en-GB/2025/02/202502180000BlueBelize.jpg)|
 202502190000|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|The 'otter' side of life|![](/en-GB/2025/02/202502190000IceHoleOtter.jpg)|
+202502200000|CanadaDeer|Red deer, Canada (© Delbars/Getty Images)|A regal duo|![](/en-GB/2025/02/202502200000CanadaDeer.jpg)|
