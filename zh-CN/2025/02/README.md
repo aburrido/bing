@@ -21,3 +21,4 @@
 202502171600|BlueBelize|大蓝洞，伯利兹 (© JamiesOnAMission/Shutterstock)|无尽的蓝色|![](/zh-CN/2025/02/202502171600BlueBelize.jpg)|
 202502181600|IceHoleOtter|欧亚水獭，莱利斯塔德，荷兰 (© Ernst Dirksen/Minden Pictures)|水獭的另一面|![](/zh-CN/2025/02/202502181600IceHoleOtter.jpg)|
 202502191600|CanadaDeer|马鹿，加拿大 (© Delbars/Getty Images)|高贵的双影|![](/zh-CN/2025/02/202502191600CanadaDeer.jpg)|
+202502201600|ChampakaSarasi|希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)|静水流深的传说|![](/zh-CN/2025/02/202502201600ChampakaSarasi.jpg)|
