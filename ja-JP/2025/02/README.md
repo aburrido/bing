@@ -22,3 +22,4 @@
 202502181500|IceHoleOtter|ユーラシアカワウソ, オランダ (© Ernst Dirksen/Minden Pictures)|可愛い水中ダンサー|![](/ja-JP/2025/02/202502181500IceHoleOtter.jpg)|
 202502191500|FestungKonigsteinElbsandsteingebirge|ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)|台形の山上にそびえる要塞|![](/ja-JP/2025/02/202502191500FestungKonigsteinElbsandsteingebirge.jpg)|
 202502201500|ChampakaSarasi|チャンパカ・サラシール, インド カルナータカ州 (© Amith Nag Photography/Getty Images)|魅力的な古代の水槽|![](/ja-JP/2025/02/202502201500ChampakaSarasi.jpg)|
+202502211500|StLouisArch|ゲートウェイ・アーチ, 米国 ミズーリ州 (© f11photo/Getty Images)|西部開拓の記念モニュメント|![](/ja-JP/2025/02/202502211500StLouisArch.jpg)|
