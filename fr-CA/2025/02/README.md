@@ -22,3 +22,4 @@
 202502180500|BlueBelize|Le Grand Trou Bleu, Belize (© JamiesOnAMission/Shutterstock)|Le Grand Bleu|![](/fr-CA/2025/02/202502180500BlueBelize.jpg)|
 202502190500|IceHoleOtter|Loutre d'Europe, Lelystad, Pays-Bas (© Ernst Dirksen/Minden Pictures)|Je nage loutrement bien!|![](/fr-CA/2025/02/202502190500IceHoleOtter.jpg)|
 202502200500|CanadaDeer|Cerf élaphe, Canada (© Delbars/Getty Images)|Tendresse sous la neige|![](/fr-CA/2025/02/202502200500CanadaDeer.jpg)|
+202502210500|ChampakaSarasi|Bassin de Champaka Sarasi, Karnataka, Inde (© Amith Nag Photography/Getty Images)|Une histoire d’eau|![](/fr-CA/2025/02/202502210500ChampakaSarasi.jpg)|
