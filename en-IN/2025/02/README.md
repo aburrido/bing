@@ -22,3 +22,4 @@
 202502181830|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|The 'otter' side of life|![](/en-IN/2025/02/202502181830IceHoleOtter.jpg)|
 202502191830|CanadaDeer|Red deer, Canada (© Delbars/Getty Images)|A regal duo|![](/en-IN/2025/02/202502191830CanadaDeer.jpg)|
 202502201830|ChampakaSarasi|Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)|A tale of still waters|![](/en-IN/2025/02/202502201830ChampakaSarasi.jpg)|
+202502211830|StLouisArch|Gateway Arch and St. Louis, Missouri, United States (© f11photo/Getty Images)|Bending towards brilliance|![](/en-IN/2025/02/202502211830StLouisArch.jpg)|
