@@ -23,3 +23,4 @@
 202502191500|FestungKonigsteinElbsandsteingebirge|ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)|台形の山上にそびえる要塞|![](/ja-JP/2025/02/202502191500FestungKonigsteinElbsandsteingebirge.jpg)|
 202502201500|ChampakaSarasi|チャンパカ・サラシール, インド カルナータカ州 (© Amith Nag Photography/Getty Images)|魅力的な古代の水槽|![](/ja-JP/2025/02/202502201500ChampakaSarasi.jpg)|
 202502211500|StLouisArch|ゲートウェイ・アーチ, 米国 ミズーリ州 (© f11photo/Getty Images)|西部開拓の記念モニュメント|![](/ja-JP/2025/02/202502211500StLouisArch.jpg)|
+202502221500|MtFujiSunrise|河口湖からの富士山, 山梨県 南都留郡 (© Twenty47studio/Getty Images)|今日は「富士山の日」|![](/ja-JP/2025/02/202502221500MtFujiSunrise.jpg)|
