@@ -23,3 +23,4 @@
 202502190500|IceHoleOtter|Loutre d'Europe, Lelystad, Pays-Bas (© Ernst Dirksen/Minden Pictures)|Je nage loutrement bien!|![](/fr-CA/2025/02/202502190500IceHoleOtter.jpg)|
 202502200500|CanadaDeer|Cerf élaphe, Canada (© Delbars/Getty Images)|Tendresse sous la neige|![](/fr-CA/2025/02/202502200500CanadaDeer.jpg)|
 202502210500|ChampakaSarasi|Bassin de Champaka Sarasi, Karnataka, Inde (© Amith Nag Photography/Getty Images)|Une histoire d’eau|![](/fr-CA/2025/02/202502210500ChampakaSarasi.jpg)|
+202502220500|StLouisArch|Gateway Arch à Saint-Louis, Missouri, États-Unis (© f11photo/Getty Images)|À la recherche de l’arche du Missouri|![](/fr-CA/2025/02/202502220500StLouisArch.jpg)|
