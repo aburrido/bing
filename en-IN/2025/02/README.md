@@ -23,3 +23,4 @@
 202502191830|CanadaDeer|Red deer, Canada (© Delbars/Getty Images)|A regal duo|![](/en-IN/2025/02/202502191830CanadaDeer.jpg)|
 202502201830|ChampakaSarasi|Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)|A tale of still waters|![](/en-IN/2025/02/202502201830ChampakaSarasi.jpg)|
 202502211830|StLouisArch|Gateway Arch and St. Louis, Missouri, United States (© f11photo/Getty Images)|Bending towards brilliance|![](/en-IN/2025/02/202502211830StLouisArch.jpg)|
+202502221830|MtFujiSunrise|Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Wind of Fuji, my souvenir from Edo|![](/en-IN/2025/02/202502221830MtFujiSunrise.jpg)|
