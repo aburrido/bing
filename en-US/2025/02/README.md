@@ -23,3 +23,4 @@
 202502190800|IceHoleOtter|European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)|The 'otter' side of life|![](/en-US/2025/02/202502190800IceHoleOtter.jpg)|
 202502200800|AdamsYosemite|Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)|Celebrating Ansel Adams|![](/en-US/2025/02/202502200800AdamsYosemite.jpg)|
 202502210800|ChampakaSarasi|Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)|A tale of still waters|![](/en-US/2025/02/202502210800ChampakaSarasi.jpg)|
+202502220800|StLouisArch|The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)|Bending towards brilliance|![](/en-US/2025/02/202502220800StLouisArch.jpg)|
