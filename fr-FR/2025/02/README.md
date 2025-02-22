@@ -23,3 +23,4 @@
 202502192300|BlueNorway|Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)|Bleu comme la Norvège|![](/fr-FR/2025/02/202502192300BlueNorway.jpg)|
 202502202300|MentonFestival|Fête du citron, Menton, Alpes-Maritimes (© NelzTabcharani316/Shutterstock)|Si on vous donne des citrons...|![](/fr-FR/2025/02/202502202300MentonFestival.jpg)|
 202502212300|ChampakaSarasi|Bassin de Champaka Sarasi, Karnataka, Inde (© Amith Nag Photography/Getty Images)hotography/Getty Images)|Une histoire d’eau|![](/fr-FR/2025/02/202502212300ChampakaSarasi.jpg)|
+202502222300|MtFujiSunrise|Lever de soleil au mont Fuji, Lac Kawaguchi, Japon (© Twenty47studio/Getty Images)|L'appel du mont Fuji|![](/fr-FR/2025/02/202502222300MtFujiSunrise.jpg)|

@@ -23,3 +23,4 @@
 202502192300|CanadaDeer|Rothirsch, Kanada (© Delbars/Getty Images)|Ein königliches Duo|![](/de-DE/2025/02/202502192300CanadaDeer.jpg)|
 202502202300|GoldfinchSunflower|Stieglitze (Carduelis carduelis) auf der Nahrungssuche in einem Sonnenblumenfeld, Deutschland (© Arndt, S.E./Juniors Bildarchiv GmbH/Alamy Stock Foto)|Farbenfrohe Gäste|![](/de-DE/2025/02/202502202300GoldfinchSunflower.jpg)|
 202502212300|StLouisArch|Gateway Arch und St. Louis, Missouri, USA (© f11photo/Getty Images)|Gebogen zur Perfektion|![](/de-DE/2025/02/202502212300StLouisArch.jpg)|
+202502222300|MtFujiSunrise|Fuji bei Sonnenaufgang, Kawaguchi-See, Japan (© Twenty47studio/Getty Images)|Zen in Stein|![](/de-DE/2025/02/202502222300MtFujiSunrise.jpg)|
