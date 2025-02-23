@@ -24,3 +24,4 @@
 202502202300|GoldfinchSunflower|Stieglitze (Carduelis carduelis) auf der Nahrungssuche in einem Sonnenblumenfeld, Deutschland (© Arndt, S.E./Juniors Bildarchiv GmbH/Alamy Stock Foto)|Farbenfrohe Gäste|![](/de-DE/2025/02/202502202300GoldfinchSunflower.jpg)|
 202502212300|StLouisArch|Gateway Arch und St. Louis, Missouri, USA (© f11photo/Getty Images)|Gebogen zur Perfektion|![](/de-DE/2025/02/202502212300StLouisArch.jpg)|
 202502222300|MtFujiSunrise|Fuji bei Sonnenaufgang, Kawaguchi-See, Japan (© Twenty47studio/Getty Images)|Zen in Stein|![](/de-DE/2025/02/202502222300MtFujiSunrise.jpg)|
+202502232300|GiantCuttlefish|Gruppe von Riesensepien im Spencer-Golf vor Whyalla, Südaustralien (© Gary Bell/Minden Pictures)|Tiefsee-Gigant|![](/de-DE/2025/02/202502232300GiantCuttlefish.jpg)|
