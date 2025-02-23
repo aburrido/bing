@@ -24,3 +24,4 @@
 202502200800|CanadaDeer|Red deer, Canada (© Delbars/Getty Images)|Info|![](/en-AU/2025/02/202502200800CanadaDeer.jpg)|
 202502210800|ChampakaSarasi|Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2025/02/202502210800ChampakaSarasi.jpg)|
 202502220800|StLouisArch|Gateway Arch and St. Louis, Missouri, USA (© f11photo/Getty Images)|Info|![](/en-AU/2025/02/202502220800StLouisArch.jpg)|
+202502230800|MtFujiSunrise|Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Info|![](/en-AU/2025/02/202502230800MtFujiSunrise.jpg)|
