@@ -25,3 +25,4 @@
 202502211830|StLouisArch|Gateway Arch and St. Louis, Missouri, United States (© f11photo/Getty Images)|Bending towards brilliance|![](/en-IN/2025/02/202502211830StLouisArch.jpg)|
 202502221830|MtFujiSunrise|Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Wind of Fuji, my souvenir from Edo|![](/en-IN/2025/02/202502221830MtFujiSunrise.jpg)|
 202502231830|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Inked and undercover|![](/en-IN/2025/02/202502231830GiantCuttlefish.jpg)|
+202502241830|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Scottish strategy at its finest|![](/en-IN/2025/02/202502241830ArgyllStalker.jpg)|
