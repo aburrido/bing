@@ -25,3 +25,4 @@
 202502210500|ChampakaSarasi|Bassin de Champaka Sarasi, Karnataka, Inde (© Amith Nag Photography/Getty Images)|Une histoire d’eau|![](/fr-CA/2025/02/202502210500ChampakaSarasi.jpg)|
 202502220500|StLouisArch|Gateway Arch à Saint-Louis, Missouri, États-Unis (© f11photo/Getty Images)|À la recherche de l’arche du Missouri|![](/fr-CA/2025/02/202502220500StLouisArch.jpg)|
 202502230500|MtFujiSunrise|Lever de soleil au mont Fuji, Lac Kawaguchi, Japon (© Twenty47studio/Getty Images)|L'appel du mont Fuji|![](/fr-CA/2025/02/202502230500MtFujiSunrise.jpg)|
+202502240500|GiantCuttlefish|Groupe de seiches géantes dans le golfe Spencer, au large de Whyalla, Australie-Méridionale (© Gary Bell/Minden Pictures)|Des seiches archi seiches|![](/fr-CA/2025/02/202502240500GiantCuttlefish.jpg)|

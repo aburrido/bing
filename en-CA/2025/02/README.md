@@ -25,3 +25,4 @@
 202502210500|ChampakaSarasi|Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)|A tale of still waters|![](/en-CA/2025/02/202502210500ChampakaSarasi.jpg)|
 202502220500|StLouisArch|Gateway Arch and St. Louis, Missouri, United States (© f11photo/Getty Images)|Bending towards brilliance|![](/en-CA/2025/02/202502220500StLouisArch.jpg)|
 202502230500|MtFujiSunrise|Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Wind of Fuji, my souvenir from Edo|![](/en-CA/2025/02/202502230500MtFujiSunrise.jpg)|
+202502240500|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Inked and undercover|![](/en-CA/2025/02/202502240500GiantCuttlefish.jpg)|
