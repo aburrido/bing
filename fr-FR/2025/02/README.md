@@ -25,3 +25,4 @@
 202502212300|ChampakaSarasi|Bassin de Champaka Sarasi, Karnataka, Inde (© Amith Nag Photography/Getty Images)hotography/Getty Images)|Une histoire d’eau|![](/fr-FR/2025/02/202502212300ChampakaSarasi.jpg)|
 202502222300|MtFujiSunrise|Lever de soleil au mont Fuji, Lac Kawaguchi, Japon (© Twenty47studio/Getty Images)|L'appel du mont Fuji|![](/fr-FR/2025/02/202502222300MtFujiSunrise.jpg)|
 202502232300|GiantCuttlefish|Groupe de seiches géantes dans le golfe Spencer, au large de Whyalla, Australie-Méridionale (© Gary Bell/Minden Pictures)|Des seiches archi seiches|![](/fr-FR/2025/02/202502232300GiantCuttlefish.jpg)|
+202502242300|MillauBridge|Viaduc de Millau, Aveyron, France (© Andrzej Gorzkowski Photography/Alamy Stock Photo)|Un géant dans les nuages|![](/fr-FR/2025/02/202502242300MillauBridge.jpg)|

@@ -25,3 +25,4 @@
 202502212300|StLouisArch|Gateway Arch und St. Louis, Missouri, USA (© f11photo/Getty Images)|Gebogen zur Perfektion|![](/de-DE/2025/02/202502212300StLouisArch.jpg)|
 202502222300|MtFujiSunrise|Fuji bei Sonnenaufgang, Kawaguchi-See, Japan (© Twenty47studio/Getty Images)|Zen in Stein|![](/de-DE/2025/02/202502222300MtFujiSunrise.jpg)|
 202502232300|GiantCuttlefish|Gruppe von Riesensepien im Spencer-Golf vor Whyalla, Südaustralien (© Gary Bell/Minden Pictures)|Tiefsee-Gigant|![](/de-DE/2025/02/202502232300GiantCuttlefish.jpg)|
+202502242300|BryceHoodoos|Sandstein-Hoodoos, Bryce-Canyon-Nationalpark, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Zeitlose Felswächter|![](/de-DE/2025/02/202502242300BryceHoodoos.jpg)|
