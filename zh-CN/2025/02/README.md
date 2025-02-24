@@ -25,3 +25,4 @@
 202502211600|StLouisArch|圣路易斯拱门, 密苏里州, 美国 (© f11photo/Getty Images)|向辉煌迈进|![](/zh-CN/2025/02/202502211600StLouisArch.jpg)|
 202502221600|MtFujiSunrise|日出时分的富士山, 河口湖, 日本 (© Twenty47studio/Getty Images)|清晨的美好精致|![](/zh-CN/2025/02/202502221600MtFujiSunrise.jpg)|
 202502231600|GiantCuttlefish|斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)|墨迹与伪装|![](/zh-CN/2025/02/202502231600GiantCuttlefish.jpg)|
+202502241600|BryceHoodoos|砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)|风蚀石们的问候|![](/zh-CN/2025/02/202502241600BryceHoodoos.jpg)|
