@@ -25,3 +25,4 @@
 202502220000|StLouisArch|Gateway Arch and St Louis, Missouri, United States (© f11photo/Getty Images)|Bending towards brilliance|![](/en-GB/2025/02/202502220000StLouisArch.jpg)|
 202502230000|MtFujiSunrise|Mount Fuji, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Wind of Fuji, my souvenir from Edo|![](/en-GB/2025/02/202502230000MtFujiSunrise.jpg)|
 202502240000|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Inked and undercover|![](/en-GB/2025/02/202502240000GiantCuttlefish.jpg)|
+202502250000|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)|Hoodoo you do?|![](/en-GB/2025/02/202502250000BryceHoodoos.jpg)|
