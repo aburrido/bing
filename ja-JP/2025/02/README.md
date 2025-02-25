@@ -26,3 +26,4 @@
 202502221500|MtFujiSunrise|河口湖からの富士山, 山梨県 南都留郡 (© Twenty47studio/Getty Images)|今日は「富士山の日」|![](/ja-JP/2025/02/202502221500MtFujiSunrise.jpg)|
 202502231500|RibbleheadViaduct|リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)|歴史的な鉄道橋|![](/ja-JP/2025/02/202502231500RibbleheadViaduct.jpg)|
 202502241500|BryceHoodoos|ブライスキャニオン国立公園, 米国 ユタ州 (© Stephen Matera/TANDEM Stills + Motion)|無数の土柱が並ぶ絶景|![](/ja-JP/2025/02/202502241500BryceHoodoos.jpg)|
+202502251500|ArgyllStalker|ストーカー城, スコットランド (© WLDavies/Getty Images)|海の小島に佇む中世のお城|![](/ja-JP/2025/02/202502251500ArgyllStalker.jpg)|
