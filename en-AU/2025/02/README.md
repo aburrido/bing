@@ -26,3 +26,4 @@
 202502220800|StLouisArch|Gateway Arch and St. Louis, Missouri, USA (© f11photo/Getty Images)|Info|![](/en-AU/2025/02/202502220800StLouisArch.jpg)|
 202502230800|MtFujiSunrise|Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Info|![](/en-AU/2025/02/202502230800MtFujiSunrise.jpg)|
 202502240800|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2025/02/202502240800GiantCuttlefish.jpg)|
+202502250800|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)|Info|![](/en-AU/2025/02/202502250800BryceHoodoos.jpg)|
