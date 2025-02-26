@@ -27,3 +27,4 @@
 202502231830|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Inked and undercover|![](/en-IN/2025/02/202502231830GiantCuttlefish.jpg)|
 202502241830|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Scottish strategy at its finest|![](/en-IN/2025/02/202502241830ArgyllStalker.jpg)|
 202502251830|TungnathShiva|Tungnath Temple, Uttarakhand (© draco-zlat/Getty Images)|Honouring Shiva|![](/en-IN/2025/02/202502251830TungnathShiva.jpg)|
+202502261830|PolarCub|Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Polar care|![](/en-IN/2025/02/202502261830PolarCub.jpg)|
