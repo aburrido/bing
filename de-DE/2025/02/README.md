@@ -27,3 +27,4 @@
 202502232300|GiantCuttlefish|Gruppe von Riesensepien im Spencer-Golf vor Whyalla, Südaustralien (© Gary Bell/Minden Pictures)|Tiefsee-Gigant|![](/de-DE/2025/02/202502232300GiantCuttlefish.jpg)|
 202502242300|BryceHoodoos|Sandstein-Hoodoos, Bryce-Canyon-Nationalpark, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Zeitlose Felswächter|![](/de-DE/2025/02/202502242300BryceHoodoos.jpg)|
 202502252300|ArgyllStalker|Castle Stalker am Loch Laich, Argyll, Schottland (© WLDavies/Getty Images)|Schottische Postkarten|![](/de-DE/2025/02/202502252300ArgyllStalker.jpg)|
+202502262300|CologneNight|Hohenzollernbrücke mit dem Kölner Dom und dem Rhein bei Sonnenuntergang in Köln (© Prasit Rodphan/Alamy Stock Foto)|Kölle Alaaf!|![](/de-DE/2025/02/202502262300CologneNight.jpg)|
