@@ -27,3 +27,4 @@
 202502230500|MtFujiSunrise|Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)|Wind of Fuji, my souvenir from Edo|![](/en-CA/2025/02/202502230500MtFujiSunrise.jpg)|
 202502240500|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Inked and undercover|![](/en-CA/2025/02/202502240500GiantCuttlefish.jpg)|
 202502250500|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)|Hoodoo you do?|![](/en-CA/2025/02/202502250500BryceHoodoos.jpg)|
+202502260500|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Scottish strategy at its finest|![](/en-CA/2025/02/202502260500ArgyllStalker.jpg)|
