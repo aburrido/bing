@@ -28,3 +28,4 @@
 202502241600|BryceHoodoos|砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)|风蚀石们的问候|![](/zh-CN/2025/02/202502241600BryceHoodoos.jpg)|
 202502251600|ArgyllStalker|莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images)|苏格兰战略的最佳体现|![](/zh-CN/2025/02/202502251600ArgyllStalker.jpg)|
 202502261600|PolarCub|北极熊幼崽，丘吉尔，马尼托巴省，加拿大 (© Eric Baccega/NPL/Minden Pictures)|极地关怀|![](/zh-CN/2025/02/202502261600PolarCub.jpg)|
+202502271600|BhutanMonastery|虎穴寺，不丹 (© Baron Reznik/Getty Images)|在虎穴小憩|![](/zh-CN/2025/02/202502271600BhutanMonastery.jpg)|
