@@ -28,3 +28,4 @@
 202502240800|GiantCuttlefish|Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)|Info|![](/en-AU/2025/02/202502240800GiantCuttlefish.jpg)|
 202502250800|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)|Info|![](/en-AU/2025/02/202502250800BryceHoodoos.jpg)|
 202502260800|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Info|![](/en-AU/2025/02/202502260800ArgyllStalker.jpg)|
+202502270800|PolarCub|Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Info|![](/en-AU/2025/02/202502270800PolarCub.jpg)|
