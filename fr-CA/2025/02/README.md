@@ -28,3 +28,4 @@
 202502240500|GiantCuttlefish|Groupe de seiches géantes dans le golfe Spencer, au large de Whyalla, Australie-Méridionale (© Gary Bell/Minden Pictures)|Des seiches archi seiches|![](/fr-CA/2025/02/202502240500GiantCuttlefish.jpg)|
 202502250500|WalterdaleBridge|Pont Walterdale à Edmonton, Alberta (© ronniechua/Getty Images)|Un chef-d'œuvre moderne|![](/fr-CA/2025/02/202502250500WalterdaleBridge.jpg)|
 202502260500|ArgyllStalker|Château de Stalker sur le loch Laich, Argyll, Écosse (© WLDavies/Getty Images)|Les mystères voilés du loch|![](/fr-CA/2025/02/202502260500ArgyllStalker.jpg)|
+202502270500|PolarCub|Ourson polaire, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Boule de neige vivante|![](/fr-CA/2025/02/202502270500PolarCub.jpg)|
