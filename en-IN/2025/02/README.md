@@ -28,3 +28,4 @@
 202502241830|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Scottish strategy at its finest|![](/en-IN/2025/02/202502241830ArgyllStalker.jpg)|
 202502251830|TungnathShiva|Tungnath Temple, Uttarakhand (© draco-zlat/Getty Images)|Honouring Shiva|![](/en-IN/2025/02/202502251830TungnathShiva.jpg)|
 202502261830|PolarCub|Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Polar care|![](/en-IN/2025/02/202502261830PolarCub.jpg)|
+202502271830|BhutanMonastery|Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)|Have a rest at the Tiger's Nest|![](/en-IN/2025/02/202502271830BhutanMonastery.jpg)|
