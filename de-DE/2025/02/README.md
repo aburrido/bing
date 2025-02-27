@@ -28,3 +28,4 @@
 202502242300|BryceHoodoos|Sandstein-Hoodoos, Bryce-Canyon-Nationalpark, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)|Zeitlose Felswächter|![](/de-DE/2025/02/202502242300BryceHoodoos.jpg)|
 202502252300|ArgyllStalker|Castle Stalker am Loch Laich, Argyll, Schottland (© WLDavies/Getty Images)|Schottische Postkarten|![](/de-DE/2025/02/202502252300ArgyllStalker.jpg)|
 202502262300|CologneNight|Hohenzollernbrücke mit dem Kölner Dom und dem Rhein bei Sonnenuntergang in Köln (© Prasit Rodphan/Alamy Stock Foto)|Kölle Alaaf!|![](/de-DE/2025/02/202502262300CologneNight.jpg)|
+202502272300|BhutanMonastery|Kloster Taktshang Palphug, Bhutan (© Baron Reznik/Getty Images)|Willkommen im Jahr 2152!|![](/de-DE/2025/02/202502272300BhutanMonastery.jpg)|

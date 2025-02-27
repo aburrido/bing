@@ -28,3 +28,4 @@
 202502242300|MillauBridge|Viaduc de Millau, Aveyron, France (© Andrzej Gorzkowski Photography/Alamy Stock Photo)|Un géant dans les nuages|![](/fr-FR/2025/02/202502242300MillauBridge.jpg)|
 202502252300|ArgyllStalker|Château de Stalker sur le loch Laich, Argyll, Écosse (© WLDavies/Getty Images)|Les mystères voilés du loch|![](/fr-FR/2025/02/202502252300ArgyllStalker.jpg)|
 202502262300|PolarCub|Ourson polaire, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Boule de neige vivante|![](/fr-FR/2025/02/202502262300PolarCub.jpg)|
+202502272300|BhutanMonastery|Monastère Taktshang, Bhoutan (© Baron Reznik/Getty Images)|Une sérénité ancrée dans la montagne|![](/fr-FR/2025/02/202502272300BhutanMonastery.jpg)|
