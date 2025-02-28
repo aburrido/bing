@@ -29,3 +29,4 @@
 202502250800|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)|Hoodoo you do?|![](/en-US/2025/02/202502250800BryceHoodoos.jpg)|
 202502260800|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Scottish strategy at its finest|![](/en-US/2025/02/202502260800ArgyllStalker.jpg)|
 202502270800|PolarCub|Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Polar care|![](/en-US/2025/02/202502270800PolarCub.jpg)|
+202502280800|BhutanMonastery|Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)|Have a rest at the Tiger's Nest|![](/en-US/2025/02/202502280800BhutanMonastery.jpg)|
