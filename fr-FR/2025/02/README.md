@@ -29,3 +29,4 @@
 202502252300|ArgyllStalker|Château de Stalker sur le loch Laich, Argyll, Écosse (© WLDavies/Getty Images)|Les mystères voilés du loch|![](/fr-FR/2025/02/202502252300ArgyllStalker.jpg)|
 202502262300|PolarCub|Ourson polaire, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Boule de neige vivante|![](/fr-FR/2025/02/202502262300PolarCub.jpg)|
 202502272300|BhutanMonastery|Monastère Taktshang, Bhoutan (© Baron Reznik/Getty Images)|Une sérénité ancrée dans la montagne|![](/fr-FR/2025/02/202502272300BhutanMonastery.jpg)|
+202502282300|MaligneLakeJasper|Aurores boréales au-dessus de Spirit Island sur le lac Maligne, Parc national Jasper, Canada (© Mumemories/Getty Images)|Danse magique sur un lac mystique|![](/fr-FR/2025/02/202502282300MaligneLakeJasper.jpg)|
