@@ -29,3 +29,4 @@
 202502250500|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)|Hoodoo you do?|![](/en-CA/2025/02/202502250500BryceHoodoos.jpg)|
 202502260500|ArgyllStalker|Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)|Scottish strategy at its finest|![](/en-CA/2025/02/202502260500ArgyllStalker.jpg)|
 202502270500|PolarCub|Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Polar care|![](/en-CA/2025/02/202502270500PolarCub.jpg)|
+202502280500|NevadaBigHorns|Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)|Rocky relationship|![](/en-CA/2025/02/202502280500NevadaBigHorns.jpg)|
