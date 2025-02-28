@@ -29,3 +29,4 @@
 202502251500|ArgyllStalker|ストーカー城, スコットランド (© WLDavies/Getty Images)|海の小島に佇む中世のお城|![](/ja-JP/2025/02/202502251500ArgyllStalker.jpg)|
 202502261500|PolarCub|雪の中のホッキョクグマの子, カナダ マニトバ州 (© Eric Baccega/NPL/Minden Pictures)|今日は国際ホッキョクグマの日|![](/ja-JP/2025/02/202502261500PolarCub.jpg)|
 202502271500|BhutanMonastery|タクツァン僧院, ブータン (© Baron Reznik/Getty Images)|今日はチベットの正月「ロサル」|![](/ja-JP/2025/02/202502271500BhutanMonastery.jpg)|
+202502281500|EucalyptusForest|ブルー・マウンテンズ国立公園, オーストラリア ニューサウスウェールズ州 (© Andrew Peacock/TANDEM Stills + Motion)|ユーカリの木が織りなす絶景|![](/ja-JP/2025/02/202502281500EucalyptusForest.jpg)|
