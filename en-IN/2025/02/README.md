@@ -29,3 +29,4 @@
 202502251830|TungnathShiva|Tungnath Temple, Uttarakhand (© draco-zlat/Getty Images)|Honouring Shiva|![](/en-IN/2025/02/202502251830TungnathShiva.jpg)|
 202502261830|PolarCub|Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)|Polar care|![](/en-IN/2025/02/202502261830PolarCub.jpg)|
 202502271830|BhutanMonastery|Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)|Have a rest at the Tiger's Nest|![](/en-IN/2025/02/202502271830BhutanMonastery.jpg)|
+202502281830|BryceHoodoos|Sandstone hoodoos, Bryce Canyon National Park, Utah, United States (© Stephen Matera/TANDEM Stills + Motion)|Hoodoo you do?|![](/en-IN/2025/02/202502281830BryceHoodoos.jpg)|
