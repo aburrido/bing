@@ -4,3 +4,4 @@
 202503010500|MaligneLakeJasper|Aurora borealis over Maligne Lake in Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)|Celestial reflections|![](/en-CA/2025/03/202503010500MaligneLakeJasper.jpg)|
 202503020500|EucalyptusForest|Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)|A eucalyp-tastic view|![](/en-CA/2025/03/202503020500EucalyptusForest.jpg)|
 202503030500|HornbillPair|Southern yellow-billed hornbills in Kruger National Park, South Africa (© Richard Du Toit/Minden Pictures)|Wild about wildlife|![](/en-CA/2025/03/202503030500HornbillPair.jpg)|
+202503040500|MardiGrasJackson|Jackson Square, New Orleans, Louisiana, United States (© SeanPavonePhoto/Getty Images)|Not your ordinary Tuesday|![](/en-CA/2025/03/202503040500MardiGrasJackson.jpg)|
