@@ -6,3 +6,4 @@
 202503032300|MardiGrasJackson|Jackson Square, New Orleans, Louisiana, USA (© SeanPavonePhoto/Getty Images)|Kein gewöhnlicher Dienstag|![](/de-DE/2025/03/202503032300MardiGrasJackson.jpg)|
 202503042300|SuratThani|Luftaufnahme des Khao Sok Nationalparks, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)|Stille Wasser, tiefe Magie|![](/de-DE/2025/03/202503042300SuratThani.jpg)|
 202503052300|NevadaBigHorns|Wüsten-Dickhornschafe im Valley of Fire State Park, Nevada, USA (© Rachid Dahnoun/Cavan Images)|Mutige Kletterer|![](/de-DE/2025/03/202503052300NevadaBigHorns.jpg)|
+202503062300|PlumBlossom|Pflaumenblüten, China (© zhikun sun/Getty Images)|Duftendes Blütenmeer|![](/de-DE/2025/03/202503062300PlumBlossom.jpg)|
