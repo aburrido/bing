@@ -6,3 +6,4 @@
 202503031830|CharminarInterior|Interior of the Charminar, Hyderabad, Telangana (© Richard I'Anson/Getty Images)|Inside the ancient stone walls|![](/en-IN/2025/03/202503031830CharminarInterior.jpg)|
 202503041830|SuratThani|Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)|A jungle adventure|![](/en-IN/2025/03/202503041830SuratThani.jpg)|
 202503051830|NevadaBigHorns|Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)|Rocky relationship|![](/en-IN/2025/03/202503051830NevadaBigHorns.jpg)|
+202503061830|PlumBlossom|Plum blossoms, China (© zhikun sun/Getty Images)|China in bloom|![](/en-IN/2025/03/202503061830PlumBlossom.jpg)|
