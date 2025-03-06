@@ -6,3 +6,4 @@
 202503031500|MardiGrasJackson|ジャクソン・スクウェア, 米国 ルイジアナ州 (© SeanPavonePhoto/Getty Images)|今日はマルディグラ|![](/ja-JP/2025/03/202503031500MardiGrasJackson.jpg)|
 202503041500|SuratThani|カオソック国立公園, タイ (© Peetatham Kongkapech/Getty Images)|美しい熱帯雨林に囲まれた青い湖|![](/ja-JP/2025/03/202503041500SuratThani.jpg)|
 202503051500|NevadaBigHorns|バレー・オブ・ファイヤー州立公園, 米国 ネバダ州 (© Rachid Dahnoun/Cavan Images)|岩の上に立つ砂漠オオツノヒツジ|![](/ja-JP/2025/03/202503051500NevadaBigHorns.jpg)|
+202503061500|PlumBlossom|梅の花, 中国 (© zhikun sun/Getty Images)|寒さの中に凛とした姿で咲く花|![](/ja-JP/2025/03/202503061500PlumBlossom.jpg)|
