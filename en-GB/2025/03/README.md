@@ -6,3 +6,4 @@
 202503040000|MardiGrasJackson|Jackson Square, New Orleans, Louisiana, United States (© SeanPavonePhoto/Getty Images)|Not your ordinary Tuesday|![](/en-GB/2025/03/202503040000MardiGrasJackson.jpg)|
 202503050000|SuratThani|Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)|A jungle adventure|![](/en-GB/2025/03/202503050000SuratThani.jpg)|
 202503060000|NevadaBigHorns|Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)|Rocky relationship|![](/en-GB/2025/03/202503060000NevadaBigHorns.jpg)|
+202503070000|PlumBlossom|Plum blossoms, China (© zhikun sun/Getty Images)|China in bloom|![](/en-GB/2025/03/202503070000PlumBlossom.jpg)|
