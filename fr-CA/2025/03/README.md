@@ -8,3 +8,4 @@
 202503040500|MardiGrasJackson|Jackson Square, Nouvelle-Orléans, Louisiane, États-Unis (© SeanPavonePhoto/Getty Images)|Un mardi pas comme les autres|![](/fr-CA/2025/03/202503040500MardiGrasJackson.jpg)|
 202503050500|SuratThani|Vue aérienne du parc national de Khao Sok, Surat Thani, Thaïlande (© Peetatham Kongkapech/Getty Images)|En route pour l’aventure!|![](/fr-CA/2025/03/202503050500SuratThani.jpg)|
 202503060500|NevadaBigHorns|Mouflon du désert dans le parc d'État Valley of Fire, Nevada, États-Unis (© Rachid Dahnoun/Cavan Images)|Symbiose sculptée dans la roche|![](/fr-CA/2025/03/202503060500NevadaBigHorns.jpg)|
+202503070500|PlumBlossom|Fleurs de prunier, Chine (© zhikun sun/Getty Images)|Un symbole de résilience|![](/fr-CA/2025/03/202503070500PlumBlossom.jpg)|

@@ -7,3 +7,4 @@
 202503040500|MardiGrasJackson|Jackson Square, New Orleans, Louisiana, United States (© SeanPavonePhoto/Getty Images)|Not your ordinary Tuesday|![](/en-CA/2025/03/202503040500MardiGrasJackson.jpg)|
 202503050500|SuratThani|Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)|A jungle adventure|![](/en-CA/2025/03/202503050500SuratThani.jpg)|
 202503060500|WalterdaleBridge|Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)|Bridging the gap|![](/en-CA/2025/03/202503060500WalterdaleBridge.jpg)|
+202503070500|PlumBlossom|Plum blossoms, China (© zhikun sun/Getty Images)|China in bloom|![](/en-CA/2025/03/202503070500PlumBlossom.jpg)|
