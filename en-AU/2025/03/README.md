@@ -7,3 +7,4 @@
 202503040800|MardiGrasJackson|Jackson Square, New Orleans, Louisiana, United States (© SeanPavonePhoto/Getty Images)|Info|![](/en-AU/2025/03/202503040800MardiGrasJackson.jpg)|
 202503050800|SuratThani|Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)|Info|![](/en-AU/2025/03/202503050800SuratThani.jpg)|
 202503060800|NevadaBigHorns|Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)|Info|![](/en-AU/2025/03/202503060800NevadaBigHorns.jpg)|
+202503070800|PlumBlossom|Plum blossoms, China (© zhikun sun/Getty Images)|Info|![](/en-AU/2025/03/202503070800PlumBlossom.jpg)|
