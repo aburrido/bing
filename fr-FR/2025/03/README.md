@@ -8,3 +8,4 @@
 202503052300|NevadaBigHorns|Mouflon du désert dans le parc d'État Valley of Fire, Nevada, États-Unis (© Rachid Dahnoun/Cavan Images)|Symbiose sculptée dans la roche|![](/fr-FR/2025/03/202503052300NevadaBigHorns.jpg)|
 202503062300|PlumBlossom|Fleurs de prunier, Chine (© zhikun sun/Getty Images)|Un symbole de résilience|![](/fr-FR/2025/03/202503062300PlumBlossom.jpg)|
 202503072300|FearlessWomen|Statue « Fearless Girl » face à Wall Street, New York, États-Unis (© JOHANNES EISELE/AFP via Getty Images)|Défier l’obscurité|![](/fr-FR/2025/03/202503072300FearlessWomen.jpg)|
+202503082300|kingfisherFr|Martin-pêcheur d'Europe sur une branche (© Javier Fernández Sánchez/Getty Images)|À la rencontre du pêcheur aux ailes de saphir|![](/fr-FR/2025/03/202503082300kingfisherFr.jpg)|
