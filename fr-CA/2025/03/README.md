@@ -9,3 +9,4 @@
 202503050500|SuratThani|Vue aérienne du parc national de Khao Sok, Surat Thani, Thaïlande (© Peetatham Kongkapech/Getty Images)|En route pour l’aventure!|![](/fr-CA/2025/03/202503050500SuratThani.jpg)|
 202503060500|NevadaBigHorns|Mouflon du désert dans le parc d'État Valley of Fire, Nevada, États-Unis (© Rachid Dahnoun/Cavan Images)|Symbiose sculptée dans la roche|![](/fr-CA/2025/03/202503060500NevadaBigHorns.jpg)|
 202503070500|PlumBlossom|Fleurs de prunier, Chine (© zhikun sun/Getty Images)|Un symbole de résilience|![](/fr-CA/2025/03/202503070500PlumBlossom.jpg)|
+202503080500|FearlessWomen|Statue « Fearless Girl » face à Wall Street, New York, États-Unis (© JOHANNES EISELE/AFP via Getty Images)|Défier l’obscurité|![](/fr-CA/2025/03/202503080500FearlessWomen.jpg)|
