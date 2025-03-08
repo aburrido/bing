@@ -8,3 +8,4 @@
 202503051600|NevadaBigHorns|沙漠大角羊，内华达州火焰谷州立公园，美国 (© Rachid Dahnoun/Cavan Images)|岩石间的生存之道|![](/zh-CN/2025/03/202503051600NevadaBigHorns.jpg)|
 202503061600|PlumBlossom|中国的梅花 (© zhikun sun/Getty Images)|花开中国|![](/zh-CN/2025/03/202503061600PlumBlossom.jpg)|
 202503071600|WaddenSeaBiosphereReserve|石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国 (© 3quarks/Getty Images)|原始纯净的自然天堂|![](/zh-CN/2025/03/202503071600WaddenSeaBiosphereReserve.jpg)|
+202503081600|ItalyClock|圣马可钟楼，威尼斯，意大利 (© scaliger/Getty Images)|时间的步伐|![](/zh-CN/2025/03/202503081600ItalyClock.jpg)|
