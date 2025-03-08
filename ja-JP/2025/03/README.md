@@ -8,3 +8,4 @@
 202503051500|NevadaBigHorns|バレー・オブ・ファイヤー州立公園, 米国 ネバダ州 (© Rachid Dahnoun/Cavan Images)|岩の上に立つ砂漠オオツノヒツジ|![](/ja-JP/2025/03/202503051500NevadaBigHorns.jpg)|
 202503061500|PlumBlossom|梅の花, 中国 (© zhikun sun/Getty Images)|寒さの中に凛とした姿で咲く花|![](/ja-JP/2025/03/202503061500PlumBlossom.jpg)|
 202503071500|FearlessWomen|恐れを知らぬ少女, 米国 ニューヨーク州 (© JOHANNES EISELE/AFP via Getty Images)|今日は国際女性デー|![](/ja-JP/2025/03/202503071500FearlessWomen.jpg)|
+202503081500|ItalyClock|サン・マルコ時計塔, イタリア (© scaliger/Getty Images)|米国では今日から夏時間|![](/ja-JP/2025/03/202503081500ItalyClock.jpg)|
