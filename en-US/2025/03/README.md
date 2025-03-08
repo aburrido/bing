@@ -8,3 +8,4 @@
 202503050800|SuratThani|Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)|A jungle adventure|![](/en-US/2025/03/202503050800SuratThani.jpg)|
 202503060800|NevadaBigHorns|Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)|Rocky relationship|![](/en-US/2025/03/202503060800NevadaBigHorns.jpg)|
 202503070800|PlumBlossom|Plum blossoms in China (© zhikun sun/Getty Images)|China in bloom|![](/en-US/2025/03/202503070800PlumBlossom.jpg)|
+202503080800|FearlessWomen|Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)|Making her-story!|![](/en-US/2025/03/202503080800FearlessWomen.jpg)|
