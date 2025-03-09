@@ -9,3 +9,4 @@
 202503062300|PlumBlossom|Pflaumenblüten, China (© zhikun sun/Getty Images)|Duftendes Blütenmeer|![](/de-DE/2025/03/202503062300PlumBlossom.jpg)|
 202503072300|FearlessWomen|Fearless Girl-Statue vor der New Yorker Börse, New York City, USA (© JOHANNES EISELE/AFP via Getty Images)|Furchtlose Entschlossenheit|![](/de-DE/2025/03/202503072300FearlessWomen.jpg)|
 202503082300|BavarianAlpsMariaGern|Wallfahrtskirche Maria Gern und Watzmannmassiv, Berchtesgadener Alpen, Bayern (© bluejayphoto/Getty Images)|Bayerische Postkartenidylle|![](/de-DE/2025/03/202503082300BavarianAlpsMariaGern.jpg)|
+202503092300|NappingLion|Schlafender Löwe im Ishasha-Sektor, Queen-Elizabeth-Nationalpark, Uganda (© Gunter Nuyts/Getty Images)|Schlummender König der Wildnis|![](/de-DE/2025/03/202503092300NappingLion.jpg)|
