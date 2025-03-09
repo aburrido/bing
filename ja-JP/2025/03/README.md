@@ -9,3 +9,4 @@
 202503061500|PlumBlossom|梅の花, 中国 (© zhikun sun/Getty Images)|寒さの中に凛とした姿で咲く花|![](/ja-JP/2025/03/202503061500PlumBlossom.jpg)|
 202503071500|FearlessWomen|恐れを知らぬ少女, 米国 ニューヨーク州 (© JOHANNES EISELE/AFP via Getty Images)|今日は国際女性デー|![](/ja-JP/2025/03/202503071500FearlessWomen.jpg)|
 202503081500|ItalyClock|サン・マルコ時計塔, イタリア (© scaliger/Getty Images)|米国では今日から夏時間|![](/ja-JP/2025/03/202503081500ItalyClock.jpg)|
+202503091500|PandaSnow|パンダの赤ちゃん, 中国 (© Cheryl Schneider/Alamy)|明日はパンダ発見の日|![](/ja-JP/2025/03/202503091500PandaSnow.jpg)|
