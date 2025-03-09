@@ -9,3 +9,4 @@
 202503060500|WalterdaleBridge|Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)|Bridging the gap|![](/en-CA/2025/03/202503060500WalterdaleBridge.jpg)|
 202503070500|PlumBlossom|Plum blossoms, China (© zhikun sun/Getty Images)|China in bloom|![](/en-CA/2025/03/202503070500PlumBlossom.jpg)|
 202503080500|FearlessWomen|Fearless Girl statue facing the New York Stock Exchange, New York City, United States (© JOHANNES EISELE/AFP via Getty Images)|Making her-story!|![](/en-CA/2025/03/202503080500FearlessWomen.jpg)|
+202503090500|ItalyClock|St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)|The March of time|![](/en-CA/2025/03/202503090500ItalyClock.jpg)|
