@@ -10,3 +10,4 @@
 202503070800|PlumBlossom|Plum blossoms in China (© zhikun sun/Getty Images)|China in bloom|![](/en-US/2025/03/202503070800PlumBlossom.jpg)|
 202503080800|FearlessWomen|Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)|Making her-story!|![](/en-US/2025/03/202503080800FearlessWomen.jpg)|
 202503090700|ItalyClock|St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)|The March of time|![](/en-US/2025/03/202503090700ItalyClock.jpg)|
+202503100700|NappingLion|A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)|Snooze and conquer|![](/en-US/2025/03/202503100700NappingLion.jpg)|

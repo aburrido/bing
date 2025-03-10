@@ -10,3 +10,4 @@
 202503070800|PlumBlossom|Plum blossoms, China (© zhikun sun/Getty Images)|Info|![](/en-AU/2025/03/202503070800PlumBlossom.jpg)|
 202503080800|WaddenSeaBiosphereReserve|Schleswig-Holstein Wadden Sea National Park, Germany (© 3quarks/Getty Images)|Info|![](/en-AU/2025/03/202503080800WaddenSeaBiosphereReserve.jpg)|
 202503090700|ItalyClock|St Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)|Info|![](/en-AU/2025/03/202503090700ItalyClock.jpg)|
+202503100700|NappingLion|A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)|Info|![](/en-AU/2025/03/202503100700NappingLion.jpg)|
