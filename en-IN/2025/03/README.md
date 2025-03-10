@@ -10,3 +10,4 @@
 202503071830|FearlessWomen|Fearless Girl statue facing the New York Stock Exchange, New York City, United States (© JOHANNES EISELE/AFP via Getty Images)|Making her-story!|![](/en-IN/2025/03/202503071830FearlessWomen.jpg)|
 202503081830|KedarkanthaSummit|Sunrise at the summit of Kedarkantha (© Jeet Khagram/500px/Getty Images)|Frozen trails, soft sunrise|![](/en-IN/2025/03/202503081830KedarkanthaSummit.jpg)|
 202503091830|NappingLion|A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)|Snooze and conquer|![](/en-IN/2025/03/202503091830NappingLion.jpg)|
+202503101830|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)|When the ocean breaks the rules|![](/en-IN/2025/03/202503101830NusaPenida.jpg)|
