@@ -10,3 +10,4 @@
 202503072300|FearlessWomen|Fearless Girl-Statue vor der New Yorker Börse, New York City, USA (© JOHANNES EISELE/AFP via Getty Images)|Furchtlose Entschlossenheit|![](/de-DE/2025/03/202503072300FearlessWomen.jpg)|
 202503082300|BavarianAlpsMariaGern|Wallfahrtskirche Maria Gern und Watzmannmassiv, Berchtesgadener Alpen, Bayern (© bluejayphoto/Getty Images)|Bayerische Postkartenidylle|![](/de-DE/2025/03/202503082300BavarianAlpsMariaGern.jpg)|
 202503092300|NappingLion|Schlafender Löwe im Ishasha-Sektor, Queen-Elizabeth-Nationalpark, Uganda (© Gunter Nuyts/Getty Images)|Schlummender König der Wildnis|![](/de-DE/2025/03/202503092300NappingLion.jpg)|
+202503102300|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesien (© joakimbkk/Getty Images)|Das blaue Paradies|![](/de-DE/2025/03/202503102300NusaPenida.jpg)|

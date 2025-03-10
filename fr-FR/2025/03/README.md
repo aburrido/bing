@@ -10,3 +10,4 @@
 202503072300|FearlessWomen|Statue « Fearless Girl » face à Wall Street, New York, États-Unis (© JOHANNES EISELE/AFP via Getty Images)|Défier l’obscurité|![](/fr-FR/2025/03/202503072300FearlessWomen.jpg)|
 202503082300|kingfisherFr|Martin-pêcheur d'Europe sur une branche (© Javier Fernández Sánchez/Getty Images)|À la rencontre du pêcheur aux ailes de saphir|![](/fr-FR/2025/03/202503082300kingfisherFr.jpg)|
 202503092300|NappingLion|Lion au repos, parc national Queen Elizabeth, Ouganda (© Gunter Nuyts/Getty Images)|Dans la jungle, paisible jungle|![](/fr-FR/2025/03/202503092300NappingLion.jpg)|
+202503102300|NusaPenida|Broken Beach à Nusa Penida, Bali, Indonésie (© joakimbkk/Getty Images)|Un paradis bien caché|![](/fr-FR/2025/03/202503102300NusaPenida.jpg)|
