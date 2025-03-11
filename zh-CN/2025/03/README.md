@@ -11,3 +11,4 @@
 202503081600|ItalyClock|圣马可钟楼，威尼斯，意大利 (© scaliger/Getty Images)|时间的步伐|![](/zh-CN/2025/03/202503081600ItalyClock.jpg)|
 202503091600|NappingLion|在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达 (© Gunter Nuyts/Getty Images)|小睡片刻，再征服世界|![](/zh-CN/2025/03/202503091600NappingLion.jpg)|
 202503101600|NusaPenida|努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚 (© joakimbkk/Getty Images)|大海的非凡造化|![](/zh-CN/2025/03/202503101600NusaPenida.jpg)|
+202503111600|ChateauLoire|卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)|屹立不倒|![](/zh-CN/2025/03/202503111600ChateauLoire.jpg)|
