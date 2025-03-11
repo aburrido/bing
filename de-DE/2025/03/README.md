@@ -11,3 +11,4 @@
 202503082300|BavarianAlpsMariaGern|Wallfahrtskirche Maria Gern und Watzmannmassiv, Berchtesgadener Alpen, Bayern (© bluejayphoto/Getty Images)|Bayerische Postkartenidylle|![](/de-DE/2025/03/202503082300BavarianAlpsMariaGern.jpg)|
 202503092300|NappingLion|Schlafender Löwe im Ishasha-Sektor, Queen-Elizabeth-Nationalpark, Uganda (© Gunter Nuyts/Getty Images)|Schlummender König der Wildnis|![](/de-DE/2025/03/202503092300NappingLion.jpg)|
 202503102300|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesien (© joakimbkk/Getty Images)|Das blaue Paradies|![](/de-DE/2025/03/202503102300NusaPenida.jpg)|
+202503112300|ChateauLoire|Schloss Sully-sur-Loire, Centre-Val de Loire, Frankreich (© StockPhotoAstur/Shutterstock)|Mächtiges Erbe|![](/de-DE/2025/03/202503112300ChateauLoire.jpg)|
