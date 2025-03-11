@@ -12,3 +12,4 @@
 202503080500|FearlessWomen|Statue « Fearless Girl » face à Wall Street, New York, États-Unis (© JOHANNES EISELE/AFP via Getty Images)|Défier l’obscurité|![](/fr-CA/2025/03/202503080500FearlessWomen.jpg)|
 202503090500|ItalyClock|Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)|Il est l’heure du changement d’heure!|![](/fr-CA/2025/03/202503090500ItalyClock.jpg)|
 202503100400|NappingLion|Lion au repos, parc national Queen Elizabeth, Ouganda (© Gunter Nuyts/Getty Images)|Dans la jungle, paisible jungle|![](/fr-CA/2025/03/202503100400NappingLion.jpg)|
+202503110400|NusaPenida|Broken Beach à Nusa Penida, Bali, Indonésie (© joakimbkk/Getty Images)|Un paradis bien caché|![](/fr-CA/2025/03/202503110400NusaPenida.jpg)|
