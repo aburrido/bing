@@ -12,3 +12,4 @@
 202503092300|NappingLion|Schlafender Löwe im Ishasha-Sektor, Queen-Elizabeth-Nationalpark, Uganda (© Gunter Nuyts/Getty Images)|Schlummender König der Wildnis|![](/de-DE/2025/03/202503092300NappingLion.jpg)|
 202503102300|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesien (© joakimbkk/Getty Images)|Das blaue Paradies|![](/de-DE/2025/03/202503102300NusaPenida.jpg)|
 202503112300|ChateauLoire|Schloss Sully-sur-Loire, Centre-Val de Loire, Frankreich (© StockPhotoAstur/Shutterstock)|Mächtiges Erbe|![](/de-DE/2025/03/202503112300ChateauLoire.jpg)|
+202503122300|HoliColors|Holi Fest in Jaipur, Indien (© powerofforever/Getty Images)|Ein Meer aus Farben|![](/de-DE/2025/03/202503122300HoliColors.jpg)|
