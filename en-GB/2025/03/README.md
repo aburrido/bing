@@ -11,3 +11,4 @@
 202503090000|ShardLondon2025|The Shard, London (© Dennis Fischer Photography/Moment/Getty Images)|London's sharpest landmark|![](/en-GB/2025/03/202503090000ShardLondon2025.jpg)|
 202503100000|NappingLion|A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)|Snooze and conquer|![](/en-GB/2025/03/202503100000NappingLion.jpg)|
 202503110000|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)|When the ocean breaks the rules|![](/en-GB/2025/03/202503110000NusaPenida.jpg)|
+202503120000|ChateauLoire|Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)|Standing strong|![](/en-GB/2025/03/202503120000ChateauLoire.jpg)|
