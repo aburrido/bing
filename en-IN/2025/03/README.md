@@ -12,3 +12,4 @@
 202503091830|NappingLion|A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)|Snooze and conquer|![](/en-IN/2025/03/202503091830NappingLion.jpg)|
 202503101830|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)|When the ocean breaks the rules|![](/en-IN/2025/03/202503101830NusaPenida.jpg)|
 202503111830|ChateauLoire|Château de Sully-sur-Loire, Centre-Val de Loire, France (© StockPhotoAstur/Shutterstock)|Standing strong|![](/en-IN/2025/03/202503111830ChateauLoire.jpg)|
+202503121830|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Basking buddies|![](/en-IN/2025/03/202503121830GalapagosIguana.jpg)|
