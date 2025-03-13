@@ -14,3 +14,4 @@
 202503111830|ChateauLoire|Château de Sully-sur-Loire, Centre-Val de Loire, France (© StockPhotoAstur/Shutterstock)|Standing strong|![](/en-IN/2025/03/202503111830ChateauLoire.jpg)|
 202503121830|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Basking buddies|![](/en-IN/2025/03/202503121830GalapagosIguana.jpg)|
 ||||![](/en-IN/2025/03/.jpg)|
+202503131830|NandgaonHoli|Lathmar Holi in Nandgaon and Barsana, Uttar Pradesh (© Idris Ahmed/Alamy Stock Photo)|Colour, devotion and festive cheer|![](/en-IN/2025/03/202503131830NandgaonHoli.jpg)|
