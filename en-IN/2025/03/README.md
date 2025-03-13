@@ -13,3 +13,4 @@
 202503101830|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)|When the ocean breaks the rules|![](/en-IN/2025/03/202503101830NusaPenida.jpg)|
 202503111830|ChateauLoire|Château de Sully-sur-Loire, Centre-Val de Loire, France (© StockPhotoAstur/Shutterstock)|Standing strong|![](/en-IN/2025/03/202503111830ChateauLoire.jpg)|
 202503121830|GalapagosIguana|Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)|Basking buddies|![](/en-IN/2025/03/202503121830GalapagosIguana.jpg)|
+||||![](/en-IN/2025/03/.jpg)|

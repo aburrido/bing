@@ -13,3 +13,4 @@
 202503101500|TohokuEarthquake2025|追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)|東日本大震災から 14 年|![](/ja-JP/2025/03/202503101500TohokuEarthquake2025.jpg)|
 202503111500|Omizutori2025|東大寺, 奈良県 奈良市 (© Chris Willson/Alamy Stock Photo)|今日は東大寺のお水取り|![](/ja-JP/2025/03/202503111500Omizutori2025.jpg)|
 202503121500|HoliColors|カラフルな色粉を投げ合う祭り, インド (© powerofforever/Getty Images)|今日はホーリー祭|![](/ja-JP/2025/03/202503121500HoliColors.jpg)|
+||||![](/ja-JP/2025/03/.jpg)|
