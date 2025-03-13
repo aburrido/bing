@@ -14,3 +14,4 @@
 202503111600|ChateauLoire|卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)|屹立不倒|![](/zh-CN/2025/03/202503111600ChateauLoire.jpg)|
 202503121600|HoliColors|洒红节庆祝活动，斋浦尔，印度 (© powerofforever/Getty Images)|洒满色彩的欢乐|![](/zh-CN/2025/03/202503121600HoliColors.jpg)|
 ||||![](/zh-CN/2025/03/.jpg)|
+202503131600|BasqueDolmen|索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙 (© David Herraez Calzada/plainpicture)|天空中的圆周率|![](/zh-CN/2025/03/202503131600BasqueDolmen.jpg)|
