@@ -14,3 +14,4 @@
 202503110700|NusaPenida|Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)|When the ocean breaks the rules|![](/en-US/2025/03/202503110700NusaPenida.jpg)|
 202503120700|ChateauLoire|Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)|Standing strong|![](/en-US/2025/03/202503120700ChateauLoire.jpg)|
 ||||![](/en-US/2025/03/.jpg)|
+202503130700|HoliColors|Holi celebration in Jaipur, India (© powerofforever/Getty Images)|Holi color splash|![](/en-US/2025/03/202503130700HoliColors.jpg)|
