@@ -14,3 +14,4 @@
 202503112300|ChateauLoire|Schloss Sully-sur-Loire, Centre-Val de Loire, Frankreich (© StockPhotoAstur/Shutterstock)|Mächtiges Erbe|![](/de-DE/2025/03/202503112300ChateauLoire.jpg)|
 202503122300|HoliColors|Holi Fest in Jaipur, Indien (© powerofforever/Getty Images)|Ein Meer aus Farben|![](/de-DE/2025/03/202503122300HoliColors.jpg)|
 ||||![](/de-DE/2025/03/.jpg)|
+202503132300|BasqueDolmen|Dolmen von Sorginetxe, Baskenland, Spanien (© David Herraez Calzada/plainpicture)|Pi am Himmel|![](/de-DE/2025/03/202503132300BasqueDolmen.jpg)|
