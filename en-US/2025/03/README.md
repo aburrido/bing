@@ -15,3 +15,4 @@
 202503120700|ChateauLoire|Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)|Standing strong|![](/en-US/2025/03/202503120700ChateauLoire.jpg)|
 ||||![](/en-US/2025/03/.jpg)|
 202503130700|HoliColors|Holi celebration in Jaipur, India (© powerofforever/Getty Images)|Holi color splash|![](/en-US/2025/03/202503130700HoliColors.jpg)|
+202503140700|BasqueDolmen|Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)|Pi in the sky|![](/en-US/2025/03/202503140700BasqueDolmen.jpg)|
