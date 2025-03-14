@@ -15,3 +15,4 @@
 202503110400|NusaPenida|Broken Beach à Nusa Penida, Bali, Indonésie (© joakimbkk/Getty Images)|Un paradis bien caché|![](/fr-CA/2025/03/202503110400NusaPenida.jpg)|
 202503120400|ChateauLoire|Château de Sully-sur-Loire, Centre-Val de Loire (© StockPhotoAstur/Shutterstock)|L’histoire de France au fil de l’eau|![](/fr-CA/2025/03/202503120400ChateauLoire.jpg)|
 202503130400|HoliColors|Fête de Holi à Jaipur, Inde (© powerofforever/Getty Images)|Un tourbillon de couleurs et de traditions|![](/fr-CA/2025/03/202503130400HoliColors.jpg)|
+202503140400|BasqueDolmen|Dolmen de Sorginetxe, Pays Basque, Alava, Espagne (© David Herraez Calzada/plainpicture)|Un ciel de Pi!|![](/fr-CA/2025/03/202503140400BasqueDolmen.jpg)|
