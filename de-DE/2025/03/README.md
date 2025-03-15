@@ -16,3 +16,4 @@
 ||||![](/de-DE/2025/03/.jpg)|
 202503132300|BasqueDolmen|Dolmen von Sorginetxe, Baskenland, Spanien (© David Herraez Calzada/plainpicture)|Pi am Himmel|![](/de-DE/2025/03/202503132300BasqueDolmen.jpg)|
 202503142300|ForumRomanum|Der Saturntempel im Forum Romanum, Rom, Italien (© Nico De Pasquale Photography/Getty Images)|Majestätische Säulen|![](/de-DE/2025/03/202503142300ForumRomanum.jpg)|
+202503152300|PandaSnow|Baby-Riesenpanda im Schnee, China (© Cheryl Schneider/Alamy)|Schwarz-weiße Winterfreude|![](/de-DE/2025/03/202503152300PandaSnow.jpg)|
