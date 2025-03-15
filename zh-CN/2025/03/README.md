@@ -16,3 +16,4 @@
 ||||![](/zh-CN/2025/03/.jpg)|
 202503131600|BasqueDolmen|索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙 (© David Herraez Calzada/plainpicture)|天空中的圆周率|![](/zh-CN/2025/03/202503131600BasqueDolmen.jpg)|
 202503141600|ForumRomanum|罗马广场上的罗马萨图尔诺农神庙，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)|“朋友们，罗马人，同胞们…”|![](/zh-CN/2025/03/202503141600ForumRomanum.jpg)|
+202503151600|PandaSnow|雪地里的大熊猫宝宝，中国 (© Cheryl Schneider/Alamy Stock Photo)|回归黑白世界|![](/zh-CN/2025/03/202503151600PandaSnow.jpg)|
