@@ -16,3 +16,4 @@
 ||||![](/ja-JP/2025/03/.jpg)|
 202503131500|BasqueDolmen|ソルギネチェ・ドルメン, スペイン (© David Herraez Calzada/plainpicture)|今日は円周率の日|![](/ja-JP/2025/03/202503131500BasqueDolmen.jpg)|
 202503141500|ForumRomanum|サートゥルヌス神殿, イタリア (© Nico De Pasquale Photography/Getty Images)|今日はアイズ・オブ・マーチ|![](/ja-JP/2025/03/202503141500ForumRomanum.jpg)|
+202503151500|NusaPenida|ブロークンビーチ, インドネシア (© joakimbkk/Getty Images)|天使の水溜まり|![](/ja-JP/2025/03/202503151500NusaPenida.jpg)|
