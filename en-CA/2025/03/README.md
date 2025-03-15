@@ -16,3 +16,4 @@
 ||||![](/en-CA/2025/03/.jpg)|
 202503130400|HoliColors|Holi celebration in Jaipur, India (© powerofforever/Getty Images)|Holi colour splash|![](/en-CA/2025/03/202503130400HoliColors.jpg)|
 202503140400|BasqueDolmen|Dolmen of Sorginetxe, Basque Country, Alava, Spain (© David Herraez Calzada/plainpicture)|Pi in the sky|![](/en-CA/2025/03/202503140400BasqueDolmen.jpg)|
+202503150400|WhaleFestival|Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)|Big splashes, bigger journeys|![](/en-CA/2025/03/202503150400WhaleFestival.jpg)|
