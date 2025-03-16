@@ -17,3 +17,4 @@
 202503130700|HoliColors|Holi celebration in Jaipur, India (© powerofforever/Getty Images)|Holi color splash|![](/en-US/2025/03/202503130700HoliColors.jpg)|
 202503140700|BasqueDolmen|Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)|Pi in the sky|![](/en-US/2025/03/202503140700BasqueDolmen.jpg)|
 202503150700|ForumRomanum|The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Friends, Romans, countrymen|![](/en-US/2025/03/202503150700ForumRomanum.jpg)|
+202503160700|PandaSnow|Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)|Back to black ... and white|![](/en-US/2025/03/202503160700PandaSnow.jpg)|
