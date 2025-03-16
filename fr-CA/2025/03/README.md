@@ -17,3 +17,4 @@
 202503130400|HoliColors|Fête de Holi à Jaipur, Inde (© powerofforever/Getty Images)|Un tourbillon de couleurs et de traditions|![](/fr-CA/2025/03/202503130400HoliColors.jpg)|
 202503140400|BasqueDolmen|Dolmen de Sorginetxe, Pays Basque, Alava, Espagne (© David Herraez Calzada/plainpicture)|Un ciel de Pi!|![](/fr-CA/2025/03/202503140400BasqueDolmen.jpg)|
 202503150400|WhaleFestival|Ucluelet, Île de Vancouver, Colombie-Britannique (© AWL Images/DanitaDelimont.com)|Le ballet des géantes|![](/fr-CA/2025/03/202503150400WhaleFestival.jpg)|
+202503160400|PandaSnow|Bébé panda géant dans la neige, Chine (© Cheryl Schneider/Alamy)|Petit ourson de Chine|![](/fr-CA/2025/03/202503160400PandaSnow.jpg)|
