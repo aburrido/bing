@@ -18,3 +18,4 @@
 202503142300|ForumRomanum|Temple de Saturne, Forum romain, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Sous la grandeur de Rome|![](/fr-FR/2025/03/202503142300ForumRomanum.jpg)|
 202503152300|PandaSnow|Bébé panda géant dans la neige, Chine (© Cheryl Schneider/Alamy)|Petit ourson de Chine|![](/fr-FR/2025/03/202503152300PandaSnow.jpg)|
 202503162300|BeckettBridge|Pont Samuel Beckett, Dublin, Irlande (© Colm Keating/Tandem Stills + Motion)|Dublin s’illumine pour la Saint-Patrick|![](/fr-FR/2025/03/202503162300BeckettBridge.jpg)|
+202503172300|SedonaSpring|Formations rocheuses rouges, Sedona, Arizona, États-Unis (© Jim Ekstrand/Alamy)|À l’ombre des titans rouges|![](/fr-FR/2025/03/202503172300SedonaSpring.jpg)|
