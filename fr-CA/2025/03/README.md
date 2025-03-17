@@ -18,3 +18,4 @@
 202503140400|BasqueDolmen|Dolmen de Sorginetxe, Pays Basque, Alava, Espagne (© David Herraez Calzada/plainpicture)|Un ciel de Pi!|![](/fr-CA/2025/03/202503140400BasqueDolmen.jpg)|
 202503150400|WhaleFestival|Ucluelet, Île de Vancouver, Colombie-Britannique (© AWL Images/DanitaDelimont.com)|Le ballet des géantes|![](/fr-CA/2025/03/202503150400WhaleFestival.jpg)|
 202503160400|PandaSnow|Bébé panda géant dans la neige, Chine (© Cheryl Schneider/Alamy)|Petit ourson de Chine|![](/fr-CA/2025/03/202503160400PandaSnow.jpg)|
+202503170400|BeckettBridge|Pont Samuel Beckett, Dublin, Irlande (© Colm Keating/Tandem Stills + Motion)|Dublin s’illumine pour la Saint-Patrick|![](/fr-CA/2025/03/202503170400BeckettBridge.jpg)|
