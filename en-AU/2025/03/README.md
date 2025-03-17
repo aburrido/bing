@@ -18,3 +18,4 @@
 202503140700|BasqueDolmen|Dolmen of Sorginetxe, Basque Country, Alava, Spain (© David Herraez Calzada/plainpicture)|Info|![](/en-AU/2025/03/202503140700BasqueDolmen.jpg)|
 202503150700|ForumRomanum|The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Info|![](/en-AU/2025/03/202503150700ForumRomanum.jpg)|
 202503160700|BigGardenBirdwatch2025|A kingfisher perched on a branch (© NJphoto/Alamy)|Info|![](/en-AU/2025/03/202503160700BigGardenBirdwatch2025.jpg)|
+202503170700|BeckettBridge|Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)|Info|![](/en-AU/2025/03/202503170700BeckettBridge.jpg)|
