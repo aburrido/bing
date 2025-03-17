@@ -18,3 +18,4 @@
 202503141600|ForumRomanum|罗马广场上的罗马萨图尔诺农神庙，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)|“朋友们，罗马人，同胞们…”|![](/zh-CN/2025/03/202503141600ForumRomanum.jpg)|
 202503151600|PandaSnow|雪地里的大熊猫宝宝，中国 (© Cheryl Schneider/Alamy Stock Photo)|回归黑白世界|![](/zh-CN/2025/03/202503151600PandaSnow.jpg)|
 202503161600|BeckettBridge|塞缪尔·贝克特桥, 都柏林, 爱尔兰 (© Colm Keating/Tandem Stills + Motion)|圣帕特里克节的魅力|![](/zh-CN/2025/03/202503161600BeckettBridge.jpg)|
+202503171600|SedonaSpring|红色岩层，塞多纳，亚利桑那州，美国 (© Jim Ekstrand/Alamy Stock Photo)|漩涡般的心境|![](/zh-CN/2025/03/202503171600SedonaSpring.jpg)|
