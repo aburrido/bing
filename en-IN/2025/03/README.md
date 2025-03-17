@@ -18,3 +18,4 @@
 202503141830|ForumRomanum|The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Friends, Romans, countrymen|![](/en-IN/2025/03/202503141830ForumRomanum.jpg)|
 202503151830|PandaSnow|Baby giant panda in the snow, China (© Cheryl Schneider/Alamy Stock Photo)|Back to black...and white|![](/en-IN/2025/03/202503151830PandaSnow.jpg)|
 202503161830|BeckettBridge|Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)|Crossing the Liffey in style|![](/en-IN/2025/03/202503161830BeckettBridge.jpg)|
+202503171830|SedonaSpring|Red rock formations, Sedona, Arizona, United States (© Jim Ekstrand/Alamy Stock Photo)|A vortex state of mind|![](/en-IN/2025/03/202503171830SedonaSpring.jpg)|
