@@ -19,3 +19,4 @@
 202503151500|NusaPenida|ブロークンビーチ, インドネシア (© joakimbkk/Getty Images)|天使の水溜まり|![](/ja-JP/2025/03/202503151500NusaPenida.jpg)|
 202503161500|BeckettBridge|サミュエル・ベケット橋, アイルランド (© Colm Keating/Tandem Stills + Motion)|今日は聖パトリックの祝日|![](/ja-JP/2025/03/202503161500BeckettBridge.jpg)|
 202503171500|SedonaSpring|セドナ, 米国 アリゾナ州 (© Jim Ekstrand/Alamy)|高くそびえ立つ赤い岩山|![](/ja-JP/2025/03/202503171500SedonaSpring.jpg)|
+202503181500|BlackHeron|チョベ国立公園 , ボツワナ (© Paul Souders/Minden Pictures)|捕食中のクロコサギ|![](/ja-JP/2025/03/202503181500BlackHeron.jpg)|
