@@ -19,3 +19,4 @@
 202503152300|PandaSnow|Baby-Riesenpanda im Schnee, China (© Cheryl Schneider/Alamy)|Schwarz-weiße Winterfreude|![](/de-DE/2025/03/202503152300PandaSnow.jpg)|
 202503162300|BeckettBridge|Samuel Beckett Bridge, Dublin, Irland (© Colm Keating/Tandem Stills + Motion)|Grün, soweit das Auge reicht|![](/de-DE/2025/03/202503162300BeckettBridge.jpg)|
 202503172300|SedonaSpring|Rote Felsformationen, Sedona, Arizona, USA (© Jim Ekstrand/Alamy)|Heilende Energieoase|![](/de-DE/2025/03/202503172300SedonaSpring.jpg)|
+202503182300|BlackHeron|Glockenreiher auf der Jagd, Chobe-Nationalpark, Botswana (© Paul Souders/Minden Pictures)|Schirm-Manöver|![](/de-DE/2025/03/202503182300BlackHeron.jpg)|

@@ -19,3 +19,4 @@
 202503152300|PandaSnow|Bébé panda géant dans la neige, Chine (© Cheryl Schneider/Alamy)|Petit ourson de Chine|![](/fr-FR/2025/03/202503152300PandaSnow.jpg)|
 202503162300|BeckettBridge|Pont Samuel Beckett, Dublin, Irlande (© Colm Keating/Tandem Stills + Motion)|Dublin s’illumine pour la Saint-Patrick|![](/fr-FR/2025/03/202503162300BeckettBridge.jpg)|
 202503172300|SedonaSpring|Formations rocheuses rouges, Sedona, Arizona, États-Unis (© Jim Ekstrand/Alamy)|À l’ombre des titans rouges|![](/fr-FR/2025/03/202503172300SedonaSpring.jpg)|
+202503182300|BlackHeron|Aigrette ardoisée utilisant la technique de chasse en parapluie, parc national de Chobe, Botswana (© Paul Souders/Minden Pictures)|Héron ou parapluie aquatique ?|![](/fr-FR/2025/03/202503182300BlackHeron.jpg)|
