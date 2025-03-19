@@ -20,3 +20,4 @@
 202503161830|BeckettBridge|Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)|Crossing the Liffey in style|![](/en-IN/2025/03/202503161830BeckettBridge.jpg)|
 202503171830|SedonaSpring|Red rock formations, Sedona, Arizona, United States (© Jim Ekstrand/Alamy Stock Photo)|A vortex state of mind|![](/en-IN/2025/03/202503171830SedonaSpring.jpg)|
 202503181830|BlackHeron|Black heron canopy hunting, Chobe National Park, Botswana (© Paul Souders/Minden PIctures)|Umbrella manoeuvre|![](/en-IN/2025/03/202503181830BlackHeron.jpg)|
+202503191830|SpringDaffodils|Spring daffodils glow in the morning (© LedyX/Shutterstock)|Spring awakening|![](/en-IN/2025/03/202503191830SpringDaffodils.jpg)|
