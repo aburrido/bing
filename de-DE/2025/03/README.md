@@ -20,3 +20,4 @@
 202503162300|BeckettBridge|Samuel Beckett Bridge, Dublin, Irland (© Colm Keating/Tandem Stills + Motion)|Grün, soweit das Auge reicht|![](/de-DE/2025/03/202503162300BeckettBridge.jpg)|
 202503172300|SedonaSpring|Rote Felsformationen, Sedona, Arizona, USA (© Jim Ekstrand/Alamy)|Heilende Energieoase|![](/de-DE/2025/03/202503172300SedonaSpring.jpg)|
 202503182300|BlackHeron|Glockenreiher auf der Jagd, Chobe-Nationalpark, Botswana (© Paul Souders/Minden Pictures)|Schirm-Manöver|![](/de-DE/2025/03/202503182300BlackHeron.jpg)|
+202503192300|SnowdropsSpring|Schneeglöckchen blühen im Wald (© gehringj/Getty Images)|Der Frühling erwacht|![](/de-DE/2025/03/202503192300SnowdropsSpring.jpg)|
