@@ -20,3 +20,4 @@
 202503160700|PandaSnow|Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)|Back to black ... and white|![](/en-US/2025/03/202503160700PandaSnow.jpg)|
 202503170700|BeckettBridge|Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)|St. Patrick's enchantment|![](/en-US/2025/03/202503170700BeckettBridge.jpg)|
 202503180700|SedonaSpring|Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)|A vortex state of mind|![](/en-US/2025/03/202503180700SedonaSpring.jpg)|
+202503190700|BlackHeron|A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)|Umbrella maneuver|![](/en-US/2025/03/202503190700BlackHeron.jpg)|
