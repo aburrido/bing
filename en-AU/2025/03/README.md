@@ -21,3 +21,4 @@
 202503170700|BeckettBridge|Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)|Info|![](/en-AU/2025/03/202503170700BeckettBridge.jpg)|
 202503180700|SedonaSpring|Red rock formations, Sedona, Arizona, United States (© Jim Ekstrand/Alamy Stock Photo)|Info|![](/en-AU/2025/03/202503180700SedonaSpring.jpg)|
 202503190700|BlackHeron|Black heron canopy hunting, Chobe National Park, Botswana (© Paul Souders/Minden PIctures)|Info|![](/en-AU/2025/03/202503190700BlackHeron.jpg)|
+202503200700|SpringDaffodils|Daffodils glow in the morning (© LedyX/Shutterstock)|Info|![](/en-AU/2025/03/202503200700SpringDaffodils.jpg)|

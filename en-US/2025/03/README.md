@@ -21,3 +21,4 @@
 202503170700|BeckettBridge|Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)|St. Patrick's enchantment|![](/en-US/2025/03/202503170700BeckettBridge.jpg)|
 202503180700|SedonaSpring|Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)|A vortex state of mind|![](/en-US/2025/03/202503180700SedonaSpring.jpg)|
 202503190700|BlackHeron|A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)|Umbrella maneuver|![](/en-US/2025/03/202503190700BlackHeron.jpg)|
+202503200700|SpringDaffodils|Spring daffodils glowing in morning light (© LedyX/Shutterstock)|Spring awakening|![](/en-US/2025/03/202503200700SpringDaffodils.jpg)|
