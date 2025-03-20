@@ -21,3 +21,4 @@
 202503172300|SedonaSpring|Rote Felsformationen, Sedona, Arizona, USA (© Jim Ekstrand/Alamy)|Heilende Energieoase|![](/de-DE/2025/03/202503172300SedonaSpring.jpg)|
 202503182300|BlackHeron|Glockenreiher auf der Jagd, Chobe-Nationalpark, Botswana (© Paul Souders/Minden Pictures)|Schirm-Manöver|![](/de-DE/2025/03/202503182300BlackHeron.jpg)|
 202503192300|SnowdropsSpring|Schneeglöckchen blühen im Wald (© gehringj/Getty Images)|Der Frühling erwacht|![](/de-DE/2025/03/202503192300SnowdropsSpring.jpg)|
+202503202300|DanumValley|Nebel über dem Tieflandregenwald, Danum-Tal, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Hoch lebe der Wald|![](/de-DE/2025/03/202503202300DanumValley.jpg)|
