@@ -21,3 +21,4 @@
 202503170400|BeckettBridge|Pont Samuel Beckett, Dublin, Irlande (© Colm Keating/Tandem Stills + Motion)|Dublin s’illumine pour la Saint-Patrick|![](/fr-CA/2025/03/202503170400BeckettBridge.jpg)|
 202503180400|SedonaSpring|Formations rocheuses rouges, Sedona, Arizona, États-Unis (© Jim Ekstrand/Alamy)|À l’ombre des titans rouges|![](/fr-CA/2025/03/202503180400SedonaSpring.jpg)|
 202503190400|BlackHeron|Aigrette ardoisée utilisant la technique de chasse en parapluie, parc national de Chobe, Botswana (© Paul Souders/Minden Pictures)|Héron ou parapluie aquatique?|![](/fr-CA/2025/03/202503190400BlackHeron.jpg)|
+202503200400|SpringDaffodils|Jonquilles de printemps sous le soleil du matin (© LedyX/Shutterstock)|La promesse du renouveau|![](/fr-CA/2025/03/202503200400SpringDaffodils.jpg)|
