@@ -22,3 +22,4 @@
 202503180400|SedonaSpring|Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)|A vortex state of mind|![](/en-CA/2025/03/202503180400SedonaSpring.jpg)|
 202503190400|BlackHeron|Black heron canopy hunting, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)|Umbrella manoeuvre|![](/en-CA/2025/03/202503190400BlackHeron.jpg)|
 202503200400|SpringDaffodils|Spring daffodils glow in the morning (© LedyX/Shutterstock)|Spring awakening|![](/en-CA/2025/03/202503200400SpringDaffodils.jpg)|
+202503210400|DanumValley|Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Long live the trees|![](/en-CA/2025/03/202503210400DanumValley.jpg)|

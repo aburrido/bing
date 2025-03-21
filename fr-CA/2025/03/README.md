@@ -22,3 +22,4 @@
 202503180400|SedonaSpring|Formations rocheuses rouges, Sedona, Arizona, États-Unis (© Jim Ekstrand/Alamy)|À l’ombre des titans rouges|![](/fr-CA/2025/03/202503180400SedonaSpring.jpg)|
 202503190400|BlackHeron|Aigrette ardoisée utilisant la technique de chasse en parapluie, parc national de Chobe, Botswana (© Paul Souders/Minden Pictures)|Héron ou parapluie aquatique?|![](/fr-CA/2025/03/202503190400BlackHeron.jpg)|
 202503200400|SpringDaffodils|Jonquilles de printemps sous le soleil du matin (© LedyX/Shutterstock)|La promesse du renouveau|![](/fr-CA/2025/03/202503200400SpringDaffodils.jpg)|
+202503210400|DanumValley|Brume sur la forêt tropicale de plaine, vallée de Danum, Sabah, Bornéo, Malaisie (© Nick Garbutt/Alamy)|Forêts, un héritage à sauver|![](/fr-CA/2025/03/202503210400DanumValley.jpg)|
