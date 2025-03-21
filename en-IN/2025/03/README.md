@@ -22,3 +22,4 @@
 202503181830|BlackHeron|Black heron canopy hunting, Chobe National Park, Botswana (© Paul Souders/Minden PIctures)|Umbrella manoeuvre|![](/en-IN/2025/03/202503181830BlackHeron.jpg)|
 202503191830|SpringDaffodils|Spring daffodils glow in the morning (© LedyX/Shutterstock)|Spring awakening|![](/en-IN/2025/03/202503191830SpringDaffodils.jpg)|
 202503201830|DanumValley|Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Long live the trees|![](/en-IN/2025/03/202503201830DanumValley.jpg)|
+202503211830|NalandaRuins|Nalanda mahavihara, Bihar (© bambam kumar jha/Getty Images)|Legends of Nalanda|![](/en-IN/2025/03/202503211830NalandaRuins.jpg)|
