@@ -22,3 +22,4 @@
 202503181500|BlackHeron|チョベ国立公園 , ボツワナ (© Paul Souders/Minden Pictures)|捕食中のクロコサギ|![](/ja-JP/2025/03/202503181500BlackHeron.jpg)|
 202503191500|SpringDaffodils|スイセンの花 (© LedyX/Shutterstock)|今日は春分の日|![](/ja-JP/2025/03/202503191500SpringDaffodils.jpg)|
 202503201500|DanumValley|ダヌムバレー保護地域, マレーシア サバ州 (© Nick Garbutt/Alamy)|今日は国際森林デー|![](/ja-JP/2025/03/202503201500DanumValley.jpg)|
+202503211500|CenoteLilies|セノーテの水面に咲く睡蓮, メキシコ (© Franco Banfi/NPL/Minden Pictures)|今日は世界水の日|![](/ja-JP/2025/03/202503211500CenoteLilies.jpg)|
