@@ -23,3 +23,4 @@
 202503190700|BlackHeron|Black heron canopy hunting, Chobe National Park, Botswana (© Paul Souders/Minden PIctures)|Info|![](/en-AU/2025/03/202503190700BlackHeron.jpg)|
 202503200700|SpringDaffodils|Daffodils glow in the morning (© LedyX/Shutterstock)|Info|![](/en-AU/2025/03/202503200700SpringDaffodils.jpg)|
 202503210700|DanumValley|Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Info|![](/en-AU/2025/03/202503210700DanumValley.jpg)|
+202503220700|CenoteLilies|Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden)|Info|![](/en-AU/2025/03/202503220700CenoteLilies.jpg)|
