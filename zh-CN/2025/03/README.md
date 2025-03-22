@@ -23,3 +23,4 @@
 202503191600|SpringequinoxY25|美丽盛开的樱花，杭州的春天，中国 (© zhang shuang/Getty Images)|春日仙境|![](/zh-CN/2025/03/202503191600SpringequinoxY25.jpg)|
 202503201600|DanumValley|低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚 (© Nick Garbutt/Alamy)|树木万岁|![](/zh-CN/2025/03/202503201600DanumValley.jpg)|
 202503211600|CenoteLilies|尼特哈天然井水面上的睡莲，图卢姆，墨西哥 (© Franco Banfi/NPL/Minden)|水的奇妙世界！|![](/zh-CN/2025/03/202503211600CenoteLilies.jpg)|
+202503221600|NebraskaStorm|鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国 (© john finney photography/Getty Images)|雷鸣不可阻挡|![](/zh-CN/2025/03/202503221600NebraskaStorm.jpg)|
