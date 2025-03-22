@@ -23,3 +23,4 @@
 202503191830|SpringDaffodils|Spring daffodils glow in the morning (© LedyX/Shutterstock)|Spring awakening|![](/en-IN/2025/03/202503191830SpringDaffodils.jpg)|
 202503201830|DanumValley|Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Long live the trees|![](/en-IN/2025/03/202503201830DanumValley.jpg)|
 202503211830|NalandaRuins|Nalanda mahavihara, Bihar (© bambam kumar jha/Getty Images)|Legends of Nalanda|![](/en-IN/2025/03/202503211830NalandaRuins.jpg)|
+202503221830|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|You can't silence thunder|![](/en-IN/2025/03/202503221830NebraskaStorm.jpg)|
