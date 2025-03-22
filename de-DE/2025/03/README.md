@@ -23,3 +23,4 @@
 202503192300|SnowdropsSpring|Schneeglöckchen blühen im Wald (© gehringj/Getty Images)|Der Frühling erwacht|![](/de-DE/2025/03/202503192300SnowdropsSpring.jpg)|
 202503202300|DanumValley|Nebel über dem Tieflandregenwald, Danum-Tal, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Hoch lebe der Wald|![](/de-DE/2025/03/202503202300DanumValley.jpg)|
 202503212300|CenoteLilies|Seerosen an der Oberfläche des Cenote Nicte-Ha, Tulum, Mexiko (© Franco Banfi/NPL/Minden Pictures)|Wasser ist Leben|![](/de-DE/2025/03/202503212300CenoteLilies.jpg)|
+202503222300|NebraskaStorm|Blitze und Gewitterwolken bei Sonnenuntergang in der Nähe von Bowman, Nebraska, USA (© john finney photography/Getty Images)|Beeindruckender Donner|![](/de-DE/2025/03/202503222300NebraskaStorm.jpg)|
