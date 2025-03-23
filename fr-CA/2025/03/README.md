@@ -24,3 +24,4 @@
 202503200400|SpringDaffodils|Jonquilles de printemps sous le soleil du matin (© LedyX/Shutterstock)|La promesse du renouveau|![](/fr-CA/2025/03/202503200400SpringDaffodils.jpg)|
 202503210400|DanumValley|Brume sur la forêt tropicale de plaine, vallée de Danum, Sabah, Bornéo, Malaisie (© Nick Garbutt/Alamy)|Forêts, un héritage à sauver|![](/fr-CA/2025/03/202503210400DanumValley.jpg)|
 202503220400|CenoteLilies|Nénuphars à la surface du Cenote Nicte-Ha, Tulum, Mexique (© Franco Banfi/NPL/Minden)|Trésors aquatiques, une richesse fragile|![](/fr-CA/2025/03/202503220400CenoteLilies.jpg)|
+202503230400|NebraskaStorm|Éclair et nuages d'orage au coucher du soleil près de Bowman, Nebraska, États-Unis (© john finney photography/Getty Images)|Quand le ciel gronde|![](/fr-CA/2025/03/202503230400NebraskaStorm.jpg)|
