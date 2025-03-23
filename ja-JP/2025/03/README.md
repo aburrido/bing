@@ -24,3 +24,4 @@
 202503201500|DanumValley|ダヌムバレー保護地域, マレーシア サバ州 (© Nick Garbutt/Alamy)|今日は国際森林デー|![](/ja-JP/2025/03/202503201500DanumValley.jpg)|
 202503211500|CenoteLilies|セノーテの水面に咲く睡蓮, メキシコ (© Franco Banfi/NPL/Minden Pictures)|今日は世界水の日|![](/ja-JP/2025/03/202503211500CenoteLilies.jpg)|
 202503221500|NebraskaStorm|アンビルクローラー, 米国 ネブラスカ州 (© john finney photography/Getty Images)|今日は世界気象デー|![](/ja-JP/2025/03/202503221500NebraskaStorm.jpg)|
+202503231500|ElephantGrass|砂漠ゾウの親子, ナミビア (© Christophe Courteau/Minden Pictures)|砂漠の過酷な環境に適応したゾウ|![](/ja-JP/2025/03/202503231500ElephantGrass.jpg)|
