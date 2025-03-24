@@ -24,3 +24,4 @@
 202503210000|DanumValley|Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Long live the trees|![](/en-GB/2025/03/202503210000DanumValley.jpg)|
 202503220000|CenoteLilies|Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden)|Wat-er wonderful world!|![](/en-GB/2025/03/202503220000CenoteLilies.jpg)|
 202503230000|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|You can't silence thunder|![](/en-GB/2025/03/202503230000NebraskaStorm.jpg)|
+202503240000|SydneyHarbour|Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)|Harbouring nice views|![](/en-GB/2025/03/202503240000SydneyHarbour.jpg)|
