@@ -25,3 +25,4 @@
 202503210400|DanumValley|Mist over lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)|Long live the trees|![](/en-CA/2025/03/202503210400DanumValley.jpg)|
 202503220400|CenoteLilies|Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden)|Wat-er wonderful world!|![](/en-CA/2025/03/202503220400CenoteLilies.jpg)|
 202503230400|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|You can't silence thunder|![](/en-CA/2025/03/202503230400NebraskaStorm.jpg)|
+202503240400|ElephantGrass|Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)|Tall grass feast|![](/en-CA/2025/03/202503240400ElephantGrass.jpg)|
