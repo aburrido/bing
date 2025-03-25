@@ -26,3 +26,4 @@
 202503220700|CenoteLilies|Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)|Wat-er wonderful world!|![](/en-US/2025/03/202503220700CenoteLilies.jpg)|
 202503230700|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)|You can't silence thunder|![](/en-US/2025/03/202503230700NebraskaStorm.jpg)|
 202503240700|ElephantGrass|Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)|Feasting in the tall grass|![](/en-US/2025/03/202503240700ElephantGrass.jpg)|
+202503250700|HobbitHole|Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)|In a hole, there was a story|![](/en-US/2025/03/202503250700HobbitHole.jpg)|
