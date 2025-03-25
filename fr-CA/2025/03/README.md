@@ -26,3 +26,4 @@
 202503220400|CenoteLilies|Nénuphars à la surface du Cenote Nicte-Ha, Tulum, Mexique (© Franco Banfi/NPL/Minden)|Trésors aquatiques, une richesse fragile|![](/fr-CA/2025/03/202503220400CenoteLilies.jpg)|
 202503230400|NebraskaStorm|Éclair et nuages d'orage au coucher du soleil près de Bowman, Nebraska, États-Unis (© john finney photography/Getty Images)|Quand le ciel gronde|![](/fr-CA/2025/03/202503230400NebraskaStorm.jpg)|
 202503240400|ElephantGrass|Éléphant du désert et son petit se nourrissant d'herbes hautes, Namibie (© Christophe Courteau/Minden Pictures)|Les géants des sables|![](/fr-CA/2025/03/202503240400ElephantGrass.jpg)|
+202503250400|HobbitHole|Trou de hobbit sur le plateau de tournage de Hobbiton, Waikato, Nouvelle-Zélande (© Kim Petersen/Alamy)|Un voyage littéraire à Hobbiton|![](/fr-CA/2025/03/202503250400HobbitHole.jpg)|
