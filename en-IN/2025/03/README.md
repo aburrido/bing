@@ -26,3 +26,4 @@
 202503221830|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|You can't silence thunder|![](/en-IN/2025/03/202503221830NebraskaStorm.jpg)|
 202503231830|ElephantGrass|Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)|Tall grass feast|![](/en-IN/2025/03/202503231830ElephantGrass.jpg)|
 202503241830|HobbitHole|Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)|In a hole, there was a story|![](/en-IN/2025/03/202503241830HobbitHole.jpg)|
+202503251830|CrystalManatee|Manatee in Crystal River, Florida, United States (© Stephen Frink/Getty Images)|Life below the surface|![](/en-IN/2025/03/202503251830CrystalManatee.jpg)|
