@@ -26,3 +26,4 @@
 202503222300|NebraskaStorm|Blitze und Gewitterwolken bei Sonnenuntergang in der Nähe von Bowman, Nebraska, USA (© john finney photography/Getty Images)|Beeindruckender Donner|![](/de-DE/2025/03/202503222300NebraskaStorm.jpg)|
 202503232300|ElephantGrass|Wüstenelefant mit Kalb, Namibia (© Christophe Courteau/Minden Pictures)|Gras-Festmahl|![](/de-DE/2025/03/202503232300ElephantGrass.jpg)|
 202503242300|AlsterLakeCherry|Kirschblüten am Ufer der Alster bei Sonnenuntergang, Hamburg (© Westend61/Getty Images)|Rosa Frühlingszauber|![](/de-DE/2025/03/202503242300AlsterLakeCherry.jpg)|
+202503252300|CrystalManatee|Rundschwanzseekuh in Crystal River, Florida, USA (© Stephen Frink/Getty Images)|Sanfte Riesen|![](/de-DE/2025/03/202503252300CrystalManatee.jpg)|
