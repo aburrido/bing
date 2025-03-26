@@ -27,3 +27,4 @@
 202503230400|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|You can't silence thunder|![](/en-CA/2025/03/202503230400NebraskaStorm.jpg)|
 202503240400|ElephantGrass|Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)|Tall grass feast|![](/en-CA/2025/03/202503240400ElephantGrass.jpg)|
 202503250400|HobbitHole|Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)|In a hole, there was a story|![](/en-CA/2025/03/202503250400HobbitHole.jpg)|
+202503260400|Cherry25Blossom|Cherry blossoms in Queen Elizabeth Park, Vancouver, Canada (© Kim Rogerson/Getty Images)|Cherry blossom season!|![](/en-CA/2025/03/202503260400Cherry25Blossom.jpg)|
