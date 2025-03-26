@@ -26,3 +26,4 @@
 202503230000|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|You can't silence thunder|![](/en-GB/2025/03/202503230000NebraskaStorm.jpg)|
 202503240000|SydneyHarbour|Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)|Harbouring nice views|![](/en-GB/2025/03/202503240000SydneyHarbour.jpg)|
 202503250000|HobbitHole|Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)|In a hole, there was a story|![](/en-GB/2025/03/202503250000HobbitHole.jpg)|
+202503260000|CrystalManatee|Manatee in Crystal River, Florida, United States (© Stephen Frink/Getty Images)|Life below the surface|![](/en-GB/2025/03/202503260000CrystalManatee.jpg)|
