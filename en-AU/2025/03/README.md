@@ -27,3 +27,4 @@
 202503230700|NebraskaStorm|Lightning and storm clouds at sunset near Bowman, Nebraska, United States (© john finney photography/Getty Images)|Info|![](/en-AU/2025/03/202503230700NebraskaStorm.jpg)|
 202503240700|ElephantGrass|Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)|Info|![](/en-AU/2025/03/202503240700ElephantGrass.jpg)|
 202503250700|GoldfinchSunflower|European goldfinches in a sunflower field, Germany (© Juniors Bildarchiv GmbH/Alamy)|Info|![](/en-AU/2025/03/202503250700GoldfinchSunflower.jpg)|
+202503260700|CrystalManatee|Manatee in Crystal River, Florida, United States (© Stephen Frink/Getty Images)|Info|![](/en-AU/2025/03/202503260700CrystalManatee.jpg)|
