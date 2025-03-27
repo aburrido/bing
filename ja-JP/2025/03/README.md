@@ -28,3 +28,4 @@
 202503241500|HobbitHole|ホビット穴, ニュージーランド (© Kim Petersen/Alamy)|今日はトールキン読書の日|![](/ja-JP/2025/03/202503241500HobbitHole.jpg)|
 202503251500|CrystalManatee|クリスタルリバーのマナティー, 米国 フロリダ州 (© Stephen Frink/Getty Images)|今日はマナティー感謝の日|![](/ja-JP/2025/03/202503251500CrystalManatee.jpg)|
 202503261500|OdeonAthens|ヘロディス・アッティコス音楽堂, ギリシャ、アテネ (© f11photo/Getty Images)|今日は世界演劇の日|![](/ja-JP/2025/03/202503261500OdeonAthens.jpg)|
+202503271500|NestingMonarch|クロエリヒタキのメス (© komkrit tonusin/Alamy)|小さくてかわいい青色の鳥|![](/ja-JP/2025/03/202503271500NestingMonarch.jpg)|
