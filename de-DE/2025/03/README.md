@@ -28,3 +28,4 @@
 202503242300|AlsterLakeCherry|Kirschblüten am Ufer der Alster bei Sonnenuntergang, Hamburg (© Westend61/Getty Images)|Rosa Frühlingszauber|![](/de-DE/2025/03/202503242300AlsterLakeCherry.jpg)|
 202503252300|CrystalManatee|Rundschwanzseekuh in Crystal River, Florida, USA (© Stephen Frink/Getty Images)|Sanfte Riesen|![](/de-DE/2025/03/202503252300CrystalManatee.jpg)|
 202503262300|OdeonAthens|Odeon des Herodes Atticus, Akropolis von Athen, Griechenland (© f11photo/Getty Images)|Allen Theatern einen herzlichen Applaus!|![](/de-DE/2025/03/202503262300OdeonAthens.jpg)|
+202503272300|NestingMonarch|Weiblicher Schwarzgenickschnäpper im Nest (© komkrit tonusin/Alamy)|Bunt gefiederter Freund|![](/de-DE/2025/03/202503272300NestingMonarch.jpg)|
