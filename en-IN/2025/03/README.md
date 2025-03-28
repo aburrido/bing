@@ -29,3 +29,4 @@
 202503251830|CrystalManatee|Manatee in Crystal River, Florida, United States (© Stephen Frink/Getty Images)|Life below the surface|![](/en-IN/2025/03/202503251830CrystalManatee.jpg)|
 202503261830|OdeonAthens|Odeon of Herodes Atticus theatre, Acropolis of Athens, Greece (© f11photo/Getty Images)|A standing ovation for theatres|![](/en-IN/2025/03/202503261830OdeonAthens.jpg)|
 202503271830|NestingMonarch|Female black-naped monarch nesting (© komkrit tonusin/Alamy)|A cosy cradle|![](/en-IN/2025/03/202503271830NestingMonarch.jpg)|
+202503281830|CarrizoBloom|Superbloom in Carrizo Plain National Monument, California, United States (© Robb Hirsch/TANDEM Stills + Motion)|Burst of blooms|![](/en-IN/2025/03/202503281830CarrizoBloom.jpg)|
