@@ -29,3 +29,4 @@
 202503251600|CrystalManatee|水晶河的海牛，佛罗里达州，美国 (© Stephen Frink/Getty Images)|水面下的生命|![](/zh-CN/2025/03/202503251600CrystalManatee.jpg)|
 202503261600|OdeonAthens|希罗德·阿提库斯剧场，雅典卫城，希腊 (© f11photo/Getty Images)|向戏剧致敬|![](/zh-CN/2025/03/202503261600OdeonAthens.jpg)|
 202503271600|NestingMonarch|正在筑巢的雌性黑枕王鹟 (© komkrit tonusin/Alamy)|温暖舒适的摇篮|![](/zh-CN/2025/03/202503271600NestingMonarch.jpg)|
+202503281600|CarrizoBloom|卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)|花海绽放|![](/zh-CN/2025/03/202503281600CarrizoBloom.jpg)|
