@@ -30,3 +30,4 @@
 202503262300|OdeonAthens|Théâtre de l'Odéon d'Hérode Atticus, Acropole d'Athènes, Grèce (© f11photo/Getty Images)|Une ode au théâtre|![](/fr-FR/2025/03/202503262300OdeonAthens.jpg)|
 202503272300|NestingMonarch|Femelle tchitrec azuré en train de nicher (© komkrit tonusin/Alamy)|Petit oiseau, grand génie|![](/fr-FR/2025/03/202503272300NestingMonarch.jpg)|
 202503282300|SydneyHarbour|Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)|Un panorama inoubliable|![](/fr-FR/2025/03/202503282300SydneyHarbour.jpg)|
+202503292300|ItalyClock|Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)|Il est l’heure du changement d’heure !|![](/fr-FR/2025/03/202503292300ItalyClock.jpg)|

@@ -30,3 +30,4 @@
 202503262300|OdeonAthens|Odeon des Herodes Atticus, Akropolis von Athen, Griechenland (© f11photo/Getty Images)|Allen Theatern einen herzlichen Applaus!|![](/de-DE/2025/03/202503262300OdeonAthens.jpg)|
 202503272300|NestingMonarch|Weiblicher Schwarzgenickschnäpper im Nest (© komkrit tonusin/Alamy)|Bunt gefiederter Freund|![](/de-DE/2025/03/202503272300NestingMonarch.jpg)|
 202503282300|CarrizoBloom|Superbloom in Carrizo Plain National Monument, Kalifornien, USA (© Robb Hirsch/TANDEM Stills + Motion)|Endloses Blütenmeer|![](/de-DE/2025/03/202503282300CarrizoBloom.jpg)|
+202503292300|AtheneNoctuaGermany|Steinkauz-Junges in einem Baumloch (© Bildagentur Zoonar GmbH/Alamy)|Wer hat an der Uhr gedreht?|![](/de-DE/2025/03/202503292300AtheneNoctuaGermany.jpg)|
