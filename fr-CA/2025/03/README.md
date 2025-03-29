@@ -30,3 +30,4 @@
 202503260400|Cherry25Blossom|Cerisiers en fleurs dans le parc Queen Elizabeth, Vancouver, Canada (© Kim Rogerson/Getty Images)|Vancouver teintée de rose|![](/fr-CA/2025/03/202503260400Cherry25Blossom.jpg)|
 202503270400|OdeonAthens|Théâtre de l'Odéon d'Hérode Atticus, Acropole d'Athènes, Grèce (© f11photo/Getty Images)|Une ode au théâtre|![](/fr-CA/2025/03/202503270400OdeonAthens.jpg)|
 202503280400|NestingMonarch|Femelle tchitrec azuré en train de nicher (© komkrit tonusin/Alamy)|Petit oiseau, grand génie|![](/fr-CA/2025/03/202503280400NestingMonarch.jpg)|
+202503290400|CarrizoBloom|Superfloraison, Monument national de Carrizo Plain, Californie, États-Unis (© Robb Hirsch/TANDEM Stills + Motion)|Quand le désert s’embrase de couleurs|![](/fr-CA/2025/03/202503290400CarrizoBloom.jpg)|
