@@ -31,3 +31,4 @@
 202503271830|NestingMonarch|Female black-naped monarch nesting (© komkrit tonusin/Alamy)|A cosy cradle|![](/en-IN/2025/03/202503271830NestingMonarch.jpg)|
 202503281830|CarrizoBloom|Superbloom in Carrizo Plain National Monument, California, United States (© Robb Hirsch/TANDEM Stills + Motion)|Burst of blooms|![](/en-IN/2025/03/202503281830CarrizoBloom.jpg)|
 202503291830|SydneyHarbour|Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)|Harbouring nice views|![](/en-IN/2025/03/202503291830SydneyHarbour.jpg)|
+202503301830|ItalyOstuni|Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)|The 'White City' of Apulia|![](/en-IN/2025/03/202503301830ItalyOstuni.jpg)|
