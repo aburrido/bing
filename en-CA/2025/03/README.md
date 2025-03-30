@@ -31,3 +31,4 @@
 202503270400|OdeonAthens|Odeon of Herodes Atticus theatre, Acropolis of Athens, Greece (© f11photo/Getty Images)|A standing ovation for theatres|![](/en-CA/2025/03/202503270400OdeonAthens.jpg)|
 202503280400|NestingMonarch|Female black-naped monarch nesting (© komkrit tonusin/Alamy)|A cosy cradle|![](/en-CA/2025/03/202503280400NestingMonarch.jpg)|
 202503290400|CarrizoBloom|Superbloom in Carrizo Plain National Monument, California, United States (© Robb Hirsch/TANDEM Stills + Motion)|Burst of blooms|![](/en-CA/2025/03/202503290400CarrizoBloom.jpg)|
+202503300400|SydneyHarbour|Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)|Harbouring nice views|![](/en-CA/2025/03/202503300400SydneyHarbour.jpg)|
