@@ -31,3 +31,4 @@
 202503271600|NestingMonarch|正在筑巢的雌性黑枕王鹟 (© komkrit tonusin/Alamy)|温暖舒适的摇篮|![](/zh-CN/2025/03/202503271600NestingMonarch.jpg)|
 202503281600|CarrizoBloom|卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)|花海绽放|![](/zh-CN/2025/03/202503281600CarrizoBloom.jpg)|
 202503291600|SydneyHarbour|悉尼港鸟瞰图，新南威尔士州，澳大利亚 (© jamenpercy/Getty Images)|尽享美景|![](/zh-CN/2025/03/202503291600SydneyHarbour.jpg)|
+202503301600|ItalyOstuni|黄昏下的奥斯图尼, 普利亚, 意大利 (© Feng Wei Photography/Getty Images)|普利亚的“白色之城”|![](/zh-CN/2025/03/202503301600ItalyOstuni.jpg)|
