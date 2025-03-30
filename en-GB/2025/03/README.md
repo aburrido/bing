@@ -31,3 +31,4 @@
 202503280000|NestingMonarch|Female black-naped monarch nesting (© komkrit tonusin/Alamy)|A cosy cradle|![](/en-GB/2025/03/202503280000NestingMonarch.jpg)|
 202503290000|CarrizoBloom|Superbloom in Carrizo Plain National Monument, California, United States (© Robb Hirsch/TANDEM Stills + Motion)|Burst of blooms|![](/en-GB/2025/03/202503290000CarrizoBloom.jpg)|
 202503300000|ElephantGrass|Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)|A mother's love|![](/en-GB/2025/03/202503300000ElephantGrass.jpg)|
+202503302300|ItalyOstuni|Ostuni, Apulia, Italy (© Feng Wei Photography/Getty Images)|The 'White City' of Apulia|![](/en-GB/2025/03/202503302300ItalyOstuni.jpg)|
