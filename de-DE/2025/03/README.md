@@ -32,3 +32,4 @@
 202503282300|CarrizoBloom|Superbloom in Carrizo Plain National Monument, Kalifornien, USA (© Robb Hirsch/TANDEM Stills + Motion)|Endloses Blütenmeer|![](/de-DE/2025/03/202503282300CarrizoBloom.jpg)|
 202503292300|AtheneNoctuaGermany|Steinkauz-Junges in einem Baumloch (© Bildagentur Zoonar GmbH/Alamy)|Wer hat an der Uhr gedreht?|![](/de-DE/2025/03/202503292300AtheneNoctuaGermany.jpg)|
 202503302200|ItalyOstuni|Ostuni bei Dämmerung, Apulien, Italien (© Feng Wei Photography/Getty Images)|Die „weiße Stadt“ von Apulien|![](/de-DE/2025/03/202503302200ItalyOstuni.jpg)|
+202503312200|TicanFrog|Kanalzonen-Baumfrosch, Costa Rica (© Ondrej Prosicky/Shutterstock)|Auf dem Sprung|![](/de-DE/2025/03/202503312200TicanFrog.jpg)|

@@ -32,3 +32,4 @@
 202503282300|SydneyHarbour|Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)|Un panorama inoubliable|![](/fr-FR/2025/03/202503282300SydneyHarbour.jpg)|
 202503292300|ItalyClock|Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)|Il est l’heure du changement d’heure !|![](/fr-FR/2025/03/202503292300ItalyClock.jpg)|
 202503302200|ItalyOstuni|Ostuni au crépuscule, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Le trésor des Pouilles|![](/fr-FR/2025/03/202503302200ItalyOstuni.jpg)|
+202503312200|TicanFrog|Grenouille rainette, Costa Rica (© Ondrej Prosicky/Shutterstock)|Il pleut, il mouille, c’est la fête à la grenouille !|![](/fr-FR/2025/03/202503312200TicanFrog.jpg)|
