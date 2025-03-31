@@ -32,3 +32,4 @@
 202503280400|NestingMonarch|Femelle tchitrec azuré en train de nicher (© komkrit tonusin/Alamy)|Petit oiseau, grand génie|![](/fr-CA/2025/03/202503280400NestingMonarch.jpg)|
 202503290400|CarrizoBloom|Superfloraison, Monument national de Carrizo Plain, Californie, États-Unis (© Robb Hirsch/TANDEM Stills + Motion)|Quand le désert s’embrase de couleurs|![](/fr-CA/2025/03/202503290400CarrizoBloom.jpg)|
 202503300400|SydneyHarbour|Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)|Un panorama inoubliable|![](/fr-CA/2025/03/202503300400SydneyHarbour.jpg)|
+202503310400|ItalyOstuni|Ostuni au crépuscule, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Le trésor des Pouilles|![](/fr-CA/2025/03/202503310400ItalyOstuni.jpg)|
