@@ -32,3 +32,4 @@
 202503281500|CarrizoBloom|カリゾ平原国定記念物, 米国 カリフォルニア州 (© Robb Hirsch/TANDEM Stills + Motion)|10 年に一度の花畑|![](/ja-JP/2025/03/202503281500CarrizoBloom.jpg)|
 202503291500|SydneyHarbour|シドニー・ハーバー, オーストラリア ニューサウスウェールズ州 (© jamenpercy/Getty Images)|美しい天然の良港|![](/ja-JP/2025/03/202503291500SydneyHarbour.jpg)|
 202503301500|ItalyOstuni|夕暮れのオストゥーニ, イタリア プッリャ州 (© Feng Wei Photography/Getty Images)|丘の上に建つ白い町|![](/ja-JP/2025/03/202503301500ItalyOstuni.jpg)|
+202503311500|CherryBlossom2025|奈良公園, 奈良県 奈良市 (© AaronChenPS2/Shutterstock)|今日は年度初日|![](/ja-JP/2025/03/202503311500CherryBlossom2025.jpg)|
