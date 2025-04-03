@@ -4,3 +4,4 @@
 202504010700|TicanFrog|Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)|Hoppin' into National Frog Month|![](/en-US/2025/04/202504010700TicanFrog.jpg)|
 ||||![](/en-US/2025/04/.jpg)|
 202504020700|UtahBadlands|Sandstone formations in the badlands near Caineville, Utah (© Chris Moore/TANDEM Stills + Motion)|Waves of time|![](/en-US/2025/04/202504020700UtahBadlands.jpg)|
+202504030700|SaguaroRainbow|Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)|The sky is the limit|![](/en-US/2025/04/202504030700SaguaroRainbow.jpg)|
