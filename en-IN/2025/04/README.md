@@ -4,3 +4,4 @@
 ||||![](/en-IN/2025/04/.jpg)|
 202504011830|UtahBadlands|Sandstone formations in the badlands near Caineville, Utah, United States (© Chris Moore/TANDEM Stills + Motion)|Waves of time|![](/en-IN/2025/04/202504011830UtahBadlands.jpg)|
 202504021830|KanyakumariSunrise|Thiruvalluvar Statue, Kanyakumari, Tamil Nadu (© Amith Nag Photography/Getty Images)|A monumental view|![](/en-IN/2025/04/202504021830KanyakumariSunrise.jpg)|
+202504031830|HumayunsTomb|Humayun's Tomb, Delhi (© SoumenNath/Getty Images)|A walk through history|![](/en-IN/2025/04/202504031830HumayunsTomb.jpg)|
