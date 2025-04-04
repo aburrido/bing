@@ -5,3 +5,4 @@
 ||||![](/en-US/2025/04/.jpg)|
 202504020700|UtahBadlands|Sandstone formations in the badlands near Caineville, Utah (© Chris Moore/TANDEM Stills + Motion)|Waves of time|![](/en-US/2025/04/202504020700UtahBadlands.jpg)|
 202504030700|SaguaroRainbow|Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)|The sky is the limit|![](/en-US/2025/04/202504030700SaguaroRainbow.jpg)|
+202504040700|CherryBlossomDC|The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)|Cherry, cherry, bloom, bloom|![](/en-US/2025/04/202504040700CherryBlossomDC.jpg)|
