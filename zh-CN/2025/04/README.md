@@ -6,3 +6,4 @@
 202504021600|SaguaroRainbow|沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国 (© Frank Staub/Getty Images)|天空无极限|![](/zh-CN/2025/04/202504021600SaguaroRainbow.jpg)|
 202504031600|QingMingY25|苏州古镇风景，江苏省，中国 (© gyn9038/Getty Images)|春和景明|![](/zh-CN/2025/04/202504031600QingMingY25.jpg)|
 202504041600|GaztelugatxeSunset|日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)|朝圣圣胡安·德·加兹特鲁加特|![](/zh-CN/2025/04/202504041600GaztelugatxeSunset.jpg)|
+202504051600|ShardLondon2025|碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)|伦敦最尖锐的地标|![](/zh-CN/2025/04/202504051600ShardLondon2025.jpg)|
