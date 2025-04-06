@@ -7,3 +7,4 @@
 202504030700|SaguaroRainbow|Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)|The sky is the limit|![](/en-US/2025/04/202504030700SaguaroRainbow.jpg)|
 202504040700|CherryBlossomDC|The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)|Cherry, cherry, bloom, bloom|![](/en-US/2025/04/202504040700CherryBlossomDC.jpg)|
 202504050700|GaztelugatxeSunset|Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)|Pilgrimage to San Juan de Gaztelugatxe|![](/en-US/2025/04/202504050700GaztelugatxeSunset.jpg)|
+202504060700|PeabodyBaltimore|George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)|Lost in titles|![](/en-US/2025/04/202504060700PeabodyBaltimore.jpg)|
