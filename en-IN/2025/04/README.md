@@ -7,3 +7,4 @@
 202504031830|HumayunsTomb|Humayun's Tomb, Delhi (© SoumenNath/Getty Images)|A walk through history|![](/en-IN/2025/04/202504031830HumayunsTomb.jpg)|
 202504041830|GaztelugatxeSunset|Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)|Pilgrimage to San Juan de Gaztelugatxe|![](/en-IN/2025/04/202504041830GaztelugatxeSunset.jpg)|
 202504051830|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|The chase begins!|![](/en-IN/2025/04/202504051830SpottedDolphins.jpg)|
+202504061830|BeaverDay|North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)|Hello Mr. Beaver!|![](/en-IN/2025/04/202504061830BeaverDay.jpg)|
