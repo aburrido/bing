@@ -7,3 +7,4 @@
 202504040400|BhutanMonastery|Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)|Cliffside calm, spiritual charm|![](/en-CA/2025/04/202504040400BhutanMonastery.jpg)|
 202504050400|GaztelugatxeSunset|Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)|Pilgrimage to San Juan de Gaztelugatxe|![](/en-CA/2025/04/202504050400GaztelugatxeSunset.jpg)|
 202504060400|YellowWarbler|Yellow warbler in Canada (© mirceax/Getty Images)|Bright feathers, sweet songs|![](/en-CA/2025/04/202504060400YellowWarbler.jpg)|
+202504070400|WhistlerSnowboard|Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)|Whistler turns up the thrill|![](/en-CA/2025/04/202504070400WhistlerSnowboard.jpg)|

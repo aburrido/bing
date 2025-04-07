@@ -7,3 +7,4 @@
 202504040400|CherryBlossomDC|Cerisiers en fleurs, Washington DC, États-Unis (© f11photo/Getty Images)|Un moment suspendu dans le temps|![](/fr-CA/2025/04/202504040400CherryBlossomDC.jpg)|
 202504050400|GaztelugatxeSunset|Îlot Gaztelugatxe au coucher du soleil, Pays basque, Espagne (© Eloi_Omella/Getty Images)|Un voyage entre ciel et mer|![](/fr-CA/2025/04/202504050400GaztelugatxeSunset.jpg)|
 202504060400|YellowWarbler|Paruline du Canada (© mirceax/Getty Images)|La messagère du printemps|![](/fr-CA/2025/04/202504060400YellowWarbler.jpg)|
+202504070400|WhistlerSnowboard|Montagnes de Whistler et de Blackcomb, Colombie-Britannique (© Pierre Leclerc/Shutterstock)|Whistler fête l’hiver!|![](/fr-CA/2025/04/202504070400WhistlerSnowboard.jpg)|
