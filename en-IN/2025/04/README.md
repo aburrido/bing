@@ -8,3 +8,4 @@
 202504041830|GaztelugatxeSunset|Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)|Pilgrimage to San Juan de Gaztelugatxe|![](/en-IN/2025/04/202504041830GaztelugatxeSunset.jpg)|
 202504051830|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|The chase begins!|![](/en-IN/2025/04/202504051830SpottedDolphins.jpg)|
 202504061830|BeaverDay|North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)|Hello Mr. Beaver!|![](/en-IN/2025/04/202504061830BeaverDay.jpg)|
+202504071830|ParoTsechu|Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Patterns from the past|![](/en-IN/2025/04/202504071830ParoTsechu.jpg)|
