@@ -8,3 +8,4 @@
 202504042200|GaztelugatxeSunset|Insel Gaztelugatxe bei Sonnenuntergang, Baskenland, Spanien (© Eloi_Omella/Getty Images)|Auf den Spuren der Einsiedler|![](/de-DE/2025/04/202504042200GaztelugatxeSunset.jpg)|
 202504052200|PeabodyBaltimore|George Peabody Library, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy)|Vom Buche verweht|![](/de-DE/2025/04/202504052200PeabodyBaltimore.jpg)|
 202504062200|BeaverDay|Kanadischer Biber, Moran, Wyoming, USA (© Enrique Aguirre Aves/Getty Images)|Die Ingenieure des Ökosystems|![](/de-DE/2025/04/202504062200BeaverDay.jpg)|
+202504072200|ParoTsechu|Frauen in der Nationaltracht beim Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Muster aus der Vergangenheit|![](/de-DE/2025/04/202504072200ParoTsechu.jpg)|

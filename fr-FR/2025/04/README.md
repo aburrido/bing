@@ -8,3 +8,4 @@
 202504042200|GaztelugatxeSunset|Îlot Gaztelugatxe au coucher du soleil, Pays basque, Espagne (© Eloi_Omella/Getty Images)|Un voyage entre ciel et mer|![](/fr-FR/2025/04/202504042200GaztelugatxeSunset.jpg)|
 202504052200|TulipsWindmill|Champs de tulipes, Pays-Bas (© 1111IESPDJ/Getty Images)|Le royaume des tulipes|![](/fr-FR/2025/04/202504052200TulipsWindmill.jpg)|
 202504062200|BeaverDay|Castor du Canada, Moran, Wyoming, États-Unis (© Enrique Aguirre Aves/Getty Images)|Le bâtisseur des rivières|![](/fr-FR/2025/04/202504062200BeaverDay.jpg)|
+202504072200|ParoTsechu|Femmes en costume traditionnel lors du festival Paro Tshechu au Bhoutan (© Richard I'Anson/Getty Images)|Un festival entre ciel et montagne|![](/fr-FR/2025/04/202504072200ParoTsechu.jpg)|
