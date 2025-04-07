@@ -8,3 +8,4 @@
 202504041600|GaztelugatxeSunset|日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)|朝圣圣胡安·德·加兹特鲁加特|![](/zh-CN/2025/04/202504041600GaztelugatxeSunset.jpg)|
 202504051600|ShardLondon2025|碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)|伦敦最尖锐的地标|![](/zh-CN/2025/04/202504051600ShardLondon2025.jpg)|
 202504061600|BeaverDay|美洲海狸, Moran, 怀俄明州, 美国 (© Enrique Aguirre Aves/Getty Images)|你好，海狸！|![](/zh-CN/2025/04/202504061600BeaverDay.jpg)|
+202504071600|SpringDaffodils|春天的水仙花在清晨绽放 (© LedyX/Shutterstock)|芬芳清新的春天|![](/zh-CN/2025/04/202504071600SpringDaffodils.jpg)|
