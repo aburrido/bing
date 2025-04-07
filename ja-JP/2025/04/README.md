@@ -8,3 +8,4 @@
 202504041500|GaztelugatxeSunset|夕暮れのガステルガチェ, スペイン バスク州 (© Eloi_Omella/Getty Images)|島に建つ小さな礼拝堂|![](/ja-JP/2025/04/202504041500GaztelugatxeSunset.jpg)|
 202504051500|CastleDay2025|姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)|今日は城の日|![](/ja-JP/2025/04/202504051500CastleDay2025.jpg)|
 202504061500|BeaverDay|アメリカビーバー, 米国 ワイオミング州 (© Enrique Aguirre Aves/Getty Images)|今日は国際ビーバーデー|![](/ja-JP/2025/04/202504061500BeaverDay.jpg)|
+202504071500|ParoTsechu|民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)|今日はパロ・ツェチュ祭|![](/ja-JP/2025/04/202504071500ParoTsechu.jpg)|
