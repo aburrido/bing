@@ -9,3 +9,4 @@
 202504051500|CastleDay2025|姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)|今日は城の日|![](/ja-JP/2025/04/202504051500CastleDay2025.jpg)|
 202504061500|BeaverDay|アメリカビーバー, 米国 ワイオミング州 (© Enrique Aguirre Aves/Getty Images)|今日は国際ビーバーデー|![](/ja-JP/2025/04/202504061500BeaverDay.jpg)|
 202504071500|ParoTsechu|民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)|今日はパロ・ツェチュ祭|![](/ja-JP/2025/04/202504071500ParoTsechu.jpg)|
+202504081500|BlueNaxos|ナクソス島, ギリシャ (© Sizun Eye/Getty Images)|ギリシャ神話に登場する伝説の島|![](/ja-JP/2025/04/202504081500BlueNaxos.jpg)|
