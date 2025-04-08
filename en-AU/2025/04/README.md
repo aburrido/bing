@@ -9,3 +9,4 @@
 202504050700|GaztelugatxeSunset|Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)|Info|![](/en-AU/2025/04/202504050700GaztelugatxeSunset.jpg)|
 202504060700|ShardLondon2025|The Shard, London, England (© Dennis Fischer Photography/Getty Images)|Info|![](/en-AU/2025/04/202504060700ShardLondon2025.jpg)|
 202504070700|BeaverDay|North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/04/202504070700BeaverDay.jpg)|
+202504080700|PiazzaBologna|Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)|Info|![](/en-AU/2025/04/202504080700PiazzaBologna.jpg)|
