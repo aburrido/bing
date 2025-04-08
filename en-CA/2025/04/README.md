@@ -8,3 +8,4 @@
 202504050400|GaztelugatxeSunset|Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)|Pilgrimage to San Juan de Gaztelugatxe|![](/en-CA/2025/04/202504050400GaztelugatxeSunset.jpg)|
 202504060400|YellowWarbler|Yellow warbler in Canada (© mirceax/Getty Images)|Bright feathers, sweet songs|![](/en-CA/2025/04/202504060400YellowWarbler.jpg)|
 202504070400|WhistlerSnowboard|Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)|Whistler turns up the thrill|![](/en-CA/2025/04/202504070400WhistlerSnowboard.jpg)|
+202504080400|ParoTsechu|Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Patterns from the past|![](/en-CA/2025/04/202504080400ParoTsechu.jpg)|

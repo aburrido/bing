@@ -8,3 +8,4 @@
 202504050400|GaztelugatxeSunset|Îlot Gaztelugatxe au coucher du soleil, Pays basque, Espagne (© Eloi_Omella/Getty Images)|Un voyage entre ciel et mer|![](/fr-CA/2025/04/202504050400GaztelugatxeSunset.jpg)|
 202504060400|YellowWarbler|Paruline du Canada (© mirceax/Getty Images)|La messagère du printemps|![](/fr-CA/2025/04/202504060400YellowWarbler.jpg)|
 202504070400|WhistlerSnowboard|Montagnes de Whistler et de Blackcomb, Colombie-Britannique (© Pierre Leclerc/Shutterstock)|Whistler fête l’hiver!|![](/fr-CA/2025/04/202504070400WhistlerSnowboard.jpg)|
+202504080400|ParoTsechu|mmes en costume traditionnel lors du festival Paro Tshechu au Bhoutan (© Richard I'Anson/Getty Images)|Un festival entre ciel et montagne|![](/fr-CA/2025/04/202504080400ParoTsechu.jpg)|
