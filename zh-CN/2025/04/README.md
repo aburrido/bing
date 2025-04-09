@@ -10,3 +10,4 @@
 202504061600|BeaverDay|美洲海狸, Moran, 怀俄明州, 美国 (© Enrique Aguirre Aves/Getty Images)|你好，海狸！|![](/zh-CN/2025/04/202504061600BeaverDay.jpg)|
 202504071600|SpringDaffodils|春天的水仙花在清晨绽放 (© LedyX/Shutterstock)|芬芳清新的春天|![](/zh-CN/2025/04/202504071600SpringDaffodils.jpg)|
 202504081600|BlueNaxos|纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)|在繁星闪耀之前|![](/zh-CN/2025/04/202504081600BlueNaxos.jpg)|
+202504091600|LittleFoxes|靠近巢穴的红狐幼崽 (© WildMedia/Shutterstock)|野性本能|![](/zh-CN/2025/04/202504091600LittleFoxes.jpg)|
