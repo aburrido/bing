@@ -10,3 +10,4 @@
 202504061830|BeaverDay|North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)|Hello Mr. Beaver!|![](/en-IN/2025/04/202504061830BeaverDay.jpg)|
 202504071830|ParoTsechu|Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Patterns from the past|![](/en-IN/2025/04/202504071830ParoTsechu.jpg)|
 202504081830|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Before the stars take over|![](/en-IN/2025/04/202504081830BlueNaxos.jpg)|
+202504091830|LittleFoxes|Red fox cubs near their den (© WildMedia/Shutterstock)|Wild at heart|![](/en-IN/2025/04/202504091830LittleFoxes.jpg)|
