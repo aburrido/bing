@@ -10,3 +10,4 @@
 202504060700|ShardLondon2025|The Shard, London, England (© Dennis Fischer Photography/Getty Images)|Info|![](/en-AU/2025/04/202504060700ShardLondon2025.jpg)|
 202504070700|BeaverDay|North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/04/202504070700BeaverDay.jpg)|
 202504080700|PiazzaBologna|Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)|Info|![](/en-AU/2025/04/202504080700PiazzaBologna.jpg)|
+202504090700|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Info|![](/en-AU/2025/04/202504090700BlueNaxos.jpg)|
