@@ -10,3 +10,4 @@
 202504062200|BeaverDay|Kanadischer Biber, Moran, Wyoming, USA (© Enrique Aguirre Aves/Getty Images)|Die Ingenieure des Ökosystems|![](/de-DE/2025/04/202504062200BeaverDay.jpg)|
 202504072200|ParoTsechu|Frauen in der Nationaltracht beim Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Muster aus der Vergangenheit|![](/de-DE/2025/04/202504072200ParoTsechu.jpg)|
 202504082200|BlueNaxos|Blaue Stunde auf Naxos, Kykladen, Griechenland (© Sizun Eye/Getty Images)|Bevor die Sterne die Macht übernehmen|![](/de-DE/2025/04/202504082200BlueNaxos.jpg)|
+202504092200|LittleFoxes|Rotfuchsjunge in der Nähe ihres Baus (© WildMedia/Shutterstock)|Neugierige Entdecker|![](/de-DE/2025/04/202504092200LittleFoxes.jpg)|

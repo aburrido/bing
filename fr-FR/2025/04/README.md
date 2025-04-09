@@ -10,3 +10,4 @@
 202504062200|BeaverDay|Castor du Canada, Moran, Wyoming, États-Unis (© Enrique Aguirre Aves/Getty Images)|Le bâtisseur des rivières|![](/fr-FR/2025/04/202504062200BeaverDay.jpg)|
 202504072200|ParoTsechu|Femmes en costume traditionnel lors du festival Paro Tshechu au Bhoutan (© Richard I'Anson/Getty Images)|Un festival entre ciel et montagne|![](/fr-FR/2025/04/202504072200ParoTsechu.jpg)|
 202504082200|BlueNaxos|Heure bleue à Naxos, Cyclades, Grèce (© Sizun Eye/Getty Images)|L’île aux mille saveurs méditerranéennes|![](/fr-FR/2025/04/202504082200BlueNaxos.jpg)|
+202504092200|LittleFoxes|Renardeaux près de leur tanière (© WildMedia/Shutterstock)|Un lien fraternel et universel|![](/fr-FR/2025/04/202504092200LittleFoxes.jpg)|
