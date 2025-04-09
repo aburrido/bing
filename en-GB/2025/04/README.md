@@ -10,3 +10,4 @@
 202504062300|BeaverDay|North American beaver, Moran, Wyoming, United States (© Enrique Aguirre Aves/Getty Images)|Hello Mr. Beaver!|![](/en-GB/2025/04/202504062300BeaverDay.jpg)|
 202504072300|ParoTsechu|Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Patterns from the past|![](/en-GB/2025/04/202504072300ParoTsechu.jpg)|
 202504082300|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Before the stars take over|![](/en-GB/2025/04/202504082300BlueNaxos.jpg)|
+202504092300|MillenniumCentre2025|Wales Millennium Centre, Cardiff, Wales (© Billy Stock/Collection Mix/Getty Images)|A stage for stories, music and more|![](/en-GB/2025/04/202504092300MillenniumCentre2025.jpg)|
