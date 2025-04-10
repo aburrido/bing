@@ -10,3 +10,4 @@
 202504070400|WhistlerSnowboard|Montagnes de Whistler et de Blackcomb, Colombie-Britannique (© Pierre Leclerc/Shutterstock)|Whistler fête l’hiver!|![](/fr-CA/2025/04/202504070400WhistlerSnowboard.jpg)|
 202504080400|ParoTsechu|mmes en costume traditionnel lors du festival Paro Tshechu au Bhoutan (© Richard I'Anson/Getty Images)|Un festival entre ciel et montagne|![](/fr-CA/2025/04/202504080400ParoTsechu.jpg)|
 202504090400|BlueNaxos|Heure bleue à Naxos, Cyclades, Grèce (© Sizun Eye/Getty Images)|L’île aux mille saveurs méditerranéennes|![](/fr-CA/2025/04/202504090400BlueNaxos.jpg)|
+202504100400|LittleFoxes|Renardeaux près de leur tanière (© WildMedia/Shutterstock)|Un lien fraternel et universel|![](/fr-CA/2025/04/202504100400LittleFoxes.jpg)|
