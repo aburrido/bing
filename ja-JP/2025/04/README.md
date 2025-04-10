@@ -11,3 +11,4 @@
 202504071500|ParoTsechu|民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)|今日はパロ・ツェチュ祭|![](/ja-JP/2025/04/202504071500ParoTsechu.jpg)|
 202504081500|BlueNaxos|ナクソス島, ギリシャ (© Sizun Eye/Getty Images)|ギリシャ神話に登場する伝説の島|![](/ja-JP/2025/04/202504081500BlueNaxos.jpg)|
 202504091500|LittleFoxes|巣穴の近くにいる子ギツネたち (© WildMedia/Shutterstock)|今日は兄弟姉妹の日|![](/ja-JP/2025/04/202504091500LittleFoxes.jpg)|
+202504101500|TulipsWindmill|チューリップと風車, オランダ (© 1111IESPDJ/Getty Images)|一面に咲き誇るピンクの花畑|![](/ja-JP/2025/04/202504101500TulipsWindmill.jpg)|
