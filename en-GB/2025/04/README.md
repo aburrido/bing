@@ -12,3 +12,4 @@
 202504082300|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Before the stars take over|![](/en-GB/2025/04/202504082300BlueNaxos.jpg)|
 202504092300|MillenniumCentre2025|Wales Millennium Centre, Cardiff, Wales (© Billy Stock/Collection Mix/Getty Images)|A stage for stories, music and more|![](/en-GB/2025/04/202504092300MillenniumCentre2025.jpg)|
 202504102300|TulipsWindmill|Tulips, Netherlands (© 1111IESPDJ/Getty Images)|A blooming good time|![](/en-GB/2025/04/202504102300TulipsWindmill.jpg)|
+202504112300|SpaceFlight|View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)|108 minutes that changed the world|![](/en-GB/2025/04/202504112300SpaceFlight.jpg)|
