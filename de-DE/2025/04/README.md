@@ -12,3 +12,4 @@
 202504082200|BlueNaxos|Blaue Stunde auf Naxos, Kykladen, Griechenland (© Sizun Eye/Getty Images)|Bevor die Sterne die Macht übernehmen|![](/de-DE/2025/04/202504082200BlueNaxos.jpg)|
 202504092200|LittleFoxes|Rotfuchsjunge in der Nähe ihres Baus (© WildMedia/Shutterstock)|Neugierige Entdecker|![](/de-DE/2025/04/202504092200LittleFoxes.jpg)|
 202504102200|TulipsWindmill|Tulpenfeld, Niederlande (© 1111IESPDJ/Getty Images)|Ein leuchtendes Blumenmeer|![](/de-DE/2025/04/202504102200TulipsWindmill.jpg)|
+202504112200|SpaceFlight|Blick aus der Kuppel der Internationalen Raumstation über den Südpazifik (© NASA)|108 Minuten, die die Welt veränderten|![](/de-DE/2025/04/202504112200SpaceFlight.jpg)|
