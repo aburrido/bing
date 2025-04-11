@@ -12,3 +12,4 @@
 202504080700|PiazzaBologna|Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)|Info|![](/en-AU/2025/04/202504080700PiazzaBologna.jpg)|
 202504090700|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Info|![](/en-AU/2025/04/202504090700BlueNaxos.jpg)|
 202504100700|LittleFoxes|Red fox cubs near their den (© WildMedia/Shutterstock)|Info|![](/en-AU/2025/04/202504100700LittleFoxes.jpg)|
+202504110700|TulipsWindmill|Tulips, Netherlands (© 1111IESPDJ/Getty Images)|Info|![](/en-AU/2025/04/202504110700TulipsWindmill.jpg)|
