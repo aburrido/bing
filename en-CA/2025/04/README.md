@@ -11,3 +11,4 @@
 202504080400|ParoTsechu|Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)|Patterns from the past|![](/en-CA/2025/04/202504080400ParoTsechu.jpg)|
 202504090400|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Before the stars take over|![](/en-CA/2025/04/202504090400BlueNaxos.jpg)|
 202504100400|LittleFoxes|Red fox cubs near their den (© WildMedia/Shutterstock)|Wild at heart|![](/en-CA/2025/04/202504100400LittleFoxes.jpg)|
+202504110400|TulipsWindmill|Tulips, Netherlands (© 1111IESPDJ/Getty Images)|A blooming good time|![](/en-CA/2025/04/202504110400TulipsWindmill.jpg)|
