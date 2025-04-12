@@ -13,3 +13,4 @@
 202504090700|BlueNaxos|Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)|Before the stars take over|![](/en-US/2025/04/202504090700BlueNaxos.jpg)|
 202504100700|LittleFoxes|Red fox cubs near their den (© WildMedia/Shutterstock)|Wild at heart|![](/en-US/2025/04/202504100700LittleFoxes.jpg)|
 202504110700|TulipsWindmill|Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)|A blooming good time|![](/en-US/2025/04/202504110700TulipsWindmill.jpg)|
+202504120700|SpaceFlight|View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)|108 minutes that changed the world|![](/en-US/2025/04/202504120700SpaceFlight.jpg)|
