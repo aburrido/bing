@@ -13,3 +13,4 @@
 202504091500|LittleFoxes|巣穴の近くにいる子ギツネたち (© WildMedia/Shutterstock)|今日は兄弟姉妹の日|![](/ja-JP/2025/04/202504091500LittleFoxes.jpg)|
 202504101500|TulipsWindmill|チューリップと風車, オランダ (© 1111IESPDJ/Getty Images)|一面に咲き誇るピンクの花畑|![](/ja-JP/2025/04/202504101500TulipsWindmill.jpg)|
 202504111500|SpaceFlight|キューポラから見た地球 (© NASA)|今日は世界宇宙飛行の日|![](/ja-JP/2025/04/202504111500SpaceFlight.jpg)|
+202504121500|ThailandPagodas|ワット・タン・サイ寺院, タイ (© Ratnakorn Piyasirisorost/Getty Images)|今日はタイの旧正月|![](/ja-JP/2025/04/202504121500ThailandPagodas.jpg)|
