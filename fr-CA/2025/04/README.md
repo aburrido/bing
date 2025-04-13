@@ -13,3 +13,4 @@
 202504100400|LittleFoxes|Renardeaux près de leur tanière (© WildMedia/Shutterstock)|Un lien fraternel et universel|![](/fr-CA/2025/04/202504100400LittleFoxes.jpg)|
 202504110400|TulipsWindmill|Champs de tulipes, Pays-Bas (© 1111IESPDJ/Getty Images)|Le royaume des tulipes|![](/fr-CA/2025/04/202504110400TulipsWindmill.jpg)|
 202504120400|SpaceFlight|Vue de la coupole de la Station spatiale internationale au-dessus de l'océan Pacifique Sud (© NASA)|Le premier vol vers les étoiles|![](/fr-CA/2025/04/202504120400SpaceFlight.jpg)|
+202504130400|ThailandPagodas|Temple Wat Tang Sai à Ban Krut, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)|Entre traditions et éclaboussures !|![](/fr-CA/2025/04/202504130400ThailandPagodas.jpg)|
