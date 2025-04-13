@@ -14,3 +14,4 @@
 202504100700|LittleFoxes|Red fox cubs near their den (© WildMedia/Shutterstock)|Wild at heart|![](/en-US/2025/04/202504100700LittleFoxes.jpg)|
 202504110700|TulipsWindmill|Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)|A blooming good time|![](/en-US/2025/04/202504110700TulipsWindmill.jpg)|
 202504120700|SpaceFlight|View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)|108 minutes that changed the world|![](/en-US/2025/04/202504120700SpaceFlight.jpg)|
+202504130700|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Let's celebrate Songkran!|![](/en-US/2025/04/202504130700ThailandPagodas.jpg)|
