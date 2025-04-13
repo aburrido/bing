@@ -14,3 +14,4 @@
 202504101830|TulipsWindmill|Tulips, Netherlands (© 1111IESPDJ/Getty Images)|A blooming good time|![](/en-IN/2025/04/202504101830TulipsWindmill.jpg)|
 202504111830|SpaceFlight|View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)|108 minutes that changed the world|![](/en-IN/2025/04/202504111830SpaceFlight.jpg)|
 202504121830|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Let's celebrate Songkran!|![](/en-IN/2025/04/202504121830ThailandPagodas.jpg)|
+202504131830|AmbedkarMemorialIN|Ambedkar Memorial Park, Lucknow, Uttar Pradesh (© aquarajiv/Getty Images)|Tribute to an iconic leader|![](/en-IN/2025/04/202504131830AmbedkarMemorialIN.jpg)|
