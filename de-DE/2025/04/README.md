@@ -14,3 +14,4 @@
 202504102200|TulipsWindmill|Tulpenfeld, Niederlande (© 1111IESPDJ/Getty Images)|Ein leuchtendes Blumenmeer|![](/de-DE/2025/04/202504102200TulipsWindmill.jpg)|
 202504112200|SpaceFlight|Blick aus der Kuppel der Internationalen Raumstation über den Südpazifik (© NASA)|108 Minuten, die die Welt veränderten|![](/de-DE/2025/04/202504112200SpaceFlight.jpg)|
 202504122200|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Frohes Neues Songkran!|![](/de-DE/2025/04/202504122200ThailandPagodas.jpg)|
+202504132200|SpottedDolphins|Zügeldelfine in der Nähe der Insel Santa Maria, Azoren, Portugal (© Jordi Chias/Minden Pictures)|Die Akrobaten des Ozeans|![](/de-DE/2025/04/202504132200SpottedDolphins.jpg)|
