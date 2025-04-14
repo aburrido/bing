@@ -15,3 +15,4 @@
 202504112200|SpaceFlight|Blick aus der Kuppel der Internationalen Raumstation über den Südpazifik (© NASA)|108 Minuten, die die Welt veränderten|![](/de-DE/2025/04/202504112200SpaceFlight.jpg)|
 202504122200|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Frohes Neues Songkran!|![](/de-DE/2025/04/202504122200ThailandPagodas.jpg)|
 202504132200|SpottedDolphins|Zügeldelfine in der Nähe der Insel Santa Maria, Azoren, Portugal (© Jordi Chias/Minden Pictures)|Die Akrobaten des Ozeans|![](/de-DE/2025/04/202504132200SpottedDolphins.jpg)|
+202504142200|BeachArt|Sandkunst am Sauveterre Strand bei Zarpo, Les Sables-d'Olonne, Vendee, Frankreich (© Hemis/Alamy)|Kunst erleben|![](/de-DE/2025/04/202504142200BeachArt.jpg)|
