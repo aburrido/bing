@@ -15,3 +15,4 @@
 202504111600|SpaceFlight|从国际空间站穹顶俯瞰南太平洋 (© NASA)|改变世界的108分钟|![](/zh-CN/2025/04/202504111600SpaceFlight.jpg)|
 202504121600|ThailandPagodas|班克鲁特的唐赛寺，泰国 (© Ratnakorn Piyasirisorost/Getty Images)|让我们一起庆祝宋干节！|![](/zh-CN/2025/04/202504121600ThailandPagodas.jpg)|
 202504131600|SpottedDolphins|圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙 (© Jordi Chias/Minden Pictures)|追逐开始！|![](/zh-CN/2025/04/202504131600SpottedDolphins.jpg)|
+202504141600|CerezoEnFlor|卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)|梦幻城堡！|![](/zh-CN/2025/04/202504141600CerezoEnFlor.jpg)|
