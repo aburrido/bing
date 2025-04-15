@@ -16,3 +16,4 @@
 202504122200|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Frohes Neues Songkran!|![](/de-DE/2025/04/202504122200ThailandPagodas.jpg)|
 202504132200|SpottedDolphins|Zügeldelfine in der Nähe der Insel Santa Maria, Azoren, Portugal (© Jordi Chias/Minden Pictures)|Die Akrobaten des Ozeans|![](/de-DE/2025/04/202504132200SpottedDolphins.jpg)|
 202504142200|BeachArt|Sandkunst am Sauveterre Strand bei Zarpo, Les Sables-d'Olonne, Vendee, Frankreich (© Hemis/Alamy)|Kunst erleben|![](/de-DE/2025/04/202504142200BeachArt.jpg)|
+202504152200|BeachChairsSteinwarder|Strandkörbe vor der Seebrücke auf Steinwarder in Heiligenhafen, Schleswig-Holstein, Deutschland (© Frank Lukasseck/Huber/eStock Photo)|Ostseezauber|![](/de-DE/2025/04/202504152200BeachChairsSteinwarder.jpg)|

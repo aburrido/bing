@@ -16,3 +16,4 @@
 202504122200|ThailandPagodas|Temple Wat Tang Sai à Ban Krut, Thaïlande (© Ratnakorn Piyasirisorost/Getty Images)|Entre traditions et éclaboussures !|![](/fr-FR/2025/04/202504122200ThailandPagodas.jpg)|
 202504132200|SpottedDolphins|Dauphins tachetés de l'Atlantique près de l'île de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)|Plongez dans un monde « dauphin-tesque » !|![](/fr-FR/2025/04/202504132200SpottedDolphins.jpg)|
 202504142200|BeachArt|Beach art sur la plage de Sauveterre par Zarpo, Les Sables-d'Olonne, France (© Hemis/Alamy)|L'art transforme l'ordinaire en extraordinaire|![](/fr-FR/2025/04/202504142200BeachArt.jpg)|
+202504152200|ToulouseBridge|Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)|Quand Toulouse s’illumine au crépuscule|![](/fr-FR/2025/04/202504152200ToulouseBridge.jpg)|
