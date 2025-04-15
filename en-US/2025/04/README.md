@@ -16,3 +16,4 @@
 202504120700|SpaceFlight|View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)|108 minutes that changed the world|![](/en-US/2025/04/202504120700SpaceFlight.jpg)|
 202504130700|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Let's celebrate Songkran!|![](/en-US/2025/04/202504130700ThailandPagodas.jpg)|
 202504140700|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|The chase begins!|![](/en-US/2025/04/202504140700SpottedDolphins.jpg)|
+202504150700|BeachArt|Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)|See Art, Do Art, Be Art|![](/en-US/2025/04/202504150700BeachArt.jpg)|

@@ -16,3 +16,4 @@
 202504120700|SpaceFlight|View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)|Info|![](/en-AU/2025/04/202504120700SpaceFlight.jpg)|
 202504130700|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Info|![](/en-AU/2025/04/202504130700ThailandPagodas.jpg)|
 202504140700|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|Info|![](/en-AU/2025/04/202504140700SpottedDolphins.jpg)|
+202504150700|CerezoEnFlor|Castillo de La Calahorra, Granada, Spain (© Ugo Mellone/eStock Photo)|Info|![](/en-AU/2025/04/202504150700CerezoEnFlor.jpg)|
