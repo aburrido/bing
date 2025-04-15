@@ -16,3 +16,4 @@
 202504121830|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Let's celebrate Songkran!|![](/en-IN/2025/04/202504121830ThailandPagodas.jpg)|
 202504131830|AmbedkarMemorialIN|Ambedkar Memorial Park, Lucknow, Uttar Pradesh (© aquarajiv/Getty Images)|Tribute to an iconic leader|![](/en-IN/2025/04/202504131830AmbedkarMemorialIN.jpg)|
 202504141830|BeachArt|Beach art on Sauveterre Beach by Zarpo, Les Sables-d'Olonne, Vendee, France (© Hemis/Alamy Stock Photo)|See Art, Do Art, Be Art|![](/en-IN/2025/04/202504141830BeachArt.jpg)|
+202504151830|KachinaBridge|Kachina Bridge, Natural Bridges National Monument, Utah, United States (© Alan Majchrowicz/Getty Images)|A passage through time|![](/en-IN/2025/04/202504151830KachinaBridge.jpg)|
