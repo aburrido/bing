@@ -17,3 +17,4 @@
 202504130700|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Info|![](/en-AU/2025/04/202504130700ThailandPagodas.jpg)|
 202504140700|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|Info|![](/en-AU/2025/04/202504140700SpottedDolphins.jpg)|
 202504150700|CerezoEnFlor|Castillo de La Calahorra, Granada, Spain (© Ugo Mellone/eStock Photo)|Info|![](/en-AU/2025/04/202504150700CerezoEnFlor.jpg)|
+202504160700|KachinaBridge|Kachina Bridge, Natural Bridges National Monument, Utah, United States (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2025/04/202504160700KachinaBridge.jpg)|
