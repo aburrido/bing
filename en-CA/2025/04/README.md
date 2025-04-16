@@ -16,3 +16,4 @@
 202504130400|ThailandPagodas|Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)|Let's celebrate Songkran!|![](/en-CA/2025/04/202504130400ThailandPagodas.jpg)|
 202504140400|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|The chase begins!|![](/en-CA/2025/04/202504140400SpottedDolphins.jpg)|
 202504150400|BeachArt|Beach art on Sauveterre Beach by Zarpo, Les Sables-d'Olonne, Vendee, France (© Hemis/Alamy Stock Photo)|See Art, Do Art, Be Art|![](/en-CA/2025/04/202504150400BeachArt.jpg)|
+202504160400|KachinaBridge|Kachina Bridge, Natural Bridges National Monument, Utah, United States (© Alan Majchrowicz/Getty Images)|A passage through time|![](/en-CA/2025/04/202504160400KachinaBridge.jpg)|
