@@ -17,3 +17,4 @@
 202504131500|TakayamaFestival2025|精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)|今日は春の山王祭|![](/ja-JP/2025/04/202504131500TakayamaFestival2025.jpg)|
 202504141500|BeachArt|ビーチに描かれた巨大な絵, フランス (© Hemis/Alamy)|今日は世界芸術の日|![](/ja-JP/2025/04/202504141500BeachArt.jpg)|
 202504151500|KachinaBridge|ナチュラル・ブリッジ国定公園, 米国 ユタ州 (© Alan Majchrowicz/Getty Images)|自然が作り上げた岩の橋|![](/ja-JP/2025/04/202504151500KachinaBridge.jpg)|
+202504161500|EcuadorBird|アンデスイワドリ, エクアドル (© Kit Day/Alamy)|明るく赤い鳥|![](/ja-JP/2025/04/202504161500EcuadorBird.jpg)|
