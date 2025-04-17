@@ -18,3 +18,4 @@
 202504141830|BeachArt|Beach art on Sauveterre Beach by Zarpo, Les Sables-d'Olonne, Vendee, France (© Hemis/Alamy Stock Photo)|See Art, Do Art, Be Art|![](/en-IN/2025/04/202504141830BeachArt.jpg)|
 202504151830|KachinaBridge|Kachina Bridge, Natural Bridges National Monument, Utah, United States (© Alan Majchrowicz/Getty Images)|A passage through time|![](/en-IN/2025/04/202504151830KachinaBridge.jpg)|
 202504161830|EcuadorBird|Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy Stock Photo)|Double the drama|![](/en-IN/2025/04/202504161830EcuadorBird.jpg)|
+202504171830|GoremeTurkey|Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Celebrating history|![](/en-IN/2025/04/202504171830GoremeTurkey.jpg)|
