@@ -18,3 +18,4 @@
 202504141600|CerezoEnFlor|卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)|梦幻城堡！|![](/zh-CN/2025/04/202504141600CerezoEnFlor.jpg)|
 202504151600|KachinaBridge|卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)|时光通道|![](/zh-CN/2025/04/202504151600KachinaBridge.jpg)|
 202504161600|EcuadorBird|安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)|双重戏剧|![](/zh-CN/2025/04/202504161600EcuadorBird.jpg)|
+202504171600|GoremeTurkey|卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)|纪念历史|![](/zh-CN/2025/04/202504171600GoremeTurkey.jpg)|
