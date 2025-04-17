@@ -17,3 +17,4 @@
 202504140400|SpottedDolphins|Dauphins tachetés de l'Atlantique près de l'île de Santa Maria, Açores, Portugal (© Jordi Chias/Minden Pictures)|Plongez dans un monde « dauphin-tesque »!|![](/fr-CA/2025/04/202504140400SpottedDolphins.jpg)|
 202504150400|BeachArt|Beach art sur la plage de Sauveterre par Zarpo, Les Sables-d'Olonne, France (© Hemis/Alamy)|L'art transforme l'ordinaire en extraordinaire|![](/fr-CA/2025/04/202504150400BeachArt.jpg)|
 202504160400|KachinaBridge|Pont Kachina, monument national des National Bridges, Utah, États-Unis (© Alan Majchrowicz/Getty Images)|Là où la pierre rencontre les étoiles|![](/fr-CA/2025/04/202504160400KachinaBridge.jpg)|
+202504170400|EcuadorBird|Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)|Qui-va-là!|![](/fr-CA/2025/04/202504170400EcuadorBird.jpg)|
