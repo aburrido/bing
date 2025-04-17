@@ -18,3 +18,4 @@
 202504140700|SpottedDolphins|Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)|The chase begins!|![](/en-US/2025/04/202504140700SpottedDolphins.jpg)|
 202504150700|BeachArt|Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)|See Art, Do Art, Be Art|![](/en-US/2025/04/202504150700BeachArt.jpg)|
 202504160700|KachinaBridge|Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)|A passage through time|![](/en-US/2025/04/202504160700KachinaBridge.jpg)|
+202504170700|EcuadorBird|Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)|Double the drama|![](/en-US/2025/04/202504170700EcuadorBird.jpg)|
