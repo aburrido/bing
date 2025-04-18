@@ -19,3 +19,4 @@
 202504152200|BeachChairsSteinwarder|Strandkörbe vor der Seebrücke auf Steinwarder in Heiligenhafen, Schleswig-Holstein, Deutschland (© Frank Lukasseck/Huber/eStock Photo)|Ostseezauber|![](/de-DE/2025/04/202504152200BeachChairsSteinwarder.jpg)|
 202504162200|EcuadorBird|Andenfelsenhähne, Ecuador (© Kit Day/Alamy)|Dramatisches Duo|![](/de-DE/2025/04/202504162200EcuadorBird.jpg)|
 202504172200|GoremeTurkey|Heißluftballons über dem Nationalpark Göreme in Kappadokien, Türkei (© Anton Petrus/Getty Images)|Die Geschichte feiern|![](/de-DE/2025/04/202504172200GoremeTurkey.jpg)|
+202504182200|ZionValley|Zion-Nationalpark, Utah, USA (© Simon Dannhauer/Getty Images)|Beeindruckende Weiten und Tiefen|![](/de-DE/2025/04/202504182200ZionValley.jpg)|

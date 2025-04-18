@@ -19,3 +19,4 @@
 202504152200|ToulouseBridge|Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)|Quand Toulouse s’illumine au crépuscule|![](/fr-FR/2025/04/202504152200ToulouseBridge.jpg)|
 202504162200|EcuadorBird|Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)|Qui-va-là !|![](/fr-FR/2025/04/202504162200EcuadorBird.jpg)|
 202504172200|BelfortLion|Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)|Le gardien d’un passé héroïque|![](/fr-FR/2025/04/202504172200BelfortLion.jpg)|
+202504182200|ZionValley|Parc national de Zion, Utah, États-Unis (© Simon Dannhauer/Getty Images)|Un voyage au cœur de la roche vivante|![](/fr-FR/2025/04/202504182200ZionValley.jpg)|
