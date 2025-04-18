@@ -19,3 +19,4 @@
 202504151500|KachinaBridge|ナチュラル・ブリッジ国定公園, 米国 ユタ州 (© Alan Majchrowicz/Getty Images)|自然が作り上げた岩の橋|![](/ja-JP/2025/04/202504151500KachinaBridge.jpg)|
 202504161500|EcuadorBird|アンデスイワドリ, エクアドル (© Kit Day/Alamy)|明るく赤い鳥|![](/ja-JP/2025/04/202504161500EcuadorBird.jpg)|
 202504171500|GoremeTurkey|ギョレメ国立公園, トルコ (© Anton Petrus/Getty Images)|今日は「世界遺産の日」|![](/ja-JP/2025/04/202504171500GoremeTurkey.jpg)|
+202504181500|ZionValley|ザイオン国立公園, 米国 ユタ州 (© Simon Dannhauer/Getty Images)|今日から米国の国立公園週間|![](/ja-JP/2025/04/202504181500ZionValley.jpg)|
