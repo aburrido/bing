@@ -19,3 +19,4 @@
 202504151600|KachinaBridge|卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)|时光通道|![](/zh-CN/2025/04/202504151600KachinaBridge.jpg)|
 202504161600|EcuadorBird|安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)|双重戏剧|![](/zh-CN/2025/04/202504161600EcuadorBird.jpg)|
 202504171600|GoremeTurkey|卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)|纪念历史|![](/zh-CN/2025/04/202504171600GoremeTurkey.jpg)|
+202504181600|ZionValley|锡安国家公园，犹他州，美国 (© Simon Dannhauer/Getty Images)|国家公园周开始了|![](/zh-CN/2025/04/202504181600ZionValley.jpg)|
