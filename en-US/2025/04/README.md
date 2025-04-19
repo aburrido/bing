@@ -20,3 +20,4 @@
 202504160700|KachinaBridge|Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)|A passage through time|![](/en-US/2025/04/202504160700KachinaBridge.jpg)|
 202504170700|EcuadorBird|Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)|Double the drama|![](/en-US/2025/04/202504170700EcuadorBird.jpg)|
 202504180700|GoremeTurkey|Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Celebrating history|![](/en-US/2025/04/202504180700GoremeTurkey.jpg)|
+202504190700|ZionValley|Zion National Park, Utah (© Simon Dannhauer/Getty Images)|National Park Week begins|![](/en-US/2025/04/202504190700ZionValley.jpg)|
