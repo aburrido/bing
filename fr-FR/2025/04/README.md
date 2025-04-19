@@ -20,3 +20,4 @@
 202504162200|EcuadorBird|Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)|Qui-va-là !|![](/fr-FR/2025/04/202504162200EcuadorBird.jpg)|
 202504172200|BelfortLion|Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)|Le gardien d’un passé héroïque|![](/fr-FR/2025/04/202504172200BelfortLion.jpg)|
 202504182200|ZionValley|Parc national de Zion, Utah, États-Unis (© Simon Dannhauer/Getty Images)|Un voyage au cœur de la roche vivante|![](/fr-FR/2025/04/202504182200ZionValley.jpg)|
+202504192200|BunnyLove|Lapins de Garenne au printemps (© Fiona McAllister Photography/Getty Images)|Une ode à la nature|![](/fr-FR/2025/04/202504192200BunnyLove.jpg)|
