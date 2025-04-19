@@ -19,3 +19,4 @@
 202504160400|KachinaBridge|Pont Kachina, monument national des National Bridges, Utah, États-Unis (© Alan Majchrowicz/Getty Images)|Là où la pierre rencontre les étoiles|![](/fr-CA/2025/04/202504160400KachinaBridge.jpg)|
 202504170400|EcuadorBird|Coq-de-roche péruvien, Écuateur (© Kit Day/Alamy)|Qui-va-là!|![](/fr-CA/2025/04/202504170400EcuadorBird.jpg)|
 202504180400|GoremeTurkey|Montgolfières, parc national de Göreme, Cappadoce, Turquie (© Anton Petrus/Getty Images)|Á la découverte de notre patrimoine mondial|![](/fr-CA/2025/04/202504180400GoremeTurkey.jpg)|
+202504190400|ZionValley|Parc national de Zion, Utah, États-Unis (© Simon Dannhauer/Getty Images)|Un voyage au cœur de la roche vivante|![](/fr-CA/2025/04/202504190400ZionValley.jpg)|
