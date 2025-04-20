@@ -20,3 +20,4 @@
 202504170400|EcuadorBird|Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy Stock Photo)|Double the drama|![](/en-CA/2025/04/202504170400EcuadorBird.jpg)|
 202504180400|GoremeTurkey|Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Celebrating history|![](/en-CA/2025/04/202504180400GoremeTurkey.jpg)|
 202504190400|ZionValley|Zion National Park, Utah, United States (© Simon Dannhauer/Getty Images)|Utah's first national park|![](/en-CA/2025/04/202504190400ZionValley.jpg)|
+202504200400|BunnyLove|Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)|The Easter Bunny is coming to town|![](/en-CA/2025/04/202504200400BunnyLove.jpg)|
