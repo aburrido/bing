@@ -21,3 +21,4 @@
 202504172200|BelfortLion|Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)|Le gardien d’un passé héroïque|![](/fr-FR/2025/04/202504172200BelfortLion.jpg)|
 202504182200|ZionValley|Parc national de Zion, Utah, États-Unis (© Simon Dannhauer/Getty Images)|Un voyage au cœur de la roche vivante|![](/fr-FR/2025/04/202504182200ZionValley.jpg)|
 202504192200|BunnyLove|Lapins de Garenne au printemps (© Fiona McAllister Photography/Getty Images)|Une ode à la nature|![](/fr-FR/2025/04/202504192200BunnyLove.jpg)|
+202504202200|JoshuaStars|Arbres de Josué sous la Voie lactée, Californie, États-Unis (© Chao Zhang/Getty Images)|Le gardien de la Voie Lactée|![](/fr-FR/2025/04/202504202200JoshuaStars.jpg)|

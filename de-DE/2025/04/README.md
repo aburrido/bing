@@ -21,3 +21,4 @@
 202504172200|GoremeTurkey|Heißluftballons über dem Nationalpark Göreme in Kappadokien, Türkei (© Anton Petrus/Getty Images)|Die Geschichte feiern|![](/de-DE/2025/04/202504172200GoremeTurkey.jpg)|
 202504182200|ZionValley|Zion-Nationalpark, Utah, USA (© Simon Dannhauer/Getty Images)|Beeindruckende Weiten und Tiefen|![](/de-DE/2025/04/202504182200ZionValley.jpg)|
 202504192200|EastereggsTree|Viele bunt bemalte Ostereier an einem Apfelbaum (© Kerrick/Getty Images)|Frohe Ostern!|![](/de-DE/2025/04/202504192200EastereggsTree.jpg)|
+202504202200|JoshuaStars|Josuabäume unter der Milchstraße, Kalifornien, USA (© Chao Zhang/Getty Images)|Die Magie der Sterne|![](/de-DE/2025/04/202504202200JoshuaStars.jpg)|
