@@ -22,3 +22,4 @@
 202504180700|GoremeTurkey|Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Info|![](/en-AU/2025/04/202504180700GoremeTurkey.jpg)|
 202504190700|ZionValley|Zion National Park, Utah, United States (© Simon Dannhauer/Getty Images)|Info|![](/en-AU/2025/04/202504190700ZionValley.jpg)|
 202504200700|YellowWarbler|Yellow warbler in Canada (© mirceax/Getty Images)|Info|![](/en-AU/2025/04/202504200700YellowWarbler.jpg)|
+202504210700|JoshuaStars|Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)|Info|![](/en-AU/2025/04/202504210700JoshuaStars.jpg)|
