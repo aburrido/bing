@@ -22,3 +22,4 @@
 202504181830|ZionValley|Zion National Park, Utah, United States (© Simon Dannhauer/Getty Images)|Epic trails, endless views|![](/en-IN/2025/04/202504181830ZionValley.jpg)|
 202504191830|BunnyLove|Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)|The Easter Bunny is coming to town|![](/en-IN/2025/04/202504191830BunnyLove.jpg)|
 202504201830|JoshuaStars|Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)|Under the spell of the Milky Way|![](/en-IN/2025/04/202504201830JoshuaStars.jpg)|
+202504211830|YellowstoneSpring|Grand Prismatic Spring, Yellowstone National Park, Wyoming, United States (© Ajith Kumar/Getty Images)|'Our Power, Our Planet'|![](/en-IN/2025/04/202504211830YellowstoneSpring.jpg)|
