@@ -22,3 +22,4 @@
 202504181500|ZionValley|ザイオン国立公園, 米国 ユタ州 (© Simon Dannhauer/Getty Images)|今日から米国の国立公園週間|![](/ja-JP/2025/04/202504181500ZionValley.jpg)|
 202504191500|BunnyLove|野生の子ウサギ (© Fiona McAllister Photography/Getty Images)|今日はイースター|![](/ja-JP/2025/04/202504191500BunnyLove.jpg)|
 202504201500|JoshuaStars|ジョシュア・ツリー国立公園の天の川, 米国 カリフォルニア州 (© Chao Zhang/Getty Images)|今日から国際ダークスカイ・ウィーク|![](/ja-JP/2025/04/202504201500JoshuaStars.jpg)|
+202504211500|YellowstoneSpring|イエローストーン国立公園, 米国 ワイオミング州 (© Ajith Kumar/Getty Images)|今日は地球の日|![](/ja-JP/2025/04/202504211500YellowstoneSpring.jpg)|
