@@ -21,3 +21,4 @@
 202504180400|GoremeTurkey|Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)|Celebrating history|![](/en-CA/2025/04/202504180400GoremeTurkey.jpg)|
 202504190400|ZionValley|Zion National Park, Utah, United States (© Simon Dannhauer/Getty Images)|Utah's first national park|![](/en-CA/2025/04/202504190400ZionValley.jpg)|
 202504200400|BunnyLove|Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)|The Easter Bunny is coming to town|![](/en-CA/2025/04/202504200400BunnyLove.jpg)|
+202504210400|JoshuaStars|Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)|Under the spell of the Milky Way|![](/en-CA/2025/04/202504210400JoshuaStars.jpg)|

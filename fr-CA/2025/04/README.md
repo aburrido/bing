@@ -21,3 +21,4 @@
 202504180400|GoremeTurkey|Montgolfières, parc national de Göreme, Cappadoce, Turquie (© Anton Petrus/Getty Images)|Á la découverte de notre patrimoine mondial|![](/fr-CA/2025/04/202504180400GoremeTurkey.jpg)|
 202504190400|ZionValley|Parc national de Zion, Utah, États-Unis (© Simon Dannhauer/Getty Images)|Un voyage au cœur de la roche vivante|![](/fr-CA/2025/04/202504190400ZionValley.jpg)|
 202504200400|BunnyLove|Lapins de Garenne au printemps (© Fiona McAllister Photography/Getty Images)|Une ode à la nature|![](/fr-CA/2025/04/202504200400BunnyLove.jpg)|
+202504210400|JoshuaStars|Arbres de Josué sous la Voie lactée, Californie, États-Unis (© Chao Zhang/Getty Images)|Le gardien des ciels étoilés|![](/fr-CA/2025/04/202504210400JoshuaStars.jpg)|
