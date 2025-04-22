@@ -23,3 +23,4 @@
 202504191600|BunnyLove|春天里的野生小兔子 (© Fiona McAllister Photography/Getty Images)|复活节兔子要来了|![](/zh-CN/2025/04/202504191600BunnyLove.jpg)|
 202504201600|JoshuaStars|银河下的约书亚树，加利福尼亚州，美国 (© Chao Zhang/Getty Images)|银河的魔力之下|![](/zh-CN/2025/04/202504201600JoshuaStars.jpg)|
 202504211600|YellowstoneSpring|大棱镜彩泉，黄石国家公园，怀俄明州，美国 (© Ajith Kumar/Getty Images)|我们的能源，我们的星球|![](/zh-CN/2025/04/202504211600YellowstoneSpring.jpg)|
+202504221600|BeachChairsSteinwarder|海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国 (© Frank Lukasseck/eStock Photo)|波罗的海的魔力|![](/zh-CN/2025/04/202504221600BeachChairsSteinwarder.jpg)|
