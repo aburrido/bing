@@ -23,3 +23,4 @@
 202504190700|ZionValley|Zion National Park, Utah (© Simon Dannhauer/Getty Images)|National Park Week begins|![](/en-US/2025/04/202504190700ZionValley.jpg)|
 202504200700|BunnyLove|Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)|The Easter Bunny is coming to town|![](/en-US/2025/04/202504200700BunnyLove.jpg)|
 202504210700|JoshuaStars|Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)|Under the spell of the Milky Way|![](/en-US/2025/04/202504210700JoshuaStars.jpg)|
+202504220700|YellowstoneSpring|Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)|'Our Power, Our Planet'|![](/en-US/2025/04/202504220700YellowstoneSpring.jpg)|
