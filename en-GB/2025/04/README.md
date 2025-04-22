@@ -23,3 +23,4 @@
 202504192300|BunnyLove|Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)|The Easter Bunny is coming to town|![](/en-GB/2025/04/202504192300BunnyLove.jpg)|
 202504202300|JoshuaStars|Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)|Under the spell of the Milky Way|![](/en-GB/2025/04/202504202300JoshuaStars.jpg)|
 202504212300|YellowstoneSpring|Grand Prismatic Spring, Yellowstone National Park, Wyoming, United States (© Ajith Kumar/Getty Images)|'Our Power, Our Planet'|![](/en-GB/2025/04/202504212300YellowstoneSpring.jpg)|
+202504222300|StGeorgeDay2025|A large mechanical dragon at Saint George's Day celebrations (© MediaWorldImages/Alamy Stock Photo)|Happy Saint George's Day!|![](/en-GB/2025/04/202504222300StGeorgeDay2025.jpg)|
