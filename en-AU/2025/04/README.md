@@ -24,3 +24,4 @@
 202504200700|YellowWarbler|Yellow warbler in Canada (© mirceax/Getty Images)|Info|![](/en-AU/2025/04/202504200700YellowWarbler.jpg)|
 202504210700|JoshuaStars|Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)|Info|![](/en-AU/2025/04/202504210700JoshuaStars.jpg)|
 202504220700|YellowstoneSpring|Grand Prismatic Spring, Yellowstone National Park, Wyoming, United States (© Ajith Kumar/Getty Images)|Info|![](/en-AU/2025/04/202504220700YellowstoneSpring.jpg)|
+202504230700|BeachChairsSteinwarder|Beach chairs on Steinwarder in Heiligenhafen, Schleswig-Holstein, Germany (© Frank Lukasseck/eStock Photo)|Info|![](/en-AU/2025/04/202504230700BeachChairsSteinwarder.jpg)|
