@@ -23,3 +23,4 @@
 202504200400|BunnyLove|Lapins de Garenne au printemps (© Fiona McAllister Photography/Getty Images)|Une ode à la nature|![](/fr-CA/2025/04/202504200400BunnyLove.jpg)|
 202504210400|JoshuaStars|Arbres de Josué sous la Voie lactée, Californie, États-Unis (© Chao Zhang/Getty Images)|Le gardien des ciels étoilés|![](/fr-CA/2025/04/202504210400JoshuaStars.jpg)|
 202504220400|YellowstoneSpring|Grand Prismatic Spring, parc national de Yellowstone, Wyoming, États-Unis (© Ajith Kumar/Getty Images)|La planète en ébullition|![](/fr-CA/2025/04/202504220400YellowstoneSpring.jpg)|
+202504230400|GlobeTheatre|Théâtre du Globe, Londres, Angleterre (© Peter Dazeley/Getty Images)|Le verbe de Shakespeare en héritage|![](/fr-CA/2025/04/202504230400GlobeTheatre.jpg)|
