@@ -24,3 +24,4 @@
 202504202200|JoshuaStars|Josuabäume unter der Milchstraße, Kalifornien, USA (© Chao Zhang/Getty Images)|Die Magie der Sterne|![](/de-DE/2025/04/202504202200JoshuaStars.jpg)|
 202504212200|YellowstoneSpring|Grand Prismatic Spring, Yellowstone-Nationalpark, Wyoming, USA (© Ajith Kumar/Getty Images)|Veränderung beginnt mit Engagement|![](/de-DE/2025/04/202504212200YellowstoneSpring.jpg)|
 202504222200|GlobeTheatre|Shakespeares Globe Theatre, London, England (© Peter Dazeley/Getty Images)|Viel Lärm um Shakespeare|![](/de-DE/2025/04/202504222200GlobeTheatre.jpg)|
+202504232200|KenaiSpires|Spire Cove im Kenai-Fjords-Nationalpark, Seward, Alaska, USA (© Wander Photography/Getty Images)|Raue Gipfel und wilde Gewässer|![](/de-DE/2025/04/202504232200KenaiSpires.jpg)|
