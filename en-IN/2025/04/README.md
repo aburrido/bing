@@ -24,3 +24,4 @@
 202504201830|JoshuaStars|Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)|Under the spell of the Milky Way|![](/en-IN/2025/04/202504201830JoshuaStars.jpg)|
 202504211830|YellowstoneSpring|Grand Prismatic Spring, Yellowstone National Park, Wyoming, United States (© Ajith Kumar/Getty Images)|'Our Power, Our Planet'|![](/en-IN/2025/04/202504211830YellowstoneSpring.jpg)|
 202504221830|GlobeTheatre|Shakespeare's Globe Theatre, London, England (© Peter Dazeley/Getty Images)|Much ado about Shakespeare|![](/en-IN/2025/04/202504221830GlobeTheatre.jpg)|
+202504231830|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)|Rugged peaks and wild waters|![](/en-IN/2025/04/202504231830KenaiSpires.jpg)|
