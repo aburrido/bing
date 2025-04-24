@@ -25,3 +25,4 @@
 202504211500|YellowstoneSpring|イエローストーン国立公園, 米国 ワイオミング州 (© Ajith Kumar/Getty Images)|今日は地球の日|![](/ja-JP/2025/04/202504211500YellowstoneSpring.jpg)|
 202504221500|GlobeTheatre|シェイクスピアズ・グローブ, イギリス ロンドン (© Peter Dazeley/Getty Images)|今日はシェイクスピアの命日|![](/ja-JP/2025/04/202504221500GlobeTheatre.jpg)|
 202504231500|KenaiSpires|キーナイ・フィヨルド国立公園, 米国 アラスカ州 (© Wander Photography/Getty Images)|山水画のような険しい奇岩|![](/ja-JP/2025/04/202504231500KenaiSpires.jpg)|
+202504241500|MagellanicPenguin|フォークランド諸島のマゼランペンギン, イギリス (© imageBROKER/Matthias Graben/Getty Images)|今日は世界ペンギンの日|![](/ja-JP/2025/04/202504241500MagellanicPenguin.jpg)|
