@@ -25,3 +25,4 @@
 202504212200|YellowstoneSpring|Grand Prismatic Spring, parc national de Yellowstone, Wyoming, États-Unis (© Ajith Kumar/Getty Images)|La planète en ébullition|![](/fr-FR/2025/04/202504212200YellowstoneSpring.jpg)|
 202504222200|GlobeTheatre|Théâtre du Globe, Londres, Angleterre (© Peter Dazeley/Getty Images)|Le verbe de Shakespeare en héritage|![](/fr-FR/2025/04/202504222200GlobeTheatre.jpg)|
 202504232200|KenaiSpires|Spire Cove, parc national des fjords de Kenai, Alaska, États-Unis (© Wander Photography/Getty Images)|Kenai, là où la glace rencontre l’océan|![](/fr-FR/2025/04/202504232200KenaiSpires.jpg)|
+202504242200|MagellanicPenguin|Manchots de Magellan, Volunteer Point, îles Malouines (© imageBROKER/Matthias Graben/Getty Images)|Les manchots, sentinelles du Sud|![](/fr-FR/2025/04/202504242200MagellanicPenguin.jpg)|
