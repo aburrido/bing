@@ -26,3 +26,4 @@
 202504222200|GlobeTheatre|Shakespeares Globe Theatre, London, England (© Peter Dazeley/Getty Images)|Viel Lärm um Shakespeare|![](/de-DE/2025/04/202504222200GlobeTheatre.jpg)|
 202504232200|KenaiSpires|Spire Cove im Kenai-Fjords-Nationalpark, Seward, Alaska, USA (© Wander Photography/Getty Images)|Raue Gipfel und wilde Gewässer|![](/de-DE/2025/04/202504232200KenaiSpires.jpg)|
 202504242200|MagellanicPenguin|Magellanpinguine, Volunteer Point, Falklandinseln (© imageBROKER/Matthias Graben/Getty Images)|Matrosen im Smoking|![](/de-DE/2025/04/202504242200MagellanicPenguin.jpg)|
+202504252200|BrucePeninsula|Indian Head Cove, Bruce-Peninsula-Nationalpark, Ontario, Kanada (© Maurice Prokaziuk/Getty Images) (© Maurice Prokaziuk/Getty Images)|Klippen, Höhlen und klares Wasser|![](/de-DE/2025/04/202504252200BrucePeninsula.jpg)|
