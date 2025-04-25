@@ -26,3 +26,4 @@
 202504222300|StGeorgeDay2025|A large mechanical dragon at Saint George's Day celebrations (© MediaWorldImages/Alamy Stock Photo)|Happy Saint George's Day!|![](/en-GB/2025/04/202504222300StGeorgeDay2025.jpg)|
 202504232300|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)|Rugged peaks and wild waters|![](/en-GB/2025/04/202504232300KenaiSpires.jpg)|
 202504242300|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Tuxedoed mariners|![](/en-GB/2025/04/202504242300MagellanicPenguin.jpg)|
+202504252300|BrucePeninsula|Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|Cliffs, caves and clear waters|![](/en-GB/2025/04/202504252300BrucePeninsula.jpg)|
