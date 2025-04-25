@@ -26,3 +26,4 @@
 202504220700|YellowstoneSpring|Grand Prismatic Spring, Yellowstone National Park, Wyoming, United States (© Ajith Kumar/Getty Images)|Info|![](/en-AU/2025/04/202504220700YellowstoneSpring.jpg)|
 202504230700|BeachChairsSteinwarder|Beach chairs on Steinwarder in Heiligenhafen, Schleswig-Holstein, Germany (© Frank Lukasseck/eStock Photo)|Info|![](/en-AU/2025/04/202504230700BeachChairsSteinwarder.jpg)|
 202504240700|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)|Info|![](/en-AU/2025/04/202504240700KenaiSpires.jpg)|
+202504250700|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Info|![](/en-AU/2025/04/202504250700MagellanicPenguin.jpg)|
