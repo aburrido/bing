@@ -27,3 +27,4 @@
 202504230700|BeachChairsSteinwarder|Beach chairs on Steinwarder in Heiligenhafen, Schleswig-Holstein, Germany (© Frank Lukasseck/eStock Photo)|Info|![](/en-AU/2025/04/202504230700BeachChairsSteinwarder.jpg)|
 202504240700|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)|Info|![](/en-AU/2025/04/202504240700KenaiSpires.jpg)|
 202504250700|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Info|![](/en-AU/2025/04/202504250700MagellanicPenguin.jpg)|
+202504260700|BrucePeninsula|Indian Head Cove, Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|Info|![](/en-AU/2025/04/202504260700BrucePeninsula.jpg)|
