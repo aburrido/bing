@@ -26,3 +26,4 @@
 202504230400|GlobeTheatre|Shakespeare's Globe Theatre, London, England (© Peter Dazeley/Getty Images)|Much ado about Shakespeare|![](/en-CA/2025/04/202504230400GlobeTheatre.jpg)|
 202504240400|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)|Rugged peaks and wild waters|![](/en-CA/2025/04/202504240400KenaiSpires.jpg)|
 202504250400|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Tuxedoed mariners|![](/en-CA/2025/04/202504250400MagellanicPenguin.jpg)|
+202504260400|BrucePeninsula|Bruce Peninsula National Park, Ontario (© Maurice Prokaziuk/Getty Images)|Cliffs, caves and clear waters|![](/en-CA/2025/04/202504260400BrucePeninsula.jpg)|
