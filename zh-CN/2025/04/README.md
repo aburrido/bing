@@ -27,3 +27,4 @@
 202504231600|KenaiSpires|阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国 (© Wander Photography/Getty Images)|崎岖山峰与野性水域|![](/zh-CN/2025/04/202504231600KenaiSpires.jpg)|
 202504241600|MagellanicPenguin|麦哲伦企鹅, 志愿者角, 福克兰群岛 (© imageBROKER/Matthias Graben/Getty Images)|身着燕尾服的水手们|![](/zh-CN/2025/04/202504241600MagellanicPenguin.jpg)|
 202504251600|BrucePeninsula|印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大 (© Maurice Prokaziuk/Getty Images)|悬崖、洞穴与清澈的水域|![](/zh-CN/2025/04/202504251600BrucePeninsula.jpg)|
+202504261600|RedwoodGrove|红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)|就在这里驻足吧|![](/zh-CN/2025/04/202504261600RedwoodGrove.jpg)|
