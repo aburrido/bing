@@ -27,3 +27,4 @@
 202504231830|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska, United States (© Wander Photography/Getty Images)|Rugged peaks and wild waters|![](/en-IN/2025/04/202504231830KenaiSpires.jpg)|
 202504241830|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Tuxedoed mariners|![](/en-IN/2025/04/202504241830MagellanicPenguin.jpg)|
 202504251830|BrucePeninsula|Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|Cliffs, caves and clear waters|![](/en-IN/2025/04/202504251830BrucePeninsula.jpg)|
+202504261830|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)|Park it here|![](/en-IN/2025/04/202504261830RedwoodGrove.jpg)|
