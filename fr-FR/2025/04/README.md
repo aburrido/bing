@@ -27,3 +27,4 @@
 202504232200|KenaiSpires|Spire Cove, parc national des fjords de Kenai, Alaska, États-Unis (© Wander Photography/Getty Images)|Kenai, là où la glace rencontre l’océan|![](/fr-FR/2025/04/202504232200KenaiSpires.jpg)|
 202504242200|MagellanicPenguin|Manchots de Magellan, Volunteer Point, îles Malouines (© imageBROKER/Matthias Graben/Getty Images)|Les manchots, sentinelles du Sud|![](/fr-FR/2025/04/202504242200MagellanicPenguin.jpg)|
 202504252200|BrucePeninsula|Indian Head Cove, parc national de la Péninsule-Bruce, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|La perle turquoise du Canada|![](/fr-FR/2025/04/202504252200BrucePeninsula.jpg)|
+202504262200|RedwoodGrove|Bosquet de séquoias côtiers dans les parcs nationaux de Redwood, Californie, États-Unis (© Bob Pool/Getty Images)|Les géants de la côte californienne|![](/fr-FR/2025/04/202504262200RedwoodGrove.jpg)|
