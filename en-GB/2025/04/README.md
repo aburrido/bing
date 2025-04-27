@@ -28,3 +28,4 @@
 202504242300|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Tuxedoed mariners|![](/en-GB/2025/04/202504242300MagellanicPenguin.jpg)|
 202504252300|BrucePeninsula|Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|Cliffs, caves and clear waters|![](/en-GB/2025/04/202504252300BrucePeninsula.jpg)|
 202504262300|LondonMarathon2025|Tower Bridge in London, England (© Remedios/iStock/Getty Images)|Lace up, London!|![](/en-GB/2025/04/202504262300LondonMarathon2025.jpg)|
+202504272300|OrangeImpala|Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Pause and pose|![](/en-GB/2025/04/202504272300OrangeImpala.jpg)|
