@@ -28,3 +28,4 @@
 202504240700|KenaiSpires|Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)|Rugged peaks and wild waters|![](/en-US/2025/04/202504240700KenaiSpires.jpg)|
 202504250700|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Tuxedoed mariners|![](/en-US/2025/04/202504250700MagellanicPenguin.jpg)|
 202504260700|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)|Park it here|![](/en-US/2025/04/202504260700RedwoodGrove.jpg)|
+202504270700|KilaueaCaldera|Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)|A scene of wild beauty|![](/en-US/2025/04/202504270700KilaueaCaldera.jpg)|
