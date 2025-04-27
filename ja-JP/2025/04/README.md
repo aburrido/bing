@@ -28,3 +28,4 @@
 202504241500|MagellanicPenguin|フォークランド諸島のマゼランペンギン, イギリス (© imageBROKER/Matthias Graben/Getty Images)|今日は世界ペンギンの日|![](/ja-JP/2025/04/202504241500MagellanicPenguin.jpg)|
 202504251500|MaligneLakeJasper|ジャスパー国立公園, カナダ アルバータ州 (© Mumemories/Getty Images)|オーロラの光に照らされる湖|![](/ja-JP/2025/04/202504251500MaligneLakeJasper.jpg)|
 202504261500|RedwoodGrove|レッドウッド国立公園, 米国 カリフォルニア州 (© Bob Pool/Getty Images)|今日は米国の国立公園週間の最終日|![](/ja-JP/2025/04/202504261500RedwoodGrove.jpg)|
+202504271500|OrangeImpala|インパラ, ボツワナ (© Paul Souders/Getty Images)|アフリカの美しきジャンパー|![](/ja-JP/2025/04/202504271500OrangeImpala.jpg)|
