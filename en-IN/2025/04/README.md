@@ -28,3 +28,4 @@
 202504241830|MagellanicPenguin|Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)|Tuxedoed mariners|![](/en-IN/2025/04/202504241830MagellanicPenguin.jpg)|
 202504251830|BrucePeninsula|Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|Cliffs, caves and clear waters|![](/en-IN/2025/04/202504251830BrucePeninsula.jpg)|
 202504261830|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)|Park it here|![](/en-IN/2025/04/202504261830RedwoodGrove.jpg)|
+202504271830|OrangeImpala|Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Pause and pose|![](/en-IN/2025/04/202504271830OrangeImpala.jpg)|
