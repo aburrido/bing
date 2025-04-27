@@ -28,3 +28,4 @@
 202504242200|MagellanicPenguin|Magellanpinguine, Volunteer Point, Falklandinseln (© imageBROKER/Matthias Graben/Getty Images)|Matrosen im Smoking|![](/de-DE/2025/04/202504242200MagellanicPenguin.jpg)|
 202504252200|BrucePeninsula|Indian Head Cove, Bruce-Peninsula-Nationalpark, Ontario, Kanada (© Maurice Prokaziuk/Getty Images) (© Maurice Prokaziuk/Getty Images)|Klippen, Höhlen und klares Wasser|![](/de-DE/2025/04/202504252200BrucePeninsula.jpg)|
 202504262200|LuebeckHouses|Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)|Mauern, die Geschichten erzählen|![](/de-DE/2025/04/202504262200LuebeckHouses.jpg)|
+202504272200|OrangeImpala|Impala im Moremi-Wildreservat, Botswana (© Paul Souders/Getty Images)|Wachsamer Anpassungskünstler|![](/de-DE/2025/04/202504272200OrangeImpala.jpg)|
