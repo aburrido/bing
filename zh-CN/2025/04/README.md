@@ -29,3 +29,4 @@
 202504251600|BrucePeninsula|印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大 (© Maurice Prokaziuk/Getty Images)|悬崖、洞穴与清澈的水域|![](/zh-CN/2025/04/202504251600BrucePeninsula.jpg)|
 202504261600|RedwoodGrove|红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)|就在这里驻足吧|![](/zh-CN/2025/04/202504261600RedwoodGrove.jpg)|
 202504271600|OrangeImpala|莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)|这只黑斑羚正在何处漫游？|![](/zh-CN/2025/04/202504271600OrangeImpala.jpg)|
+202504281600|GardensVillandry|维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)|几何之美绽放于此|![](/zh-CN/2025/04/202504281600GardensVillandry.jpg)|
