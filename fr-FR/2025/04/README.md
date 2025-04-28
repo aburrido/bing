@@ -29,3 +29,4 @@
 202504252200|BrucePeninsula|Indian Head Cove, parc national de la Péninsule-Bruce, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|La perle turquoise du Canada|![](/fr-FR/2025/04/202504252200BrucePeninsula.jpg)|
 202504262200|RedwoodGrove|Bosquet de séquoias côtiers dans les parcs nationaux de Redwood, Californie, États-Unis (© Bob Pool/Getty Images)|Les géants de la côte californienne|![](/fr-FR/2025/04/202504262200RedwoodGrove.jpg)|
 202504272200|OrangeImpala|Impala dans la réserve de Moremi, Botswana (© Paul Souders/Getty Images)|L’impala ou l’élégance incarnée|![](/fr-FR/2025/04/202504272200OrangeImpala.jpg)|
+202504282200|GardensVillandry|Jardins du château de Villandry, Vallée de la Loire (© Mint Images/Getty Images)|L’art du jardin à la française|![](/fr-FR/2025/04/202504282200GardensVillandry.jpg)|
