@@ -29,3 +29,4 @@
 202504260400|BrucePeninsula|Bruce Peninsula National Park, Ontario (© Maurice Prokaziuk/Getty Images)|Cliffs, caves and clear waters|![](/en-CA/2025/04/202504260400BrucePeninsula.jpg)|
 202504270400|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)|Park it here|![](/en-CA/2025/04/202504270400RedwoodGrove.jpg)|
 202504280400|OrangeImpala|Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Pause and pose|![](/en-CA/2025/04/202504280400OrangeImpala.jpg)|
+202504290400|GardensVillandry|Formal Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)|Geometry in bloom|![](/en-CA/2025/04/202504290400GardensVillandry.jpg)|
