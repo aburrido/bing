@@ -30,3 +30,4 @@
 202504260700|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)|Park it here|![](/en-US/2025/04/202504260700RedwoodGrove.jpg)|
 202504270700|KilaueaCaldera|Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)|A scene of wild beauty|![](/en-US/2025/04/202504270700KilaueaCaldera.jpg)|
 202504280700|OrangeImpala|Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Pause and pose|![](/en-US/2025/04/202504280700OrangeImpala.jpg)|
+202504290700|GardensVillandry|Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)|Geometry in bloom|![](/en-US/2025/04/202504290700GardensVillandry.jpg)|

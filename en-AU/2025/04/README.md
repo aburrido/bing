@@ -30,3 +30,4 @@
 202504260700|BrucePeninsula|Indian Head Cove, Bruce Peninsula National Park, Ontario, Canada (© Maurice Prokaziuk/Getty Images)|Info|![](/en-AU/2025/04/202504260700BrucePeninsula.jpg)|
 202504270700|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)|Info|![](/en-AU/2025/04/202504270700RedwoodGrove.jpg)|
 202504280700|OrangeImpala|Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Info|![](/en-AU/2025/04/202504280700OrangeImpala.jpg)|
+202504290700|GardensVillandry|Formal Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)|Info|![](/en-AU/2025/04/202504290700GardensVillandry.jpg)|
