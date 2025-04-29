@@ -30,3 +30,4 @@
 202504261500|RedwoodGrove|レッドウッド国立公園, 米国 カリフォルニア州 (© Bob Pool/Getty Images)|今日は米国の国立公園週間の最終日|![](/ja-JP/2025/04/202504261500RedwoodGrove.jpg)|
 202504271500|OrangeImpala|インパラ, ボツワナ (© Paul Souders/Getty Images)|アフリカの美しきジャンパー|![](/ja-JP/2025/04/202504271500OrangeImpala.jpg)|
 202504281500|GardensVillandry|ヴィランドリー城, フランス (© Mint Images/Getty Images)|絢爛たる迷宮庭園|![](/ja-JP/2025/04/202504281500GardensVillandry.jpg)|
+202504291500|ColtraneBand|サックス奏者ジョン・コルトレーンと彼のバンド, イギリス ロンドン (© Popperfoto/Getty Images)|今日は「国際ジャズ・デー」|![](/ja-JP/2025/04/202504291500ColtraneBand.jpg)|
