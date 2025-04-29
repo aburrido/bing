@@ -30,3 +30,4 @@
 202504261830|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)|Park it here|![](/en-IN/2025/04/202504261830RedwoodGrove.jpg)|
 202504271830|OrangeImpala|Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Pause and pose|![](/en-IN/2025/04/202504271830OrangeImpala.jpg)|
 202504281830|GardensVillandry|Formal Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)|Geometry in bloom|![](/en-IN/2025/04/202504281830GardensVillandry.jpg)|
+202504291830|ColtraneBand|Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)|All that jazz and more|![](/en-IN/2025/04/202504291830ColtraneBand.jpg)|
