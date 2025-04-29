@@ -30,3 +30,4 @@
 202504261600|RedwoodGrove|红木国家公园和州立公园, 加利福尼亚州, 美国 (© Bob Pool/Getty Images)|就在这里驻足吧|![](/zh-CN/2025/04/202504261600RedwoodGrove.jpg)|
 202504271600|OrangeImpala|莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)|这只黑斑羚正在何处漫游？|![](/zh-CN/2025/04/202504271600OrangeImpala.jpg)|
 202504281600|GardensVillandry|维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)|几何之美绽放于此|![](/zh-CN/2025/04/202504281600GardensVillandry.jpg)|
+202504291600|FozdoIguacu2025|从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)|瀑布声在各国间回响|![](/zh-CN/2025/04/202504291600FozdoIguacu2025.jpg)|
