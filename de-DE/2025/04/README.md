@@ -30,3 +30,4 @@
 202504262200|LuebeckHouses|Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)|Mauern, die Geschichten erzählen|![](/de-DE/2025/04/202504262200LuebeckHouses.jpg)|
 202504272200|OrangeImpala|Impala im Moremi-Wildreservat, Botswana (© Paul Souders/Getty Images)|Wachsamer Anpassungskünstler|![](/de-DE/2025/04/202504272200OrangeImpala.jpg)|
 202504282200|GardensVillandry|Château de Villandry, Loiretal, Frankreich (© Mint Images/Getty Images)|Geometrie in Blüte|![](/de-DE/2025/04/202504282200GardensVillandry.jpg)|
+202504292200|ColtraneBand|Jazz-Saxophonist John Coltrane und Band bei einem Auftritt 1961 in London, England (© Popperfoto/Getty Images)|Jazz ist die Musik der Seele|![](/de-DE/2025/04/202504292200ColtraneBand.jpg)|
