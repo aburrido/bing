@@ -31,3 +31,4 @@
 202504271500|OrangeImpala|インパラ, ボツワナ (© Paul Souders/Getty Images)|アフリカの美しきジャンパー|![](/ja-JP/2025/04/202504271500OrangeImpala.jpg)|
 202504281500|GardensVillandry|ヴィランドリー城, フランス (© Mint Images/Getty Images)|絢爛たる迷宮庭園|![](/ja-JP/2025/04/202504281500GardensVillandry.jpg)|
 202504291500|ColtraneBand|サックス奏者ジョン・コルトレーンと彼のバンド, イギリス ロンドン (© Popperfoto/Getty Images)|今日は「国際ジャズ・デー」|![](/ja-JP/2025/04/202504291500ColtraneBand.jpg)|
+202504301500|Hachijyuhachi2025|大淵笹場の茶畑, 静岡県 富士市 (© 7maru/Getty Images)|今日は八十八夜|![](/ja-JP/2025/04/202504301500Hachijyuhachi2025.jpg)|
