@@ -30,3 +30,4 @@
 202504270400|RedwoodGrove|Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)|Park it here|![](/en-CA/2025/04/202504270400RedwoodGrove.jpg)|
 202504280400|OrangeImpala|Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)|Pause and pose|![](/en-CA/2025/04/202504280400OrangeImpala.jpg)|
 202504290400|GardensVillandry|Formal Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)|Geometry in bloom|![](/en-CA/2025/04/202504290400GardensVillandry.jpg)|
+202504300400|ColtraneBand|Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)|All that jazz and more|![](/en-CA/2025/04/202504300400ColtraneBand.jpg)|
