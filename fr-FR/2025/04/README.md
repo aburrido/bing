@@ -31,3 +31,4 @@
 202504272200|OrangeImpala|Impala dans la réserve de Moremi, Botswana (© Paul Souders/Getty Images)|L’impala ou l’élégance incarnée|![](/fr-FR/2025/04/202504272200OrangeImpala.jpg)|
 202504282200|GardensVillandry|Jardins du château de Villandry, Vallée de la Loire (© Mint Images/Getty Images)|L’art du jardin à la française|![](/fr-FR/2025/04/202504282200GardensVillandry.jpg)|
 202504292200|Pheasant|Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)|Le charmeur discret de nos campagnes|![](/fr-FR/2025/04/202504292200Pheasant.jpg)|
+202504302200|PinkPlumeria|Fleurs de frangipanier, Hawaï, États-Unis (© Miranda Jans/Getty Images)|Dites-le avec Aloha !|![](/fr-FR/2025/04/202504302200PinkPlumeria.jpg)|

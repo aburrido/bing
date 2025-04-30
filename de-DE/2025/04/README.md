@@ -31,3 +31,4 @@
 202504272200|OrangeImpala|Impala im Moremi-Wildreservat, Botswana (© Paul Souders/Getty Images)|Wachsamer Anpassungskünstler|![](/de-DE/2025/04/202504272200OrangeImpala.jpg)|
 202504282200|GardensVillandry|Château de Villandry, Loiretal, Frankreich (© Mint Images/Getty Images)|Geometrie in Blüte|![](/de-DE/2025/04/202504282200GardensVillandry.jpg)|
 202504292200|ColtraneBand|Jazz-Saxophonist John Coltrane und Band bei einem Auftritt 1961 in London, England (© Popperfoto/Getty Images)|Jazz ist die Musik der Seele|![](/de-DE/2025/04/202504292200ColtraneBand.jpg)|
+202504302200|PinkPlumeria|Plumeria-Blumen, Hawaii, USA (© Miranda Jans/Getty Images)|Aloha!|![](/de-DE/2025/04/202504302200PinkPlumeria.jpg)|
