@@ -4,3 +4,4 @@
 202505012200|BrazilHeron|Héron strié sur un nénuphar Victoria, Pantanal, Brésil (© Gerald Corsi/Getty Images)|Un, deux, trois… soleil !|![](/fr-FR/2025/05/202505012200BrazilHeron.jpg)|
 202505022200|ArchesGalaxy|Voie lactée encadrée par Double Arch, parc national des Arches, Utah, États-Unis (© Adventure_Photo/Getty Images)|Une fenêtre vers l'infini|![](/fr-FR/2025/05/202505022200ArchesGalaxy.jpg)|
 202505032200|SevilleNaboo|Place d'Espagne, Séville, Espagne (© Horia Merla/Getty Images)|Séville, entre étoiles et sabres laser !|![](/fr-FR/2025/05/202505032200SevilleNaboo.jpg)|
+202505042200|RhyoliteDonkeys|Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)|Un symbole de résilience et de force|![](/fr-FR/2025/05/202505042200RhyoliteDonkeys.jpg)|
