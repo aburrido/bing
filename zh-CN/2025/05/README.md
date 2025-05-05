@@ -5,3 +5,4 @@
 202505021600|ArchesGalaxy|拱门国家公园双拱门映衬下的银河，犹他州，美国 (© Adventure_Photo/Getty Images)|让我们一起庆祝宇宙|![](/zh-CN/2025/05/202505021600ArchesGalaxy.jpg)|
 202505031600|SevilleNaboo|西班牙广场，塞维利亚，西班牙 (© Horia Merla/Getty Images)|欢迎来到纳布星球！|![](/zh-CN/2025/05/202505031600SevilleNaboo.jpg)|
 202505041600|BeginningofSummer25Y|日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)|秀美壮丽的山河|![](/zh-CN/2025/05/202505041600BeginningofSummer25Y.jpg)|
+202505051600|FlyoverNamibia|一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)|不一般的沙漠之旅|![](/zh-CN/2025/05/202505051600FlyoverNamibia.jpg)|
