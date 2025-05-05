@@ -5,3 +5,4 @@
 202505021830|ArchesGalaxy|The Milky Way framed by Double Arch in Arches National Park, Utah, United States (© Adventure_Photo/Getty Images)|Let's celebrate the cosmos|![](/en-IN/2025/05/202505021830ArchesGalaxy.jpg)|
 202505031830|MysorePalace|Mysuru Palace, Mysuru, Karnataka (© Amith Nag Photography/Getty Images)|Golden hour in royal light|![](/en-IN/2025/05/202505031830MysorePalace.jpg)|
 202505041830|DunluceIreland|Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)|Castle on the rocks|![](/en-IN/2025/05/202505041830DunluceIreland.jpg)|
+202505051830|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)|Not your average desert trip|![](/en-IN/2025/05/202505051830FlyoverNamibia.jpg)|
