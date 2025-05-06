@@ -6,3 +6,4 @@
 202505030700|ArchesGalaxy|The Milky Way framed by Double Arch in Arches National Park, Utah, United States (© Adventure_Photo/Getty Images)|Info|![](/en-AU/2025/05/202505030700ArchesGalaxy.jpg)|
 202505040700|SevilleNaboo|Plaza de España, Seville, Spain (© Horia Merla/Getty Images)|Info|![](/en-AU/2025/05/202505040700SevilleNaboo.jpg)|
 202505050700|YohoNP|Mount Burgess and Emerald Lake in Yoho National Park, British Columbia, Canada (© Feng Wei Photography/Getty Images)|Info|![](/en-AU/2025/05/202505050700YohoNP.jpg)|
+202505060700|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)|Info|![](/en-AU/2025/05/202505060700FlyoverNamibia.jpg)|

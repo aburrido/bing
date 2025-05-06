@@ -6,3 +6,4 @@
 202505030700|ArchesGalaxy|The Milky Way framed by Double Arch in Arches National Park, Utah (© Adventure_Photo/Getty Images)|Let's celebrate the cosmos|![](/en-US/2025/05/202505030700ArchesGalaxy.jpg)|
 202505040700|SevilleNaboo|Plaza de España, Seville, Spain (© Horia Merla/Getty Images)|Welcome to planet Naboo!|![](/en-US/2025/05/202505040700SevilleNaboo.jpg)|
 202505050700|CincoFlags|Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)|Viva Mexico!|![](/en-US/2025/05/202505050700CincoFlags.jpg)|
+202505060700|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)|Not your average desert trip|![](/en-US/2025/05/202505060700FlyoverNamibia.jpg)|
