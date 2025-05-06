@@ -6,3 +6,4 @@
 202505031500|GreeneryDay2025|屋久島, 鹿児島県 (© oxico/Getty Images)|今日はみどりの日|![](/ja-JP/2025/05/202505031500GreeneryDay2025.jpg)|
 202505041500|Koinobori2025|東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)|今日はこどもの日|![](/ja-JP/2025/05/202505041500Koinobori2025.jpg)|
 202505051500|FlyoverNamibia|ナミブ砂漠, ナミビア (© Burt Johnson/Alamy)|上空を舞う超軽量動力機|![](/ja-JP/2025/05/202505051500FlyoverNamibia.jpg)|
+202505061500|DunluceIreland|ダンルース城, イギリス (© DieterMeyrl/Getty Images)|海岸の断崖絶壁に建つ中世の城|![](/ja-JP/2025/05/202505061500DunluceIreland.jpg)|
