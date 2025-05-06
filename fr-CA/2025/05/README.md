@@ -5,3 +5,4 @@
 202505030400|ArchesGalaxy|Voie lactée encadrée par Double Arch, parc national des Arches, Utah, États-Unis (© Adventure_Photo/Getty Images)|Une fenêtre vers l'infini|![](/fr-CA/2025/05/202505030400ArchesGalaxy.jpg)|
 202505040400|SevilleNaboo|Place d'Espagne, Séville, Espagne (© Horia Merla/Getty Images)|Séville, entre étoiles et sabres laser!|![](/fr-CA/2025/05/202505040400SevilleNaboo.jpg)|
 202505050400|TorresChile|Parc national Torres del Paine, Patagonie, Chili (© Marco Bottigelli/Getty Images)|Un rêve de nature sauvage|![](/fr-CA/2025/05/202505050400TorresChile.jpg)|
+202505060400|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-CA/2025/05/202505060400FlyoverNamibia.jpg)|

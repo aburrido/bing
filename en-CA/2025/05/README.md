@@ -5,3 +5,4 @@
 202505030400|ArchesGalaxy|The Milky Way framed by Double Arch in Arches National Park, Utah, United States (© Adventure_Photo/Getty Images)|Let's celebrate the cosmos|![](/en-CA/2025/05/202505030400ArchesGalaxy.jpg)|
 202505040400|SevilleNaboo|Plaza de España, Seville, Spain (© Horia Merla/Getty Images)|Welcome to planet Naboo!|![](/en-CA/2025/05/202505040400SevilleNaboo.jpg)|
 202505050400|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|The mighty Paine|![](/en-CA/2025/05/202505050400TorresChile.jpg)|
+202505060400|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)|Not your average desert trip|![](/en-CA/2025/05/202505060400FlyoverNamibia.jpg)|
