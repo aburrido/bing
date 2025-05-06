@@ -6,3 +6,4 @@
 202505032200|SevilleNaboo|Place d'Espagne, Séville, Espagne (© Horia Merla/Getty Images)|Séville, entre étoiles et sabres laser !|![](/fr-FR/2025/05/202505032200SevilleNaboo.jpg)|
 202505042200|RhyoliteDonkeys|Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)|Un symbole de résilience et de force|![](/fr-FR/2025/05/202505042200RhyoliteDonkeys.jpg)|
 202505052200|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-FR/2025/05/202505052200FlyoverNamibia.jpg)|
+202505062200|DunluceIreland|Château de Dunluce, Comté d'Antrim, Irlande du Nord (© DieterMeyrl/Getty Images)|Sous les pierres, des légendes|![](/fr-FR/2025/05/202505062200DunluceIreland.jpg)|

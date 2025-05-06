@@ -6,3 +6,4 @@
 202505032200|SevilleNaboo|Plaza de España, Sevilla, Spanien (© Horia Merla/Getty Images)|Willkommen auf dem Planeten Naboo!|![](/de-DE/2025/05/202505032200SevilleNaboo.jpg)|
 202505042200|YohoNP|Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)|Fossilien, Wasserfälle und Waldwege|![](/de-DE/2025/05/202505042200YohoNP.jpg)|
 202505052200|FlyoverNamibia|Ein Ultraleichtflugzeug fliegt über die Wüste Namibias (© Burt Johnson/Alamy)|Kein gewöhnlicher Wüstentrip|![](/de-DE/2025/05/202505052200FlyoverNamibia.jpg)|
+202505062200|DunluceIreland|Dunluce Castle, Grafschaft Antrim, Nordirland (© DieterMeyrl/Getty Images)|Mystische Mauern|![](/de-DE/2025/05/202505062200DunluceIreland.jpg)|
