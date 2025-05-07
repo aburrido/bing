@@ -6,3 +6,4 @@
 202505040400|SevilleNaboo|Place d'Espagne, Séville, Espagne (© Horia Merla/Getty Images)|Séville, entre étoiles et sabres laser!|![](/fr-CA/2025/05/202505040400SevilleNaboo.jpg)|
 202505050400|TorresChile|Parc national Torres del Paine, Patagonie, Chili (© Marco Bottigelli/Getty Images)|Un rêve de nature sauvage|![](/fr-CA/2025/05/202505050400TorresChile.jpg)|
 202505060400|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-CA/2025/05/202505060400FlyoverNamibia.jpg)|
+202505070400|DunluceIreland|Château de Dunluce, Comté d'Antrim, Irlande du Nord (© DieterMeyrl/Getty Images)|Sous les pierres, des légendes|![](/fr-CA/2025/05/202505070400DunluceIreland.jpg)|
