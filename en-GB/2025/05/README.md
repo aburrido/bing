@@ -7,3 +7,4 @@
 202505042300|BrightonFestival2025|Beach huts in Brighton and Hove, England (© Moonstone Images/iStock/Getty Images)|Curtains up by the sea|![](/en-GB/2025/05/202505042300BrightonFestival2025.jpg)|
 202505052300|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)|Not your average desert trip|![](/en-GB/2025/05/202505052300FlyoverNamibia.jpg)|
 202505062300|DunluceIreland|Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)|Castle on the rocks|![](/en-GB/2025/05/202505062300DunluceIreland.jpg)|
+202505072300|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-GB/2025/05/202505072300RhyoliteDonkeys.jpg)|
