@@ -7,3 +7,4 @@
 202505042200|RhyoliteDonkeys|Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)|Un symbole de résilience et de force|![](/fr-FR/2025/05/202505042200RhyoliteDonkeys.jpg)|
 202505052200|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-FR/2025/05/202505052200FlyoverNamibia.jpg)|
 202505062200|DunluceIreland|Château de Dunluce, Comté d'Antrim, Irlande du Nord (© DieterMeyrl/Getty Images)|Sous les pierres, des légendes|![](/fr-FR/2025/05/202505062200DunluceIreland.jpg)|
+202505072200|VictoryDay|Volcan Puy du Pariou, Auvergne (© Frantisek ZVARDON/Onlyfrance.fr/Alamy Stock Photo)|Le volcan silencieux, mémoire de la Résistance|![](/fr-FR/2025/05/202505072200VictoryDay.jpg)|
