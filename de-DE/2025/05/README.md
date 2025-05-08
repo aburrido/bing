@@ -8,3 +8,4 @@
 202505052200|FlyoverNamibia|Ein Ultraleichtflugzeug fliegt über die Wüste Namibias (© Burt Johnson/Alamy)|Kein gewöhnlicher Wüstentrip|![](/de-DE/2025/05/202505052200FlyoverNamibia.jpg)|
 202505062200|DunluceIreland|Dunluce Castle, Grafschaft Antrim, Nordirland (© DieterMeyrl/Getty Images)|Mystische Mauern|![](/de-DE/2025/05/202505062200DunluceIreland.jpg)|
 202505072200|RhyoliteDonkeys|Esel in einem Tal bei Rhyolite, Nevada, USA (© Moelyn Photos/Getty Images)|Von wegen faul|![](/de-DE/2025/05/202505072200RhyoliteDonkeys.jpg)|
+202505082200|CuteChameleon|Gewöhnliches Chamäleon (© Photostock-Israel/SPL/Getty Images)|Der Meister der Tarnung|![](/de-DE/2025/05/202505082200CuteChameleon.jpg)|

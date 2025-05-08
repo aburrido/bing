@@ -8,3 +8,4 @@
 202505052200|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-FR/2025/05/202505052200FlyoverNamibia.jpg)|
 202505062200|DunluceIreland|Château de Dunluce, Comté d'Antrim, Irlande du Nord (© DieterMeyrl/Getty Images)|Sous les pierres, des légendes|![](/fr-FR/2025/05/202505062200DunluceIreland.jpg)|
 202505072200|VictoryDay|Volcan Puy du Pariou, Auvergne (© Frantisek ZVARDON/Onlyfrance.fr/Alamy Stock Photo)|Le volcan silencieux, mémoire de la Résistance|![](/fr-FR/2025/05/202505072200VictoryDay.jpg)|
+202505082200|CuteChameleon|Caméléon commun (© Photostock-Israel/SPL/Getty Images)|Le maître du camouflage|![](/fr-FR/2025/05/202505082200CuteChameleon.jpg)|
