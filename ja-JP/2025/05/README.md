@@ -8,3 +8,4 @@
 202505051500|FlyoverNamibia|ナミブ砂漠, ナミビア (© Burt Johnson/Alamy)|上空を舞う超軽量動力機|![](/ja-JP/2025/05/202505051500FlyoverNamibia.jpg)|
 202505061500|DunluceIreland|ダンルース城, イギリス (© DieterMeyrl/Getty Images)|海岸の断崖絶壁に建つ中世の城|![](/ja-JP/2025/05/202505061500DunluceIreland.jpg)|
 202505071500|RhyoliteDonkeys|野原に並んで立つ 2 頭のロバ, 米国 ネバダ州 (© Moelyn Photos/Getty Images)|今日は世界ロバの日|![](/ja-JP/2025/05/202505071500RhyoliteDonkeys.jpg)|
+202505081500|BrucePeninsula|ブルース・ペニンシュラ国立公園, カナダ オンタリオ州 (© Maurice Prokaziuk/Getty Images)|切り立つ崖と緑の森|![](/ja-JP/2025/05/202505081500BrucePeninsula.jpg)|
