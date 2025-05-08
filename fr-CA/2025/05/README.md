@@ -7,3 +7,4 @@
 202505050400|TorresChile|Parc national Torres del Paine, Patagonie, Chili (© Marco Bottigelli/Getty Images)|Un rêve de nature sauvage|![](/fr-CA/2025/05/202505050400TorresChile.jpg)|
 202505060400|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-CA/2025/05/202505060400FlyoverNamibia.jpg)|
 202505070400|DunluceIreland|Château de Dunluce, Comté d'Antrim, Irlande du Nord (© DieterMeyrl/Getty Images)|Sous les pierres, des légendes|![](/fr-CA/2025/05/202505070400DunluceIreland.jpg)|
+202505080400|RhyoliteDonkeys|Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)|Un symbole de résilience et de force|![](/fr-CA/2025/05/202505080400RhyoliteDonkeys.jpg)|
