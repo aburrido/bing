@@ -8,3 +8,4 @@
 202505052300|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)|Not your average desert trip|![](/en-GB/2025/05/202505052300FlyoverNamibia.jpg)|
 202505062300|DunluceIreland|Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)|Castle on the rocks|![](/en-GB/2025/05/202505062300DunluceIreland.jpg)|
 202505072300|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-GB/2025/05/202505072300RhyoliteDonkeys.jpg)|
+202505082300|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Blending in and standing out|![](/en-GB/2025/05/202505082300CuteChameleon.jpg)|
