@@ -8,3 +8,4 @@
 202505051600|FlyoverNamibia|一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)|不一般的沙漠之旅|![](/zh-CN/2025/05/202505051600FlyoverNamibia.jpg)|
 202505061600|DunluceIreland|邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)|岩石上的城堡|![](/zh-CN/2025/05/202505061600DunluceIreland.jpg)|
 202505071600|RhyoliteDonkeys|Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty Images)|值得大声欢呼的一天|![](/zh-CN/2025/05/202505071600RhyoliteDonkeys.jpg)|
+202505081600|CuteChameleon|普通变色龙 (© Photostock-Israel/SPL/Getty Images)|融入又突出|![](/zh-CN/2025/05/202505081600CuteChameleon.jpg)|
