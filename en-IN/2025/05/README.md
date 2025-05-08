@@ -8,3 +8,4 @@
 202505051830|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)|Not your average desert trip|![](/en-IN/2025/05/202505051830FlyoverNamibia.jpg)|
 202505061830|RabindraJayantiIN|Statue of Rabindranath Tagore at Rabindra Sarobar, West Bengal (© suprabhat/Shutterstock)|Still inspiring|![](/en-IN/2025/05/202505061830RabindraJayantiIN.jpg)|
 202505071830|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-IN/2025/05/202505071830RhyoliteDonkeys.jpg)|
+202505081830|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Blending in and standing out|![](/en-IN/2025/05/202505081830CuteChameleon.jpg)|
