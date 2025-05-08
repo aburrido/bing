@@ -8,3 +8,4 @@
 202505050700|CincoFlags|Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)|Viva Mexico!|![](/en-US/2025/05/202505050700CincoFlags.jpg)|
 202505060700|FlyoverNamibia|An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)|Not your average desert trip|![](/en-US/2025/05/202505060700FlyoverNamibia.jpg)|
 202505070700|DunluceIreland|Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)|Castle on the rocks|![](/en-US/2025/05/202505070700DunluceIreland.jpg)|
+202505080700|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-US/2025/05/202505080700RhyoliteDonkeys.jpg)|
