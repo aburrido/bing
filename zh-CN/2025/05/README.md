@@ -9,3 +9,4 @@
 202505061600|DunluceIreland|邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)|岩石上的城堡|![](/zh-CN/2025/05/202505061600DunluceIreland.jpg)|
 202505071600|RhyoliteDonkeys|Rhyolite附近山谷中的驴子，内华达州，美国 (© Moelyn Photos/Getty Images)|值得大声欢呼的一天|![](/zh-CN/2025/05/202505071600RhyoliteDonkeys.jpg)|
 202505081600|CuteChameleon|普通变色龙 (© Photostock-Israel/SPL/Getty Images)|融入又突出|![](/zh-CN/2025/05/202505081600CuteChameleon.jpg)|
+202505091600|Castildetierra|巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)|童话烟囱！|![](/zh-CN/2025/05/202505091600Castildetierra.jpg)|
