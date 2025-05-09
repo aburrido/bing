@@ -9,3 +9,4 @@
 202505062200|DunluceIreland|Dunluce Castle, Grafschaft Antrim, Nordirland (© DieterMeyrl/Getty Images)|Mystische Mauern|![](/de-DE/2025/05/202505062200DunluceIreland.jpg)|
 202505072200|RhyoliteDonkeys|Esel in einem Tal bei Rhyolite, Nevada, USA (© Moelyn Photos/Getty Images)|Von wegen faul|![](/de-DE/2025/05/202505072200RhyoliteDonkeys.jpg)|
 202505082200|CuteChameleon|Gewöhnliches Chamäleon (© Photostock-Israel/SPL/Getty Images)|Der Meister der Tarnung|![](/de-DE/2025/05/202505082200CuteChameleon.jpg)|
+202505092200|HeidelbergSpring|Blick auf Heidelberg und das Heidelberger Schloss im Frühling, Baden-Württemberg (© anyaivanova/Getty Images)|Malerische Idylle|![](/de-DE/2025/05/202505092200HeidelbergSpring.jpg)|
