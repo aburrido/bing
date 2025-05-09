@@ -9,3 +9,4 @@
 202505061830|RabindraJayantiIN|Statue of Rabindranath Tagore at Rabindra Sarobar, West Bengal (© suprabhat/Shutterstock)|Still inspiring|![](/en-IN/2025/05/202505061830RabindraJayantiIN.jpg)|
 202505071830|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-IN/2025/05/202505071830RhyoliteDonkeys.jpg)|
 202505081830|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Blending in and standing out|![](/en-IN/2025/05/202505081830CuteChameleon.jpg)|
+202505091830|MinnesotaRotunda|Minnesota State Capitol, St. Paul, Minnesota, United States (© lavin photography/Getty Images)|Gilded glory|![](/en-IN/2025/05/202505091830MinnesotaRotunda.jpg)|
