@@ -8,3 +8,4 @@
 202505060400|FlyoverNamibia|Un avion ULM survolant les sables de Namibie (© Burt Johnson/Alamy)|Des dunes et des ailes|![](/fr-CA/2025/05/202505060400FlyoverNamibia.jpg)|
 202505070400|DunluceIreland|Château de Dunluce, Comté d'Antrim, Irlande du Nord (© DieterMeyrl/Getty Images)|Sous les pierres, des légendes|![](/fr-CA/2025/05/202505070400DunluceIreland.jpg)|
 202505080400|RhyoliteDonkeys|Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)|Un symbole de résilience et de force|![](/fr-CA/2025/05/202505080400RhyoliteDonkeys.jpg)|
+202505090400|Tulip25Fest|Festival Canadien des tulipes, Ottawa (© Danielle Donders/Getty Images)|Quand les tulipes racontent l’histoire|![](/fr-CA/2025/05/202505090400Tulip25Fest.jpg)|
