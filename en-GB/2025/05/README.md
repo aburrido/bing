@@ -10,3 +10,4 @@
 202505072300|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-GB/2025/05/202505072300RhyoliteDonkeys.jpg)|
 202505082300|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Blending in and standing out|![](/en-GB/2025/05/202505082300CuteChameleon.jpg)|
 202505092300|MinnesotaRotunda|Minnesota State Capitol, St Paul, Minnesota, United States (© lavin photography/Getty Images)|Gilded glory|![](/en-GB/2025/05/202505092300MinnesotaRotunda.jpg)|
+202505102300|YohoNP|Yoho National Park, British Columbia, Canada (© Feng Wei Photography/Getty Images)|Fossils, falls and forest trails|![](/en-GB/2025/05/202505102300YohoNP.jpg)|
