@@ -10,3 +10,4 @@
 202505071830|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-IN/2025/05/202505071830RhyoliteDonkeys.jpg)|
 202505081830|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Blending in and standing out|![](/en-IN/2025/05/202505081830CuteChameleon.jpg)|
 202505091830|MinnesotaRotunda|Minnesota State Capitol, St. Paul, Minnesota, United States (© lavin photography/Getty Images)|Gilded glory|![](/en-IN/2025/05/202505091830MinnesotaRotunda.jpg)|
+202505101830|LeopardMother|Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)|Celebrating motherhood—feline style!|![](/en-IN/2025/05/202505101830LeopardMother.jpg)|
