@@ -10,3 +10,4 @@
 202505070700|DunluceIreland|Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)|Info|![](/en-AU/2025/05/202505070700DunluceIreland.jpg)|
 202505080700|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)|Info|![](/en-AU/2025/05/202505080700RhyoliteDonkeys.jpg)|
 202505090700|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Info|![](/en-AU/2025/05/202505090700CuteChameleon.jpg)|
+202505100700|Castildetierra|Castildetierra in the Bardenas Reales, Navarre, Spain (© Eloi_Omella/Getty Images)|Info|![](/en-AU/2025/05/202505100700Castildetierra.jpg)|

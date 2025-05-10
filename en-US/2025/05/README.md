@@ -10,3 +10,4 @@
 202505070700|DunluceIreland|Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)|Castle on the rocks|![](/en-US/2025/05/202505070700DunluceIreland.jpg)|
 202505080700|RhyoliteDonkeys|Donkeys in a valley near Rhyolite, Nevada (© Moelyn Photos/Getty Images)|A day to bray about|![](/en-US/2025/05/202505080700RhyoliteDonkeys.jpg)|
 202505090700|CuteChameleon|Common chameleon (© Photostock-Israel/SPL/Getty Images)|Blending in and standing out|![](/en-US/2025/05/202505090700CuteChameleon.jpg)|
+202505100700|MinnesotaRotunda|Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)|Gilded glory|![](/en-US/2025/05/202505100700MinnesotaRotunda.jpg)|
