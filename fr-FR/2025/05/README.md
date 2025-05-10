@@ -10,3 +10,4 @@
 202505072200|VictoryDay|Volcan Puy du Pariou, Auvergne (© Frantisek ZVARDON/Onlyfrance.fr/Alamy Stock Photo)|Le volcan silencieux, mémoire de la Résistance|![](/fr-FR/2025/05/202505072200VictoryDay.jpg)|
 202505082200|CuteChameleon|Caméléon commun (© Photostock-Israel/SPL/Getty Images)|Le maître du camouflage|![](/fr-FR/2025/05/202505082200CuteChameleon.jpg)|
 202505092200|MinnesotaRotunda|Capitole de l'État du Minnesota, St. Paul, États-Unis (© lavin photography/Getty Images)|Un dôme entre art et pouvoir|![](/fr-FR/2025/05/202505092200MinnesotaRotunda.jpg)|
+202505102200|TorresChile|Parc national Torres del Paine, Patagonie, Chili (© Marco Bottigelli/Getty Images)|Parc national Torres del Paine, Patagonie, Chili|![](/fr-FR/2025/05/202505102200TorresChile.jpg)|
