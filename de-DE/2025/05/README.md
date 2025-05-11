@@ -11,3 +11,4 @@
 202505082200|CuteChameleon|Gewöhnliches Chamäleon (© Photostock-Israel/SPL/Getty Images)|Der Meister der Tarnung|![](/de-DE/2025/05/202505082200CuteChameleon.jpg)|
 202505092200|HeidelbergSpring|Blick auf Heidelberg und das Heidelberger Schloss im Frühling, Baden-Württemberg (© anyaivanova/Getty Images)|Malerische Idylle|![](/de-DE/2025/05/202505092200HeidelbergSpring.jpg)|
 202505102200|LeopardMother|Leopardin leckt ihr Junges, Jao Reservat, Botswana (© Suzi Eszterhas/Minden Pictures)|Tierische Mutterliebe|![](/de-DE/2025/05/202505102200LeopardMother.jpg)|
+202505112200|IrisGarden|Irisgarten in Tokio, Japan (© M.Arai/Getty Images)|Violettes Blütenmeer|![](/de-DE/2025/05/202505112200IrisGarden.jpg)|

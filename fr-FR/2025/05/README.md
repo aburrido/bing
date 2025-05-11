@@ -11,3 +11,4 @@
 202505082200|CuteChameleon|Caméléon commun (© Photostock-Israel/SPL/Getty Images)|Le maître du camouflage|![](/fr-FR/2025/05/202505082200CuteChameleon.jpg)|
 202505092200|MinnesotaRotunda|Capitole de l'État du Minnesota, St. Paul, États-Unis (© lavin photography/Getty Images)|Un dôme entre art et pouvoir|![](/fr-FR/2025/05/202505092200MinnesotaRotunda.jpg)|
 202505102200|TorresChile|Parc national Torres del Paine, Patagonie, Chili (© Marco Bottigelli/Getty Images)|Parc national Torres del Paine, Patagonie, Chili|![](/fr-FR/2025/05/202505102200TorresChile.jpg)|
+202505112200|IrisGarden|Jardin d'iris à Tokyo, Japon (© M.Arai/Getty Images)|Une vague de pourpre|![](/fr-FR/2025/05/202505112200IrisGarden.jpg)|
