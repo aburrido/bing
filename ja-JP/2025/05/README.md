@@ -11,3 +11,4 @@
 202505081500|BrucePeninsula|ブルース・ペニンシュラ国立公園, カナダ オンタリオ州 (© Maurice Prokaziuk/Getty Images)|切り立つ崖と緑の森|![](/ja-JP/2025/05/202505081500BrucePeninsula.jpg)|
 202505091500|MinnesotaRotunda|ミネソタ州会議事堂, 米国ミネソタ州 (© lavin photography/Getty Images)|支柱なしの壮麗なドーム|![](/ja-JP/2025/05/202505091500MinnesotaRotunda.jpg)|
 202505101500|LeopardMother|ヒョウの母子, ボツワナ (© Suzi Eszterhas/Minden Pictures)|今日は母の日|![](/ja-JP/2025/05/202505101500LeopardMother.jpg)|
+202505111500|IrisGarden|菖蒲の花, 東京 (© M.Arai/Getty Images)|初夏の風物詩|![](/ja-JP/2025/05/202505111500IrisGarden.jpg)|
