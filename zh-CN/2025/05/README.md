@@ -11,3 +11,4 @@
 202505081600|CuteChameleon|普通变色龙 (© Photostock-Israel/SPL/Getty Images)|融入又突出|![](/zh-CN/2025/05/202505081600CuteChameleon.jpg)|
 202505091600|Castildetierra|巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)|童话烟囱！|![](/zh-CN/2025/05/202505091600Castildetierra.jpg)|
 202505101600|LeopardMother|豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳 (© Suzi Eszterhas/Minden Pictures)|以猫科动物的方式庆祝母爱！|![](/zh-CN/2025/05/202505101600LeopardMother.jpg)|
+202505111600|IrisGarden|东京的鸢尾花园, 日本 (© M.Arai/Getty Images)|紫色的波浪|![](/zh-CN/2025/05/202505111600IrisGarden.jpg)|
