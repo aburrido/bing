@@ -10,3 +10,4 @@
 202505080400|RhyoliteDonkeys|Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)|Un symbole de résilience et de force|![](/fr-CA/2025/05/202505080400RhyoliteDonkeys.jpg)|
 202505090400|Tulip25Fest|Festival Canadien des tulipes, Ottawa (© Danielle Donders/Getty Images)|Quand les tulipes racontent l’histoire|![](/fr-CA/2025/05/202505090400Tulip25Fest.jpg)|
 202505100400|MinnesotaRotunda|Capitole de l'État du Minnesota, St. Paul, États-Unis (© lavin photography/Getty Images)|Un dôme entre art et pouvoir|![](/fr-CA/2025/05/202505100400MinnesotaRotunda.jpg)|
+202505110400|LeopardMother|Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)|Toilette express made in maman!|![](/fr-CA/2025/05/202505110400LeopardMother.jpg)|
