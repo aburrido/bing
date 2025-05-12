@@ -11,3 +11,4 @@
 202505090400|Tulip25Fest|Canadian Tulip Festival in Ottawa (© Danielle Donders/Getty Images)|It's tulip season|![](/en-CA/2025/05/202505090400Tulip25Fest.jpg)|
 202505100400|MinnesotaRotunda|Minnesota State Capitol, St. Paul, Minnesota, United States (© lavin photography/Getty Images)|Gilded glory|![](/en-CA/2025/05/202505100400MinnesotaRotunda.jpg)|
 202505110400|LeopardMother|Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)|Celebrating motherhood—feline style!|![](/en-CA/2025/05/202505110400LeopardMother.jpg)|
+202505120400|IrisGarden|An iris garden in Tokyo, Japan (© M.Arai/Getty Images)|Waves of purple|![](/en-CA/2025/05/202505120400IrisGarden.jpg)|
