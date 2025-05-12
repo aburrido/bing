@@ -13,3 +13,4 @@
 202505102200|LeopardMother|Leopardin leckt ihr Junges, Jao Reservat, Botswana (© Suzi Eszterhas/Minden Pictures)|Tierische Mutterliebe|![](/de-DE/2025/05/202505102200LeopardMother.jpg)|
 202505112200|IrisGarden|Irisgarten in Tokio, Japan (© M.Arai/Getty Images)|Violettes Blütenmeer|![](/de-DE/2025/05/202505112200IrisGarden.jpg)|
 ||||![](/de-DE/2025/05/.jpg)|
+202505122200|TorresChile|Nationalpark Torres del Paine, Patagonien, Chile (© Marco Bottigelli/Getty Images)|Magische Naturkulisse|![](/de-DE/2025/05/202505122200TorresChile.jpg)|

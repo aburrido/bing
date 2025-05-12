@@ -13,3 +13,4 @@
 202505102200|TorresChile|Parc national Torres del Paine, Patagonie, Chili (© Marco Bottigelli/Getty Images)|Parc national Torres del Paine, Patagonie, Chili|![](/fr-FR/2025/05/202505102200TorresChile.jpg)|
 202505112200|IrisGarden|Jardin d'iris à Tokyo, Japon (© M.Arai/Getty Images)|Une vague de pourpre|![](/fr-FR/2025/05/202505112200IrisGarden.jpg)|
 ||||![](/fr-FR/2025/05/.jpg)|
+202505122200|CannesFilmFestival|Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)|Silence… Clap ! Cannes entre en scène|![](/fr-FR/2025/05/202505122200CannesFilmFestival.jpg)|
