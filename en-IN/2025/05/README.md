@@ -13,3 +13,4 @@
 202505101830|LeopardMother|Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)|Celebrating motherhood—feline style!|![](/en-IN/2025/05/202505101830LeopardMother.jpg)|
 202505111830|IrisGarden|An iris garden in Tokyo, Japan (© M.Arai/Getty Images)|Waves of purple|![](/en-IN/2025/05/202505111830IrisGarden.jpg)|
 ||||![](/en-IN/2025/05/.jpg)|
+202505121830|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|66 and still gorgeous|![](/en-IN/2025/05/202505121830TorresChile.jpg)|
