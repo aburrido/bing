@@ -12,3 +12,4 @@
 202505100400|MinnesotaRotunda|Capitole de l'État du Minnesota, St. Paul, États-Unis (© lavin photography/Getty Images)|Un dôme entre art et pouvoir|![](/fr-CA/2025/05/202505100400MinnesotaRotunda.jpg)|
 202505110400|LeopardMother|Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)|Toilette express made in maman!|![](/fr-CA/2025/05/202505110400LeopardMother.jpg)|
 202505120400|IrisGarden|Jardin d'iris à Tokyo, Japon (© M.Arai/Getty Images)|Une vague de pourpre|![](/fr-CA/2025/05/202505120400IrisGarden.jpg)|
+||||![](/fr-CA/2025/05/.jpg)|
