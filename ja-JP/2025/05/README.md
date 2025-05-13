@@ -14,3 +14,4 @@
 202505111500|IrisGarden|菖蒲の花, 東京 (© M.Arai/Getty Images)|初夏の風物詩|![](/ja-JP/2025/05/202505111500IrisGarden.jpg)|
 202505121500|TorresChile|トーレス・デル・パイネ国立公園, チリ (© Marco Bottigelli/Getty Images)|天を突く岩の峰と壮麗な氷河|![](/ja-JP/2025/05/202505121500TorresChile.jpg)|
 ||||![](/ja-JP/2025/05/.jpg)|
+202505131500|SardiniaFlavia|ポルト・フラビア, イタリア (© Francesco Riccardo Iacomino/Getty Images)|崖に残る鉱山の採掘跡|![](/ja-JP/2025/05/202505131500SardiniaFlavia.jpg)|
