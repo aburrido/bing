@@ -14,3 +14,4 @@
 202505112300|IrisGarden|An iris garden in Tokyo, Japan (© M.Arai/Getty Images)|Waves of purple|![](/en-GB/2025/05/202505112300IrisGarden.jpg)|
 ||||![](/en-GB/2025/05/.jpg)|
 202505122300|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|66 and still gorgeous|![](/en-GB/2025/05/202505122300TorresChile.jpg)|
+202505132300|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)|Ore and more|![](/en-GB/2025/05/202505132300SardiniaFlavia.jpg)|
