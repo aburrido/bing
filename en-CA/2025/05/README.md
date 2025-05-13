@@ -13,3 +13,4 @@
 202505110400|LeopardMother|Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)|Celebrating motherhood—feline style!|![](/en-CA/2025/05/202505110400LeopardMother.jpg)|
 202505120400|IrisGarden|An iris garden in Tokyo, Japan (© M.Arai/Getty Images)|Waves of purple|![](/en-CA/2025/05/202505120400IrisGarden.jpg)|
 ||||![](/en-CA/2025/05/.jpg)|
+202505130400|YohoNP|Yoho National Park, British Columbia (© Feng Wei Photography/Getty Images)|Fossils, falls and forest trails|![](/en-CA/2025/05/202505130400YohoNP.jpg)|
