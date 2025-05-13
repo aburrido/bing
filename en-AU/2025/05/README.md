@@ -14,3 +14,4 @@
 202505110700|LeopardMother|Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2025/05/202505110700LeopardMother.jpg)|
 202505120700|IrisGarden|An iris garden in Tokyo, Japan (© M.Arai/Getty Images)|Info|![](/en-AU/2025/05/202505120700IrisGarden.jpg)|
 ||||![](/en-AU/2025/05/.jpg)|
+202505130700|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2025/05/202505130700TorresChile.jpg)|
