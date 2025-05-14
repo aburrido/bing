@@ -15,3 +15,4 @@
 ||||![](/en-GB/2025/05/.jpg)|
 202505122300|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|66 and still gorgeous|![](/en-GB/2025/05/202505122300TorresChile.jpg)|
 202505132300|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)|Ore and more|![](/en-GB/2025/05/202505132300SardiniaFlavia.jpg)|
+202505142300|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|London o'clock|![](/en-GB/2025/05/202505142300LondonParliament.jpg)|
