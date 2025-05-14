@@ -15,3 +15,4 @@
 202505121500|TorresChile|トーレス・デル・パイネ国立公園, チリ (© Marco Bottigelli/Getty Images)|天を突く岩の峰と壮麗な氷河|![](/ja-JP/2025/05/202505121500TorresChile.jpg)|
 ||||![](/ja-JP/2025/05/.jpg)|
 202505131500|SardiniaFlavia|ポルト・フラビア, イタリア (© Francesco Riccardo Iacomino/Getty Images)|崖に残る鉱山の採掘跡|![](/ja-JP/2025/05/202505131500SardiniaFlavia.jpg)|
+202505141500|LondonParliament|ウェストミンスター宮殿とビッグ・ベン, イギリス (© Puthipong Worasaran/Getty Images)|時を刻むロンドンの象徴|![](/ja-JP/2025/05/202505141500LondonParliament.jpg)|
