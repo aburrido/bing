@@ -15,3 +15,4 @@
 ||||![](/fr-FR/2025/05/.jpg)|
 202505122200|CannesFilmFestival|Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)|Silence… Clap ! Cannes entre en scène|![](/fr-FR/2025/05/202505122200CannesFilmFestival.jpg)|
 202505132200|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)|Un rêve taillé dans la falaise|![](/fr-FR/2025/05/202505132200SardiniaFlavia.jpg)|
+202505142200|LondonParliament|Big Ben et le Parlement, Palais de Westminster, Londres, Angleterre (© Puthipong Worasaran/Getty Images)|Coup de foudre à Big Ben|![](/fr-FR/2025/05/202505142200LondonParliament.jpg)|

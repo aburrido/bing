@@ -15,3 +15,4 @@
 ||||![](/de-DE/2025/05/.jpg)|
 202505122200|TorresChile|Nationalpark Torres del Paine, Patagonien, Chile (© Marco Bottigelli/Getty Images)|Magische Naturkulisse|![](/de-DE/2025/05/202505122200TorresChile.jpg)|
 202505132200|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinien, Italien (© Francesco Riccardo Iacomino/Getty Images)|Ein gewagtes Projekt|![](/de-DE/2025/05/202505132200SardiniaFlavia.jpg)|
+202505142200|LondonParliament|Big Ben und Westminster-Palast, London, England (© Puthipong Worasaran/Getty Images)|Geschichtsträchtige Kulisse|![](/de-DE/2025/05/202505142200LondonParliament.jpg)|
