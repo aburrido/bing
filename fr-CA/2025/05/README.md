@@ -14,3 +14,4 @@
 202505120400|IrisGarden|Jardin d'iris à Tokyo, Japon (© M.Arai/Getty Images)|Une vague de pourpre|![](/fr-CA/2025/05/202505120400IrisGarden.jpg)|
 ||||![](/fr-CA/2025/05/.jpg)|
 202505130400|YohoNP|Mont Burgess et lac Emerald dans le parc national de Yoho, Colombie-Britannique (© Feng Wei Photography/Getty Images)|Le cœur battant des Rocheuses|![](/fr-CA/2025/05/202505130400YohoNP.jpg)|
+202505140400|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)|Un rêve taillé dans la falaise|![](/fr-CA/2025/05/202505140400SardiniaFlavia.jpg)|
