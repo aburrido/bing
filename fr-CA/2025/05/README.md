@@ -15,3 +15,4 @@
 ||||![](/fr-CA/2025/05/.jpg)|
 202505130400|YohoNP|Mont Burgess et lac Emerald dans le parc national de Yoho, Colombie-Britannique (© Feng Wei Photography/Getty Images)|Le cœur battant des Rocheuses|![](/fr-CA/2025/05/202505130400YohoNP.jpg)|
 202505140400|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)|Un rêve taillé dans la falaise|![](/fr-CA/2025/05/202505140400SardiniaFlavia.jpg)|
+202505150400|LondonParliament|Big Ben et le Parlement, Palais de Westminster, Londres, Angleterre (© Puthipong Worasaran/Getty Images)|Coup de foudre à Big Ben|![](/fr-CA/2025/05/202505150400LondonParliament.jpg)|
