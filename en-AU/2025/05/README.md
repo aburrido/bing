@@ -16,3 +16,4 @@
 ||||![](/en-AU/2025/05/.jpg)|
 202505130700|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2025/05/202505130700TorresChile.jpg)|
 202505140700|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2025/05/202505140700SardiniaFlavia.jpg)|
+202505150700|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|Info|![](/en-AU/2025/05/202505150700LondonParliament.jpg)|
