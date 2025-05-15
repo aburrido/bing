@@ -16,3 +16,4 @@
 ||||![](/ja-JP/2025/05/.jpg)|
 202505131500|SardiniaFlavia|ポルト・フラビア, イタリア (© Francesco Riccardo Iacomino/Getty Images)|崖に残る鉱山の採掘跡|![](/ja-JP/2025/05/202505131500SardiniaFlavia.jpg)|
 202505141500|LondonParliament|ウェストミンスター宮殿とビッグ・ベン, イギリス (© Puthipong Worasaran/Getty Images)|時を刻むロンドンの象徴|![](/ja-JP/2025/05/202505141500LondonParliament.jpg)|
+202505151500|Arashiyama2025|保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)|今日は旅の日|![](/ja-JP/2025/05/202505151500Arashiyama2025.jpg)|
