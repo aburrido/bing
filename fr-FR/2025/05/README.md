@@ -17,3 +17,4 @@
 202505132200|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardaigne, Italie (© Francesco Riccardo Iacomino/Getty Images)|Un rêve taillé dans la falaise|![](/fr-FR/2025/05/202505132200SardiniaFlavia.jpg)|
 202505142200|LondonParliament|Big Ben et le Parlement, Palais de Westminster, Londres, Angleterre (© Puthipong Worasaran/Getty Images)|Coup de foudre à Big Ben|![](/fr-FR/2025/05/202505142200LondonParliament.jpg)|
 202505152200|GreenMacaw|Ara de Buffon, Mexique (© Ondrej Prosicky/Shutterstock)|Un battement d’ailes en sursis|![](/fr-FR/2025/05/202505152200GreenMacaw.jpg)|
+202505162200|VeniceLagoon|Delta de la lagune vénitienne, Italie (© Dimitri Weber/Amazing Aerial Agency)|Là où naît Venise|![](/fr-FR/2025/05/202505162200VeniceLagoon.jpg)|

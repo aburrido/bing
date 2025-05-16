@@ -17,3 +17,4 @@
 202505132200|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinien, Italien (© Francesco Riccardo Iacomino/Getty Images)|Ein gewagtes Projekt|![](/de-DE/2025/05/202505132200SardiniaFlavia.jpg)|
 202505142200|LondonParliament|Big Ben und Westminster-Palast, London, England (© Puthipong Worasaran/Getty Images)|Geschichtsträchtige Kulisse|![](/de-DE/2025/05/202505142200LondonParliament.jpg)|
 202505152200|GreenMacaw|Bechsteinara, Mexiko (© Ondrej Prosicky/Shutterstock)|Die Vielfalt der Natur|![](/de-DE/2025/05/202505152200GreenMacaw.jpg)|
+202505162200|VeniceLagoon|Delta in der Lagune von Venedig, Italien (© Dimitri Weber/Amazing Aerial Agency)|Die venezianische „Dolce Vita“|![](/de-DE/2025/05/202505162200VeniceLagoon.jpg)|
