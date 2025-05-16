@@ -17,3 +17,4 @@
 202505131830|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)|Ore and more|![](/en-IN/2025/05/202505131830SardiniaFlavia.jpg)|
 202505141830|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|London o'clock|![](/en-IN/2025/05/202505141830LondonParliament.jpg)|
 202505151830|HawaMahalIN|Hawa Mahal, Jaipur, Rajasthan (© Travel Wild/Getty Images)|Where the wind whispers|![](/en-IN/2025/05/202505151830HawaMahalIN.jpg)|
+202505161830|VeniceLagoon|A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)|The Venetian 'dolce vita'|![](/en-IN/2025/05/202505161830VeniceLagoon.jpg)|
