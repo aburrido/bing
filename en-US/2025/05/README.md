@@ -17,3 +17,4 @@
 202505130700|TorresChile|Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)|66 and still gorgeous|![](/en-US/2025/05/202505130700TorresChile.jpg)|
 202505140700|SardiniaFlavia|Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)|Ore and more|![](/en-US/2025/05/202505140700SardiniaFlavia.jpg)|
 202505150700|LondonParliament|Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|London o'clock|![](/en-US/2025/05/202505150700LondonParliament.jpg)|
+202505160700|GreenMacaw|Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)|Celebrate saving species|![](/en-US/2025/05/202505160700GreenMacaw.jpg)|
