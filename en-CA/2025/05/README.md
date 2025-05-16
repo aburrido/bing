@@ -16,3 +16,4 @@
 202505130400|YohoNP|Yoho National Park, British Columbia (© Feng Wei Photography/Getty Images)|Fossils, falls and forest trails|![](/en-CA/2025/05/202505130400YohoNP.jpg)|
 202505140400|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)|Ore and more|![](/en-CA/2025/05/202505140400SardiniaFlavia.jpg)|
 202505150400|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|London o'clock|![](/en-CA/2025/05/202505150400LondonParliament.jpg)|
+202505160400|GreenMacaw|Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)|Celebrate saving species|![](/en-CA/2025/05/202505160400GreenMacaw.jpg)|
