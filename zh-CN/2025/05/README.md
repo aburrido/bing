@@ -17,3 +17,4 @@
 202505131600|SardiniaFlavia|弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利 (© Marco Bottigelli/Getty Images)|矿石与传奇|![](/zh-CN/2025/05/202505131600SardiniaFlavia.jpg)|
 202505141600|LondonParliament|大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国 (© Puthipong Worasaran/Getty Images)|伦敦时间到！|![](/zh-CN/2025/05/202505141600LondonParliament.jpg)|
 202505151600|GreenMacaw|大绿金刚鹦鹉, 墨西哥 (© Ondrej Prosicky/Shutterstock)|守护濒危生命的一天|![](/zh-CN/2025/05/202505151600GreenMacaw.jpg)|
+202505161600|VeniceLagoon|威尼斯潟湖中的三角洲, 意大利 (© Dimitri Weber/Amazing Aerial Agency)|威尼斯式的“甜蜜生活”|![](/zh-CN/2025/05/202505161600VeniceLagoon.jpg)|
