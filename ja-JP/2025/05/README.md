@@ -18,3 +18,4 @@
 202505141500|LondonParliament|ウェストミンスター宮殿とビッグ・ベン, イギリス (© Puthipong Worasaran/Getty Images)|時を刻むロンドンの象徴|![](/ja-JP/2025/05/202505141500LondonParliament.jpg)|
 202505151500|Arashiyama2025|保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)|今日は旅の日|![](/ja-JP/2025/05/202505151500Arashiyama2025.jpg)|
 202505161500|VeniceLagoon|ヴェネツィアの潟, イタリア (© Dimitri Weber/Amazing Aerial Agency)|アドリア海の真珠|![](/ja-JP/2025/05/202505161500VeniceLagoon.jpg)|
+202505171500|DufyRoom|巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)|今日は「国際博物館の日」|![](/ja-JP/2025/05/202505171500DufyRoom.jpg)|
