@@ -17,3 +17,4 @@
 202505140400|SardiniaFlavia|Porto Flavia, Sulcis-Iglesiente, Sardinia, Italy (© Marco Bottigelli/Getty Images)|Ore and more|![](/en-CA/2025/05/202505140400SardiniaFlavia.jpg)|
 202505150400|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|London o'clock|![](/en-CA/2025/05/202505150400LondonParliament.jpg)|
 202505160400|GreenMacaw|Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)|Celebrate saving species|![](/en-CA/2025/05/202505160400GreenMacaw.jpg)|
+202505170400|VeniceLagoon|A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)|The Venetian 'dolce vita'|![](/en-CA/2025/05/202505170400VeniceLagoon.jpg)|
