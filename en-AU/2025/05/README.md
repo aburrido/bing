@@ -19,3 +19,4 @@
 202505150700|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|Info|![](/en-AU/2025/05/202505150700LondonParliament.jpg)|
 202505160700|GreenMacaw|Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)|Info|![](/en-AU/2025/05/202505160700GreenMacaw.jpg)|
 202505170700|VeniceLagoon|A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)|Info|![](/en-AU/2025/05/202505170700VeniceLagoon.jpg)|
+202505180700|ToulouseBridge|Pont St-Pierre across the Garonne River, Toulouse, France (© Image Professionals GmbH/Alamy)|Info|![](/en-AU/2025/05/202505180700ToulouseBridge.jpg)|
