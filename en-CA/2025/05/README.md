@@ -18,3 +18,4 @@
 202505150400|LondonParliament|Big Ben and Parliament, Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)|London o'clock|![](/en-CA/2025/05/202505150400LondonParliament.jpg)|
 202505160400|GreenMacaw|Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)|Celebrate saving species|![](/en-CA/2025/05/202505160400GreenMacaw.jpg)|
 202505170400|VeniceLagoon|A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)|The Venetian 'dolce vita'|![](/en-CA/2025/05/202505170400VeniceLagoon.jpg)|
+202505180400|DufyRoom|'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)|Let's visit a museum today|![](/en-CA/2025/05/202505180400DufyRoom.jpg)|

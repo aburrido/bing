@@ -18,3 +18,4 @@
 202505150400|LondonParliament|Big Ben et le Parlement, Palais de Westminster, Londres, Angleterre (© Puthipong Worasaran/Getty Images)|Coup de foudre à Big Ben|![](/fr-CA/2025/05/202505150400LondonParliament.jpg)|
 202505160400|GreenMacaw|Ara de Buffon, Mexique (© Ondrej Prosicky/Shutterstock)|Un battement d’ailes en sursis|![](/fr-CA/2025/05/202505160400GreenMacaw.jpg)|
 202505170400|VeniceLagoon|Delta de la lagune vénitienne, Italie (© Dimitri Weber/Amazing Aerial Agency)|Là où naît Venise|![](/fr-CA/2025/05/202505170400VeniceLagoon.jpg)|
+202505180400|DufyRoom|« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© BERTRAND GUAY/AFP via Getty Images)|Quand les musées prennent la lumière|![](/fr-CA/2025/05/202505180400DufyRoom.jpg)|
