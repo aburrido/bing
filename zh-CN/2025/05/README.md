@@ -19,3 +19,4 @@
 202505151600|GreenMacaw|大绿金刚鹦鹉, 墨西哥 (© Ondrej Prosicky/Shutterstock)|守护濒危生命的一天|![](/zh-CN/2025/05/202505151600GreenMacaw.jpg)|
 202505161600|VeniceLagoon|威尼斯潟湖中的三角洲, 意大利 (© Dimitri Weber/Amazing Aerial Agency)|威尼斯式的“甜蜜生活”|![](/zh-CN/2025/05/202505161600VeniceLagoon.jpg)|
 202505171600|ToulouseBridge|加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)|图卢兹的暮色|![](/zh-CN/2025/05/202505171600ToulouseBridge.jpg)|
+202505181600|MountHamilton|汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)|汉密尔顿山的蜿蜒之路|![](/zh-CN/2025/05/202505181600MountHamilton.jpg)|
