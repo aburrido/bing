@@ -19,3 +19,4 @@
 202505160400|GreenMacaw|Ara de Buffon, Mexique (© Ondrej Prosicky/Shutterstock)|Un battement d’ailes en sursis|![](/fr-CA/2025/05/202505160400GreenMacaw.jpg)|
 202505170400|VeniceLagoon|Delta de la lagune vénitienne, Italie (© Dimitri Weber/Amazing Aerial Agency)|Là où naît Venise|![](/fr-CA/2025/05/202505170400VeniceLagoon.jpg)|
 202505180400|DufyRoom|« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© BERTRAND GUAY/AFP via Getty Images)|Quand les musées prennent la lumière|![](/fr-CA/2025/05/202505180400DufyRoom.jpg)|
+202505190400|Victoria25Day|Édifices du Parlement de la Colombie-Britannique, Victoria (© bluejayphoto/Getty Images)|Un hommage lumineux à une reine lointaine|![](/fr-CA/2025/05/202505190400Victoria25Day.jpg)|
