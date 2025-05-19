@@ -20,3 +20,4 @@
 202505161500|VeniceLagoon|ヴェネツィアの潟, イタリア (© Dimitri Weber/Amazing Aerial Agency)|アドリア海の真珠|![](/ja-JP/2025/05/202505161500VeniceLagoon.jpg)|
 202505171500|DufyRoom|巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)|今日は「国際博物館の日」|![](/ja-JP/2025/05/202505171500DufyRoom.jpg)|
 202505181500|MountHamilton|ハミルトン山, 米国 カリフォルニア州 (© Jeffrey Lewis/TANDEM Stills + Motion)|くねくね道と山の美しい稜線|![](/ja-JP/2025/05/202505181500MountHamilton.jpg)|
+202505191500|HoneyBeeLavender|ラベンダーの花にミツバチ (© Anthony Brown/Alamy)|今日は「世界ミツバチの日」|![](/ja-JP/2025/05/202505191500HoneyBeeLavender.jpg)|
