@@ -21,3 +21,4 @@
 202505171500|DufyRoom|巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)|今日は「国際博物館の日」|![](/ja-JP/2025/05/202505171500DufyRoom.jpg)|
 202505181500|MountHamilton|ハミルトン山, 米国 カリフォルニア州 (© Jeffrey Lewis/TANDEM Stills + Motion)|くねくね道と山の美しい稜線|![](/ja-JP/2025/05/202505181500MountHamilton.jpg)|
 202505191500|HoneyBeeLavender|ラベンダーの花にミツバチ (© Anthony Brown/Alamy)|今日は「世界ミツバチの日」|![](/ja-JP/2025/05/202505191500HoneyBeeLavender.jpg)|
+202505201500|SongyangTeaGarden|楊家堂村の茶園, 中国 浙江省 (© feng xu/Getty Images)|今日は国際お茶の日|![](/ja-JP/2025/05/202505201500SongyangTeaGarden.jpg)|
