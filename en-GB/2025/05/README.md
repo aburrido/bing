@@ -21,3 +21,4 @@
 202505172300|DufyRoom|'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)|Let's visit a museum today|![](/en-GB/2025/05/202505172300DufyRoom.jpg)|
 202505182300|MountHamilton|Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)|Twists and turns of Mount Hamilton|![](/en-GB/2025/05/202505182300MountHamilton.jpg)|
 202505192300|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)|Small wings, big job|![](/en-GB/2025/05/202505192300HoneyBeeLavender.jpg)|
+202505202300|SongyangTeaGarden|Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)|Par-tea time|![](/en-GB/2025/05/202505202300SongyangTeaGarden.jpg)|
