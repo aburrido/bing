@@ -21,3 +21,4 @@
 202505170700|VeniceLagoon|A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)|The Venetian 'dolce vita'|![](/en-US/2025/05/202505170700VeniceLagoon.jpg)|
 202505180700|DufyRoom|'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)|Let's visit a museum today|![](/en-US/2025/05/202505180700DufyRoom.jpg)|
 202505190700|MountHamilton|Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)|Twists and turns of Mount Hamilton|![](/en-US/2025/05/202505190700MountHamilton.jpg)|
+202505200700|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy)|Small wings, big job|![](/en-US/2025/05/202505200700HoneyBeeLavender.jpg)|

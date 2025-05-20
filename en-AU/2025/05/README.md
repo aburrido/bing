@@ -21,3 +21,4 @@
 202505170700|VeniceLagoon|A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)|Info|![](/en-AU/2025/05/202505170700VeniceLagoon.jpg)|
 202505180700|ToulouseBridge|Pont St-Pierre across the Garonne River, Toulouse, France (© Image Professionals GmbH/Alamy)|Info|![](/en-AU/2025/05/202505180700ToulouseBridge.jpg)|
 202505190700|MountHamilton|Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)|Info|![](/en-AU/2025/05/202505190700MountHamilton.jpg)|
+202505200700|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)|Info|![](/en-AU/2025/05/202505200700HoneyBeeLavender.jpg)|
