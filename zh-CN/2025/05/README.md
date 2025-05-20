@@ -21,3 +21,4 @@
 202505171600|ToulouseBridge|加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)|图卢兹的暮色|![](/zh-CN/2025/05/202505171600ToulouseBridge.jpg)|
 202505181600|MountHamilton|汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)|汉密尔顿山的蜿蜒之路|![](/zh-CN/2025/05/202505181600MountHamilton.jpg)|
 202505191600|HoneyBeeLavender|薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)|小翅膀，大作用|![](/zh-CN/2025/05/202505191600HoneyBeeLavender.jpg)|
+202505201600|SongyangTeaGarden|杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)|茶歇时光|![](/zh-CN/2025/05/202505201600SongyangTeaGarden.jpg)|
