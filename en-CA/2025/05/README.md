@@ -21,3 +21,4 @@
 202505180400|DufyRoom|'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)|Let's visit a museum today|![](/en-CA/2025/05/202505180400DufyRoom.jpg)|
 202505190400|Victoria25Day|British Columbia Parliament Buildings (© bluejayphoto/Getty Images)|'May Two-Four'|![](/en-CA/2025/05/202505190400Victoria25Day.jpg)|
 202505200400|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)|Small wings, big job|![](/en-CA/2025/05/202505200400HoneyBeeLavender.jpg)|
+202505210400|SongyangTeaGarden|Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)|Par-tea time|![](/en-CA/2025/05/202505210400SongyangTeaGarden.jpg)|

@@ -21,3 +21,4 @@
 202505180400|DufyRoom|« La Fée Électricité » de Raoul Dufy, Musée d'art moderne, Paris (© BERTRAND GUAY/AFP via Getty Images)|Quand les musées prennent la lumière|![](/fr-CA/2025/05/202505180400DufyRoom.jpg)|
 202505190400|Victoria25Day|Édifices du Parlement de la Colombie-Britannique, Victoria (© bluejayphoto/Getty Images)|Un hommage lumineux à une reine lointaine|![](/fr-CA/2025/05/202505190400Victoria25Day.jpg)|
 202505200400|HoneyBeeLavender|Abeille sur des fleurs de lavande (© Anthony Brown/Alamy)|Une ouvrière discrète et vitale|![](/fr-CA/2025/05/202505200400HoneyBeeLavender.jpg)|
+202505210400|SongyangTeaGarden|Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)|Un parfum d’éterni-thé|![](/fr-CA/2025/05/202505210400SongyangTeaGarden.jpg)|
