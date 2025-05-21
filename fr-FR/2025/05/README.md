@@ -22,3 +22,4 @@
 202505182200|RolandGarros|Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)|Le faucon veille sur la terre battue|![](/fr-FR/2025/05/202505182200RolandGarros.jpg)|
 202505192200|HoneyBeeLavender|Abeille sur des fleurs de lavande (© Anthony Brown/Alamy)|Dans un pays de tous les temps, vit la plus belle des abeilles...|![](/fr-FR/2025/05/202505192200HoneyBeeLavender.jpg)|
 202505202200|SongyangTeaGarden|Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)|Un parfum d’éterni-thé|![](/fr-FR/2025/05/202505202200SongyangTeaGarden.jpg)|
+202505212200|BaobabAvenue|Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)|La force tranquille de la biodiversité|![](/fr-FR/2025/05/202505212200BaobabAvenue.jpg)|

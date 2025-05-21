@@ -22,3 +22,4 @@
 202505182200|MountHamilton|Mount Hamilton, San Francisco Bay Area, Kalifornien, USA (© Jeffrey Lewis/TANDEM Stills + Motion)|Kreuz und quer durch Kalifornien|![](/de-DE/2025/05/202505182200MountHamilton.jpg)|
 202505192200|HoneyBeeLavender|Honigbiene auf Lavendelblüte (© Anthony Brown/Alamy)|Klein, aber von großer Bedeutung|![](/de-DE/2025/05/202505192200HoneyBeeLavender.jpg)|
 202505202200|SongyangTeaGarden|Teegarten im Dorf Yangjiatang, Kreis Songyang, China (© feng xu/Getty Images)|Die Kunst der Entspannung|![](/de-DE/2025/05/202505202200SongyangTeaGarden.jpg)|
+202505212200|BaobabAvenue|Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)|Majestätische Riesen der Natur|![](/de-DE/2025/05/202505212200BaobabAvenue.jpg)|
