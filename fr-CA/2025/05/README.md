@@ -22,3 +22,4 @@
 202505190400|Victoria25Day|Édifices du Parlement de la Colombie-Britannique, Victoria (© bluejayphoto/Getty Images)|Un hommage lumineux à une reine lointaine|![](/fr-CA/2025/05/202505190400Victoria25Day.jpg)|
 202505200400|HoneyBeeLavender|Abeille sur des fleurs de lavande (© Anthony Brown/Alamy)|Une ouvrière discrète et vitale|![](/fr-CA/2025/05/202505200400HoneyBeeLavender.jpg)|
 202505210400|SongyangTeaGarden|Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)|Un parfum d’éterni-thé|![](/fr-CA/2025/05/202505210400SongyangTeaGarden.jpg)|
+202505220400|BaobabAvenue|Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)|La force tranquille de la biodiversité|![](/fr-CA/2025/05/202505220400BaobabAvenue.jpg)|
