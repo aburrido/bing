@@ -23,3 +23,4 @@
 202505190700|MountHamilton|Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)|Twists and turns of Mount Hamilton|![](/en-US/2025/05/202505190700MountHamilton.jpg)|
 202505200700|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy)|Small wings, big job|![](/en-US/2025/05/202505200700HoneyBeeLavender.jpg)|
 202505210700|SongyangTeaGarden|Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)|Teatime|![](/en-US/2025/05/202505210700SongyangTeaGarden.jpg)|
+202505220700|BaobabAvenue|Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)|Baobab boulevard|![](/en-US/2025/05/202505220700BaobabAvenue.jpg)|
