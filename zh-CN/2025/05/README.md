@@ -23,3 +23,4 @@
 202505191600|HoneyBeeLavender|薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)|小翅膀，大作用|![](/zh-CN/2025/05/202505191600HoneyBeeLavender.jpg)|
 202505201600|SongyangTeaGarden|杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)|茶歇时光|![](/zh-CN/2025/05/202505201600SongyangTeaGarden.jpg)|
 202505211600|BaobabAvenue|日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)|猴面包树大道|![](/zh-CN/2025/05/202505211600BaobabAvenue.jpg)|
+202505221600|ButterflyTurtle|停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)|为龟喝彩！|![](/zh-CN/2025/05/202505221600ButterflyTurtle.jpg)|
