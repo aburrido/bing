@@ -23,3 +23,4 @@
 202505200400|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)|Small wings, big job|![](/en-CA/2025/05/202505200400HoneyBeeLavender.jpg)|
 202505210400|SongyangTeaGarden|Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)|Par-tea time|![](/en-CA/2025/05/202505210400SongyangTeaGarden.jpg)|
 202505220400|BaobabAvenue|Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)|Baobab boulevard|![](/en-CA/2025/05/202505220400BaobabAvenue.jpg)|
+202505230400|ButterflyTurtle|A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)|Shell yeah!|![](/en-CA/2025/05/202505230400ButterflyTurtle.jpg)|
