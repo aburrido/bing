@@ -24,3 +24,4 @@
 202505201830|SongyangTeaGarden|Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)|Par-tea time|![](/en-IN/2025/05/202505201830SongyangTeaGarden.jpg)|
 202505211830|BaobabAvenue|Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)|Baobab boulevard|![](/en-IN/2025/05/202505211830BaobabAvenue.jpg)|
 202505221830|ButterflyTurtle|A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)|Shell yeah!|![](/en-IN/2025/05/202505221830ButterflyTurtle.jpg)|
+202505231830|JotunheimenPark|Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)|Europe's wild side|![](/en-IN/2025/05/202505231830JotunheimenPark.jpg)|
