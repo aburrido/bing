@@ -24,3 +24,4 @@
 202505200700|HoneyBeeLavender|Honey bee on lavender flowers (© Anthony Brown/Alamy Stock Photo)|Info|![](/en-AU/2025/05/202505200700HoneyBeeLavender.jpg)|
 202505210700|SongyangTeaGarden|Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)|Info|![](/en-AU/2025/05/202505210700SongyangTeaGarden.jpg)|
 202505220700|BaobabAvenue|Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)|Info|![](/en-AU/2025/05/202505220700BaobabAvenue.jpg)|
+202505230700|ButterflyTurtle|A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)|Info|![](/en-AU/2025/05/202505230700ButterflyTurtle.jpg)|
