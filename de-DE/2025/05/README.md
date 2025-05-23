@@ -24,3 +24,4 @@
 202505202200|SongyangTeaGarden|Teegarten im Dorf Yangjiatang, Kreis Songyang, China (© feng xu/Getty Images)|Die Kunst der Entspannung|![](/de-DE/2025/05/202505202200SongyangTeaGarden.jpg)|
 202505212200|BaobabAvenue|Affenbrotbäume bei Sonnenuntergang, Baobab-Allee, Madagaskar (© Framalicious/Shutterstock)|Majestätische Riesen der Natur|![](/de-DE/2025/05/202505212200BaobabAvenue.jpg)|
 202505222200|ButterflyTurtle|Julia-Falter auf der Nase einer Terekay-Schienenschildkröte, Amazonasgebiet, Ecuador (© Westend61/Getty Images)|Intelligente Anpassungskünstler|![](/de-DE/2025/05/202505222200ButterflyTurtle.jpg)|
+202505232200|JotunheimenPark|Jotunheimen-Nationalpark in Norwegen (© Marisa Estivill/Shutterstock)|Die wilde Seite des Nordens|![](/de-DE/2025/05/202505232200JotunheimenPark.jpg)|
