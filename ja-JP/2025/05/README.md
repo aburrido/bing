@@ -24,3 +24,4 @@
 202505201500|SongyangTeaGarden|楊家堂村の茶園, 中国 浙江省 (© feng xu/Getty Images)|今日は国際お茶の日|![](/ja-JP/2025/05/202505201500SongyangTeaGarden.jpg)|
 202505211500|BaobabAvenue|バオバブの巨木, マダガスカル (© Framalicious/Shutterstock)|今日は「国際生物多様性の日」|![](/ja-JP/2025/05/202505211500BaobabAvenue.jpg)|
 202505221500|ButterflyTurtle|モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)|今日は世界カメの日|![](/ja-JP/2025/05/202505221500ButterflyTurtle.jpg)|
+202505231500|IrisSanguinea2025|水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)|今日から水郷佐原あやめ祭り|![](/ja-JP/2025/05/202505231500IrisSanguinea2025.jpg)|
