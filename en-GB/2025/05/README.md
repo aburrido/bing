@@ -25,3 +25,4 @@
 202505212300|HayFestival2025|A bookshop in Hay-on-Wye, Wales, June 1997 (© Epics/Contributor/Hulton Archive/Getty Images)|A 'write' place to be|![](/en-GB/2025/05/202505212300HayFestival2025.jpg)|
 202505222300|ButterflyTurtle|A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)|Shell yeah!|![](/en-GB/2025/05/202505222300ButterflyTurtle.jpg)|
 202505232300|JotunheimenPark|Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)|Europe's wild side|![](/en-GB/2025/05/202505232300JotunheimenPark.jpg)|
+202505242300|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)|Bloom where you are planted|![](/en-GB/2025/05/202505242300ButchartFlowers.jpg)|
