@@ -25,3 +25,4 @@
 202505211500|BaobabAvenue|バオバブの巨木, マダガスカル (© Framalicious/Shutterstock)|今日は「国際生物多様性の日」|![](/ja-JP/2025/05/202505211500BaobabAvenue.jpg)|
 202505221500|ButterflyTurtle|モンキヨコクビガメ, エクアドル (© Westend61/Getty Images)|今日は世界カメの日|![](/ja-JP/2025/05/202505221500ButterflyTurtle.jpg)|
 202505231500|IrisSanguinea2025|水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)|今日から水郷佐原あやめ祭り|![](/ja-JP/2025/05/202505231500IrisSanguinea2025.jpg)|
+202505241500|ButchartFlowers|ブッチャート・ガーデン,  カナダ ブリティッシュコロンビア州 (© 2009fotofriends/Shutterstock)|色とりどりの花が咲く庭園|![](/ja-JP/2025/05/202505241500ButchartFlowers.jpg)|
