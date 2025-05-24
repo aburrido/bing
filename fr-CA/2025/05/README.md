@@ -24,3 +24,4 @@
 202505210400|SongyangTeaGarden|Jardin de thé au village de Yangjiatang, comté de Songyang, Chine (© feng xu/Getty Images)|Un parfum d’éterni-thé|![](/fr-CA/2025/05/202505210400SongyangTeaGarden.jpg)|
 202505220400|BaobabAvenue|Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)|La force tranquille de la biodiversité|![](/fr-CA/2025/05/202505220400BaobabAvenue.jpg)|
 202505230400|ButterflyTurtle|Tortue cistude avec un papillon flambeau sur le nez, Amazonie Équatorienne (© Westend61/Getty Images)|Un instant suspendu|![](/fr-CA/2025/05/202505230400ButterflyTurtle.jpg)|
+202505240400|JotunheimenPark|Parc national de Jotunheimen, Norvège (© Marisa Estivill/Shutterstock)|Parcs d’Europe, patrimoines vivants|![](/fr-CA/2025/05/202505240400JotunheimenPark.jpg)|
