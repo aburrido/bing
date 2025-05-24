@@ -25,3 +25,4 @@
 202505211600|BaobabAvenue|日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)|猴面包树大道|![](/zh-CN/2025/05/202505211600BaobabAvenue.jpg)|
 202505221600|ButterflyTurtle|停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)|为龟喝彩！|![](/zh-CN/2025/05/202505221600ButterflyTurtle.jpg)|
 202505231600|JotunheimenPark|挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)|欧洲的野性之美|![](/zh-CN/2025/05/202505231600JotunheimenPark.jpg)|
+202505241600|ButchartFlowers|布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)|绽放于你所在之地|![](/zh-CN/2025/05/202505241600ButchartFlowers.jpg)|
