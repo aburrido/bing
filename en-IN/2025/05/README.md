@@ -26,3 +26,4 @@
 202505221830|ButterflyTurtle|A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)|Shell yeah!|![](/en-IN/2025/05/202505221830ButterflyTurtle.jpg)|
 202505231830|JotunheimenPark|Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)|Europe's wild side|![](/en-IN/2025/05/202505231830JotunheimenPark.jpg)|
 202505241830|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)|Bloom where you are planted|![](/en-IN/2025/05/202505241830ButchartFlowers.jpg)|
+202505251830|AgrasenKiBaoli|Agrasen Ki Baoli, Connaught Place, New Delhi (© Neha Gupta/Getty Images)|Down we go!|![](/en-IN/2025/05/202505251830AgrasenKiBaoli.jpg)|
