@@ -26,3 +26,4 @@
 202505221600|ButterflyTurtle|停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)|为龟喝彩！|![](/zh-CN/2025/05/202505221600ButterflyTurtle.jpg)|
 202505231600|JotunheimenPark|挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)|欧洲的野性之美|![](/zh-CN/2025/05/202505231600JotunheimenPark.jpg)|
 202505241600|ButchartFlowers|布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)|绽放于你所在之地|![](/zh-CN/2025/05/202505241600ButchartFlowers.jpg)|
+202505251600|Arashiyama2025|沿着岚山保津川行驶的火车，京都，日本 (© Alvin Huang/Getty Images)|山间奔驰|![](/zh-CN/2025/05/202505251600Arashiyama2025.jpg)|
