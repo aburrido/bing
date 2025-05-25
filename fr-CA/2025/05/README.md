@@ -25,3 +25,4 @@
 202505220400|BaobabAvenue|Baobabs au coucher du soleil, allée des Baobabs, Madagascar (© Framalicious/Shutterstock)|La force tranquille de la biodiversité|![](/fr-CA/2025/05/202505220400BaobabAvenue.jpg)|
 202505230400|ButterflyTurtle|Tortue cistude avec un papillon flambeau sur le nez, Amazonie Équatorienne (© Westend61/Getty Images)|Un instant suspendu|![](/fr-CA/2025/05/202505230400ButterflyTurtle.jpg)|
 202505240400|JotunheimenPark|Parc national de Jotunheimen, Norvège (© Marisa Estivill/Shutterstock)|Parcs d’Europe, patrimoines vivants|![](/fr-CA/2025/05/202505240400JotunheimenPark.jpg)|
+202505250400|ButchartFlowers|Jardins Butchart à Brentwood Bay, Colombie-Britannique (© 2009fotofriends/Shutterstock)|Une symphonie florale à ciel ouvert|![](/fr-CA/2025/05/202505250400ButchartFlowers.jpg)|

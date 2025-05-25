@@ -25,3 +25,4 @@
 202505220400|BaobabAvenue|Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)|Baobab boulevard|![](/en-CA/2025/05/202505220400BaobabAvenue.jpg)|
 202505230400|ButterflyTurtle|A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)|Shell yeah!|![](/en-CA/2025/05/202505230400ButterflyTurtle.jpg)|
 202505240400|JotunheimenPark|Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)|Europe's wild side|![](/en-CA/2025/05/202505240400JotunheimenPark.jpg)|
+202505250400|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia (© 2009fotofriends/Shutterstock)|Bloom where you are planted|![](/en-CA/2025/05/202505250400ButchartFlowers.jpg)|
