@@ -26,3 +26,4 @@
 202505222200|ButterflyTurtle|Tortue cistude avec un papillon flambeau sur le nez, Amazonie Équatorienne (© Westend61/Getty Images)|Un instant suspendu|![](/fr-FR/2025/05/202505222200ButterflyTurtle.jpg)|
 202505232200|JotunheimenPark|Parc national de Jotunheimen, Norvège (© Marisa Estivill/Shutterstock)|Parcs d’Europe, patrimoines vivants|![](/fr-FR/2025/05/202505232200JotunheimenPark.jpg)|
 202505242200|LeopardMother|Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)|Toilette express made in maman !|![](/fr-FR/2025/05/202505242200LeopardMother.jpg)|
+202505252200|StorksMeadow|Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)|Elles relient les saisons, les terres et les hommes|![](/fr-FR/2025/05/202505252200StorksMeadow.jpg)|
