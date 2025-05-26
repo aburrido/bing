@@ -27,3 +27,4 @@
 202505232200|JotunheimenPark|Parc national de Jotunheimen, Norvège (© Marisa Estivill/Shutterstock)|Parcs d’Europe, patrimoines vivants|![](/fr-FR/2025/05/202505232200JotunheimenPark.jpg)|
 202505242200|LeopardMother|Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)|Toilette express made in maman !|![](/fr-FR/2025/05/202505242200LeopardMother.jpg)|
 202505252200|StorksMeadow|Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)|Elles relient les saisons, les terres et les hommes|![](/fr-FR/2025/05/202505252200StorksMeadow.jpg)|
+202505262200|MonaValePool|Piscine naturelle de Mona Vale, Sidney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)|Entre ciel et houle|![](/fr-FR/2025/05/202505262200MonaValePool.jpg)|
