@@ -28,3 +28,4 @@
 202505242200|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia, Kanada (© 2009fotofriends/Shutterstock)|Zauberhafte Blütenvielfalt|![](/de-DE/2025/05/202505242200ButchartFlowers.jpg)|
 202505252200|Arashiyama2025|Ein Zug fährt entlang des Hozugawa-Flusses in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)|Eine nostalgische Reise|![](/de-DE/2025/05/202505252200Arashiyama2025.jpg)|
 202505262200|MonaValePool|Mona Vale Ozean-Pool, Sydney, Australien (© jamenpercy/Getty Images)|Eine Badewanne im Meer|![](/de-DE/2025/05/202505262200MonaValePool.jpg)|
+202505272200|KelpOtter|Seeotter in einem Seetangbett schwimmend im Alaska Maritime National Wildlife Refuge, USA (© Gerry Ellis/Minden Pictures)(© Gerry Ellis/Minden Pictures)|Begnadete Schwimmer|![](/de-DE/2025/05/202505272200KelpOtter.jpg)|
