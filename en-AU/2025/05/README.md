@@ -28,3 +28,4 @@
 202505240700|JotunheimenPark|Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)|Info|![](/en-AU/2025/05/202505240700JotunheimenPark.jpg)|
 202505250700|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)|Info|![](/en-AU/2025/05/202505250700ButchartFlowers.jpg)|
 202505260700|Arashiyama2025|A train running along Hozugawa River in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)|Info|![](/en-AU/2025/05/202505260700Arashiyama2025.jpg)|
+202505270700|HeidelbergSpring|Heidelberg, Baden-Württemberg, Germany (© anyaivanova/Getty Images)|Info|![](/en-AU/2025/05/202505270700HeidelbergSpring.jpg)|
