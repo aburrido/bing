@@ -27,3 +27,4 @@
 202505240400|JotunheimenPark|Parc national de Jotunheimen, Norvège (© Marisa Estivill/Shutterstock)|Parcs d’Europe, patrimoines vivants|![](/fr-CA/2025/05/202505240400JotunheimenPark.jpg)|
 202505250400|ButchartFlowers|Jardins Butchart à Brentwood Bay, Colombie-Britannique (© 2009fotofriends/Shutterstock)|Une symphonie florale à ciel ouvert|![](/fr-CA/2025/05/202505250400ButchartFlowers.jpg)|
 202505260400|Arashiyama2025|Un train longeant la rivière Hozugawa à Arashiyama, Kyoto, Japon (© Alvin Huang/Getty Images)|Un voyage inscrit dans la mémoire du Japon|![](/fr-CA/2025/05/202505260400Arashiyama2025.jpg)|
+202505270400|MonaValePool|Piscine naturelle de Mona Vale, Sidney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)|Entre ciel et houle|![](/fr-CA/2025/05/202505270400MonaValePool.jpg)|

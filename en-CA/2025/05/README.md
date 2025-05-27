@@ -27,3 +27,4 @@
 202505240400|JotunheimenPark|Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)|Europe's wild side|![](/en-CA/2025/05/202505240400JotunheimenPark.jpg)|
 202505250400|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia (© 2009fotofriends/Shutterstock)|Bloom where you are planted|![](/en-CA/2025/05/202505250400ButchartFlowers.jpg)|
 202505260400|MountHamilton|Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)|Twists and turns of Mount Hamilton|![](/en-CA/2025/05/202505260400MountHamilton.jpg)|
+202505270400|MonaValePool|Mona Vale rockpool, Sydney, Australia (© jamenpercy/Getty Images)|A shore thing|![](/en-CA/2025/05/202505270400MonaValePool.jpg)|
