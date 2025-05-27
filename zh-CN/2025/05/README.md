@@ -28,3 +28,4 @@
 202505241600|ButchartFlowers|布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)|绽放于你所在之地|![](/zh-CN/2025/05/202505241600ButchartFlowers.jpg)|
 202505251600|Arashiyama2025|沿着岚山保津川行驶的火车，京都，日本 (© Alvin Huang/Getty Images)|山间奔驰|![](/zh-CN/2025/05/202505251600Arashiyama2025.jpg)|
 202505261600|MonaValePool|梦娜维尔岩池，悉尼，澳大利亚 (© jamenpercy/Getty Images)|一处海滨奇观|![](/zh-CN/2025/05/202505261600MonaValePool.jpg)|
+202505271600|KelpOtter|一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国 (© Gerry Ellis/Minden Pictures)|海獭很重要|![](/zh-CN/2025/05/202505271600KelpOtter.jpg)|
