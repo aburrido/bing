@@ -28,3 +28,4 @@
 202505250400|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia (© 2009fotofriends/Shutterstock)|Bloom where you are planted|![](/en-CA/2025/05/202505250400ButchartFlowers.jpg)|
 202505260400|MountHamilton|Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)|Twists and turns of Mount Hamilton|![](/en-CA/2025/05/202505260400MountHamilton.jpg)|
 202505270400|MonaValePool|Mona Vale rockpool, Sydney, Australia (© jamenpercy/Getty Images)|A shore thing|![](/en-CA/2025/05/202505270400MonaValePool.jpg)|
+202505280400|KelpOtter|Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge, United States (© Gerry Ellis/Minden Pictures)|Otterly important|![](/en-CA/2025/05/202505280400KelpOtter.jpg)|
