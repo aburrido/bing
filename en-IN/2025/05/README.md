@@ -29,3 +29,4 @@
 202505251830|AgrasenKiBaoli|Agrasen Ki Baoli, Connaught Place, New Delhi (© Neha Gupta/Getty Images)|Down we go!|![](/en-IN/2025/05/202505251830AgrasenKiBaoli.jpg)|
 202505261830|MonaValePool|Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)|A shore thing|![](/en-IN/2025/05/202505261830MonaValePool.jpg)|
 202505271830|KelpOtter|Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)|Otterly important|![](/en-IN/2025/05/202505271830KelpOtter.jpg)|
+202505281830|MiravetSpain|Miravet on the Ebro river, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)|Flowing through the centuries|![](/en-IN/2025/05/202505281830MiravetSpain.jpg)|
