@@ -29,3 +29,4 @@
 202505252300|BaobabAvenue|Baobab trees, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)|Baobab boulevard|![](/en-GB/2025/05/202505252300BaobabAvenue.jpg)|
 202505262300|MonaValePool|Mona Vale rockpool, Sydney, Australia (© jamenpercy/Getty Images)|A shore thing|![](/en-GB/2025/05/202505262300MonaValePool.jpg)|
 202505272300|KelpOtter|Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge, United States (© Gerry Ellis/Minden Pictures)|Otterly important|![](/en-GB/2025/05/202505272300KelpOtter.jpg)|
+202505282300|MiravetSpain|Miravet on the Ebro river, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)|Flowing through the centuries|![](/en-GB/2025/05/202505282300MiravetSpain.jpg)|
