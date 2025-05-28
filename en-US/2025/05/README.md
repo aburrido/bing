@@ -29,3 +29,4 @@
 202505250700|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)|Bloom where you're planted|![](/en-US/2025/05/202505250700ButchartFlowers.jpg)|
 202505260700|ArlingtonSunrise|Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)|Honoring the fallen|![](/en-US/2025/05/202505260700ArlingtonSunrise.jpg)|
 202505270700|MonaValePool|Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)|A shore thing|![](/en-US/2025/05/202505270700MonaValePool.jpg)|
+202505280700|KelpOtter|Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)|Otterly important|![](/en-US/2025/05/202505280700KelpOtter.jpg)|

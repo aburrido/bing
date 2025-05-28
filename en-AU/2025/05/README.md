@@ -29,3 +29,4 @@
 202505250700|ButchartFlowers|Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)|Info|![](/en-AU/2025/05/202505250700ButchartFlowers.jpg)|
 202505260700|Arashiyama2025|A train running along Hozugawa River in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)|Info|![](/en-AU/2025/05/202505260700Arashiyama2025.jpg)|
 202505270700|HeidelbergSpring|Heidelberg, Baden-Württemberg, Germany (© anyaivanova/Getty Images)|Info|![](/en-AU/2025/05/202505270700HeidelbergSpring.jpg)|
+202505280700|KelpOtter|Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge, United States (© Gerry Ellis/Minden Pictures)|Info|![](/en-AU/2025/05/202505280700KelpOtter.jpg)|
