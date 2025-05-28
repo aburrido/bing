@@ -29,3 +29,4 @@
 202505251500|JotunheimenPark|ヨトゥンヘイメン国立公園, ノルウェー (© Marisa Estivill/Shutterstock)|北欧神話における巨人の故郷|![](/ja-JP/2025/05/202505251500JotunheimenPark.jpg)|
 202505261500|MonaValePool|モナベール・ロックプール, オーストラリア (© jamenpercy/Getty Images)|大自然に囲まれた岩場の海水プール|![](/ja-JP/2025/05/202505261500MonaValePool.jpg)|
 202505271500|KelpOtter|海藻に巻かれたラッコ, 米国 アラスカ州 (© Gerry Ellis/Minden Pictures)|今日は世界カワウソの日|![](/ja-JP/2025/05/202505271500KelpOtter.jpg)|
+202505281500|MiravetSpain|ミラベット, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)|エブロ川に面している美しい村|![](/ja-JP/2025/05/202505281500MiravetSpain.jpg)|
