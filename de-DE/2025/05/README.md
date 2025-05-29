@@ -30,3 +30,4 @@
 202505262200|MonaValePool|Mona Vale Ozean-Pool, Sydney, Australien (© jamenpercy/Getty Images)|Eine Badewanne im Meer|![](/de-DE/2025/05/202505262200MonaValePool.jpg)|
 202505272200|KelpOtter|Seeotter in einem Seetangbett schwimmend im Alaska Maritime National Wildlife Refuge, USA (© Gerry Ellis/Minden Pictures)(© Gerry Ellis/Minden Pictures)|Begnadete Schwimmer|![](/de-DE/2025/05/202505272200KelpOtter.jpg)|
 202505282200|GoetheSchiller|Goethe-Schiller-Denkmal in Weimar, Thüringen (© Robert Ruidl/iStock/Getty Images)|Vaters Herz im Vers|![](/de-DE/2025/05/202505282200GoetheSchiller.jpg)|
+202505292200|LittlePigeonRiver|Little Pigeon River, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© GreenStock/Getty Images)|Ein Fluss, der Geschichten erzählt|![](/de-DE/2025/05/202505292200LittlePigeonRiver.jpg)|
