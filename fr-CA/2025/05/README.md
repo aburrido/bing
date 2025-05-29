@@ -29,3 +29,4 @@
 202505260400|Arashiyama2025|Un train longeant la rivière Hozugawa à Arashiyama, Kyoto, Japon (© Alvin Huang/Getty Images)|Un voyage inscrit dans la mémoire du Japon|![](/fr-CA/2025/05/202505260400Arashiyama2025.jpg)|
 202505270400|MonaValePool|Piscine naturelle de Mona Vale, Sidney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)|Entre ciel et houle|![](/fr-CA/2025/05/202505270400MonaValePool.jpg)|
 202505280400|KelpOtter|Loutre de mer au milieu de varech, refuge faunique national maritime d'Alaska, États-Unis (© Gerry Ellis/Minden Pictures)|Entre varech et vagues, la loutre veille|![](/fr-CA/2025/05/202505280400KelpOtter.jpg)|
+202505290400|MiravetSpain|Miravet sur le fleuve Èbre, Tarragone, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Un village suspendu au fil du fleuve|![](/fr-CA/2025/05/202505290400MiravetSpain.jpg)|
