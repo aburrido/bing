@@ -31,3 +31,4 @@
 202505272200|KelpOtter|Loutre de mer au milieu de varech, refuge faunique national maritime d'Alaska, États-Unis (© Gerry Ellis/Minden Pictures)|Entre varech et vagues, la loutre veille|![](/fr-FR/2025/05/202505272200KelpOtter.jpg)|
 202505282200|MiravetSpain|Miravet sur le fleuve Èbre, Tarragone, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Un village suspendu au fil du fleuve|![](/fr-FR/2025/05/202505282200MiravetSpain.jpg)|
 202505292200|LittlePigeonRiver|Little Pigeon River, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© GreenStock/Getty Images)|Là où la nature reprend ses droits|![](/fr-FR/2025/05/202505292200LittlePigeonRiver.jpg)|
+202505302200|SwedenReserve|Réserve naturelle de Knuthöjdsmossen, Suède (© Sven Halling/DEEPOL/plainpicture)|Le miroir des tourbières|![](/fr-FR/2025/05/202505302200SwedenReserve.jpg)|
