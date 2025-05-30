@@ -31,3 +31,4 @@
 202505271600|KelpOtter|一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国 (© Gerry Ellis/Minden Pictures)|海獭很重要|![](/zh-CN/2025/05/202505271600KelpOtter.jpg)|
 202505281600|MiravetSpain|米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙 (© Eloi_Omella/Getty Images)|穿越数个世纪的流淌|![](/zh-CN/2025/05/202505281600MiravetSpain.jpg)|
 202505291600|LittlePigeonRiver|小鸽子河，大雾山国家公园，田纳西州, 美国 (© GreenStock/Getty Images)|流经烟雾弥漫之地|![](/zh-CN/2025/05/202505291600LittlePigeonRiver.jpg)|
+202505301600|DuanwuFestivalY25|用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国 (© Visual China Group/Getty Images)|充满节日氛围节装饰|![](/zh-CN/2025/05/202505301600DuanwuFestivalY25.jpg)|
