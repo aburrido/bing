@@ -31,3 +31,4 @@
 202505271500|KelpOtter|海藻に巻かれたラッコ, 米国 アラスカ州 (© Gerry Ellis/Minden Pictures)|今日は世界カワウソの日|![](/ja-JP/2025/05/202505271500KelpOtter.jpg)|
 202505281500|MiravetSpain|ミラベット, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)|エブロ川に面している美しい村|![](/ja-JP/2025/05/202505281500MiravetSpain.jpg)|
 202505291500|LittlePigeonRiver|グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)|緑の森を流れる清らかな川|![](/ja-JP/2025/05/202505291500LittlePigeonRiver.jpg)|
+202505301500|SwedenReserve|クヌートイスモッセン自然保護区, スウェーデン (© Sven Halling/DEEPOL/plainpicture)|鏡のような湖に映る森の絶景|![](/ja-JP/2025/05/202505301500SwedenReserve.jpg)|
