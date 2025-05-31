@@ -32,3 +32,4 @@
 202505280700|KelpOtter|Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)|Otterly important|![](/en-US/2025/05/202505280700KelpOtter.jpg)|
 202505290700|MiravetSpain|Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)|Flowing through the centuries|![](/en-US/2025/05/202505290700MiravetSpain.jpg)|
 202505300700|LittlePigeonRiver|Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)|Flowing through the Smokies|![](/en-US/2025/05/202505300700LittlePigeonRiver.jpg)|
+202505310700|SwedenReserve|Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)|An ancient glacial landscape|![](/en-US/2025/05/202505310700SwedenReserve.jpg)|
