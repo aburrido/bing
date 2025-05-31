@@ -32,3 +32,4 @@
 202505281500|MiravetSpain|ミラベット, スペイン カタルーニャ州 (© Eloi_Omella/Getty Images)|エブロ川に面している美しい村|![](/ja-JP/2025/05/202505281500MiravetSpain.jpg)|
 202505291500|LittlePigeonRiver|グレート・スモーキー山脈国立公園, 米国 テネシー州 (© GreenStock/Getty Images)|緑の森を流れる清らかな川|![](/ja-JP/2025/05/202505291500LittlePigeonRiver.jpg)|
 202505301500|SwedenReserve|クヌートイスモッセン自然保護区, スウェーデン (© Sven Halling/DEEPOL/plainpicture)|鏡のような湖に映る森の絶景|![](/ja-JP/2025/05/202505301500SwedenReserve.jpg)|
+202505311500|GrandeTerreReef|ニューカレドニア・バリア・リーフ, フランス (© Karsten Wrobel/Getty Images)|今日はワールドリーフデー|![](/ja-JP/2025/05/202505311500GrandeTerreReef.jpg)|
