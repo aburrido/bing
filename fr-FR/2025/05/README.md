@@ -32,3 +32,4 @@
 202505282200|MiravetSpain|Miravet sur le fleuve Èbre, Tarragone, Catalogne, Espagne (© Eloi_Omella/Getty Images)|Un village suspendu au fil du fleuve|![](/fr-FR/2025/05/202505282200MiravetSpain.jpg)|
 202505292200|LittlePigeonRiver|Little Pigeon River, Parc national des Great Smoky Mountains, Tennessee, États-Unis (© GreenStock/Getty Images)|Là où la nature reprend ses droits|![](/fr-FR/2025/05/202505292200LittlePigeonRiver.jpg)|
 202505302200|SwedenReserve|Réserve naturelle de Knuthöjdsmossen, Suède (© Sven Halling/DEEPOL/plainpicture)|Le miroir des tourbières|![](/fr-FR/2025/05/202505302200SwedenReserve.jpg)|
+202505312200|GrandeTerreReef|Récif barrière au large de la Grande Terre, Nouvelle-Calédonie (© Karsten Wrobel/Getty Images)|Sous la surface, un monde en sursis|![](/fr-FR/2025/05/202505312200GrandeTerreReef.jpg)|

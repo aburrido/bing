@@ -32,3 +32,4 @@
 202505282200|GoetheSchiller|Goethe-Schiller-Denkmal in Weimar, Thüringen (© Robert Ruidl/iStock/Getty Images)|Vaters Herz im Vers|![](/de-DE/2025/05/202505282200GoetheSchiller.jpg)|
 202505292200|LittlePigeonRiver|Little Pigeon River, Great-Smoky-Mountains-Nationalpark, Tennessee, USA (© GreenStock/Getty Images)|Ein Fluss, der Geschichten erzählt|![](/de-DE/2025/05/202505292200LittlePigeonRiver.jpg)|
 202505302200|SwedenReserve|Naturschutzgebiet Knuthöjdsmossen, Schweden (© Sven Halling/DEEPOL/plainpicture)|Eine urzeitliche Gletscherwelt|![](/de-DE/2025/05/202505302200SwedenReserve.jpg)|
+202505312200|GrandeTerreReef|Barriere-Riff vor Grande Terre, Neukaledonien, Frankreich (© Karsten Wrobel/Getty Images)|Unterwasserpracht|![](/de-DE/2025/05/202505312200GrandeTerreReef.jpg)|
