@@ -4,3 +4,4 @@
 202506011600|EchinaceaButterfly|一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约 (© Marianne A. Campolongo/Alamy)|花的力量|![](/zh-CN/2025/06/202506011600EchinaceaButterfly.jpg)|
 202506021600|BicyclesUtrecht|乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)|为快乐而刹车|![](/zh-CN/2025/06/202506021600BicyclesUtrecht.jpg)|
 202506031600|CalaLuna|卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)|卡拉卢纳海滩, 撒丁岛, 意大利|![](/zh-CN/2025/06/202506031600CalaLuna.jpg)|
+202506041600|FumacinhaBahia|福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)|隐藏的美景|![](/zh-CN/2025/06/202506041600FumacinhaBahia.jpg)|
