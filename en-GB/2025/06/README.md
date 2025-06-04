@@ -4,3 +4,4 @@
 202506012300|EchinaceaButterfly|Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York, United States (© Marianne A. Campolongo/Alamy Stock Photo)|A blur among the blooms|![](/en-GB/2025/06/202506012300EchinaceaButterfly.jpg)|
 202506022300|BicyclesUtrecht|Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)|Brake for joy|![](/en-GB/2025/06/202506022300BicyclesUtrecht.jpg)|
 202506032300|CalaLuna|Cala Luna beach, Sardinia, Italy (© guenterguni/Getty Images)|Crisp blues, sharp views|![](/en-GB/2025/06/202506032300CalaLuna.jpg)|
+202506042300|OlivaresMural|Bottle cap mural by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling never looked so good|![](/en-GB/2025/06/202506042300OlivaresMural.jpg)|
