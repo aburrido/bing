@@ -5,3 +5,4 @@
 202506021500|BicyclesUtrecht|ユトレヒトの橋と自転車, オランダ (© George Pachantouris/Getty Images)|今日は世界自転車デー|![](/ja-JP/2025/06/202506021500BicyclesUtrecht.jpg)|
 202506031500|CalaLuna|カラルナビーチ, イタリア (© guenterguni/Getty Images)|三日月形の美しい砂浜|![](/ja-JP/2025/06/202506031500CalaLuna.jpg)|
 202506041500|OlivaresMural|ペットボトルキャップのモザイク画, ベネズエラ (© FEDERICO PARRA/AFP via Getty Images)|今日は世界環境デー|![](/ja-JP/2025/06/202506041500OlivaresMural.jpg)|
+202506051500|FlamingosNamibia|オオフラミンゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)|水辺で優雅に舞う鳥たち|![](/ja-JP/2025/06/202506051500FlamingosNamibia.jpg)|
