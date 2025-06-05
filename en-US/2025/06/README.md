@@ -5,3 +5,4 @@
 202506020700|EchinaceaButterfly|Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)|Flower power|![](/en-US/2025/06/202506020700EchinaceaButterfly.jpg)|
 202506030700|BicyclesUtrecht|Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)|Break for joy|![](/en-US/2025/06/202506030700BicyclesUtrecht.jpg)|
 202506040700|CalaLuna|The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)|Crisp blues, sharp views|![](/en-US/2025/06/202506040700CalaLuna.jpg)|
+202506050700|OlivaresMural|Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling never looked so good|![](/en-US/2025/06/202506050700OlivaresMural.jpg)|
