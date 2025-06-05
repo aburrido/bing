@@ -5,3 +5,4 @@
 202506021830|BicyclesUtrecht|Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)|Brake for joy|![](/en-IN/2025/06/202506021830BicyclesUtrecht.jpg)|
 202506031830|CalaLuna|Cala Luna beach, Sardinia, Italy (© guenterguni/Getty Images)|Crisp blues, sharp views|![](/en-IN/2025/06/202506031830CalaLuna.jpg)|
 202506041830|OlivaresMural|Bottle cap mural by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling never looked so good|![](/en-IN/2025/06/202506041830OlivaresMural.jpg)|
+202506051830|NormandyBeach|Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)|The day the tide turned|![](/en-IN/2025/06/202506051830NormandyBeach.jpg)|
