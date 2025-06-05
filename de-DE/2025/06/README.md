@@ -5,3 +5,4 @@
 202506022200|BicyclesUtrecht|Fahrräder auf einer Brücke in Utrecht, Niederlande (© George Pachantouris/Getty Images)|Zwischen Grachten und Fahrrädern|![](/de-DE/2025/06/202506022200BicyclesUtrecht.jpg)|
 202506032200|CalaLuna|Strand Cala Luna, Sardinien, Italien (© guenterguni/Getty Images)|Klare Blautöne, scharfe Ansichten|![](/de-DE/2025/06/202506032200CalaLuna.jpg)|
 202506042200|OlivaresMural|Flaschendeckel-Wandbild von Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling sah noch nie so gut aus|![](/de-DE/2025/06/202506042200OlivaresMural.jpg)|
+202506052200|DubrovnikTwilight|Altstadt von Dubrovnik in Dalmatien, Kroatien (© bluejayphoto/Getty Images)|Mittelalterlicher Charme|![](/de-DE/2025/06/202506052200DubrovnikTwilight.jpg)|
