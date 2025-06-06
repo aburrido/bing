@@ -6,3 +6,4 @@
 202506031830|CalaLuna|Cala Luna beach, Sardinia, Italy (© guenterguni/Getty Images)|Crisp blues, sharp views|![](/en-IN/2025/06/202506031830CalaLuna.jpg)|
 202506041830|OlivaresMural|Bottle cap mural by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling never looked so good|![](/en-IN/2025/06/202506041830OlivaresMural.jpg)|
 202506051830|NormandyBeach|Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)|The day the tide turned|![](/en-IN/2025/06/202506051830NormandyBeach.jpg)|
+202506061830|GadisarLake|Gadisar Lake, Jaisalmer, Rajasthan (© EoNaYa/Getty Images)|Boats, birds and peace await|![](/en-IN/2025/06/202506061830GadisarLake.jpg)|
