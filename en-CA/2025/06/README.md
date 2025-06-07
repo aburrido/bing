@@ -6,3 +6,4 @@
 202506040400|CalaLuna|Cala Luna beach, Sardinia, Italy (© guenterguni/Getty Images)|Crisp blues, sharp views|![](/en-CA/2025/06/202506040400CalaLuna.jpg)|
 202506050400|OlivaresMural|Bottle cap mural by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling never looked so good|![](/en-CA/2025/06/202506050400OlivaresMural.jpg)|
 202506060400|NormandyBeach|Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)|The day the tide turned|![](/en-CA/2025/06/202506060400NormandyBeach.jpg)|
+202506070400|PacificCrestTrail|Summit of Pine Mountain, Angeles National Forest, California, United States (© Matthew Kuhns/TANDEM Stills + Motion)|Taking the high road|![](/en-CA/2025/06/202506070400PacificCrestTrail.jpg)|
