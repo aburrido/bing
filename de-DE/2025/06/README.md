@@ -7,3 +7,4 @@
 202506042200|OlivaresMural|Flaschendeckel-Wandbild von Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)|Recycling sah noch nie so gut aus|![](/de-DE/2025/06/202506042200OlivaresMural.jpg)|
 202506052200|DubrovnikTwilight|Altstadt von Dubrovnik in Dalmatien, Kroatien (© bluejayphoto/Getty Images)|Mittelalterlicher Charme|![](/de-DE/2025/06/202506052200DubrovnikTwilight.jpg)|
 202506062200|PacificCrestTrail|Gipfel des Pine Mountain, Angeles National Forest, Kalifornien, USA (© Matthew Kuhns/TANDEM Stills + Motion)|Auf abgelegenen Pfaden|![](/de-DE/2025/06/202506062200PacificCrestTrail.jpg)|
+202506072200|StellarSeaLions|Stellersche Seelöwen, Vancouver Island, British Columbia, Kanada (© Steve Woods Photography/Getty Images)|Mitteilungsfreudige Schwimmer|![](/de-DE/2025/06/202506072200StellarSeaLions.jpg)|
