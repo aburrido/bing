@@ -8,3 +8,4 @@
 202506050700|FumacinhaBahia|Fumacinha Waterfall, Chapada Diamantina, Brazil (© Pulsar Imagens/Alamy)|Info|![](/en-AU/2025/06/202506050700FumacinhaBahia.jpg)|
 202506060700|Pheasant|Common pheasant, Normandy, France (© slowmotiongli/Getty Images)|Info|![](/en-AU/2025/06/202506060700Pheasant.jpg)|
 202506070700|PacificCrestTrail|Summit of Pine Mountain, Angeles National Forest, California, United States (© Matthew Kuhns/TANDEM Stills + Motion)|Info|![](/en-AU/2025/06/202506070700PacificCrestTrail.jpg)|
+202506080700|StellarSeaLions|Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)|Info|![](/en-AU/2025/06/202506080700StellarSeaLions.jpg)|
