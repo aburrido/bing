@@ -8,3 +8,4 @@
 202506051500|FlamingosNamibia|オオフラミンゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)|水辺で優雅に舞う鳥たち|![](/ja-JP/2025/06/202506051500FlamingosNamibia.jpg)|
 202506061500|PacificCrestTrail|アンジェルス国有林, 米国 カリフォルニア州 (© Matthew Kuhns/TANDEM Stills + Motion)|大都市のすぐそばに広がる大自然|![](/ja-JP/2025/06/202506061500PacificCrestTrail.jpg)|
 202506071500|StellarSeaLions|トドの群れ, カナダ ブリティッシュコロンビア州 (© Steve Woods Photography/Getty Images)|今日は世界海洋デー|![](/ja-JP/2025/06/202506071500StellarSeaLions.jpg)|
+202506081500|DubrovnikTwilight|ドゥブロヴニク旧市街, クロアチア (© bluejayphoto/Getty Images)|時が止まったかのような中世の街|![](/ja-JP/2025/06/202506081500DubrovnikTwilight.jpg)|
