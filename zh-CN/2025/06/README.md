@@ -8,3 +8,4 @@
 202506051600|NormandyBeach|诺曼底的阿罗芒什莱班 , 法国 (© Horia Merla/Getty Images)|诺曼底登陆日的转折点|![](/zh-CN/2025/06/202506051600NormandyBeach.jpg)|
 202506061600|PacificCrestTrail|松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国 (© Matthew Kuhns/TANDEM Stills + Motion)|走上高远之路|![](/zh-CN/2025/06/202506061600PacificCrestTrail.jpg)|
 202506071600|StellarSeaLions|北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大 (© Steve Woods Photography/Getty Images)|来自彼岸的问候|![](/zh-CN/2025/06/202506071600StellarSeaLions.jpg)|
+202506081600|DubrovnikTwilight|达尔马提亚的杜布罗夫尼克古城，克罗地亚 (© bluejayphoto/Getty Images)|探索君临城|![](/zh-CN/2025/06/202506081600DubrovnikTwilight.jpg)|
