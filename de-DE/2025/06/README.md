@@ -9,3 +9,4 @@
 202506062200|PacificCrestTrail|Gipfel des Pine Mountain, Angeles National Forest, Kalifornien, USA (© Matthew Kuhns/TANDEM Stills + Motion)|Auf abgelegenen Pfaden|![](/de-DE/2025/06/202506062200PacificCrestTrail.jpg)|
 202506072200|StellarSeaLions|Stellersche Seelöwen, Vancouver Island, British Columbia, Kanada (© Steve Woods Photography/Getty Images)|Mitteilungsfreudige Schwimmer|![](/de-DE/2025/06/202506072200StellarSeaLions.jpg)|
 202506082200|MillDetmold|Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)|Wo steht diese Mühle?|![](/de-DE/2025/06/202506082200MillDetmold.jpg)|
+202506092200|AerialEverglades|Luftaufnahme des Everglades-Nationalparks, Florida, USA (© Robert DelVecchio - OcuDrone/Getty Images)|Ein Fluss aus Gras|![](/de-DE/2025/06/202506092200AerialEverglades.jpg)|
