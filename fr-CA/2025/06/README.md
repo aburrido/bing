@@ -8,3 +8,4 @@
 202506060400|NormandyBeach|Plage du débarquement d’Arromanches-les-Bains, Normandie (© Horia Merla/Getty Images)|Des plages chargées d'Histoire|![](/fr-CA/2025/06/202506060400NormandyBeach.jpg)|
 202506070400|PacificCrestTrail|Sommet de Pine Mountain, Forêt nationale d’Angeles, Californie, États-Unis (© Matthew Kuhns/TANDEM Stills + Motion)|L’appel du grand air|![](/fr-CA/2025/06/202506070400PacificCrestTrail.jpg)|
 202506080400|StellarSeaLions|Lions de mer de Steller, île de Vancouver, Colombie-Britannique, Canada (© Steve Woods Photography/Getty Images)|Préserver ce qui nous préserve|![](/fr-CA/2025/06/202506080400StellarSeaLions.jpg)|
+202506090400|DubrovnikTwilight|Vieille ville de Dubrovnik, Dalmatie, Croatie (© bluejayphoto/Getty Images)|La perle de l’Adriatique|![](/fr-CA/2025/06/202506090400DubrovnikTwilight.jpg)|
