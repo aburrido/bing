@@ -9,3 +9,4 @@
 202506061830|GadisarLake|Gadisar Lake, Jaisalmer, Rajasthan (© EoNaYa/Getty Images)|Boats, birds and peace await|![](/en-IN/2025/06/202506061830GadisarLake.jpg)|
 202506071830|StellarSeaLions|Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)|Hello from the other side|![](/en-IN/2025/06/202506071830StellarSeaLions.jpg)|
 202506081830|DubrovnikTwilight|Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)|Explore King's Landing|![](/en-IN/2025/06/202506081830DubrovnikTwilight.jpg)|
+202506091830|AerialEverglades|Aerial view of Everglades National Park, Florida, United States (© Robert DelVecchio - OcuDrone/Getty Images)|A river of grass|![](/en-IN/2025/06/202506091830AerialEverglades.jpg)|
