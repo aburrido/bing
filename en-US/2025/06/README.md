@@ -10,3 +10,4 @@
 202506070700|PacificCrestTrail|Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)|Taking the high road|![](/en-US/2025/06/202506070700PacificCrestTrail.jpg)|
 202506080700|StellarSeaLions|Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)|Hello from the other side|![](/en-US/2025/06/202506080700StellarSeaLions.jpg)|
 202506090700|DubrovnikTwilight|Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)|Explore King's Landing|![](/en-US/2025/06/202506090700DubrovnikTwilight.jpg)|
+202506100700|AerialEverglades|Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)|A river of grass|![](/en-US/2025/06/202506100700AerialEverglades.jpg)|
