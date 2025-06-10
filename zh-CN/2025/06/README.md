@@ -10,3 +10,4 @@
 202506071600|StellarSeaLions|北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大 (© Steve Woods Photography/Getty Images)|来自彼岸的问候|![](/zh-CN/2025/06/202506071600StellarSeaLions.jpg)|
 202506081600|DubrovnikTwilight|达尔马提亚的杜布罗夫尼克古城，克罗地亚 (© bluejayphoto/Getty Images)|探索君临城|![](/zh-CN/2025/06/202506081600DubrovnikTwilight.jpg)|
 202506091600|AerialEverglades|大沼泽地国家公园的鸟瞰图，佛罗里达州，美国 (© Robert DelVecchio - OcuDrone/Getty Images)|草之河流|![](/zh-CN/2025/06/202506091600AerialEverglades.jpg)|
+202506101600|FlamingosNamibia|大红鹳，吕德里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)|潮汐间的芭蕾|![](/zh-CN/2025/06/202506101600FlamingosNamibia.jpg)|
