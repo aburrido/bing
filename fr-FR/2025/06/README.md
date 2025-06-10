@@ -10,3 +10,4 @@
 202506072200|StellarSeaLions|Lions de mer de Steller, île de Vancouver, Colombie-Britannique, Canada (© Steve Woods Photography/Getty Images)|Préserver ce qui nous préserve|![](/fr-FR/2025/06/202506072200StellarSeaLions.jpg)|
 202506082200|DubrovnikTwilight|Vieille ville de Dubrovnik, Dalmatie, Croatie (© bluejayphoto/Getty Images)|La perle de l’Adriatique|![](/fr-FR/2025/06/202506082200DubrovnikTwilight.jpg)|
 202506092200|AerialEverglades|Vue aérienne du parc national des Everglades, Floride, États-Unis (© Robert DelVecchio - OcuDrone/Getty Images)|Everglades, un souffle d’eau et de vie|![](/fr-FR/2025/06/202506092200AerialEverglades.jpg)|
+202506102200|FlamingosNamibia|Flamants roses, Lüderitz, Namibie (© Karine Aigner/TANDEM Stills + Motion)|La grâce à l’état pur|![](/fr-FR/2025/06/202506102200FlamingosNamibia.jpg)|
