@@ -10,3 +10,4 @@
 202506071500|StellarSeaLions|トドの群れ, カナダ ブリティッシュコロンビア州 (© Steve Woods Photography/Getty Images)|今日は世界海洋デー|![](/ja-JP/2025/06/202506071500StellarSeaLions.jpg)|
 202506081500|DubrovnikTwilight|ドゥブロヴニク旧市街, クロアチア (© bluejayphoto/Getty Images)|時が止まったかのような中世の街|![](/ja-JP/2025/06/202506081500DubrovnikTwilight.jpg)|
 202506091500|AerialEverglades|エバーグレーズ国立公園, 米国 フロリダ州 (© Robert DelVecchio - OcuDrone/Getty Images)|水と草が織りなす絶景|![](/ja-JP/2025/06/202506091500AerialEverglades.jpg)|
+202506101500|Hydrangea2025|あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)|今日は入梅|![](/ja-JP/2025/06/202506101500Hydrangea2025.jpg)|
