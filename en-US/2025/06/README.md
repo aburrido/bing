@@ -11,3 +11,4 @@
 202506080700|StellarSeaLions|Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)|Hello from the other side|![](/en-US/2025/06/202506080700StellarSeaLions.jpg)|
 202506090700|DubrovnikTwilight|Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)|Explore King's Landing|![](/en-US/2025/06/202506090700DubrovnikTwilight.jpg)|
 202506100700|AerialEverglades|Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)|A river of grass|![](/en-US/2025/06/202506100700AerialEverglades.jpg)|
+202506110700|FlamingosNamibia|Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|A tidal ballet|![](/en-US/2025/06/202506110700FlamingosNamibia.jpg)|
