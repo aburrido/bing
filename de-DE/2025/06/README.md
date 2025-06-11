@@ -11,3 +11,4 @@
 202506082200|MillDetmold|Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)|Wo steht diese Mühle?|![](/de-DE/2025/06/202506082200MillDetmold.jpg)|
 202506092200|AerialEverglades|Luftaufnahme des Everglades-Nationalparks, Florida, USA (© Robert DelVecchio - OcuDrone/Getty Images)|Ein Fluss aus Gras|![](/de-DE/2025/06/202506092200AerialEverglades.jpg)|
 202506102200|FlamingosNamibia|Rosaflamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|Grazile und stolze Tänzer|![](/de-DE/2025/06/202506102200FlamingosNamibia.jpg)|
+202506112200|BigBendChisos|Chisos Mountains, Big-Bend-Nationalpark, Texas, USA (© Dean Fikar/Getty Images)|Unberührte Wildnis|![](/de-DE/2025/06/202506112200BigBendChisos.jpg)|
