@@ -12,3 +12,4 @@
 202506091500|AerialEverglades|エバーグレーズ国立公園, 米国 フロリダ州 (© Robert DelVecchio - OcuDrone/Getty Images)|水と草が織りなす絶景|![](/ja-JP/2025/06/202506091500AerialEverglades.jpg)|
 202506101500|Hydrangea2025|あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)|今日は入梅|![](/ja-JP/2025/06/202506101500Hydrangea2025.jpg)|
 202506111500|BigBendChisos|ビッグ・ベンド国立公園, 米国 テキサス州 (© Dean Fikar/Getty Images)|多様な命が息づく砂漠の楽園|![](/ja-JP/2025/06/202506111500BigBendChisos.jpg)|
+202506121500|SanMiguelAzores|ヴィラ・フランカ・ド・カンポ島, ポルトガル (© ARoxo/Getty Images)|大西洋に浮かぶ楽園|![](/ja-JP/2025/06/202506121500SanMiguelAzores.jpg)|
