@@ -12,3 +12,4 @@
 202506091600|AerialEverglades|大沼泽地国家公园的鸟瞰图，佛罗里达州，美国 (© Robert DelVecchio - OcuDrone/Getty Images)|草之河流|![](/zh-CN/2025/06/202506091600AerialEverglades.jpg)|
 202506101600|FlamingosNamibia|大红鹳，吕德里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)|潮汐间的芭蕾|![](/zh-CN/2025/06/202506101600FlamingosNamibia.jpg)|
 202506111600|BigBendChisos|奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)|星空、岩石与孤寂|![](/zh-CN/2025/06/202506111600BigBendChisos.jpg)|
+202506121600|SanMiguelAzores|维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)|海洋的隐秘心跳|![](/zh-CN/2025/06/202506121600SanMiguelAzores.jpg)|
