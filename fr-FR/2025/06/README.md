@@ -12,3 +12,4 @@
 202506092200|AerialEverglades|Vue aérienne du parc national des Everglades, Floride, États-Unis (© Robert DelVecchio - OcuDrone/Getty Images)|Everglades, un souffle d’eau et de vie|![](/fr-FR/2025/06/202506092200AerialEverglades.jpg)|
 202506102200|FlamingosNamibia|Flamants roses, Lüderitz, Namibie (© Karine Aigner/TANDEM Stills + Motion)|La grâce à l’état pur|![](/fr-FR/2025/06/202506102200FlamingosNamibia.jpg)|
 202506112200|BigBendChisos|Chisos Mountains, Parc national de Big Bend, Texas, État-Unis (© Dean Fikar/Getty Images)|Le désert aux trois visages|![](/fr-FR/2025/06/202506112200BigBendChisos.jpg)|
+202506122200|SanMiguelAzores|Îlot de Vila Franca do Campo, île de São Miguel, Açores, Portugal (© ARoxo/Getty Images)|Le cœur de l’océan|![](/fr-FR/2025/06/202506122200SanMiguelAzores.jpg)|

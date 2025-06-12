@@ -12,3 +12,4 @@
 202506092200|AerialEverglades|Luftaufnahme des Everglades-Nationalparks, Florida, USA (© Robert DelVecchio - OcuDrone/Getty Images)|Ein Fluss aus Gras|![](/de-DE/2025/06/202506092200AerialEverglades.jpg)|
 202506102200|FlamingosNamibia|Rosaflamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|Grazile und stolze Tänzer|![](/de-DE/2025/06/202506102200FlamingosNamibia.jpg)|
 202506112200|BigBendChisos|Chisos Mountains, Big-Bend-Nationalpark, Texas, USA (© Dean Fikar/Getty Images)|Unberührte Wildnis|![](/de-DE/2025/06/202506112200BigBendChisos.jpg)|
+202506122200|SanMiguelAzores|Insel Vila Franca do Campo, São Miguel, Azoren, Portugal (© ARoxo/Getty Images)|Ein natürlicher Pool|![](/de-DE/2025/06/202506122200SanMiguelAzores.jpg)|
