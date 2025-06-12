@@ -11,3 +11,4 @@
 202506090400|DubrovnikTwilight|Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)|Explore King's Landing|![](/en-CA/2025/06/202506090400DubrovnikTwilight.jpg)|
 202506100400|AerialEverglades|Aerial view of Everglades National Park, Florida, United States (© Robert DelVecchio - OcuDrone/Getty Images)|A river of grass|![](/en-CA/2025/06/202506100400AerialEverglades.jpg)|
 202506110400|FlamingosNamibia|Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|A tidal ballet|![](/en-CA/2025/06/202506110400FlamingosNamibia.jpg)|
+202506120400|BigBendChisos|Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)|Stars, stone and solitude|![](/en-CA/2025/06/202506120400BigBendChisos.jpg)|

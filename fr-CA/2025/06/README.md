@@ -11,3 +11,4 @@
 202506090400|DubrovnikTwilight|Vieille ville de Dubrovnik, Dalmatie, Croatie (© bluejayphoto/Getty Images)|La perle de l’Adriatique|![](/fr-CA/2025/06/202506090400DubrovnikTwilight.jpg)|
 202506100400|AerialEverglades|Vue aérienne du parc national des Everglades, Floride, États-Unis (© Robert DelVecchio - OcuDrone/Getty Images)|Everglades, un souffle d’eau et de vie|![](/fr-CA/2025/06/202506100400AerialEverglades.jpg)|
 202506110400|FlamingosNamibia|Flamants roses, Lüderitz, Namibie (© Karine Aigner/TANDEM Stills + Motion)|La grâce à l’état pur|![](/fr-CA/2025/06/202506110400FlamingosNamibia.jpg)|
+202506120400|BigBendChisos|Chisos Mountains, Parc national de Big Bend, Texas, État-Unis (© Dean Fikar/Getty Images)|Le désert aux trois visages|![](/fr-CA/2025/06/202506120400BigBendChisos.jpg)|
