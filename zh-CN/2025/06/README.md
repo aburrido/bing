@@ -13,3 +13,4 @@
 202506101600|FlamingosNamibia|大红鹳，吕德里茨，纳米比亚 (© Karine Aigner/TANDEM Stills + Motion)|潮汐间的芭蕾|![](/zh-CN/2025/06/202506101600FlamingosNamibia.jpg)|
 202506111600|BigBendChisos|奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)|星空、岩石与孤寂|![](/zh-CN/2025/06/202506111600BigBendChisos.jpg)|
 202506121600|SanMiguelAzores|维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)|海洋的隐秘心跳|![](/zh-CN/2025/06/202506121600SanMiguelAzores.jpg)|
+202506131600|DolomitiEstate|五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)|静谧之声|![](/zh-CN/2025/06/202506131600DolomitiEstate.jpg)|
