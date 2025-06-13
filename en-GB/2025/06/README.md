@@ -13,3 +13,4 @@
 202506102300|FlamingosNamibia|Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|A tidal ballet|![](/en-GB/2025/06/202506102300FlamingosNamibia.jpg)|
 202506112300|BigBendChisos|Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)|Stars, stone and solitude|![](/en-GB/2025/06/202506112300BigBendChisos.jpg)|
 202506122300|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|The ocean's hidden heartbeat|![](/en-GB/2025/06/202506122300SanMiguelAzores.jpg)|
+202506132300|TroopingTheColour2025|Trooping the Colour procession along The Mall in London, England, on June 16, 2007 (© Tim Graham Photo Library/Getty Images)|A royal birthday parade|![](/en-GB/2025/06/202506132300TroopingTheColour2025.jpg)|
