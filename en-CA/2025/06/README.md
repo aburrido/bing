@@ -12,3 +12,4 @@
 202506100400|AerialEverglades|Aerial view of Everglades National Park, Florida, United States (© Robert DelVecchio - OcuDrone/Getty Images)|A river of grass|![](/en-CA/2025/06/202506100400AerialEverglades.jpg)|
 202506110400|FlamingosNamibia|Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|A tidal ballet|![](/en-CA/2025/06/202506110400FlamingosNamibia.jpg)|
 202506120400|BigBendChisos|Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)|Stars, stone and solitude|![](/en-CA/2025/06/202506120400BigBendChisos.jpg)|
+202506130400|CanadianGPQuebec|Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)|From city streets to racing seats|![](/en-CA/2025/06/202506130400CanadianGPQuebec.jpg)|
