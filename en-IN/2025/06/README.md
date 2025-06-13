@@ -14,3 +14,4 @@
 202506111830|BigBendChisos|Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)|Stars, stone and solitude|![](/en-IN/2025/06/202506111830BigBendChisos.jpg)|
 202506121830|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|The ocean's hidden heartbeat|![](/en-IN/2025/06/202506121830SanMiguelAzores.jpg)|
 ||||![](/en-IN/2025/06/.jpg)|
+202506131830|DolomitiEstate|Cinque Torri, Dolomiti, Cortina d’Ampezzo, Belluno, Veneto, Italy (© usabin/Getty Images)|The sounds of silence|![](/en-IN/2025/06/202506131830DolomitiEstate.jpg)|
