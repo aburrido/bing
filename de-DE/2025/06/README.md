@@ -13,3 +13,4 @@
 202506102200|FlamingosNamibia|Rosaflamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|Grazile und stolze Tänzer|![](/de-DE/2025/06/202506102200FlamingosNamibia.jpg)|
 202506112200|BigBendChisos|Chisos Mountains, Big-Bend-Nationalpark, Texas, USA (© Dean Fikar/Getty Images)|Unberührte Wildnis|![](/de-DE/2025/06/202506112200BigBendChisos.jpg)|
 202506122200|SanMiguelAzores|Insel Vila Franca do Campo, São Miguel, Azoren, Portugal (© ARoxo/Getty Images)|Ein natürlicher Pool|![](/de-DE/2025/06/202506122200SanMiguelAzores.jpg)|
+202506132200|DolomitiEstate|Cinque Torri, Dolomiten, Italien (© usabin/Getty Images)|Die Klänge der Stille|![](/de-DE/2025/06/202506132200DolomitiEstate.jpg)|
