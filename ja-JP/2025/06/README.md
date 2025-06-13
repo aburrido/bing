@@ -13,3 +13,4 @@
 202506101500|Hydrangea2025|あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)|今日は入梅|![](/ja-JP/2025/06/202506101500Hydrangea2025.jpg)|
 202506111500|BigBendChisos|ビッグ・ベンド国立公園, 米国 テキサス州 (© Dean Fikar/Getty Images)|多様な命が息づく砂漠の楽園|![](/ja-JP/2025/06/202506111500BigBendChisos.jpg)|
 202506121500|SanMiguelAzores|ヴィラ・フランカ・ド・カンポ島, ポルトガル (© ARoxo/Getty Images)|大西洋に浮かぶ楽園|![](/ja-JP/2025/06/202506121500SanMiguelAzores.jpg)|
+202506131500|NikkoToshoguShrine|日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)|明日は栃木県民の日|![](/ja-JP/2025/06/202506131500NikkoToshoguShrine.jpg)|
