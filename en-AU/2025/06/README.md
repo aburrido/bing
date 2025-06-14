@@ -14,3 +14,4 @@
 202506110700|FlamingosNamibia|Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)|Info|![](/en-AU/2025/06/202506110700FlamingosNamibia.jpg)|
 202506120700|BigBendChisos|Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)|Info|![](/en-AU/2025/06/202506120700BigBendChisos.jpg)|
 202506130700|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|Info|![](/en-AU/2025/06/202506130700SanMiguelAzores.jpg)|
+202506140700|DolomitiEstate|Cinque Torri, Dolomites, Italy (© usabin/Getty Images)|Info|![](/en-AU/2025/06/202506140700DolomitiEstate.jpg)|
