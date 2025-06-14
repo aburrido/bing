@@ -14,3 +14,4 @@
 202506112200|BigBendChisos|Chisos Mountains, Big-Bend-Nationalpark, Texas, USA (© Dean Fikar/Getty Images)|Unberührte Wildnis|![](/de-DE/2025/06/202506112200BigBendChisos.jpg)|
 202506122200|SanMiguelAzores|Insel Vila Franca do Campo, São Miguel, Azoren, Portugal (© ARoxo/Getty Images)|Ein natürlicher Pool|![](/de-DE/2025/06/202506122200SanMiguelAzores.jpg)|
 202506132200|DolomitiEstate|Cinque Torri, Dolomiten, Italien (© usabin/Getty Images)|Die Klänge der Stille|![](/de-DE/2025/06/202506132200DolomitiEstate.jpg)|
+202506142200|WatertowerMannheim|Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)|Vom funktionalen Bauwerk zum Wahrzeichen|![](/de-DE/2025/06/202506142200WatertowerMannheim.jpg)|

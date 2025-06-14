@@ -14,3 +14,4 @@
 202506112200|BigBendChisos|Chisos Mountains, Parc national de Big Bend, Texas, État-Unis (© Dean Fikar/Getty Images)|Le désert aux trois visages|![](/fr-FR/2025/06/202506112200BigBendChisos.jpg)|
 202506122200|SanMiguelAzores|Îlot de Vila Franca do Campo, île de São Miguel, Açores, Portugal (© ARoxo/Getty Images)|Le cœur de l’océan|![](/fr-FR/2025/06/202506122200SanMiguelAzores.jpg)|
 202506132200|DolomitiEstate|Cinque Torri, Dolomites, Italie (© usabin/Getty Images)|Des sentinelles au cœur des Dolomites|![](/fr-FR/2025/06/202506132200DolomitiEstate.jpg)|
+202506142200|RheaDad|Nandou de Darwin mâle avec ses petits, parc national Torres del Paine, Patagonie, Chili (© Ignacio Yufera/Minden Pictures)|Un papa hors du commun|![](/fr-FR/2025/06/202506142200RheaDad.jpg)|
