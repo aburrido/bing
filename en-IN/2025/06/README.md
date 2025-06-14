@@ -15,3 +15,4 @@
 202506121830|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|The ocean's hidden heartbeat|![](/en-IN/2025/06/202506121830SanMiguelAzores.jpg)|
 ||||![](/en-IN/2025/06/.jpg)|
 202506131830|DolomitiEstate|Cinque Torri, Dolomiti, Cortina d’Ampezzo, Belluno, Veneto, Italy (© usabin/Getty Images)|The sounds of silence|![](/en-IN/2025/06/202506131830DolomitiEstate.jpg)|
+202506141830|RheaDad|Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)|Feathered father figure|![](/en-IN/2025/06/202506141830RheaDad.jpg)|
