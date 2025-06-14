@@ -14,3 +14,4 @@
 202506111500|BigBendChisos|ビッグ・ベンド国立公園, 米国 テキサス州 (© Dean Fikar/Getty Images)|多様な命が息づく砂漠の楽園|![](/ja-JP/2025/06/202506111500BigBendChisos.jpg)|
 202506121500|SanMiguelAzores|ヴィラ・フランカ・ド・カンポ島, ポルトガル (© ARoxo/Getty Images)|大西洋に浮かぶ楽園|![](/ja-JP/2025/06/202506121500SanMiguelAzores.jpg)|
 202506131500|NikkoToshoguShrine|日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)|明日は栃木県民の日|![](/ja-JP/2025/06/202506131500NikkoToshoguShrine.jpg)|
+202506141500|RheaDad|ダーウィンレアの父子, チリ (© Ignacio Yufera/Minden Pictures)|今日は父の日|![](/ja-JP/2025/06/202506141500RheaDad.jpg)|
