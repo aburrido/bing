@@ -15,3 +15,4 @@
 202506121600|SanMiguelAzores|维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)|海洋的隐秘心跳|![](/zh-CN/2025/06/202506121600SanMiguelAzores.jpg)|
 202506131600|DolomitiEstate|五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)|静谧之声|![](/zh-CN/2025/06/202506131600DolomitiEstate.jpg)|
 202506141600|RheaDad|雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)|羽翼下的父爱|![](/zh-CN/2025/06/202506141600RheaDad.jpg)|
+202506151600|SeaTurtleBrazil|海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)|远古泳者的现代困境|![](/zh-CN/2025/06/202506151600SeaTurtleBrazil.jpg)|
