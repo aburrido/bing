@@ -15,3 +15,4 @@
 202506122300|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|The ocean's hidden heartbeat|![](/en-GB/2025/06/202506122300SanMiguelAzores.jpg)|
 202506132300|TroopingTheColour2025|Trooping the Colour procession along The Mall in London, England, on June 16, 2007 (© Tim Graham Photo Library/Getty Images)|A royal birthday parade|![](/en-GB/2025/06/202506132300TroopingTheColour2025.jpg)|
 202506142300|RheaDad|Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)|Feathered father figure|![](/en-GB/2025/06/202506142300RheaDad.jpg)|
+202506152300|SeaTurtleBrazil|Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)|Ancient swimmers, modern struggles|![](/en-GB/2025/06/202506152300SeaTurtleBrazil.jpg)|
