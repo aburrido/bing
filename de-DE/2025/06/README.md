@@ -15,3 +15,4 @@
 202506122200|SanMiguelAzores|Insel Vila Franca do Campo, São Miguel, Azoren, Portugal (© ARoxo/Getty Images)|Ein natürlicher Pool|![](/de-DE/2025/06/202506122200SanMiguelAzores.jpg)|
 202506132200|DolomitiEstate|Cinque Torri, Dolomiten, Italien (© usabin/Getty Images)|Die Klänge der Stille|![](/de-DE/2025/06/202506132200DolomitiEstate.jpg)|
 202506142200|WatertowerMannheim|Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)|Vom funktionalen Bauwerk zum Wahrzeichen|![](/de-DE/2025/06/202506142200WatertowerMannheim.jpg)|
+202506152200|SeaTurtleBrazil|Meeresschildkröte, Fernando de Noronha, Brasilien (© João Vianna/Getty Images)|Mit Geduld und Ausdauer durch die Wellen|![](/de-DE/2025/06/202506152200SeaTurtleBrazil.jpg)|
