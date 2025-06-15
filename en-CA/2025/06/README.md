@@ -14,3 +14,4 @@
 202506120400|BigBendChisos|Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)|Stars, stone and solitude|![](/en-CA/2025/06/202506120400BigBendChisos.jpg)|
 202506130400|CanadianGPQuebec|Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)|From city streets to racing seats|![](/en-CA/2025/06/202506130400CanadianGPQuebec.jpg)|
 202506140400|DolomitiEstate|Cinque Torri, Dolomites, Italy (© usabin/Getty Images)|The sounds of silence|![](/en-CA/2025/06/202506140400DolomitiEstate.jpg)|
+202506150400|RheaDad|Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)|Feathered father figure|![](/en-CA/2025/06/202506150400RheaDad.jpg)|

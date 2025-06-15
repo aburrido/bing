@@ -14,3 +14,4 @@
 202506120400|BigBendChisos|Chisos Mountains, Parc national de Big Bend, Texas, État-Unis (© Dean Fikar/Getty Images)|Le désert aux trois visages|![](/fr-CA/2025/06/202506120400BigBendChisos.jpg)|
 202506130400|CanadianGPQuebec|Silhouette urbaine de Montréal sur le fleuve Saint-Laurent, Québec (© Walter Bibikow/Stone/Getty Images)|Quand la vitesse frôle la perfection|![](/fr-CA/2025/06/202506130400CanadianGPQuebec.jpg)|
 202506140400|DolomitiEstate|Cinque Torri, Dolomites, Italie (© usabin/Getty Images)|Des sentinelles au cœur des Dolomites|![](/fr-CA/2025/06/202506140400DolomitiEstate.jpg)|
+202506150400|RheaDad|Nandou de Darwin mâle avec ses petits, parc national Torres del Paine, Patagonie, Chili (© Ignacio Yufera/Minden Pictures)|Un papa hors du commun|![](/fr-CA/2025/06/202506150400RheaDad.jpg)|
