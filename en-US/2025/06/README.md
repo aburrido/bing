@@ -16,3 +16,4 @@
 202506130700|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|The ocean's hidden heartbeat|![](/en-US/2025/06/202506130700SanMiguelAzores.jpg)|
 202506140700|FlagCapitolDC|Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)|Waving with pride|![](/en-US/2025/06/202506140700FlagCapitolDC.jpg)|
 202506150700|RheaDad|Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)|Feathered father figure|![](/en-US/2025/06/202506150700RheaDad.jpg)|
+202506160700|SeaTurtleBrazil|Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)|Ancient swimmers, modern struggles|![](/en-US/2025/06/202506160700SeaTurtleBrazil.jpg)|

@@ -16,3 +16,4 @@
 202506130700|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|Info|![](/en-AU/2025/06/202506130700SanMiguelAzores.jpg)|
 202506140700|DolomitiEstate|Cinque Torri, Dolomites, Italy (© usabin/Getty Images)|Info|![](/en-AU/2025/06/202506140700DolomitiEstate.jpg)|
 202506150700|RheaDad|Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)|Info|![](/en-AU/2025/06/202506150700RheaDad.jpg)|
+202506160700|SeaTurtleBrazil|Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)|Info|![](/en-AU/2025/06/202506160700SeaTurtleBrazil.jpg)|
