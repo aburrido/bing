@@ -16,3 +16,4 @@
 202506131600|DolomitiEstate|五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)|静谧之声|![](/zh-CN/2025/06/202506131600DolomitiEstate.jpg)|
 202506141600|RheaDad|雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)|羽翼下的父爱|![](/zh-CN/2025/06/202506141600RheaDad.jpg)|
 202506151600|SeaTurtleBrazil|海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)|远古泳者的现代困境|![](/zh-CN/2025/06/202506151600SeaTurtleBrazil.jpg)|
+202506161600|CumberlandOaks|坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)|海岸静谧，野性依旧|![](/zh-CN/2025/06/202506161600CumberlandOaks.jpg)|
