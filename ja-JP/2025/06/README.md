@@ -17,3 +17,4 @@
 202506141500|RheaDad|ダーウィンレアの父子, チリ (© Ignacio Yufera/Minden Pictures)|今日は父の日|![](/ja-JP/2025/06/202506141500RheaDad.jpg)|
 202506151500|SeaTurtleBrazil|碧い海に舞うウミガメ, ブラジル (© João Vianna/Getty Images)|今日は世界ウミガメの日|![](/ja-JP/2025/06/202506151500SeaTurtleBrazil.jpg)|
 202506161500|CumberlandOaks|カンバーランド島国立海岸, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)|潮風に揺れる森|![](/ja-JP/2025/06/202506161500CumberlandOaks.jpg)|
+202506171500|AsianSwallowtail|彼岸花にナミアゲハ (© lzh/Getty Images)|今週は全米花粉媒介者週間|![](/ja-JP/2025/06/202506171500AsianSwallowtail.jpg)|
