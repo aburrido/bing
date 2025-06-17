@@ -18,3 +18,4 @@
 202506141830|RheaDad|Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)|Feathered father figure|![](/en-IN/2025/06/202506141830RheaDad.jpg)|
 202506151830|SeaTurtleBrazil|Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)|Ancient swimmers, modern struggles|![](/en-IN/2025/06/202506151830SeaTurtleBrazil.jpg)|
 202506161830|CumberlandOaks|Maritime Forest in Cumberland Island National Seashore, Georgia, United States (© Chris Moore/TANDEM Stills + Motion)|Coastal quiet, untamed life|![](/en-IN/2025/06/202506161830CumberlandOaks.jpg)|
+202506171830|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Let the pollinating games begin!|![](/en-IN/2025/06/202506171830AsianSwallowtail.jpg)|
