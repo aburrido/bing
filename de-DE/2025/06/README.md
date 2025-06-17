@@ -17,3 +17,4 @@
 202506142200|WatertowerMannheim|Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)|Vom funktionalen Bauwerk zum Wahrzeichen|![](/de-DE/2025/06/202506142200WatertowerMannheim.jpg)|
 202506152200|SeaTurtleBrazil|Meeresschildkröte, Fernando de Noronha, Brasilien (© João Vianna/Getty Images)|Mit Geduld und Ausdauer durch die Wellen|![](/de-DE/2025/06/202506152200SeaTurtleBrazil.jpg)|
 202506162200|CumberlandOaks|Maritimer Wald im Cumberland Island National Seashore, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)|Verwobene Natur|![](/de-DE/2025/06/202506162200CumberlandOaks.jpg)|
+202506172200|AsianSwallowtail|Japanischer Schwalbenschwanz auf einer Spinnenlilie (© lzh/Getty Images)|Unermüdliche Helfer|![](/de-DE/2025/06/202506172200AsianSwallowtail.jpg)|
