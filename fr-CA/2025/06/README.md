@@ -16,3 +16,4 @@
 202506140400|DolomitiEstate|Cinque Torri, Dolomites, Italie (© usabin/Getty Images)|Des sentinelles au cœur des Dolomites|![](/fr-CA/2025/06/202506140400DolomitiEstate.jpg)|
 202506150400|RheaDad|Nandou de Darwin mâle avec ses petits, parc national Torres del Paine, Patagonie, Chili (© Ignacio Yufera/Minden Pictures)|Un papa hors du commun|![](/fr-CA/2025/06/202506150400RheaDad.jpg)|
 202506160400|SeaTurtleBrazil|Tortue marine, Fernando de Noronha, Brésil (© João Vianna/Getty Images)|Protéger les géantes des mers|![](/fr-CA/2025/06/202506160400SeaTurtleBrazil.jpg)|
+202506170400|CumberlandOaks|Forêt maritime sur l’île de Cumberland, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Des arbres qui cachent la forêt|![](/fr-CA/2025/06/202506170400CumberlandOaks.jpg)|
