@@ -18,3 +18,4 @@
 202506151600|SeaTurtleBrazil|海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)|远古泳者的现代困境|![](/zh-CN/2025/06/202506151600SeaTurtleBrazil.jpg)|
 202506161600|CumberlandOaks|坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)|海岸静谧，野性依旧|![](/zh-CN/2025/06/202506161600CumberlandOaks.jpg)|
 202506171600|AsianSwallowtail|红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)|让授粉游戏开始吧！|![](/zh-CN/2025/06/202506171600AsianSwallowtail.jpg)|
+202506181600|WinterBegins|圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)|潮汐与时间交汇之地|![](/zh-CN/2025/06/202506181600WinterBegins.jpg)|
