@@ -17,3 +17,4 @@
 202506150400|RheaDad|Nandou de Darwin mâle avec ses petits, parc national Torres del Paine, Patagonie, Chili (© Ignacio Yufera/Minden Pictures)|Un papa hors du commun|![](/fr-CA/2025/06/202506150400RheaDad.jpg)|
 202506160400|SeaTurtleBrazil|Tortue marine, Fernando de Noronha, Brésil (© João Vianna/Getty Images)|Protéger les géantes des mers|![](/fr-CA/2025/06/202506160400SeaTurtleBrazil.jpg)|
 202506170400|CumberlandOaks|Forêt maritime sur l’île de Cumberland, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Des arbres qui cachent la forêt|![](/fr-CA/2025/06/202506170400CumberlandOaks.jpg)|
+202506180400|AsianSwallowtail|Papillon machaon asiatique sur un lis araignée rouge (© lzh/Getty Images)|À vos marques, prêts… butinez!|![](/fr-CA/2025/06/202506180400AsianSwallowtail.jpg)|
