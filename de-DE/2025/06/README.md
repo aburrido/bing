@@ -18,3 +18,4 @@
 202506152200|SeaTurtleBrazil|Meeresschildkröte, Fernando de Noronha, Brasilien (© João Vianna/Getty Images)|Mit Geduld und Ausdauer durch die Wellen|![](/de-DE/2025/06/202506152200SeaTurtleBrazil.jpg)|
 202506162200|CumberlandOaks|Maritimer Wald im Cumberland Island National Seashore, Georgia, USA (© Chris Moore/TANDEM Stills + Motion)|Verwobene Natur|![](/de-DE/2025/06/202506162200CumberlandOaks.jpg)|
 202506172200|AsianSwallowtail|Japanischer Schwalbenschwanz auf einer Spinnenlilie (© lzh/Getty Images)|Unermüdliche Helfer|![](/de-DE/2025/06/202506172200AsianSwallowtail.jpg)|
+202506182200|WinterBegins|Strand in Santa Catarina, Brasilien (© CaioCarvalhoPhotography/Getty Images)|Wellen der Zeit|![](/de-DE/2025/06/202506182200WinterBegins.jpg)|
