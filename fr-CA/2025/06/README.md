@@ -18,3 +18,4 @@
 202506160400|SeaTurtleBrazil|Tortue marine, Fernando de Noronha, Brésil (© João Vianna/Getty Images)|Protéger les géantes des mers|![](/fr-CA/2025/06/202506160400SeaTurtleBrazil.jpg)|
 202506170400|CumberlandOaks|Forêt maritime sur l’île de Cumberland, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Des arbres qui cachent la forêt|![](/fr-CA/2025/06/202506170400CumberlandOaks.jpg)|
 202506180400|AsianSwallowtail|Papillon machaon asiatique sur un lis araignée rouge (© lzh/Getty Images)|À vos marques, prêts… butinez!|![](/fr-CA/2025/06/202506180400AsianSwallowtail.jpg)|
+202506190400|SanMiguelAzores|Îlot de Vila Franca do Campo, île de São Miguel, Açores, Portugal (© ARoxo/Getty Images)|Le cœur de l’océan|![](/fr-CA/2025/06/202506190400SanMiguelAzores.jpg)|
