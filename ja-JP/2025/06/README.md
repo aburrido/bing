@@ -19,3 +19,4 @@
 202506161500|CumberlandOaks|カンバーランド島国立海岸, 米国 ジョージア州 (© Chris Moore/TANDEM Stills + Motion)|潮風に揺れる森|![](/ja-JP/2025/06/202506161500CumberlandOaks.jpg)|
 202506171500|AsianSwallowtail|彼岸花にナミアゲハ (© lzh/Getty Images)|今週は全米花粉媒介者週間|![](/ja-JP/2025/06/202506171500AsianSwallowtail.jpg)|
 202506181500|FireflySeason2025|ホタルが光る森, 岡山県 (© JGalione/Getty Images)|初夏の夜を彩る光の舞|![](/ja-JP/2025/06/202506181500FireflySeason2025.jpg)|
+202506191500|IcelandSolstice|セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)|夕陽に染まる巨大な滝|![](/ja-JP/2025/06/202506191500IcelandSolstice.jpg)|
