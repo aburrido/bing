@@ -19,3 +19,4 @@
 202506162200|CumberlandOaks|Forêt maritime sur l’île de Cumberland, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Des arbres qui cachent la forêt|![](/fr-FR/2025/06/202506162200CumberlandOaks.jpg)|
 202506172200|AsianSwallowtail|Papillon machaon asiatique sur un lis araignée rouge (© lzh/Getty Images)|À vos marques, prêts… butinez !|![](/fr-FR/2025/06/202506172200AsianSwallowtail.jpg)|
 202506182200|WinterBegins|Plage à Santa Catarina, Brésil (© CaioCarvalhoPhotography/Getty Images)|Au rythme du sable et du temps|![](/fr-FR/2025/06/202506182200WinterBegins.jpg)|
+202506192200|SerengetiGiraffe|Girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)|La tendresse d’un monde à préserver|![](/fr-FR/2025/06/202506192200SerengetiGiraffe.jpg)|
