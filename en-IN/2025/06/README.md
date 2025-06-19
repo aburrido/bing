@@ -20,3 +20,4 @@
 202506161830|CumberlandOaks|Maritime Forest in Cumberland Island National Seashore, Georgia, United States (© Chris Moore/TANDEM Stills + Motion)|Coastal quiet, untamed life|![](/en-IN/2025/06/202506161830CumberlandOaks.jpg)|
 202506171830|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Let the pollinating games begin!|![](/en-IN/2025/06/202506171830AsianSwallowtail.jpg)|
 202506181830|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-IN/2025/06/202506181830SerengetiGiraffe.jpg)|
+202506191830|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-IN/2025/06/202506191830IcelandSolstice.jpg)|
