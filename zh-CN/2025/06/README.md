@@ -20,3 +20,4 @@
 202506171600|AsianSwallowtail|红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)|让授粉游戏开始吧！|![](/zh-CN/2025/06/202506171600AsianSwallowtail.jpg)|
 202506181600|WinterBegins|圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)|潮汐与时间交汇之地|![](/zh-CN/2025/06/202506181600WinterBegins.jpg)|
 202506191600|SerengetiGiraffe|一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)|寻找斑点|![](/zh-CN/2025/06/202506191600SerengetiGiraffe.jpg)|
+202506201600|SummerSolsticeY25|雾中莲花，中国佛山 (© huoguangliang/Getty Images)|此花端合在瑶池|![](/zh-CN/2025/06/202506201600SummerSolsticeY25.jpg)|
