@@ -19,3 +19,4 @@
 202506170400|CumberlandOaks|Forêt maritime sur l’île de Cumberland, Géorgie, États-Unis (© Chris Moore/TANDEM Stills + Motion)|Des arbres qui cachent la forêt|![](/fr-CA/2025/06/202506170400CumberlandOaks.jpg)|
 202506180400|AsianSwallowtail|Papillon machaon asiatique sur un lis araignée rouge (© lzh/Getty Images)|À vos marques, prêts… butinez!|![](/fr-CA/2025/06/202506180400AsianSwallowtail.jpg)|
 202506190400|SanMiguelAzores|Îlot de Vila Franca do Campo, île de São Miguel, Açores, Portugal (© ARoxo/Getty Images)|Le cœur de l’océan|![](/fr-CA/2025/06/202506190400SanMiguelAzores.jpg)|
+202506200400|IcelandSolstice|Cascade de Seljalandsfoss au coucher du soleil, Islande (© Tom Mackie/AWL/plainpicture)|Sous la cascade du jour sans fin|![](/fr-CA/2025/06/202506200400IcelandSolstice.jpg)|
