@@ -20,3 +20,4 @@
 202506172300|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Let the pollinating games begin!|![](/en-GB/2025/06/202506172300AsianSwallowtail.jpg)|
 202506182300|DolomitiEstate|Cinque Torri, Dolomites, Italy (© usabin/Getty Images)|The sounds of silence|![](/en-GB/2025/06/202506182300DolomitiEstate.jpg)|
 202506192300|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-GB/2025/06/202506192300SerengetiGiraffe.jpg)|
+202506202300|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-GB/2025/06/202506202300IcelandSolstice.jpg)|
