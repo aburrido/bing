@@ -20,3 +20,4 @@
 202506171500|AsianSwallowtail|彼岸花にナミアゲハ (© lzh/Getty Images)|今週は全米花粉媒介者週間|![](/ja-JP/2025/06/202506171500AsianSwallowtail.jpg)|
 202506181500|FireflySeason2025|ホタルが光る森, 岡山県 (© JGalione/Getty Images)|初夏の夜を彩る光の舞|![](/ja-JP/2025/06/202506181500FireflySeason2025.jpg)|
 202506191500|IcelandSolstice|セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)|夕陽に染まる巨大な滝|![](/ja-JP/2025/06/202506191500IcelandSolstice.jpg)|
+202506201500|SerengetiGiraffe|マサイキリンの母子, タンザニア (© Alberto Cassani/Getty Images)|今日は夏至|![](/ja-JP/2025/06/202506201500SerengetiGiraffe.jpg)|
