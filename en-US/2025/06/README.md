@@ -20,3 +20,4 @@
 202506170700|CumberlandOaks|Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)|Coastal quiet, untamed life|![](/en-US/2025/06/202506170700CumberlandOaks.jpg)|
 202506180700|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Let the pollinating games begin!|![](/en-US/2025/06/202506180700AsianSwallowtail.jpg)|
 202506190700|TexasCapitol|Texas State Capitol in Austin (© joe daniel price/Getty Images)|Celebrating freedom and resilience|![](/en-US/2025/06/202506190700TexasCapitol.jpg)|
+202506200700|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-US/2025/06/202506200700IcelandSolstice.jpg)|
