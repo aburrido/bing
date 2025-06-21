@@ -20,3 +20,4 @@
 202506180400|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Let the pollinating games begin!|![](/en-CA/2025/06/202506180400AsianSwallowtail.jpg)|
 202506190400|SanMiguelAzores|Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)|The ocean's hidden heartbeat|![](/en-CA/2025/06/202506190400SanMiguelAzores.jpg)|
 202506200400|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-CA/2025/06/202506200400IcelandSolstice.jpg)|
+202506210400|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-CA/2025/06/202506210400SerengetiGiraffe.jpg)|
