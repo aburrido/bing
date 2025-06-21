@@ -21,3 +21,4 @@
 202506182300|DolomitiEstate|Cinque Torri, Dolomites, Italy (© usabin/Getty Images)|The sounds of silence|![](/en-GB/2025/06/202506182300DolomitiEstate.jpg)|
 202506192300|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-GB/2025/06/202506192300SerengetiGiraffe.jpg)|
 202506202300|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-GB/2025/06/202506202300IcelandSolstice.jpg)|
+202506212300|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Jungle all the way|![](/en-GB/2025/06/202506212300AmazonEcuador.jpg)|
