@@ -21,3 +21,4 @@
 202506180700|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Info|![](/en-AU/2025/06/202506180700AsianSwallowtail.jpg)|
 202506190700|WinterBegins|Beach in Santa Catarina, Brazil (© CaioCarvalhoPhotography/Getty Images)|Info|![](/en-AU/2025/06/202506190700WinterBegins.jpg)|
 202506200700|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|Info|![](/en-AU/2025/06/202506200700IcelandSolstice.jpg)|
+202506210700|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Info|![](/en-AU/2025/06/202506210700SerengetiGiraffe.jpg)|

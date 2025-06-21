@@ -21,3 +21,4 @@
 202506180700|AsianSwallowtail|Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)|Let the pollinating games begin!|![](/en-US/2025/06/202506180700AsianSwallowtail.jpg)|
 202506190700|TexasCapitol|Texas State Capitol in Austin (© joe daniel price/Getty Images)|Celebrating freedom and resilience|![](/en-US/2025/06/202506190700TexasCapitol.jpg)|
 202506200700|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-US/2025/06/202506200700IcelandSolstice.jpg)|
+202506210700|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-US/2025/06/202506210700SerengetiGiraffe.jpg)|
