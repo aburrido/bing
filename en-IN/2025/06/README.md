@@ -22,3 +22,4 @@
 202506181830|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-IN/2025/06/202506181830SerengetiGiraffe.jpg)|
 202506191830|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-IN/2025/06/202506191830IcelandSolstice.jpg)|
 202506201830|LakshmanJhula|Lakshman Jhula, Rishikesh, Uttarakhand (© tscreationz/Shutterstock)|Pause, breathe and stretch|![](/en-IN/2025/06/202506201830LakshmanJhula.jpg)|
+202506211830|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Jungle all the way|![](/en-IN/2025/06/202506211830AmazonEcuador.jpg)|
