@@ -21,3 +21,4 @@
 202506190400|SanMiguelAzores|Îlot de Vila Franca do Campo, île de São Miguel, Açores, Portugal (© ARoxo/Getty Images)|Le cœur de l’océan|![](/fr-CA/2025/06/202506190400SanMiguelAzores.jpg)|
 202506200400|IcelandSolstice|Cascade de Seljalandsfoss au coucher du soleil, Islande (© Tom Mackie/AWL/plainpicture)|Sous la cascade du jour sans fin|![](/fr-CA/2025/06/202506200400IcelandSolstice.jpg)|
 202506210400|SerengetiGiraffe|Une girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)|La tendresse d’un monde à préserver|![](/fr-CA/2025/06/202506210400SerengetiGiraffe.jpg)|
+202506220400|AmazonEcuador|Forêt amazonienne, Équateur (© Mark Fox/Getty Images)|Un monde vivant en péril|![](/fr-CA/2025/06/202506220400AmazonEcuador.jpg)|
