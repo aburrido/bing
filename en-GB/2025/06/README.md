@@ -22,3 +22,4 @@
 202506192300|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-GB/2025/06/202506192300SerengetiGiraffe.jpg)|
 202506202300|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-GB/2025/06/202506202300IcelandSolstice.jpg)|
 202506212300|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Jungle all the way|![](/en-GB/2025/06/202506212300AmazonEcuador.jpg)|
+202506222300|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|From ruins to resilience|![](/en-GB/2025/06/202506222300DresdenElbe.jpg)|
