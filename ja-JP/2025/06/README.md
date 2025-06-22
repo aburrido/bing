@@ -22,3 +22,4 @@
 202506191500|IcelandSolstice|セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)|夕陽に染まる巨大な滝|![](/ja-JP/2025/06/202506191500IcelandSolstice.jpg)|
 202506201500|SerengetiGiraffe|マサイキリンの母子, タンザニア (© Alberto Cassani/Getty Images)|今日は夏至|![](/ja-JP/2025/06/202506201500SerengetiGiraffe.jpg)|
 202506211500|AmazonEcuador|アマゾン熱帯雨林, エクアドル (© Mark Fox/Getty Images)|今日は世界熱帯雨林の日|![](/ja-JP/2025/06/202506211500AmazonEcuador.jpg)|
+202506221500|DresdenElbe|ドレスデン, ドイツ (© Sean Pavone/Getty Images)|エルベ川の真珠|![](/ja-JP/2025/06/202506221500DresdenElbe.jpg)|
