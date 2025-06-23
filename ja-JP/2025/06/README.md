@@ -23,3 +23,4 @@
 202506201500|SerengetiGiraffe|マサイキリンの母子, タンザニア (© Alberto Cassani/Getty Images)|今日は夏至|![](/ja-JP/2025/06/202506201500SerengetiGiraffe.jpg)|
 202506211500|AmazonEcuador|アマゾン熱帯雨林, エクアドル (© Mark Fox/Getty Images)|今日は世界熱帯雨林の日|![](/ja-JP/2025/06/202506211500AmazonEcuador.jpg)|
 202506221500|DresdenElbe|ドレスデン, ドイツ (© Sean Pavone/Getty Images)|エルベ川の真珠|![](/ja-JP/2025/06/202506221500DresdenElbe.jpg)|
+202506231500|DelicateArch|アーチーズ国立公園, 米国 ユタ州 (© mmac72/Getty Images)|ユタ州の象徴「デリケート・アーチ」|![](/ja-JP/2025/06/202506231500DelicateArch.jpg)|
