@@ -23,3 +23,4 @@
 202506202300|IcelandSolstice|Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)|All set for sunset|![](/en-GB/2025/06/202506202300IcelandSolstice.jpg)|
 202506212300|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Jungle all the way|![](/en-GB/2025/06/202506212300AmazonEcuador.jpg)|
 202506222300|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|From ruins to resilience|![](/en-GB/2025/06/202506222300DresdenElbe.jpg)|
+202506232300|DelicateArch|Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)|Nature took its time|![](/en-GB/2025/06/202506232300DelicateArch.jpg)|
