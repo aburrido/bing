@@ -23,3 +23,4 @@
 202506202200|IcelandSolstice|Seljalandsfoss-Wasserfall bei Sonnenuntergang, Island (© Tom Mackie/AWL/plainpicture)|In goldenes Licht getaucht|![](/de-DE/2025/06/202506202200IcelandSolstice.jpg)|
 202506212200|AmazonEcuador|Amazonas-Regenwald, Ecuador  (© Mark Fox/Getty Images)|Grüne Oase|![](/de-DE/2025/06/202506212200AmazonEcuador.jpg)|
 202506222200|DresdenElbe|Elbe in Dresden, Sachsen (© Sean Pavone/Getty Images)|Juwel an der Elbe|![](/de-DE/2025/06/202506222200DresdenElbe.jpg)|
+202506232200|ScenicEibsee|Eibsee, Bayern (© NejauPhoto/Getty Images)|Paradiesische Stille|![](/de-DE/2025/06/202506232200ScenicEibsee.jpg)|
