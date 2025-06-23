@@ -23,3 +23,4 @@
 202506201600|SummerSolsticeY25|雾中莲花，中国佛山 (© huoguangliang/Getty Images)|此花端合在瑶池|![](/zh-CN/2025/06/202506201600SummerSolsticeY25.jpg)|
 202506211600|AmazonEcuador|亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)|一路丛林|![](/zh-CN/2025/06/202506211600AmazonEcuador.jpg)|
 202506221600|DresdenElbe|德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)|从废墟中重生|![](/zh-CN/2025/06/202506221600DresdenElbe.jpg)|
+202506231600|DelicateArch|精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)|大自然的耐心之作|![](/zh-CN/2025/06/202506231600DelicateArch.jpg)|
