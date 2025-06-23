@@ -22,3 +22,4 @@
 202506200400|IcelandSolstice|Cascade de Seljalandsfoss au coucher du soleil, Islande (© Tom Mackie/AWL/plainpicture)|Sous la cascade du jour sans fin|![](/fr-CA/2025/06/202506200400IcelandSolstice.jpg)|
 202506210400|SerengetiGiraffe|Une girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)|La tendresse d’un monde à préserver|![](/fr-CA/2025/06/202506210400SerengetiGiraffe.jpg)|
 202506220400|AmazonEcuador|Forêt amazonienne, Équateur (© Mark Fox/Getty Images)|Un monde vivant en péril|![](/fr-CA/2025/06/202506220400AmazonEcuador.jpg)|
+202506230400|DresdenElbe|Fleuve Elbe à Dresde, Allemagne (© Sean Pavone/Getty Images)|Les rives de la résilience|![](/fr-CA/2025/06/202506230400DresdenElbe.jpg)|
