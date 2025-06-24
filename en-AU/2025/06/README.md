@@ -24,3 +24,4 @@
 202506210700|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Info|![](/en-AU/2025/06/202506210700SerengetiGiraffe.jpg)|
 202506220700|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Info|![](/en-AU/2025/06/202506220700AmazonEcuador.jpg)|
 202506230700|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|Info|![](/en-AU/2025/06/202506230700DresdenElbe.jpg)|
+202506240700|DelicateArch|Delicate Arch, Arches National Park, Utah, United States (© mmac72/Getty Images)|Info|![](/en-AU/2025/06/202506240700DelicateArch.jpg)|
