@@ -23,3 +23,4 @@
 202506210400|SerengetiGiraffe|Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)|Spot the spots|![](/en-CA/2025/06/202506210400SerengetiGiraffe.jpg)|
 202506220400|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Jungle all the way|![](/en-CA/2025/06/202506220400AmazonEcuador.jpg)|
 202506230400|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|From ruins to resilience|![](/en-CA/2025/06/202506230400DresdenElbe.jpg)|
+202506240400|DelicateArch|Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)|Nature took its time|![](/en-CA/2025/06/202506240400DelicateArch.jpg)|

@@ -23,3 +23,4 @@
 202506210400|SerengetiGiraffe|Une girafe Masaï et son girafon, parc national du Serengeti, Tanzanie (© Alberto Cassani/Getty Images)|La tendresse d’un monde à préserver|![](/fr-CA/2025/06/202506210400SerengetiGiraffe.jpg)|
 202506220400|AmazonEcuador|Forêt amazonienne, Équateur (© Mark Fox/Getty Images)|Un monde vivant en péril|![](/fr-CA/2025/06/202506220400AmazonEcuador.jpg)|
 202506230400|DresdenElbe|Fleuve Elbe à Dresde, Allemagne (© Sean Pavone/Getty Images)|Les rives de la résilience|![](/fr-CA/2025/06/202506230400DresdenElbe.jpg)|
+202506240400|DelicateArch|Delicate Arch, parc national des Arches, Utah, États-Unis (© mmac72/Getty Images)|Une arche légendaire|![](/fr-CA/2025/06/202506240400DelicateArch.jpg)|
