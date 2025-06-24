@@ -24,3 +24,4 @@
 202506212200|AmazonEcuador|Forêt amazonienne, Équateur (© Mark Fox/Getty Images)|Un monde vivant en péril|![](/fr-FR/2025/06/202506212200AmazonEcuador.jpg)|
 202506222200|DresdenElbe|Fleuve Elbe à Dresde, Allemagne (© Sean Pavone/Getty Images)|Les rives de la résilience|![](/fr-FR/2025/06/202506222200DresdenElbe.jpg)|
 202506232200|BolozonViaduct|Viaduc de Cize-Bolozon enjambant la rivière d’Ain, Auvergne-Rhône-Alpes (© Leonid Andronov/Getty Images)|L’élégance d’un géant discret|![](/fr-FR/2025/06/202506232200BolozonViaduct.jpg)|
+202506242200|GlastonburyScenic|Tour Saint-Michel, colline Glastonbury Tor, Somerset, Angleterre (© Gavin Hellier/Getty Images)|La musique comme héritage|![](/fr-FR/2025/06/202506242200GlastonburyScenic.jpg)|
