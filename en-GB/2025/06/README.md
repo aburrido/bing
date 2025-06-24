@@ -24,3 +24,4 @@
 202506212300|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Jungle all the way|![](/en-GB/2025/06/202506212300AmazonEcuador.jpg)|
 202506222300|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|From ruins to resilience|![](/en-GB/2025/06/202506222300DresdenElbe.jpg)|
 202506232300|DelicateArch|Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)|Nature took its time|![](/en-GB/2025/06/202506232300DelicateArch.jpg)|
+202506242300|GlastonburyScenic|St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)|Tor and tunes: Glastonbury begins|![](/en-GB/2025/06/202506242300GlastonburyScenic.jpg)|
