@@ -24,3 +24,4 @@
 202506211600|AmazonEcuador|亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)|一路丛林|![](/zh-CN/2025/06/202506211600AmazonEcuador.jpg)|
 202506221600|DresdenElbe|德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)|从废墟中重生|![](/zh-CN/2025/06/202506221600DresdenElbe.jpg)|
 202506231600|DelicateArch|精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)|大自然的耐心之作|![](/zh-CN/2025/06/202506231600DelicateArch.jpg)|
+202506241600|GlastonburyScenic|格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰 (© Gavin Hellier/Getty Images)|这里举办的是哪个音乐节？|![](/zh-CN/2025/06/202506241600GlastonburyScenic.jpg)|
