@@ -25,3 +25,4 @@
 202506221500|DresdenElbe|ドレスデン, ドイツ (© Sean Pavone/Getty Images)|エルベ川の真珠|![](/ja-JP/2025/06/202506221500DresdenElbe.jpg)|
 202506231500|DelicateArch|アーチーズ国立公園, 米国 ユタ州 (© mmac72/Getty Images)|ユタ州の象徴「デリケート・アーチ」|![](/ja-JP/2025/06/202506231500DelicateArch.jpg)|
 202506241500|GlastonburyScenic|グラストンベリー・トー, イングランド (© Gavin Hellier/Getty Images)|今日からグラストンベリー・フェスティバル|![](/ja-JP/2025/06/202506241500GlastonburyScenic.jpg)|
+202506251500|HorseheadRock|ホースヘッド・ロック, オーストラリア ニューサウスウェールズ州 (© Philip Thurston/Getty Images)|不思議な岩と天の川|![](/ja-JP/2025/06/202506251500HorseheadRock.jpg)|
