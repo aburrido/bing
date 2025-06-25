@@ -25,3 +25,4 @@
 202506220700|AmazonEcuador|Amazon rainforest, Ecuador (© Mark Fox/Getty Images)|Info|![](/en-AU/2025/06/202506220700AmazonEcuador.jpg)|
 202506230700|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|Info|![](/en-AU/2025/06/202506230700DresdenElbe.jpg)|
 202506240700|DelicateArch|Delicate Arch, Arches National Park, Utah, United States (© mmac72/Getty Images)|Info|![](/en-AU/2025/06/202506240700DelicateArch.jpg)|
+202506250700|GlastonburyScenic|St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2025/06/202506250700GlastonburyScenic.jpg)|
