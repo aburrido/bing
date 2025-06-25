@@ -25,3 +25,4 @@
 202506222300|DresdenElbe|Elbe river in Dresden, Germany (© Sean Pavone/Getty Images)|From ruins to resilience|![](/en-GB/2025/06/202506222300DresdenElbe.jpg)|
 202506232300|DelicateArch|Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)|Nature took its time|![](/en-GB/2025/06/202506232300DelicateArch.jpg)|
 202506242300|GlastonburyScenic|St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)|Tor and tunes: Glastonbury begins|![](/en-GB/2025/06/202506242300GlastonburyScenic.jpg)|
+202506252300|HorseheadRock|The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)|Horsing around the coastline|![](/en-GB/2025/06/202506252300HorseheadRock.jpg)|
