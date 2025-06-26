@@ -26,3 +26,4 @@
 202506232200|ScenicEibsee|Eibsee, Bayern (© NejauPhoto/Getty Images)|Paradiesische Stille|![](/de-DE/2025/06/202506232200ScenicEibsee.jpg)|
 202506242200|GlastonburyScenic|St. Michael's Church Tower auf dem Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)|Ein Ort der Mythen und Musik|![](/de-DE/2025/06/202506242200GlastonburyScenic.jpg)|
 202506252200|HorseheadRock|Die Milchstraße über Horse Head Rock, Neusüdwales, Australien (© Philip Thurston/Getty Images)|Magische Momente|![](/de-DE/2025/06/202506252200HorseheadRock.jpg)|
+202506262200|SplendidFrog|Prachtgreiffrosch (© Jan Stria/Shutterstock)|Ein prächtiges Leben|![](/de-DE/2025/06/202506262200SplendidFrog.jpg)|
