@@ -26,3 +26,4 @@
 202506240400|DelicateArch|Delicate Arch, parc national des Arches, Utah, États-Unis (© mmac72/Getty Images)|Une arche légendaire|![](/fr-CA/2025/06/202506240400DelicateArch.jpg)|
 202506250400|GlastonburyScenic|Tour Saint-Michel, colline Glastonbury Tor, Somerset, Angleterre (© Gavin Hellier/Getty Images)|La musique comme héritage|![](/fr-CA/2025/06/202506250400GlastonburyScenic.jpg)|
 202506260400|HorseheadRock|Voie lactée, Horse Head Rock, Nouvelle-Galles du Sud, Australie (© Philip Thurston/Getty Images)|Un cheval de pierre au milieu de l’océan|![](/fr-CA/2025/06/202506260400HorseheadRock.jpg)|
+202506270400|SplendidFrog|Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)|Splendide par nature|![](/fr-CA/2025/06/202506270400SplendidFrog.jpg)|
