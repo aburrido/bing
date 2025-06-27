@@ -27,3 +27,4 @@
 202506241500|GlastonburyScenic|グラストンベリー・トー, イングランド (© Gavin Hellier/Getty Images)|今日からグラストンベリー・フェスティバル|![](/ja-JP/2025/06/202506241500GlastonburyScenic.jpg)|
 202506251500|HorseheadRock|ホースヘッド・ロック, オーストラリア ニューサウスウェールズ州 (© Philip Thurston/Getty Images)|不思議な岩と天の川|![](/ja-JP/2025/06/202506251500HorseheadRock.jpg)|
 202506261500|ShetlandGannets|魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)|海へ突き刺さる白い矢|![](/ja-JP/2025/06/202506261500ShetlandGannets.jpg)|
+202506271500|PrideParade|風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)|今月はプライド月間|![](/ja-JP/2025/06/202506271500PrideParade.jpg)|
