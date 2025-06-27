@@ -27,3 +27,4 @@
 202506242200|GlastonburyScenic|Tour Saint-Michel, colline Glastonbury Tor, Somerset, Angleterre (© Gavin Hellier/Getty Images)|La musique comme héritage|![](/fr-FR/2025/06/202506242200GlastonburyScenic.jpg)|
 202506252200|HorseheadRock|Voie lactée, Horse Head Rock, Nouvelle-Galles du Sud, Australie (© Philip Thurston/Getty Images)|Un cheval de pierre au milieu de l’océan|![](/fr-FR/2025/06/202506252200HorseheadRock.jpg)|
 202506262200|SplendidFrog|Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)|Splendide par nature|![](/fr-FR/2025/06/202506262200SplendidFrog.jpg)|
+202506272200|PrideParade|Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)|Une marche pour la liberté|![](/fr-FR/2025/06/202506272200PrideParade.jpg)|
