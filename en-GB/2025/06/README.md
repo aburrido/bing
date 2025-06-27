@@ -27,3 +27,4 @@
 202506242300|GlastonburyScenic|St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)|Tor and tunes: Glastonbury begins|![](/en-GB/2025/06/202506242300GlastonburyScenic.jpg)|
 202506252300|HorseheadRock|The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)|Horsing around the coastline|![](/en-GB/2025/06/202506252300HorseheadRock.jpg)|
 202506262300|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|A splendid life|![](/en-GB/2025/06/202506262300SplendidFrog.jpg)|
+202506272300|MesquiteFlats|Mesquite Flat Sand Dunes in Death Valley National Park, California, United States (© Bryan Jolley/TANDEM Stills + Motion)|Sands of time|![](/en-GB/2025/06/202506272300MesquiteFlats.jpg)|
