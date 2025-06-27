@@ -27,3 +27,4 @@
 202506240700|DelicateArch|Delicate Arch, Arches National Park, Utah, United States (© mmac72/Getty Images)|Info|![](/en-AU/2025/06/202506240700DelicateArch.jpg)|
 202506250700|GlastonburyScenic|St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2025/06/202506250700GlastonburyScenic.jpg)|
 202506260700|HorseheadRock|The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)|Info|![](/en-AU/2025/06/202506260700HorseheadRock.jpg)|
+202506270700|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|Info|![](/en-AU/2025/06/202506270700SplendidFrog.jpg)|
