@@ -28,3 +28,4 @@
 202506251600|HorseheadRock|马头岩上空的银河, 新南威尔士州, 澳大利亚 (© Philip Thurston/Getty Images)|海岸线附近的“马戏”|![](/zh-CN/2025/06/202506251600HorseheadRock.jpg)|
 202506261600|SwedenReserve|Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)|古冰川遗迹之地|![](/zh-CN/2025/06/202506261600SwedenReserve.jpg)|
 202506271600|WatertowerMannheim|曼海姆水塔, 德国 (© no limit pictures/Getty Images)|从实用建筑到地标象征|![](/zh-CN/2025/06/202506271600WatertowerMannheim.jpg)|
+202506281600|BandaIsland|Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)|哪里让历史变得“辛辣”|![](/zh-CN/2025/06/202506281600BandaIsland.jpg)|
