@@ -28,3 +28,4 @@
 202506252300|HorseheadRock|The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)|Horsing around the coastline|![](/en-GB/2025/06/202506252300HorseheadRock.jpg)|
 202506262300|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|A splendid life|![](/en-GB/2025/06/202506262300SplendidFrog.jpg)|
 202506272300|MesquiteFlats|Mesquite Flat Sand Dunes in Death Valley National Park, California, United States (© Bryan Jolley/TANDEM Stills + Motion)|Sands of time|![](/en-GB/2025/06/202506272300MesquiteFlats.jpg)|
+202506282300|BandaIsland|Blue lagoon of Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy Stock Photo)|Where history gets spicy|![](/en-GB/2025/06/202506282300BandaIsland.jpg)|
