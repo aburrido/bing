@@ -29,3 +29,4 @@
 202506262200|SplendidFrog|Prachtgreiffrosch (© Jan Stria/Shutterstock)|Ein prächtiges Leben|![](/de-DE/2025/06/202506262200SplendidFrog.jpg)|
 202506272200|MarienplatzCSD|Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)|Zeichen setzen für die Vielfalt|![](/de-DE/2025/06/202506272200MarienplatzCSD.jpg)|
 202506282200|BandaIsland|Blaue Lagune, Pulau Ai, Banda-Inseln, Indonesien (© fabio lamanna/Alamy)|Ein Juwel mit würziger Note|![](/de-DE/2025/06/202506282200BandaIsland.jpg)|
+202506292200|WolfeCrater|Wolfe-Creek-Krater, Australien (© Abstract Aerial Art/Getty Images)|Die Edelsteine des Universums|![](/de-DE/2025/06/202506292200WolfeCrater.jpg)|
