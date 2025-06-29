@@ -28,3 +28,4 @@
 202506260400|HorseheadRock|Voie lactée, Horse Head Rock, Nouvelle-Galles du Sud, Australie (© Philip Thurston/Getty Images)|Un cheval de pierre au milieu de l’océan|![](/fr-CA/2025/06/202506260400HorseheadRock.jpg)|
 202506270400|SplendidFrog|Grenouille Cruziohyla calcarifer (© Jan Stria/Shutterstock)|Splendide par nature|![](/fr-CA/2025/06/202506270400SplendidFrog.jpg)|
 202506280400|PrideParade|Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)|Une marche pour la liberté|![](/fr-CA/2025/06/202506280400PrideParade.jpg)|
+202506290400|BandaIsland|Lagon bleu de Pulau Ay, îles Banda, Indonésie (© fabio lamanna/Alamy Stock Photo)|Sous le sunlight des tropiques|![](/fr-CA/2025/06/202506290400BandaIsland.jpg)|

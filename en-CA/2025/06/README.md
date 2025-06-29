@@ -28,3 +28,4 @@
 202506260400|HorseheadRock|The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)|Horsing around the coastline|![](/en-CA/2025/06/202506260400HorseheadRock.jpg)|
 202506270400|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|A splendid life|![](/en-CA/2025/06/202506270400SplendidFrog.jpg)|
 202506280400|PrideParade|Rainbow flags at New York Pride, United States (© Alan Schein/Getty Images)|The riot that lit the rainbow|![](/en-CA/2025/06/202506280400PrideParade.jpg)|
+202506290400|BandaIsland|Blue lagoon of Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy Stock Photo)|Where history gets spicy|![](/en-CA/2025/06/202506290400BandaIsland.jpg)|
