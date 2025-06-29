@@ -29,3 +29,4 @@
 202506261600|SwedenReserve|Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)|古冰川遗迹之地|![](/zh-CN/2025/06/202506261600SwedenReserve.jpg)|
 202506271600|WatertowerMannheim|曼海姆水塔, 德国 (© no limit pictures/Getty Images)|从实用建筑到地标象征|![](/zh-CN/2025/06/202506271600WatertowerMannheim.jpg)|
 202506281600|BandaIsland|Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)|哪里让历史变得“辛辣”|![](/zh-CN/2025/06/202506281600BandaIsland.jpg)|
+202506291600|WolfeCrater|沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)|是谁击中了地面？|![](/zh-CN/2025/06/202506291600WolfeCrater.jpg)|
