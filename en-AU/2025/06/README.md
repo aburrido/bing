@@ -29,3 +29,4 @@
 202506260700|HorseheadRock|The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)|Info|![](/en-AU/2025/06/202506260700HorseheadRock.jpg)|
 202506270700|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|Info|![](/en-AU/2025/06/202506270700SplendidFrog.jpg)|
 202506280700|WatertowerMannheim|Mannheim Water Tower, Germany (© no_limit_pictures/Getty Images)|Info|![](/en-AU/2025/06/202506280700WatertowerMannheim.jpg)|
+202506290700|BandaIsland|Blue lagoon of Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy Stock Photo)|Info|![](/en-AU/2025/06/202506290700BandaIsland.jpg)|
