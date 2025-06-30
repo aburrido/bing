@@ -30,3 +30,4 @@
 202506271500|PrideParade|風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)|今月はプライド月間|![](/ja-JP/2025/06/202506271500PrideParade.jpg)|
 202506281500|BandaIsland|緑の森と青い海, インドネシア (© fabio lamanna/Alamy)|今日は国際熱帯デー|![](/ja-JP/2025/06/202506281500BandaIsland.jpg)|
 202506291500|WolfeCrater|ウルフクリーク・クレーター, オーストラリア (© Abstract Aerial Art/Getty Images)|今日は国際小惑星デー|![](/ja-JP/2025/06/202506291500WolfeCrater.jpg)|
+202506301500|CanadaDayFogo|赤と白の漁師小屋, カナダ (© FedevPhoto/Getty Images)|今日はカナダの日|![](/ja-JP/2025/06/202506301500CanadaDayFogo.jpg)|
