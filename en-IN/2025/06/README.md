@@ -31,3 +31,4 @@
 202506271830|PrideParade|Rainbow flags at New York Pride, United States (© Alan Schein/Getty Images)|The riot that lit the rainbow|![](/en-IN/2025/06/202506271830PrideParade.jpg)|
 202506281830|BandaIsland|Blue lagoon of Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy Stock Photo)|Where history gets spicy|![](/en-IN/2025/06/202506281830BandaIsland.jpg)|
 202506291830|WolfeCrater|Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)|Rock-solid defence|![](/en-IN/2025/06/202506291830WolfeCrater.jpg)|
+202506301830|KeralaHouseboats|Houseboats on Vembanad lake, Kerala (© artherng/Getty Images)|A green escape|![](/en-IN/2025/06/202506301830KeralaHouseboats.jpg)|
