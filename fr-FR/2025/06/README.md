@@ -30,3 +30,4 @@
 202506272200|PrideParade|Drapeaux arc-en-ciel à la Marche des Fiertés de New York, États-Unis (© Alan Schein/Getty Images)|Une marche pour la liberté|![](/fr-FR/2025/06/202506272200PrideParade.jpg)|
 202506282200|BandaIsland|Lagon bleu de Pulau Ay, îles Banda, Indonésie (© fabio lamanna/Alamy Stock Photo)|Sous le sunlight des tropiques|![](/fr-FR/2025/06/202506282200BandaIsland.jpg)|
 202506292200|WolfeCrater|Cratère de Wolfe Creek, Australie (© Abstract Aerial Art/Getty Images)|Empreinte d’étoile|![](/fr-FR/2025/06/202506292200WolfeCrater.jpg)|
+202506302200|ButterflyPurpleFlower|Papillon et abeille butinant délicatement une fleur aster (© Viviane Caballero/500px Viviane Caballero/500px/Getty Images)|Les sentinelles de la biodiversité|![](/fr-FR/2025/06/202506302200ButterflyPurpleFlower.jpg)|
