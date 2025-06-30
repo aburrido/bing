@@ -30,3 +30,4 @@
 202506270700|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|A splendid creature|![](/en-US/2025/06/202506270700SplendidFrog.jpg)|
 202506280700|PrideParade|Rainbow flags at New York Pride (© Alan Schein/Getty Images)|Flying the flag for Pride|![](/en-US/2025/06/202506280700PrideParade.jpg)|
 202506290700|BandaIsland|Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)|Where history gets spicy|![](/en-US/2025/06/202506290700BandaIsland.jpg)|
+202506300700|WolfeCrater|Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)|Rock-solid defense|![](/en-US/2025/06/202506300700WolfeCrater.jpg)|

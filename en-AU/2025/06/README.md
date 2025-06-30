@@ -30,3 +30,4 @@
 202506270700|SplendidFrog|Splendid leaf frog (© Jan Stria/Shutterstock)|Info|![](/en-AU/2025/06/202506270700SplendidFrog.jpg)|
 202506280700|WatertowerMannheim|Mannheim Water Tower, Germany (© no_limit_pictures/Getty Images)|Info|![](/en-AU/2025/06/202506280700WatertowerMannheim.jpg)|
 202506290700|BandaIsland|Blue lagoon of Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy Stock Photo)|Info|![](/en-AU/2025/06/202506290700BandaIsland.jpg)|
+202506300700|WolfeCrater|Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2025/06/202506300700WolfeCrater.jpg)|
