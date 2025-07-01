@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202506301830|KeralaHouseboats|Houseboats on Vembanad lake, Kerala (© artherng/Getty Images)|A green escape|![](/en-IN/2025/07/202506301830KeralaHouseboats.jpg)|
+202507011830|MaroonClownfish|Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)|In the bubble-tip zone|![](/en-IN/2025/07/202507011830MaroonClownfish.jpg)|
