@@ -4,3 +4,4 @@
 202507011500|MaroonClownfish|スパインチーク・アネモネフィッシュ, パプアニューギニア (© Fred Bavendam/Nature Picture Library)|毒をもつイソギンチャクと暮らす魚|![](/ja-JP/2025/07/202507011500MaroonClownfish.jpg)|
 202507021500|RainbowRiver|レインボー・スプリングス州立公園, 米国 フロリダ州 (© Michel Roggo/Minden Pictures)|光きらめく湧水の楽園|![](/ja-JP/2025/07/202507021500RainbowRiver.jpg)|
 ||||![](/ja-JP/2025/07/.jpg)|
+202507031500|SecedaPeak|ドロミーティ, イタリア (© Kalyakan/Adobe Stock)|天を突く切り立つ巨岩の峰|![](/ja-JP/2025/07/202507031500SecedaPeak.jpg)|
