@@ -4,3 +4,4 @@
 202507012200|CalwMarketsquare|Historische Fachwerkhäuser am Marktplatz, Calw, Baden-Württemberg (© imageBROKER/Getty Images)|Die Reise nach Innen...|![](/de-DE/2025/07/202507012200CalwMarketsquare.jpg)|
 ||||![](/de-DE/2025/07/.jpg)|
 202507022200|RainbowRiver|Rainbow River im Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Ein kristallklares Juwel|![](/de-DE/2025/07/202507022200RainbowRiver.jpg)|
+202507032200|OroseiSardegna|Orosei, Sardinien, Italien (© EyeEm Mobile GmbH/Getty Images)|Ein kleines Juwel|![](/de-DE/2025/07/202507032200OroseiSardegna.jpg)|
