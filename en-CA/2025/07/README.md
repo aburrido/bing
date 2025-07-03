@@ -4,3 +4,4 @@
 202507010400|Canada25Day|Parliament Hill in Ottawa, Ontario (© f11photo/Shutterstock)|Canada turns 158|![](/en-CA/2025/07/202507010400Canada25Day.jpg)|
 202507020400|MaroonClownfish|Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)|In the bubble-tip zone|![](/en-CA/2025/07/202507020400MaroonClownfish.jpg)|
 ||||![](/en-CA/2025/07/.jpg)|
+202507030400|RainbowRiver|Rainbow River in Rainbow Springs State Park, Florida, United States (© Michel Roggo/Minden Pictures)|The clear embrace of Rainbow River|![](/en-CA/2025/07/202507030400RainbowRiver.jpg)|
