@@ -5,3 +5,4 @@
 ||||![](/en-GB/2025/07/.jpg)|
 202507022300|RainbowRiver|Rainbow River in Rainbow Springs State Park, Florida, United States (© Michel Roggo/Minden Pictures)|The clear embrace of Rainbow River|![](/en-GB/2025/07/202507022300RainbowRiver.jpg)|
 202507032300|OroseiSardegna|Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)|Water, air, rock|![](/en-GB/2025/07/202507032300OroseiSardegna.jpg)|
+202507042300|PrideInLondon2025|Pride in London in 2016 (© Gail Orenstein/NurPhoto/Getty Images)|Marching to the beat of equality|![](/en-GB/2025/07/202507042300PrideInLondon2025.jpg)|
