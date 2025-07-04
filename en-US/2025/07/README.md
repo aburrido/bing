@@ -5,3 +5,4 @@
 202507020700|MaroonClownfish|Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)|In the bubble-tip zone|![](/en-US/2025/07/202507020700MaroonClownfish.jpg)|
 ||||![](/en-US/2025/07/.jpg)|
 202507030700|RainbowRiver|Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)|The clear embrace of Rainbow River|![](/en-US/2025/07/202507030700RainbowRiver.jpg)|
+202507040700|SeattleFireworks|Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)|Sparks over Seattle|![](/en-US/2025/07/202507040700SeattleFireworks.jpg)|
