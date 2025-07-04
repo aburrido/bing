@@ -5,3 +5,4 @@
 ||||![](/de-DE/2025/07/.jpg)|
 202507022200|RainbowRiver|Rainbow River im Rainbow Springs State Park, Florida, USA (© Michel Roggo/Minden Pictures)|Ein kristallklares Juwel|![](/de-DE/2025/07/202507022200RainbowRiver.jpg)|
 202507032200|OroseiSardegna|Orosei, Sardinien, Italien (© EyeEm Mobile GmbH/Getty Images)|Ein kleines Juwel|![](/de-DE/2025/07/202507032200OroseiSardegna.jpg)|
+202507042200|TourCyclists|Abfahrt vom Col du Tourmalet in den französischen Pyrenäen während der Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)|Radeln durch die Geschichte|![](/de-DE/2025/07/202507042200TourCyclists.jpg)|
