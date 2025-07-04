@@ -5,3 +5,4 @@
 202507020400|MaroonClownfish|Poisson-clown à joues épineuses entouré d'une anémone bulle, baie de Milne, Papouasie-Nouvelle-Guinée (© Fred Bavendam/Nature Picture Library)|Le gardien aux joues piquantes|![](/fr-CA/2025/07/202507020400MaroonClownfish.jpg)|
 ||||![](/fr-CA/2025/07/.jpg)|
 202507030400|RainbowRiver|Rivière Rainbow, parc d'État de Rainbow Springs, États-Unis (© Michel Roggo/Minden Pictures)|Un joyau naturel au cœur de la Floride|![](/fr-CA/2025/07/202507030400RainbowRiver.jpg)|
+202507040400|OroseiSardegna|Orosei, Sardaigne, Italie (© EyeEm Mobile GmbH/Getty Images)|La perle cachée de la Sardaigne|![](/fr-CA/2025/07/202507040400OroseiSardegna.jpg)|

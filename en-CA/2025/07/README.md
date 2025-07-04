@@ -5,3 +5,4 @@
 202507020400|MaroonClownfish|Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)|In the bubble-tip zone|![](/en-CA/2025/07/202507020400MaroonClownfish.jpg)|
 ||||![](/en-CA/2025/07/.jpg)|
 202507030400|RainbowRiver|Rainbow River in Rainbow Springs State Park, Florida, United States (© Michel Roggo/Minden Pictures)|The clear embrace of Rainbow River|![](/en-CA/2025/07/202507030400RainbowRiver.jpg)|
+202507040400|EchinaceaButterfly|Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York (© Marianne A. Campolongo/Alamy)|A blur among the blooms|![](/en-CA/2025/07/202507040400EchinaceaButterfly.jpg)|
