@@ -5,3 +5,4 @@
 202507021830|RainbowRiver|Rainbow River in Rainbow Springs State Park, Florida, United States (© Michel Roggo/Minden Pictures)|The clear embrace of Rainbow River|![](/en-IN/2025/07/202507021830RainbowRiver.jpg)|
 ||||![](/en-IN/2025/07/.jpg)|
 202507031830|OroseiSardegna|Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)|Water, air, rock|![](/en-IN/2025/07/202507031830OroseiSardegna.jpg)|
+202507041830|TourCyclists|Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)|Pedalling through history|![](/en-IN/2025/07/202507041830TourCyclists.jpg)|
