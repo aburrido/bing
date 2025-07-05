@@ -6,3 +6,4 @@
 ||||![](/zh-CN/2025/07/.jpg)|
 202507031600|OroseiSardegna|奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)|水、空气、岩石|![](/zh-CN/2025/07/202507031600OroseiSardegna.jpg)|
 202507041600|BolozonViaduct|Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)|优雅而低调的巨人|![](/zh-CN/2025/07/202507041600BolozonViaduct.jpg)|
+202507051600|MesquiteFlats|死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)|时光沙丘|![](/zh-CN/2025/07/202507051600MesquiteFlats.jpg)|
