@@ -6,3 +6,4 @@
 ||||![](/en-US/2025/07/.jpg)|
 202507030700|RainbowRiver|Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)|The clear embrace of Rainbow River|![](/en-US/2025/07/202507030700RainbowRiver.jpg)|
 202507040700|SeattleFireworks|Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)|Sparks over Seattle|![](/en-US/2025/07/202507040700SeattleFireworks.jpg)|
+202507050700|TourCyclists|Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)|Pedaling through history|![](/en-US/2025/07/202507050700TourCyclists.jpg)|
