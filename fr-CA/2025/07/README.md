@@ -7,3 +7,4 @@
 202507030400|RainbowRiver|Rivière Rainbow, parc d'État de Rainbow Springs, États-Unis (© Michel Roggo/Minden Pictures)|Un joyau naturel au cœur de la Floride|![](/fr-CA/2025/07/202507030400RainbowRiver.jpg)|
 202507040400|OroseiSardegna|Orosei, Sardaigne, Italie (© EyeEm Mobile GmbH/Getty Images)|La perle cachée de la Sardaigne|![](/fr-CA/2025/07/202507040400OroseiSardegna.jpg)|
 202507050400|TourCyclists|Descente du col du Tourmalet lors du Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)|La Grande Boucle reprend la route!|![](/fr-CA/2025/07/202507050400TourCyclists.jpg)|
+202507060400|MesquiteFlats|Dunes de Mesquite Flat dans le parc national de la Vallée de la Mort, États-Unis (© Bryan Jolley/TANDEM Stills + Motion)|Un parc « mortel »!|![](/fr-CA/2025/07/202507060400MesquiteFlats.jpg)|
