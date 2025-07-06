@@ -7,3 +7,4 @@
 202507031830|OroseiSardegna|Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)|Water, air, rock|![](/en-IN/2025/07/202507031830OroseiSardegna.jpg)|
 202507041830|TourCyclists|Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)|Pedalling through history|![](/en-IN/2025/07/202507041830TourCyclists.jpg)|
 202507051830|MesquiteFlats|Mesquite Flat Sand Dunes in Death Valley National Park, California, United States (© Bryan Jolley/TANDEM Stills + Motion)|Sands of time|![](/en-IN/2025/07/202507051830MesquiteFlats.jpg)|
+202507061830|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Flash, splash, then snack|![](/en-IN/2025/07/202507061830ShetlandGannets.jpg)|
