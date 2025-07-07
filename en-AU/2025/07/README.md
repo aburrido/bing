@@ -8,3 +8,4 @@
 202507040700|OroseiSardegna|Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)|Info|![](/en-AU/2025/07/202507040700OroseiSardegna.jpg)|
 202507050700|BolozonViaduct|Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)|Info|![](/en-AU/2025/07/202507050700BolozonViaduct.jpg)|
 202507060700|MesquiteFlats|Mesquite Flat Sand Dunes in Death Valley National Park, California, United States (© Bryan Jolley/TANDEM Stills + Motion)|Info|![](/en-AU/2025/07/202507060700MesquiteFlats.jpg)|
+202507070700|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Info|![](/en-AU/2025/07/202507070700ShetlandGannets.jpg)|
