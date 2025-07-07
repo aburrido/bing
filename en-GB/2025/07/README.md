@@ -8,3 +8,4 @@
 202507042300|PrideInLondon2025|Pride in London in 2016 (© Gail Orenstein/NurPhoto/Getty Images)|Marching to the beat of equality|![](/en-GB/2025/07/202507042300PrideInLondon2025.jpg)|
 202507052300|TourCyclists|Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)|Pedalling through history|![](/en-GB/2025/07/202507052300TourCyclists.jpg)|
 202507062300|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Flash, splash, then snack|![](/en-GB/2025/07/202507062300ShetlandGannets.jpg)|
+202507072300|SecedaPeak|Seceda, a peak in theDolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)|Beauty with an edge|![](/en-GB/2025/07/202507072300SecedaPeak.jpg)|
