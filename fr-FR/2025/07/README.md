@@ -7,3 +7,4 @@
 202507042200|TourCyclists|Descente du col du Tourmalet lors du Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)|La Grande Boucle reprend la route !|![](/fr-FR/2025/07/202507042200TourCyclists.jpg)|
 202507052200|MesquiteFlats|Dunes de Mesquite Flat dans le parc national de la Vallée de la Mort, États-Unis (© Bryan Jolley/TANDEM Stills + Motion)|Un parc « mortel » !|![](/fr-FR/2025/07/202507052200MesquiteFlats.jpg)|
 202507062200|ShetlandGannets|Fous de Bassan à la recherche de poissons, îles Shetland, Écosse (© Richard Shucksmith/Minden Pictures)|Pas si fou, le fou de Bassan !|![](/fr-FR/2025/07/202507062200ShetlandGannets.jpg)|
+202507072200|BaieSomme|Vue aérienne de la Baie d'Authie, Somme, Haut-de-France (© Tuul & Bruno Morandi/Getty Images)|Une baie à l’écoute du monde sauvage|![](/fr-FR/2025/07/202507072200BaieSomme.jpg)|
