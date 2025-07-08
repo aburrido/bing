@@ -9,3 +9,4 @@
 202507051600|MesquiteFlats|死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)|时光沙丘|![](/zh-CN/2025/07/202507051600MesquiteFlats.jpg)|
 202507061600|ShetlandGannets|潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)|闪电俯冲、水花四溅，然后开吃|![](/zh-CN/2025/07/202507061600ShetlandGannets.jpg)|
 202507071600|SecedaPeak|塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)|锋芒毕露的美|![](/zh-CN/2025/07/202507071600SecedaPeak.jpg)|
+202507081600|ConstitucionStation|宪法火车站，布宜诺斯艾利斯，阿根廷 (© Grafissimo/Getty Images)|具有纪念意义的火车站|![](/zh-CN/2025/07/202507081600ConstitucionStation.jpg)|
