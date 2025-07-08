@@ -9,3 +9,4 @@
 202507050400|TourCyclists|Descente du col du Tourmalet lors du Tour de France 2021 (© THOMAS SAMSON/AFP via Getty Images)|La Grande Boucle reprend la route!|![](/fr-CA/2025/07/202507050400TourCyclists.jpg)|
 202507060400|MesquiteFlats|Dunes de Mesquite Flat dans le parc national de la Vallée de la Mort, États-Unis (© Bryan Jolley/TANDEM Stills + Motion)|Un parc « mortel »!|![](/fr-CA/2025/07/202507060400MesquiteFlats.jpg)|
 202507070400|ShetlandGannets|Fous de Bassan à la recherche de poissons, îles Shetland, Écosse (© Richard Shucksmith/Minden Pictures)|Pas si fou, le fou de Bessan!|![](/fr-CA/2025/07/202507070400ShetlandGannets.jpg)|
+202507080400|SecedaPeak|Seceda, Dolomites, Tyrol du Sud, Italie (© Kalyakan/Adobe Stock)|Un sommet d’exception au cœur des Dolomites|![](/fr-CA/2025/07/202507080400SecedaPeak.jpg)|

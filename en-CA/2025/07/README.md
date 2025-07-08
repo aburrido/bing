@@ -9,3 +9,4 @@
 202507050400|TourCyclists|Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)|Pedalling through history|![](/en-CA/2025/07/202507050400TourCyclists.jpg)|
 202507060400|MesquiteFlats|Mesquite Flat Sand Dunes in Death Valley National Park, California, United States (© Bryan Jolley/TANDEM Stills + Motion)|Sands of time|![](/en-CA/2025/07/202507060400MesquiteFlats.jpg)|
 202507070400|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Flash, splash, then snack|![](/en-CA/2025/07/202507070400ShetlandGannets.jpg)|
+202507080400|SecedaPeak|Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)|Beauty with an edge|![](/en-CA/2025/07/202507080400SecedaPeak.jpg)|
