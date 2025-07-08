@@ -9,3 +9,4 @@
 202507052200|MesquiteFlats|Mesquite Flat Sanddünen im Death-Valley-Nationalpark, Kalifornien, USA (© Bryan Jolley/TANDEM Stills + Motion)|Grenzenlose Weiten|![](/de-DE/2025/07/202507052200MesquiteFlats.jpg)|
 202507062200|ShetlandGannets|Nach Fisch tauchende Basstölpel, Shetlandinseln, Schottland (© Richard Shucksmith/Minden Pictures)|Kühne Taucher|![](/de-DE/2025/07/202507062200ShetlandGannets.jpg)|
 202507072200|SecedaPeak|Seceda, ein Gipfel in den Dolomiten, Südtirol, Italien (© Kalyakan/Adobe Stock)|Erhabene Gipfel|![](/de-DE/2025/07/202507072200SecedaPeak.jpg)|
+202507082200|ConstitucionStation|Constitución-Bahnhof, Buenos Aires, Argentinien (© Grafissimo/Getty Images)|„Das Paris Südamerikas“|![](/de-DE/2025/07/202507082200ConstitucionStation.jpg)|
