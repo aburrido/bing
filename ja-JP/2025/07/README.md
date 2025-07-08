@@ -9,3 +9,4 @@
 202507051500|MesquiteFlats|デスバレー国立公園, 米国 カリフォルニア州 (© Bryan Jolley/TANDEM Stills + Motion)|砂と風の芸術|![](/ja-JP/2025/07/202507051500MesquiteFlats.jpg)|
 202507061500|Tanabata2025|鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)|今日は七夕|![](/ja-JP/2025/07/202507061500Tanabata2025.jpg)|
 202507071500|WheatFields2025|パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)|美しい黄金色の小麦畑|![](/ja-JP/2025/07/202507071500WheatFields2025.jpg)|
+202507081500|ConstitucionStation|コンスティトゥシオン駅, アルゼンチン (© Grafissimo/Getty Images)|今日はアルゼンチンの独立記念日|![](/ja-JP/2025/07/202507081500ConstitucionStation.jpg)|
