@@ -10,3 +10,4 @@
 202507061830|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Flash, splash, then snack|![](/en-IN/2025/07/202507061830ShetlandGannets.jpg)|
 202507071830|SecedaPeak|Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)|Beauty with an edge|![](/en-IN/2025/07/202507071830SecedaPeak.jpg)|
 202507081830|ConstitucionStation|Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)|The rise of a republic|![](/en-IN/2025/07/202507081830ConstitucionStation.jpg)|
+202507091830|LordBuddha|Buddha Statue, Hussain Sagar, Hyderabad, Telangana (© Amith Nag Photography/Getty Images)|Light that leads|![](/en-IN/2025/07/202507091830LordBuddha.jpg)|
