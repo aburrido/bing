@@ -10,3 +10,4 @@
 202507061600|ShetlandGannets|潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)|闪电俯冲、水花四溅，然后开吃|![](/zh-CN/2025/07/202507061600ShetlandGannets.jpg)|
 202507071600|SecedaPeak|塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利 (© Kalyakan/Adobe Stock)|锋芒毕露的美|![](/zh-CN/2025/07/202507071600SecedaPeak.jpg)|
 202507081600|ConstitucionStation|宪法火车站，布宜诺斯艾利斯，阿根廷 (© Grafissimo/Getty Images)|具有纪念意义的火车站|![](/zh-CN/2025/07/202507081600ConstitucionStation.jpg)|
+202507091600|BahamaBlues|巴哈马的绿松石色水域 (© BlueOrange Studio/Adobe Stock)|奔向自由之浪|![](/zh-CN/2025/07/202507091600BahamaBlues.jpg)|
