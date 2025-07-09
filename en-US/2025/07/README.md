@@ -10,3 +10,4 @@
 202507060700|MesquiteFlats|Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)|Sands of time|![](/en-US/2025/07/202507060700MesquiteFlats.jpg)|
 202507070700|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Flash, splash, then snack|![](/en-US/2025/07/202507070700ShetlandGannets.jpg)|
 202507080700|SecedaPeak|Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)|Beauty with an edge|![](/en-US/2025/07/202507080700SecedaPeak.jpg)|
+202507090700|ConstitucionStation|Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)|The rise of a republic|![](/en-US/2025/07/202507090700ConstitucionStation.jpg)|
