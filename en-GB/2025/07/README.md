@@ -10,3 +10,4 @@
 202507062300|ShetlandGannets|Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)|Flash, splash, then snack|![](/en-GB/2025/07/202507062300ShetlandGannets.jpg)|
 202507072300|SecedaPeak|Seceda, a peak in theDolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)|Beauty with an edge|![](/en-GB/2025/07/202507072300SecedaPeak.jpg)|
 202507082300|ConstitucionStation|Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)|The rise of a republic|![](/en-GB/2025/07/202507082300ConstitucionStation.jpg)|
+202507092300|BahamaBlues|Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)|To the waves of freedom|![](/en-GB/2025/07/202507092300BahamaBlues.jpg)|
