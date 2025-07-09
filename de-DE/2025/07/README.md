@@ -10,3 +10,4 @@
 202507062200|ShetlandGannets|Nach Fisch tauchende Basstölpel, Shetlandinseln, Schottland (© Richard Shucksmith/Minden Pictures)|Kühne Taucher|![](/de-DE/2025/07/202507062200ShetlandGannets.jpg)|
 202507072200|SecedaPeak|Seceda, ein Gipfel in den Dolomiten, Südtirol, Italien (© Kalyakan/Adobe Stock)|Erhabene Gipfel|![](/de-DE/2025/07/202507072200SecedaPeak.jpg)|
 202507082200|ConstitucionStation|Constitución-Bahnhof, Buenos Aires, Argentinien (© Grafissimo/Getty Images)|„Das Paris Südamerikas“|![](/de-DE/2025/07/202507082200ConstitucionStation.jpg)|
+202507092200|BahamaBlues|Türkisfarbenes Wasser der Bahamas (© BlueOrange Studio/Adobe Stock)|Die Wellen der Freiheit|![](/de-DE/2025/07/202507092200BahamaBlues.jpg)|

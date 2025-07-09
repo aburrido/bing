@@ -9,3 +9,4 @@
 202507062200|ShetlandGannets|Fous de Bassan à la recherche de poissons, îles Shetland, Écosse (© Richard Shucksmith/Minden Pictures)|Pas si fou, le fou de Bassan !|![](/fr-FR/2025/07/202507062200ShetlandGannets.jpg)|
 202507072200|BaieSomme|Vue aérienne de la Baie d'Authie, Somme, Haut-de-France (© Tuul & Bruno Morandi/Getty Images)|Une baie à l’écoute du monde sauvage|![](/fr-FR/2025/07/202507072200BaieSomme.jpg)|
 202507082200|ConstitucionStation|Gare de Constitución, Buenos Aires, Argentine (© Grafissimo/Getty Images)|L’Argentine en fête|![](/fr-FR/2025/07/202507082200ConstitucionStation.jpg)|
+202507092200|BahamaBlues|Eaux turquoise des Bahamas (© BlueOrange Studio/Adobe Stock)|Bahamas, une nation en fête|![](/fr-FR/2025/07/202507092200BahamaBlues.jpg)|
