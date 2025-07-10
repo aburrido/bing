@@ -11,3 +11,4 @@
 202507071500|WheatFields2025|パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)|美しい黄金色の小麦畑|![](/ja-JP/2025/07/202507071500WheatFields2025.jpg)|
 202507081500|ConstitucionStation|コンスティトゥシオン駅, アルゼンチン (© Grafissimo/Getty Images)|今日はアルゼンチンの独立記念日|![](/ja-JP/2025/07/202507081500ConstitucionStation.jpg)|
 202507091500|BahamaBlues|ターコイズブルーの海, バハマ (© BlueOrange Studio/Adobe Stock)|今日はバハマの独立記念日|![](/ja-JP/2025/07/202507091500BahamaBlues.jpg)|
+202507101500|TokyoSunrise|1400 万の人口を抱える大都市, 東京 (© pongnathee kluaythong/Getty Images)|今日は世界人口デー|![](/ja-JP/2025/07/202507101500TokyoSunrise.jpg)|
