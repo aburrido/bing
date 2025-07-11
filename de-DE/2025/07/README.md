@@ -12,3 +12,4 @@
 202507082200|ConstitucionStation|Constitución-Bahnhof, Buenos Aires, Argentinien (© Grafissimo/Getty Images)|„Das Paris Südamerikas“|![](/de-DE/2025/07/202507082200ConstitucionStation.jpg)|
 202507092200|BahamaBlues|Türkisfarbenes Wasser der Bahamas (© BlueOrange Studio/Adobe Stock)|Die Wellen der Freiheit|![](/de-DE/2025/07/202507092200BahamaBlues.jpg)|
 202507102200|TokyoSunrise|Tokio bei Sonnenaufgang, Japan (© pongnathee kluaythong/Getty Images)|Wir gehören alle dazu|![](/de-DE/2025/07/202507102200TokyoSunrise.jpg)|
+202507112200|ThomsonGazelle|Thomson-Gazelle, Mutter und Kitz, Maasai Mara, Kenia (© Gallo Images/DanitaDelimont.com)|Nach dem Vorbild der Mutter|![](/de-DE/2025/07/202507112200ThomsonGazelle.jpg)|
