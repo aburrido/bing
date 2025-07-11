@@ -12,3 +12,4 @@
 202507080400|SecedaPeak|Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)|Beauty with an edge|![](/en-CA/2025/07/202507080400SecedaPeak.jpg)|
 202507090400|ConstitucionStation|Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)|The rise of a republic|![](/en-CA/2025/07/202507090400ConstitucionStation.jpg)|
 202507100400|BahamaBlues|Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)|To the waves of freedom|![](/en-CA/2025/07/202507100400BahamaBlues.jpg)|
+202507110400|TokyoSunrise|Tokyo at sunrise, Japan (© pongnathee kluaythong/Getty Images)|Counting us all in|![](/en-CA/2025/07/202507110400TokyoSunrise.jpg)|
