@@ -13,3 +13,4 @@
 202507091830|LordBuddha|Buddha Statue, Hussain Sagar, Hyderabad, Telangana (© Amith Nag Photography/Getty Images)|Light that leads|![](/en-IN/2025/07/202507091830LordBuddha.jpg)|
 202507101830|TokyoSunrise|Tokyo at sunrise, Japan (© pongnathee kluaythong/Getty Images)|Counting us all in|![](/en-IN/2025/07/202507101830TokyoSunrise.jpg)|
 202507111830|ThomsonGazelle|Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)|Following mom's lead|![](/en-IN/2025/07/202507111830ThomsonGazelle.jpg)|
+202507121830|BasaltColumns|Basalt columns in Kálfshamarsvík cove, Skagi peninsula, Iceland (© Arterra Picture Library/Alamy Stock Photo)|Rockin' those layers|![](/en-IN/2025/07/202507121830BasaltColumns.jpg)|
