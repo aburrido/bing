@@ -13,3 +13,4 @@
 202507091600|BahamaBlues|巴哈马的绿松石色水域 (© BlueOrange Studio/Adobe Stock)|奔向自由之浪|![](/zh-CN/2025/07/202507091600BahamaBlues.jpg)|
 202507101600|TokyoSunrise|日出时的东京，日本 (© pongnathee kluaythong/Getty Images)|把我们都算上|![](/zh-CN/2025/07/202507101600TokyoSunrise.jpg)|
 202507111600|ThomsonGazelle|汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)|跟随妈妈的脚步|![](/zh-CN/2025/07/202507111600ThomsonGazelle.jpg)|
+202507121600|BasaltColumns|卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)|层层叠叠的岩石|![](/zh-CN/2025/07/202507121600BasaltColumns.jpg)|
