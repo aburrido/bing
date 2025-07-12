@@ -12,3 +12,4 @@
 202507092200|BahamaBlues|Eaux turquoise des Bahamas (© BlueOrange Studio/Adobe Stock)|Bahamas, une nation en fête|![](/fr-FR/2025/07/202507092200BahamaBlues.jpg)|
 202507102200|TokyoSunrise|Tokyo au lever du jour, Japon (© pongnathee kluaythong/Getty Images)|Croissance ou équilibre ?|![](/fr-FR/2025/07/202507102200TokyoSunrise.jpg)|
 202507112200|ThomsonGazelle|Gazelle de Thomson, mère et faon, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)|Dans l’or de la savane, une vie commence|![](/fr-FR/2025/07/202507112200ThomsonGazelle.jpg)|
+202507122200|BasaltColumns|Colonnes de basalte dans la crique de Kálfshamarsvík, Skagi, Islande (© Arterra Picture Library/Alamy Stock Photo)|Un chef-d’œuvre de pierre au bout du monde|![](/fr-FR/2025/07/202507122200BasaltColumns.jpg)|
