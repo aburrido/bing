@@ -13,3 +13,4 @@
 202507090400|ConstitucionStation|Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)|The rise of a republic|![](/en-CA/2025/07/202507090400ConstitucionStation.jpg)|
 202507100400|BahamaBlues|Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)|To the waves of freedom|![](/en-CA/2025/07/202507100400BahamaBlues.jpg)|
 202507110400|TokyoSunrise|Tokyo at sunrise, Japan (© pongnathee kluaythong/Getty Images)|Counting us all in|![](/en-CA/2025/07/202507110400TokyoSunrise.jpg)|
+202507120400|ThomsonGazelle|Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)|Following mom's lead|![](/en-CA/2025/07/202507120400ThomsonGazelle.jpg)|
