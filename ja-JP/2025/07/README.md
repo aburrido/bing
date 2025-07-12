@@ -13,3 +13,4 @@
 202507091500|BahamaBlues|ターコイズブルーの海, バハマ (© BlueOrange Studio/Adobe Stock)|今日はバハマの独立記念日|![](/ja-JP/2025/07/202507091500BahamaBlues.jpg)|
 202507101500|TokyoSunrise|1400 万の人口を抱える大都市, 東京 (© pongnathee kluaythong/Getty Images)|今日は世界人口デー|![](/ja-JP/2025/07/202507101500TokyoSunrise.jpg)|
 202507111500|ThomsonGazelle|マサイマラ国立保護区, ケニア (© Gallo Images/DanitaDelimont.com)|トムソンガゼルの母子|![](/ja-JP/2025/07/202507111500ThomsonGazelle.jpg)|
+202507121500|BasaltColumns|カールフザマルスヴィーク, アイスランド (© Arterra Picture Library/Alamy)|黒い玄武岩の柱状節理|![](/ja-JP/2025/07/202507121500BasaltColumns.jpg)|
