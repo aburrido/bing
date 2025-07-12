@@ -13,3 +13,4 @@
 202507092300|BahamaBlues|Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)|To the waves of freedom|![](/en-GB/2025/07/202507092300BahamaBlues.jpg)|
 202507102300|TokyoSunrise|Tokyo at sunrise, Japan (© pongnathee kluaythong/Getty Images)|Counting us all in|![](/en-GB/2025/07/202507102300TokyoSunrise.jpg)|
 202507112300|ThomsonGazelle|Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)|Following mom's lead|![](/en-GB/2025/07/202507112300ThomsonGazelle.jpg)|
+202507122300|BasaltColumns|Basalt columns in Kálfshamarsvík cove, Skagi peninsula, Iceland (© Arterra Picture Library/Alamy)|Rockin' those layers|![](/en-GB/2025/07/202507122300BasaltColumns.jpg)|
