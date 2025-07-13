@@ -14,3 +14,4 @@
 202507102200|TokyoSunrise|Tokio bei Sonnenaufgang, Japan (© pongnathee kluaythong/Getty Images)|Wir gehören alle dazu|![](/de-DE/2025/07/202507102200TokyoSunrise.jpg)|
 202507112200|ThomsonGazelle|Thomson-Gazelle, Mutter und Kitz, Maasai Mara, Kenia (© Gallo Images/DanitaDelimont.com)|Nach dem Vorbild der Mutter|![](/de-DE/2025/07/202507112200ThomsonGazelle.jpg)|
 202507122200|BasaltColumns|Basaltsäulen in der Bucht von Kálfshamarsvík, Halbinsel Skagi, Island (© Arterra Picture Library/Alamy)|Geometrie der Natur|![](/de-DE/2025/07/202507122200BasaltColumns.jpg)|
+202507132200|YoungShark|Junger Blauhai schwimmt vor der Küste Galiciens, Spanien (© Damocean/Getty Images)|Uralte Überlebenskünstler|![](/de-DE/2025/07/202507132200YoungShark.jpg)|
