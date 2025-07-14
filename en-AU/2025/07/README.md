@@ -15,3 +15,4 @@
 202507110700|TokyoSunrise|Tokyo at sunrise, Japan (© pongnathee kluaythong/Getty Images)|Info|![](/en-AU/2025/07/202507110700TokyoSunrise.jpg)|
 202507120700|ThomsonGazelle|Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)|Info|![](/en-AU/2025/07/202507120700ThomsonGazelle.jpg)|
 202507130700|BasaltColumns|Basalt columns in Kálfshamarsvík cove, Skagi peninsula, Iceland (© Arterra Picture Library/Alamy)|Info|![](/en-AU/2025/07/202507130700BasaltColumns.jpg)|
+202507140700|YoungShark|Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)|Info|![](/en-AU/2025/07/202507140700YoungShark.jpg)|
