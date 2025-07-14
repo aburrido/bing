@@ -15,3 +15,4 @@
 202507111600|ThomsonGazelle|汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)|跟随妈妈的脚步|![](/zh-CN/2025/07/202507111600ThomsonGazelle.jpg)|
 202507121600|BasaltColumns|卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)|层层叠叠的岩石|![](/zh-CN/2025/07/202507121600BasaltColumns.jpg)|
 202507131600|YoungShark|加利西亚海域游弋的幼年大青鲨，西班牙 (© Damocean/Getty Images)|追逐海浪，掀起潮汐|![](/zh-CN/2025/07/202507131600YoungShark.jpg)|
+202507141600|PerseidsPine|英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国 (© Wirestock Creators/Shutterstock)|永恒的光芒|![](/zh-CN/2025/07/202507141600PerseidsPine.jpg)|
