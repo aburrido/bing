@@ -16,3 +16,4 @@
 202507121500|BasaltColumns|カールフザマルスヴィーク, アイスランド (© Arterra Picture Library/Alamy)|黒い玄武岩の柱状節理|![](/ja-JP/2025/07/202507121500BasaltColumns.jpg)|
 202507131500|YoungShark|ガリシア沖を泳ぐヨシキリザメ, スペイン (© Damocean/Getty Images)|今日はサメ啓発の日|![](/ja-JP/2025/07/202507131500YoungShark.jpg)|
 202507141500|PerseidsPine|グレートベースン国立公園, 米国 ネバダ州 (© Wirestock Creators/Shutterstock)|幻想的なペルセウス座流星群|![](/ja-JP/2025/07/202507141500PerseidsPine.jpg)|
+202507151500|TemplePhilae|フィラエ神殿, エジプト (© Ratnakorn Piyasirisorost/Getty Images)|イシス女神に捧げられた聖域|![](/ja-JP/2025/07/202507151500TemplePhilae.jpg)|
