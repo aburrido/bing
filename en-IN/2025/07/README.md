@@ -16,3 +16,4 @@
 202507121830|BasaltColumns|Basalt columns in Kálfshamarsvík cove, Skagi peninsula, Iceland (© Arterra Picture Library/Alamy Stock Photo)|Rockin' those layers|![](/en-IN/2025/07/202507121830BasaltColumns.jpg)|
 202507131830|YoungShark|Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)|Chasing waves, making tides|![](/en-IN/2025/07/202507131830YoungShark.jpg)|
 202507141830|MuchalindaLake|Muchalinda Sarovar, Bodh Gaya, Bihar (© Alexander Reshnya/Getty Images)|Pond of peace|![](/en-IN/2025/07/202507141830MuchalindaLake.jpg)|
+202507151830|TemplePhilae|Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)|Illuminated by goddess Isis|![](/en-IN/2025/07/202507151830TemplePhilae.jpg)|
