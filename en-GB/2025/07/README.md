@@ -16,3 +16,4 @@
 202507122300|BasaltColumns|Basalt columns in Kálfshamarsvík cove, Skagi peninsula, Iceland (© Arterra Picture Library/Alamy)|Rockin' those layers|![](/en-GB/2025/07/202507122300BasaltColumns.jpg)|
 202507132300|YoungShark|Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)|Chasing waves, making tides|![](/en-GB/2025/07/202507132300YoungShark.jpg)|
 202507142300|PerseidsPine|Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada, United States (© Wirestock Creators/Shutterstock)|Timeless glow|![](/en-GB/2025/07/202507142300PerseidsPine.jpg)|
+202507152300|TemplePhilae|Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)|Illuminated by goddess Isis|![](/en-GB/2025/07/202507152300TemplePhilae.jpg)|
