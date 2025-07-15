@@ -16,3 +16,4 @@
 202507120700|ThomsonGazelle|Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)|Following mom's lead|![](/en-US/2025/07/202507120700ThomsonGazelle.jpg)|
 202507130700|BasaltColumns|Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)|Rockin' those layers|![](/en-US/2025/07/202507130700BasaltColumns.jpg)|
 202507140700|YoungShark|Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)|Chasing waves|![](/en-US/2025/07/202507140700YoungShark.jpg)|
+202507150700|PerseidsPine|Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)|Timeless glow|![](/en-US/2025/07/202507150700PerseidsPine.jpg)|
