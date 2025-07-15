@@ -16,3 +16,4 @@
 202507122200|BasaltColumns|Basaltsäulen in der Bucht von Kálfshamarsvík, Halbinsel Skagi, Island (© Arterra Picture Library/Alamy)|Geometrie der Natur|![](/de-DE/2025/07/202507122200BasaltColumns.jpg)|
 202507132200|YoungShark|Junger Blauhai schwimmt vor der Küste Galiciens, Spanien (© Damocean/Getty Images)|Uralte Überlebenskünstler|![](/de-DE/2025/07/202507132200YoungShark.jpg)|
 202507142200|PerseidsPine|Perseiden-Meteorschauer und eine alte Borstenkiefer, Great-Basin-Nationalpark, Nevada, USA (© Wirestock Creators/Shutterstock)|Ein beeindruckendes Naturschauspiel|![](/de-DE/2025/07/202507142200PerseidsPine.jpg)|
+202507152200|TemplePhilae|Tempel von Philae, Assuan, Ägypten (© Ratnakorn Piyasirisorost/Getty Images)|Im Schatten der Götter|![](/de-DE/2025/07/202507152200TemplePhilae.jpg)|

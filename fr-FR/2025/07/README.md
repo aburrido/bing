@@ -15,3 +15,4 @@
 202507122200|BasaltColumns|Colonnes de basalte dans la crique de Kálfshamarsvík, Skagi, Islande (© Arterra Picture Library/Alamy Stock Photo)|Un chef-d’œuvre de pierre au bout du monde|![](/fr-FR/2025/07/202507122200BasaltColumns.jpg)|
 202507132200|BastilleDayCelebration|Feu d'artifice du 14 juillet au-dessus de la citadelle de Sisteron au crépuscule, Provence (© francois-roux/Getty Images)|Quand la liberté éclaire le ciel|![](/fr-FR/2025/07/202507132200BastilleDayCelebration.jpg)|
 202507142200|PerseidsPine|Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)|Sous les étoiles, le silence du temps|![](/fr-FR/2025/07/202507142200PerseidsPine.jpg)|
+202507152200|TemplePhilae|Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)|Le souffle d’Isis au bord du Nil|![](/fr-FR/2025/07/202507152200TemplePhilae.jpg)|
