@@ -16,3 +16,4 @@
 202507132200|BastilleDayCelebration|Feu d'artifice du 14 juillet au-dessus de la citadelle de Sisteron au crépuscule, Provence (© francois-roux/Getty Images)|Quand la liberté éclaire le ciel|![](/fr-FR/2025/07/202507132200BastilleDayCelebration.jpg)|
 202507142200|PerseidsPine|Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)|Sous les étoiles, le silence du temps|![](/fr-FR/2025/07/202507142200PerseidsPine.jpg)|
 202507152200|TemplePhilae|Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)|Le souffle d’Isis au bord du Nil|![](/fr-FR/2025/07/202507152200TemplePhilae.jpg)|
+202507162200|FranceLavender|Champs de lavande sur le plateau de Valensole, Provence (© zpagistock/Getty Images)|Fermez les yeux… et respirez|![](/fr-FR/2025/07/202507162200FranceLavender.jpg)|
