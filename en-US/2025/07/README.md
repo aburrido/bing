@@ -18,3 +18,4 @@
 202507140700|YoungShark|Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)|Chasing waves|![](/en-US/2025/07/202507140700YoungShark.jpg)|
 202507150700|PerseidsPine|Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)|Timeless glow|![](/en-US/2025/07/202507150700PerseidsPine.jpg)|
 202507160700|TemplePhilae|Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)|Illuminated by Isis|![](/en-US/2025/07/202507160700TemplePhilae.jpg)|
+202507170700|FranceLavender|Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)|Fragrant horizons|![](/en-US/2025/07/202507170700FranceLavender.jpg)|
