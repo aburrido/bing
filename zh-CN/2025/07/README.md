@@ -18,3 +18,4 @@
 202507141600|PerseidsPine|英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国 (© Wirestock Creators/Shutterstock)|永恒的光芒|![](/zh-CN/2025/07/202507141600PerseidsPine.jpg)|
 202507151600|TemplePhilae|菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及 (© Ratnakorn Piyasirisorost/Getty Images)|伊西斯女神的光辉照耀下|![](/zh-CN/2025/07/202507151600TemplePhilae.jpg)|
 202507161600|FranceLavender|瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)|追随香气的地平线|![](/zh-CN/2025/07/202507161600FranceLavender.jpg)|
+202507171600|IcelandSolstice|塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)|一切准备就绪，等待日落|![](/zh-CN/2025/07/202507171600IcelandSolstice.jpg)|
