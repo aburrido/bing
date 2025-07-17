@@ -17,3 +17,4 @@
 202507142200|PerseidsPine|Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)|Sous les étoiles, le silence du temps|![](/fr-FR/2025/07/202507142200PerseidsPine.jpg)|
 202507152200|TemplePhilae|Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)|Le souffle d’Isis au bord du Nil|![](/fr-FR/2025/07/202507152200TemplePhilae.jpg)|
 202507162200|FranceLavender|Champs de lavande sur le plateau de Valensole, Provence (© zpagistock/Getty Images)|Fermez les yeux… et respirez|![](/fr-FR/2025/07/202507162200FranceLavender.jpg)|
+202507172200|YoungShark|Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)|Un petit requin en péril|![](/fr-FR/2025/07/202507172200YoungShark.jpg)|

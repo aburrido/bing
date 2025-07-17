@@ -18,3 +18,4 @@
 202507142200|PerseidsPine|Perseiden-Meteorschauer und eine alte Borstenkiefer, Great-Basin-Nationalpark, Nevada, USA (© Wirestock Creators/Shutterstock)|Ein beeindruckendes Naturschauspiel|![](/de-DE/2025/07/202507142200PerseidsPine.jpg)|
 202507152200|TemplePhilae|Tempel von Philae, Assuan, Ägypten (© Ratnakorn Piyasirisorost/Getty Images)|Im Schatten der Götter|![](/de-DE/2025/07/202507152200TemplePhilae.jpg)|
 202507162200|LavenderWesterhever|Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)|Wer wacht hier?|![](/de-DE/2025/07/202507162200LavenderWesterhever.jpg)|
+202507172200|MiravetSpain|Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)|Eine Reise in die Vergangenheit|![](/de-DE/2025/07/202507172200MiravetSpain.jpg)|
