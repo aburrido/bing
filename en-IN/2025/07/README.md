@@ -18,3 +18,4 @@
 202507141830|MuchalindaLake|Muchalinda Sarovar, Bodh Gaya, Bihar (© Alexander Reshnya/Getty Images)|Pond of peace|![](/en-IN/2025/07/202507141830MuchalindaLake.jpg)|
 202507151830|TemplePhilae|Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)|Illuminated by goddess Isis|![](/en-IN/2025/07/202507151830TemplePhilae.jpg)|
 202507161830|FranceLavender|Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)|Fragrant horizons|![](/en-IN/2025/07/202507161830FranceLavender.jpg)|
+202507171830|BahamaBlues|Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)|Pure island joy|![](/en-IN/2025/07/202507171830BahamaBlues.jpg)|
