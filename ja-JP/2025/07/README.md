@@ -19,3 +19,4 @@
 202507151500|TemplePhilae|フィラエ神殿, エジプト (© Ratnakorn Piyasirisorost/Getty Images)|イシス女神に捧げられた聖域|![](/ja-JP/2025/07/202507151500TemplePhilae.jpg)|
 202507161500|FranceLavender|ヴァレンソール高原のラベンダー畑, フランス (© zpagistock/Getty Images)|一面に広がる紫の絨毯|![](/ja-JP/2025/07/202507161500FranceLavender.jpg)|
 202507171500|DolomitiEstate|ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)|天にそびえる五つの塔|![](/ja-JP/2025/07/202507171500DolomitiEstate.jpg)|
+202507181500|VaticanCity|サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)|カトリック教会の総本山|![](/ja-JP/2025/07/202507181500VaticanCity.jpg)|
