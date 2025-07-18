@@ -19,3 +19,4 @@
 202507152300|TemplePhilae|Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)|Illuminated by goddess Isis|![](/en-GB/2025/07/202507152300TemplePhilae.jpg)|
 202507162300|FranceLavender|Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)|Fragrant horizons|![](/en-GB/2025/07/202507162300FranceLavender.jpg)|
 202507172300|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-GB/2025/07/202507172300AcroporaReef.jpg)|
+202507182300|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)|Moth-ers day|![](/en-GB/2025/07/202507182300MothWeek.jpg)|
