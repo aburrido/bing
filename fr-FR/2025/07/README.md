@@ -18,3 +18,4 @@
 202507152200|TemplePhilae|Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)|Le souffle d’Isis au bord du Nil|![](/fr-FR/2025/07/202507152200TemplePhilae.jpg)|
 202507162200|FranceLavender|Champs de lavande sur le plateau de Valensole, Provence (© zpagistock/Getty Images)|Fermez les yeux… et respirez|![](/fr-FR/2025/07/202507162200FranceLavender.jpg)|
 202507172200|YoungShark|Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)|Un petit requin en péril|![](/fr-FR/2025/07/202507172200YoungShark.jpg)|
+202507182200|Saumur|Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)|Crépuscule royal sur les bords de Loire|![](/fr-FR/2025/07/202507182200Saumur.jpg)|
