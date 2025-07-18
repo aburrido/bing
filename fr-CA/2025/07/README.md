@@ -19,3 +19,4 @@
 202507150400|PerseidsPine|Étoiles filantes des Perséides et pin Bristlecone, parc national du Grand Bassin, États-Unis (© Wirestock Creators/Shutterstock)|Sous les étoiles, le silence du temps|![](/fr-CA/2025/07/202507150400PerseidsPine.jpg)|
 202507160400|TemplePhilae|Temple d'Isis, Assouan, Égypte (© Ratnakorn Piyasirisorost/Getty Images)|Le souffle d’Isis au bord du Nil|![](/fr-CA/2025/07/202507160400TemplePhilae.jpg)|
 202507170400|FranceLavender|Champs de lavande sur le plateau de Valensole, Provence, France (© zpagistock/Getty Images)|Fermez les yeux… et respirez|![](/fr-CA/2025/07/202507170400FranceLavender.jpg)|
+202507180400|MothWeek|Papillon lune posé sur un orme de cèdre, New Braunfels, Texas, États-Unis (© Rolf Nussbaumer/Nature Picture Library)|Quand la nuit s’illumine de papillons|![](/fr-CA/2025/07/202507180400MothWeek.jpg)|
