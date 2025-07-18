@@ -19,3 +19,4 @@
 202507151600|TemplePhilae|菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及 (© Ratnakorn Piyasirisorost/Getty Images)|伊西斯女神的光辉照耀下|![](/zh-CN/2025/07/202507151600TemplePhilae.jpg)|
 202507161600|FranceLavender|瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)|追随香气的地平线|![](/zh-CN/2025/07/202507161600FranceLavender.jpg)|
 202507171600|IcelandSolstice|塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)|一切准备就绪，等待日落|![](/zh-CN/2025/07/202507171600IcelandSolstice.jpg)|
+202507181600|YohoNP|幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大 (© Feng Wei Photography/Getty Images)|化石、瀑布与林间小径|![](/zh-CN/2025/07/202507181600YohoNP.jpg)|
