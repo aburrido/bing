@@ -20,3 +20,4 @@
 202507161500|FranceLavender|ヴァレンソール高原のラベンダー畑, フランス (© zpagistock/Getty Images)|一面に広がる紫の絨毯|![](/ja-JP/2025/07/202507161500FranceLavender.jpg)|
 202507171500|DolomitiEstate|ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)|天にそびえる五つの塔|![](/ja-JP/2025/07/202507171500DolomitiEstate.jpg)|
 202507181500|VaticanCity|サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)|カトリック教会の総本山|![](/ja-JP/2025/07/202507181500VaticanCity.jpg)|
+202507191500|BigMoon|観測機器で撮影された月 (© Sergey Kuznetsov/Getty Images)|今日は月面着陸の日|![](/ja-JP/2025/07/202507191500BigMoon.jpg)|
