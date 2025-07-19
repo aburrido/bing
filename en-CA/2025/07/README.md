@@ -20,3 +20,4 @@
 202507160400|TemplePhilae|Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)|Illuminated by goddess Isis|![](/en-CA/2025/07/202507160400TemplePhilae.jpg)|
 202507170400|FranceLavender|Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)|Fragrant horizons|![](/en-CA/2025/07/202507170400FranceLavender.jpg)|
 202507180400|OroseiSardegna|Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)|Water, air, rock|![](/en-CA/2025/07/202507180400OroseiSardegna.jpg)|
+202507190400|SimcoeLighthouse|Jackson's Point Lighthouse on Lake Simcoe, Ontario (© AWSeebaran/E+/Getty Images)|Silent watcher|![](/en-CA/2025/07/202507190400SimcoeLighthouse.jpg)|
