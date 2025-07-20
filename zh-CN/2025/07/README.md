@@ -21,3 +21,4 @@
 202507171600|IcelandSolstice|塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)|一切准备就绪，等待日落|![](/zh-CN/2025/07/202507171600IcelandSolstice.jpg)|
 202507181600|YohoNP|幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大 (© Feng Wei Photography/Getty Images)|化石、瀑布与林间小径|![](/zh-CN/2025/07/202507181600YohoNP.jpg)|
 202507191600|BigMoon|望远镜下的月球表面照片 (© Sergey Kuznetsov/Getty Images)|在月光下起舞|![](/zh-CN/2025/07/202507191600BigMoon.jpg)|
+202507201600|AcroporaReef|浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)|海洋中的热带雨林|![](/zh-CN/2025/07/202507201600AcroporaReef.jpg)|
