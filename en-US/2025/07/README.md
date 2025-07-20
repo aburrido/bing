@@ -21,3 +21,4 @@
 202507170700|FranceLavender|Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)|Fragrant horizons|![](/en-US/2025/07/202507170700FranceLavender.jpg)|
 202507180700|FloridaSeashore|Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)|Gulf Islands glow|![](/en-US/2025/07/202507180700FloridaSeashore.jpg)|
 202507190700|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)|Moth-ers day|![](/en-US/2025/07/202507190700MothWeek.jpg)|
+202507200700|BigMoon|The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-US/2025/07/202507200700BigMoon.jpg)|
