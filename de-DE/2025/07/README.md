@@ -21,3 +21,4 @@
 202507172200|MiravetSpain|Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)|Eine Reise in die Vergangenheit|![](/de-DE/2025/07/202507172200MiravetSpain.jpg)|
 202507182200|MothWeek|Luna-Motte auf einer Zedern-Ulme ruhend, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)|Ein Leben im Schatten|![](/de-DE/2025/07/202507182200MothWeek.jpg)|
 202507192200|BigMoon|Foto der Mondoberfläche durch ein Teleskop (© Sergey Kuznetsov/Getty Images)|Tanzen im Mondlicht|![](/de-DE/2025/07/202507192200BigMoon.jpg)|
+202507202200|AcroporaReef|Hirschhorn-Koralle im seichten Ozean (© blue-sea.cz/Shutterstock)|Regenwälder der Meere|![](/de-DE/2025/07/202507202200AcroporaReef.jpg)|
