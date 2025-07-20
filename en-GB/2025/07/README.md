@@ -21,3 +21,4 @@
 202507172300|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-GB/2025/07/202507172300AcroporaReef.jpg)|
 202507182300|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)|Moth-ers day|![](/en-GB/2025/07/202507182300MothWeek.jpg)|
 202507192300|BigMoon|Photo of the moon's surface through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-GB/2025/07/202507192300BigMoon.jpg)|
+202507202300|BuckinghamPalaceOpening2025|Buckingham Palace, London (© Leonid Andronov/Shutterstock)|A peek behind the regal doors|![](/en-GB/2025/07/202507202300BuckinghamPalaceOpening2025.jpg)|
