@@ -21,3 +21,4 @@
 202507171830|BahamaBlues|Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)|Pure island joy|![](/en-IN/2025/07/202507171830BahamaBlues.jpg)|
 202507181830|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)|A leaf insect|![](/en-IN/2025/07/202507181830MothWeek.jpg)|
 202507191830|BigMoon|The moon's surface seen through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-IN/2025/07/202507191830BigMoon.jpg)|
+202507201830|AcroporaReef|Staghorn coral in shallow ocean (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-IN/2025/07/202507201830AcroporaReef.jpg)|
