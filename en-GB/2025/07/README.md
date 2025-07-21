@@ -22,3 +22,4 @@
 202507182300|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)|Moth-ers day|![](/en-GB/2025/07/202507182300MothWeek.jpg)|
 202507192300|BigMoon|Photo of the moon's surface through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-GB/2025/07/202507192300BigMoon.jpg)|
 202507202300|BuckinghamPalaceOpening2025|Buckingham Palace, London (© Leonid Andronov/Shutterstock)|A peek behind the regal doors|![](/en-GB/2025/07/202507202300BuckinghamPalaceOpening2025.jpg)|
+202507212300|BadlandsSunset|Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Epic sunsets and ancient secrets|![](/en-GB/2025/07/202507212300BadlandsSunset.jpg)|
