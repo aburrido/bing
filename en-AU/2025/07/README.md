@@ -22,3 +22,4 @@
 202507180700|EucaliptoSC|Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)|Info|![](/en-AU/2025/07/202507180700EucaliptoSC.jpg)|
 202507190700|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, United States (© Rolf Nussbaumer/Nature Picture Library)|Info|![](/en-AU/2025/07/202507190700MothWeek.jpg)|
 202507200700|BigMoon|The moon's surface seen through a telescope (© Sergey Kuznetsov/Getty Images)|Info|![](/en-AU/2025/07/202507200700BigMoon.jpg)|
+202507210700|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Info|![](/en-AU/2025/07/202507210700AcroporaReef.jpg)|
