@@ -22,3 +22,4 @@
 202507181500|VaticanCity|サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)|カトリック教会の総本山|![](/ja-JP/2025/07/202507181500VaticanCity.jpg)|
 202507191500|BigMoon|観測機器で撮影された月 (© Sergey Kuznetsov/Getty Images)|今日は月面着陸の日|![](/ja-JP/2025/07/202507191500BigMoon.jpg)|
 202507201500|MarineDay2025|青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)|今日は海の日|![](/ja-JP/2025/07/202507201500MarineDay2025.jpg)|
+202507211500|BadlandsSunset|バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)|風と水が刻んだ奇岩地帯|![](/ja-JP/2025/07/202507211500BadlandsSunset.jpg)|
