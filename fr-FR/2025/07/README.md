@@ -21,3 +21,4 @@
 202507182200|Saumur|Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)|Crépuscule royal sur les bords de Loire|![](/fr-FR/2025/07/202507182200Saumur.jpg)|
 202507192200|BigMoon|Photo de la surface de la Lune à travers un télescope (© Sergey Kuznetsov/Getty Images)|De la Terre à la Lune|![](/fr-FR/2025/07/202507192200BigMoon.jpg)|
 202507202200|AcroporaReef|Corail corne de cerf dans une mer peu profonde (© blue-sea.cz/Shutterstock)|Un écosystème vital en sursis|![](/fr-FR/2025/07/202507202200AcroporaReef.jpg)|
+202507212200|BadlandsSunset|Coucher de soleil sur le parc national des Badlands, Dakota du Sud, États-Unis (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Voyage au cœur du temps|![](/fr-FR/2025/07/202507212200BadlandsSunset.jpg)|
