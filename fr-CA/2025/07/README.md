@@ -22,3 +22,4 @@
 202507180400|MothWeek|Papillon lune posé sur un orme de cèdre, New Braunfels, Texas, États-Unis (© Rolf Nussbaumer/Nature Picture Library)|Quand la nuit s’illumine de papillons|![](/fr-CA/2025/07/202507180400MothWeek.jpg)|
 202507190400|SimcoeLighthouse|Phare de Jackson's Point sur le lac Simcoe, Ontario (© AWSeebaran/E+/Getty Images)|Un phare, mille récits|![](/fr-CA/2025/07/202507190400SimcoeLighthouse.jpg)|
 202507200400|BigMoon|Photo de la surface de la Lune à travers un télescope (© Sergey Kuznetsov/Getty Images)|De la Terre à la Lune|![](/fr-CA/2025/07/202507200400BigMoon.jpg)|
+202507210400|AcroporaReef|Corail corne de cerf dans une mer peu profonde (© blue-sea.cz/Shutterstock)|Un écosystème vital en sursis|![](/fr-CA/2025/07/202507210400AcroporaReef.jpg)|
