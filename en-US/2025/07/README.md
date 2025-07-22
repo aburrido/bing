@@ -23,3 +23,4 @@
 202507190700|MothWeek|Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)|Moth-ers day|![](/en-US/2025/07/202507190700MothWeek.jpg)|
 202507200700|BigMoon|The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-US/2025/07/202507200700BigMoon.jpg)|
 202507210700|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-US/2025/07/202507210700AcroporaReef.jpg)|
+202507220700|BadlandsSunset|Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)|Epic sunsets and ancient secrets|![](/en-US/2025/07/202507220700BadlandsSunset.jpg)|
