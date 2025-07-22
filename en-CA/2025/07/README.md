@@ -23,3 +23,4 @@
 202507190400|SimcoeLighthouse|Jackson's Point Lighthouse on Lake Simcoe, Ontario (© AWSeebaran/E+/Getty Images)|Silent watcher|![](/en-CA/2025/07/202507190400SimcoeLighthouse.jpg)|
 202507200400|BigMoon|The moon's surface seen through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-CA/2025/07/202507200400BigMoon.jpg)|
 202507210400|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-CA/2025/07/202507210400AcroporaReef.jpg)|
+202507220400|BadlandsSunset|Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Epic sunsets and ancient secrets|![](/en-CA/2025/07/202507220400BadlandsSunset.jpg)|
