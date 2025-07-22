@@ -23,3 +23,4 @@
 202507191600|BigMoon|望远镜下的月球表面照片 (© Sergey Kuznetsov/Getty Images)|在月光下起舞|![](/zh-CN/2025/07/202507191600BigMoon.jpg)|
 202507201600|AcroporaReef|浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)|海洋中的热带雨林|![](/zh-CN/2025/07/202507201600AcroporaReef.jpg)|
 202507211600|GreatHeatY25|夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)|天山上的蓝宝石|![](/zh-CN/2025/07/202507211600GreatHeatY25.jpg)|
+202507221600|VaticanCity|梵蒂冈城与圣彼得大教堂，罗马，意大利 (© RudyBalasko/Getty Images)|城中之国|![](/zh-CN/2025/07/202507221600VaticanCity.jpg)|
