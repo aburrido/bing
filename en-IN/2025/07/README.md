@@ -24,3 +24,4 @@
 202507201830|AcroporaReef|Staghorn coral in shallow ocean (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-IN/2025/07/202507201830AcroporaReef.jpg)|
 202507211830|BadlandsSunset|Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Epic sunsets and ancient secrets|![](/en-IN/2025/07/202507211830BadlandsSunset.jpg)|
 202507221830|VaticanCity|Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)|A country within a city|![](/en-IN/2025/07/202507221830VaticanCity.jpg)|
+202507231830|AdalajStepwell|Adalaj Stepwell, Gujarat (© krishh/Getty Images)|Built for love, carved in time|![](/en-IN/2025/07/202507231830AdalajStepwell.jpg)|
