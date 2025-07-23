@@ -24,3 +24,4 @@
 202507202200|AcroporaReef|Hirschhorn-Koralle im seichten Ozean (© blue-sea.cz/Shutterstock)|Regenwälder der Meere|![](/de-DE/2025/07/202507202200AcroporaReef.jpg)|
 202507212200|BadlandsSunset|Sonnenuntergang über dem Badlands-Nationalpark, South Dakota, USA (© Petr Bednarik/Danita Delimont/Alamy)|Epische Sonnenuntergänge und uralte Geheimnisse|![](/de-DE/2025/07/202507212200BadlandsSunset.jpg)|
 202507222200|VaticanCity|Vatikanstadt mit dem Petersdom, Rom, Italien (© RudyBalasko/Getty Images)|Ein Staat innerhalb einer Stadt|![](/de-DE/2025/07/202507222200VaticanCity.jpg)|
+202507232200|BayreuthTheatre|Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)|Auf den Spuren von Richard Wagner|![](/de-DE/2025/07/202507232200BayreuthTheatre.jpg)|
