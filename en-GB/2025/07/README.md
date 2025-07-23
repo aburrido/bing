@@ -24,3 +24,4 @@
 202507202300|BuckinghamPalaceOpening2025|Buckingham Palace, London (© Leonid Andronov/Shutterstock)|A peek behind the regal doors|![](/en-GB/2025/07/202507202300BuckinghamPalaceOpening2025.jpg)|
 202507212300|BadlandsSunset|Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Epic sunsets and ancient secrets|![](/en-GB/2025/07/202507212300BadlandsSunset.jpg)|
 202507222300|VaticanCity|Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)|A country within a city|![](/en-GB/2025/07/202507222300VaticanCity.jpg)|
+202507232300|AshyWoodswallow|Family of ashy woodswallows perched on a branch (© Captain Skyhigh/Getty Images)|Birds of a feather stick together|![](/en-GB/2025/07/202507232300AshyWoodswallow.jpg)|
