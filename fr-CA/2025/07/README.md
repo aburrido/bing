@@ -24,3 +24,4 @@
 202507200400|BigMoon|Photo de la surface de la Lune à travers un télescope (© Sergey Kuznetsov/Getty Images)|De la Terre à la Lune|![](/fr-CA/2025/07/202507200400BigMoon.jpg)|
 202507210400|AcroporaReef|Corail corne de cerf dans une mer peu profonde (© blue-sea.cz/Shutterstock)|Un écosystème vital en sursis|![](/fr-CA/2025/07/202507210400AcroporaReef.jpg)|
 202507220400|BadlandsSunset|Coucher de soleil sur le parc national des Badlands, Dakota du Sud, États-Unis (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Voyage au cœur du temps|![](/fr-CA/2025/07/202507220400BadlandsSunset.jpg)|
+202507230400|VaticanCity|La Cité du Vatican avec la basilique Saint-Pierre, Rome, Italie (© RudyBalasko/Getty Images)|Le plus petit État du monde|![](/fr-CA/2025/07/202507230400VaticanCity.jpg)|

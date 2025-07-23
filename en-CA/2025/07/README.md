@@ -24,3 +24,4 @@
 202507200400|BigMoon|The moon's surface seen through a telescope (© Sergey Kuznetsov/Getty Images)|Dancing in the moonlight|![](/en-CA/2025/07/202507200400BigMoon.jpg)|
 202507210400|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Rainforests of the sea|![](/en-CA/2025/07/202507210400AcroporaReef.jpg)|
 202507220400|BadlandsSunset|Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Epic sunsets and ancient secrets|![](/en-CA/2025/07/202507220400BadlandsSunset.jpg)|
+202507230400|VaticanCity|Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)|A country within a city|![](/en-CA/2025/07/202507230400VaticanCity.jpg)|
