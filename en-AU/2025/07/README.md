@@ -25,3 +25,4 @@
 202507210700|AcroporaReef|Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)|Info|![](/en-AU/2025/07/202507210700AcroporaReef.jpg)|
 202507220700|BadlandsSunset|Sunset over Badlands National Park, South Dakota, United States (© Petr Bednarik/Danita Delimont/Alamy Stock Photo)|Info|![](/en-AU/2025/07/202507220700BadlandsSunset.jpg)|
 202507230700|VaticanCity|Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)|Info|![](/en-AU/2025/07/202507230700VaticanCity.jpg)|
+202507240700|AshyWoodswallow|Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)|Info|![](/en-AU/2025/07/202507240700AshyWoodswallow.jpg)|
