@@ -25,3 +25,4 @@
 202507211500|BadlandsSunset|バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)|風と水が刻んだ奇岩地帯|![](/ja-JP/2025/07/202507211500BadlandsSunset.jpg)|
 202507221500|GionFestival2025|提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)|祇園祭・後祭の宵山期間中|![](/ja-JP/2025/07/202507221500GionFestival2025.jpg)|
 202507231500|AshyWoodswallow|枝にとまるハイイロモリツバメ (© Captain Skyhigh/Getty Images)|南アジアの可愛い鳥|![](/ja-JP/2025/07/202507231500AshyWoodswallow.jpg)|
+202507241500|LasPalmas|ラス・パルマス・デ・グラン・カナリア, スペイン (© Marco Bottigelli/Getty Images)|カラフルな家々が並ぶ港湾都市|![](/ja-JP/2025/07/202507241500LasPalmas.jpg)|
