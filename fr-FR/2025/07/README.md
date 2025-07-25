@@ -25,3 +25,4 @@
 202507222200|VaticanCity|La Cité du Vatican avec la basilique Saint-Pierre, Rome, Italie (© RudyBalasko/Getty Images)|Le plus petit État du monde|![](/fr-FR/2025/07/202507222200VaticanCity.jpg)|
 202507232200|AshyWoodswallow|Famille de langrayens bruns perchée sur une branche (© Captain Skyhigh/Getty Images)|Des liens qui durent toute la vie !|![](/fr-FR/2025/07/202507232200AshyWoodswallow.jpg)|
 202507242200|BlackfinBarracuda|Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)|Plus d’appétit qu’un barracuda|![](/fr-FR/2025/07/202507242200BlackfinBarracuda.jpg)|
+202507252200|MangroveTwilight|Mangroves au crépuscule, plage de Walakiri, île de Sumba, Indonésie (© Boonchet Ch./Getty Images)|Les sentinelles des marées|![](/fr-FR/2025/07/202507252200MangroveTwilight.jpg)|
