@@ -26,3 +26,4 @@
 202507221830|VaticanCity|Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)|A country within a city|![](/en-IN/2025/07/202507221830VaticanCity.jpg)|
 202507231830|AdalajStepwell|Adalaj Stepwell, Gujarat (© krishh/Getty Images)|Built for love, carved in time|![](/en-IN/2025/07/202507231830AdalajStepwell.jpg)|
 202507241830|LasPalmas|Aerial view of colourful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Canvas of life|![](/en-IN/2025/07/202507241830LasPalmas.jpg)|
+202507251830|MangroveTwilight|Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)|Sentinels of the tide|![](/en-IN/2025/07/202507251830MangroveTwilight.jpg)|
