@@ -27,3 +27,4 @@
 202507231500|AshyWoodswallow|枝にとまるハイイロモリツバメ (© Captain Skyhigh/Getty Images)|南アジアの可愛い鳥|![](/ja-JP/2025/07/202507231500AshyWoodswallow.jpg)|
 202507241500|LasPalmas|ラス・パルマス・デ・グラン・カナリア, スペイン (© Marco Bottigelli/Getty Images)|カラフルな家々が並ぶ港湾都市|![](/ja-JP/2025/07/202507241500LasPalmas.jpg)|
 202507251500|MangroveTwilight|マングローブのシルエットと夕陽, インドネシア (© Boonchet Ch./Getty Images)|今日は国際マングローブの日|![](/ja-JP/2025/07/202507251500MangroveTwilight.jpg)|
+202507261500|BlackfinBarracuda|ラスムハンマド国立公園, エジプト (© Alex Mustard/Nature Picture Library)|タツカマスの群れ|![](/ja-JP/2025/07/202507261500BlackfinBarracuda.jpg)|
