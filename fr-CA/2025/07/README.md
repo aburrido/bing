@@ -27,3 +27,4 @@
 202507230400|VaticanCity|La Cité du Vatican avec la basilique Saint-Pierre, Rome, Italie (© RudyBalasko/Getty Images)|Le plus petit État du monde|![](/fr-CA/2025/07/202507230400VaticanCity.jpg)|
 202507240400|AshyWoodswallow|Famille de langrayens bruns perchée sur une branche (© Captain Skyhigh/Getty Images)|Des liens qui durent toute la vie!|![](/fr-CA/2025/07/202507240400AshyWoodswallow.jpg)|
 202507250400|LasPalmas|Vue aérienne des maisons colorées, Las Palmas de Gran Canaria, Espagne (© Marco Bottigelli/Getty Images)|Un canva de couleurs et de cultures|![](/fr-CA/2025/07/202507250400LasPalmas.jpg)|
+202507260400|MangroveTwilight|Mangroves au crépuscule, plage de Walakiri, île de Sumba, Indonésie (© Boonchet Ch./Getty Images)|Les sentinelles des marées|![](/fr-CA/2025/07/202507260400MangroveTwilight.jpg)|

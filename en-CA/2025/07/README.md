@@ -27,3 +27,4 @@
 202507230400|VaticanCity|Vatican City with Saint Peter's Basilica, Rome, Italy (© RudyBalasko/Getty Images)|A country within a city|![](/en-CA/2025/07/202507230400VaticanCity.jpg)|
 202507240400|AshyWoodswallow|Family of ashy woodswallows perched on a branch (© Captain Skyhigh/Getty Images)|Birds of a feather stick together|![](/en-CA/2025/07/202507240400AshyWoodswallow.jpg)|
 202507250400|LasPalmas|Aerial view of colourful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Canvas of life|![](/en-CA/2025/07/202507250400LasPalmas.jpg)|
+202507260400|MangroveTwilight|Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)|Sentinels of the tide|![](/en-CA/2025/07/202507260400MangroveTwilight.jpg)|
