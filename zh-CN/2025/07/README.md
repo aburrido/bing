@@ -27,3 +27,4 @@
 202507231600|AshyWoodswallow|栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)|物以类聚，鸟以群分|![](/zh-CN/2025/07/202507231600AshyWoodswallow.jpg)|
 202507241600|LasPalmas|大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)|生活的画卷|![](/zh-CN/2025/07/202507241600LasPalmas.jpg)|
 202507251600|MangroveTwilight|黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚 (© Boonchet Ch./Getty Images)|潮汐的守护者|![](/zh-CN/2025/07/202507251600MangroveTwilight.jpg)|
+202507261600|BlackfinBarracuda|黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及 (© Alex Mustard/Nature Picture Library)|同步闪耀|![](/zh-CN/2025/07/202507261600BlackfinBarracuda.jpg)|
