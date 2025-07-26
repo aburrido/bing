@@ -27,3 +27,4 @@
 202507232300|AshyWoodswallow|Family of ashy woodswallows perched on a branch (© Captain Skyhigh/Getty Images)|Birds of a feather stick together|![](/en-GB/2025/07/202507232300AshyWoodswallow.jpg)|
 202507242300|LasPalmas|Aerial view of colourful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)|Canvas of life|![](/en-GB/2025/07/202507242300LasPalmas.jpg)|
 202507252300|MangroveTwilight|Mangrove trees, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)|Sentinels of the tide|![](/en-GB/2025/07/202507252300MangroveTwilight.jpg)|
+202507262300|BlackfinBarracuda|School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)|Shimmer in sync|![](/en-GB/2025/07/202507262300BlackfinBarracuda.jpg)|
