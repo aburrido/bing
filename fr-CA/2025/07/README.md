@@ -28,3 +28,4 @@
 202507240400|AshyWoodswallow|Famille de langrayens bruns perchée sur une branche (© Captain Skyhigh/Getty Images)|Des liens qui durent toute la vie!|![](/fr-CA/2025/07/202507240400AshyWoodswallow.jpg)|
 202507250400|LasPalmas|Vue aérienne des maisons colorées, Las Palmas de Gran Canaria, Espagne (© Marco Bottigelli/Getty Images)|Un canva de couleurs et de cultures|![](/fr-CA/2025/07/202507250400LasPalmas.jpg)|
 202507260400|MangroveTwilight|Mangroves au crépuscule, plage de Walakiri, île de Sumba, Indonésie (© Boonchet Ch./Getty Images)|Les sentinelles des marées|![](/fr-CA/2025/07/202507260400MangroveTwilight.jpg)|
+202507270400|BlackfinBarracuda|Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)|Plus d’appétit qu’un barracuda|![](/fr-CA/2025/07/202507270400BlackfinBarracuda.jpg)|
