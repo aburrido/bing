@@ -28,3 +28,4 @@
 202507241600|LasPalmas|大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)|生活的画卷|![](/zh-CN/2025/07/202507241600LasPalmas.jpg)|
 202507251600|MangroveTwilight|黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚 (© Boonchet Ch./Getty Images)|潮汐的守护者|![](/zh-CN/2025/07/202507251600MangroveTwilight.jpg)|
 202507261600|BlackfinBarracuda|黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及 (© Alex Mustard/Nature Picture Library)|同步闪耀|![](/zh-CN/2025/07/202507261600BlackfinBarracuda.jpg)|
+202507271600|MongoliaYurts|蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)|领先一步|![](/zh-CN/2025/07/202507271600MongoliaYurts.jpg)|
