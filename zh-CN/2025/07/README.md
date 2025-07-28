@@ -29,3 +29,4 @@
 202507251600|MangroveTwilight|黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚 (© Boonchet Ch./Getty Images)|潮汐的守护者|![](/zh-CN/2025/07/202507251600MangroveTwilight.jpg)|
 202507261600|BlackfinBarracuda|黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及 (© Alex Mustard/Nature Picture Library)|同步闪耀|![](/zh-CN/2025/07/202507261600BlackfinBarracuda.jpg)|
 202507271600|MongoliaYurts|蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)|领先一步|![](/zh-CN/2025/07/202507271600MongoliaYurts.jpg)|
+202507281600|TigerDay|雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)|丛林女王|![](/zh-CN/2025/07/202507281600TigerDay.jpg)|
