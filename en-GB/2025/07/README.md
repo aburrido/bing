@@ -29,3 +29,4 @@
 202507252300|MangroveTwilight|Mangrove trees, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)|Sentinels of the tide|![](/en-GB/2025/07/202507252300MangroveTwilight.jpg)|
 202507262300|BlackfinBarracuda|School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)|Shimmer in sync|![](/en-GB/2025/07/202507262300BlackfinBarracuda.jpg)|
 202507272300|MongoliaYurts|Yurts in the grassland of Mongolia (© Michel Arnault/Shutterstock)|A steppe ahead|![](/en-GB/2025/07/202507272300MongoliaYurts.jpg)|
+202507282300|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-GB/2025/07/202507282300TigerDay.jpg)|
