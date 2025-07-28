@@ -28,3 +28,4 @@
 202507252200|MangroveTwilight|Mangroves au crépuscule, plage de Walakiri, île de Sumba, Indonésie (© Boonchet Ch./Getty Images)|Les sentinelles des marées|![](/fr-FR/2025/07/202507252200MangroveTwilight.jpg)|
 202507262200|TourFrance|Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)|Paris, point final du Tour|![](/fr-FR/2025/07/202507262200TourFrance.jpg)|
 202507272200|MongoliaYurts|Yourtes dans les steppes de Mongolie (© Michel Arnault/Shutterstock)|Protéger la nature, préserver les cultures|![](/fr-FR/2025/07/202507272200MongoliaYurts.jpg)|
+202507282200|TigerDay|Tigresse du Bengale, parc national de Kanha, Inde (© Axel Gomille/Nature Picture Library)|La Reine de la jungle|![](/fr-FR/2025/07/202507282200TigerDay.jpg)|

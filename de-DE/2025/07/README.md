@@ -29,3 +29,4 @@
 202507252200|MangroveTwilight|Mangrovenbäume bei Dämmerung, Walakiri Beach auf der Insel Sumba, Indonesien (© Boonchet Ch./Getty Images)|Helden der Tropen|![](/de-DE/2025/07/202507252200MangroveTwilight.jpg)|
 202507262200|BlackfinBarracuda|Dunkelflossen-Barrakuda-Schwarm, Haifisch-Riff, Ras-Mohammed-Nationalpark, Sinai-Halbinsel, Ägypten (© Alex Mustard/Nature Picture Library)|Synchrones Schimmern|![](/de-DE/2025/07/202507262200BlackfinBarracuda.jpg)|
 202507272200|MongoliaYurts|Jurten in der mongolischen Steppe (© Michel Arnault/Shutterstock)|Im Einklang mit der Natur|![](/de-DE/2025/07/202507272200MongoliaYurts.jpg)|
+202507282200|TigerDay|Königstigerin, Kanha-Nationalpark, Indien (© Axel Gomille/Nature Picture Library)|Die Dschungelkönigin|![](/de-DE/2025/07/202507282200TigerDay.jpg)|
