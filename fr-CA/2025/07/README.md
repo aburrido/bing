@@ -30,3 +30,4 @@
 202507260400|MangroveTwilight|Mangroves au crépuscule, plage de Walakiri, île de Sumba, Indonésie (© Boonchet Ch./Getty Images)|Les sentinelles des marées|![](/fr-CA/2025/07/202507260400MangroveTwilight.jpg)|
 202507270400|BlackfinBarracuda|Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)|Plus d’appétit qu’un barracuda|![](/fr-CA/2025/07/202507270400BlackfinBarracuda.jpg)|
 202507280400|MongoliaYurts|Yourtes dans les steppes de Mongolie (© Michel Arnault/Shutterstock)|Protéger la nature, préserver les cultures|![](/fr-CA/2025/07/202507280400MongoliaYurts.jpg)|
+202507290400|TigerDay|Tigresse du Bengale, parc national de Kanha, Inde (© Axel Gomille/Nature Picture Library)|La Reine de la jungle|![](/fr-CA/2025/07/202507290400TigerDay.jpg)|
