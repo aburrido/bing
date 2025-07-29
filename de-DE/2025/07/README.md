@@ -30,3 +30,4 @@
 202507262200|BlackfinBarracuda|Dunkelflossen-Barrakuda-Schwarm, Haifisch-Riff, Ras-Mohammed-Nationalpark, Sinai-Halbinsel, Ägypten (© Alex Mustard/Nature Picture Library)|Synchrones Schimmern|![](/de-DE/2025/07/202507262200BlackfinBarracuda.jpg)|
 202507272200|MongoliaYurts|Jurten in der mongolischen Steppe (© Michel Arnault/Shutterstock)|Im Einklang mit der Natur|![](/de-DE/2025/07/202507272200MongoliaYurts.jpg)|
 202507282200|TigerDay|Königstigerin, Kanha-Nationalpark, Indien (© Axel Gomille/Nature Picture Library)|Die Dschungelkönigin|![](/de-DE/2025/07/202507282200TigerDay.jpg)|
+202507292200|SaypeDubai|Monumentales Kunstwerk »Beyond Walls« von Saype auf der Expo 2020 Dubai, Vereinigte Arabische Emirate (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Freundschaft kennt keine Grenzen|![](/de-DE/2025/07/202507292200SaypeDubai.jpg)|

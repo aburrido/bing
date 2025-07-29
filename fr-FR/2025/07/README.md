@@ -29,3 +29,4 @@
 202507262200|TourFrance|Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)|Paris, point final du Tour|![](/fr-FR/2025/07/202507262200TourFrance.jpg)|
 202507272200|MongoliaYurts|Yourtes dans les steppes de Mongolie (© Michel Arnault/Shutterstock)|Protéger la nature, préserver les cultures|![](/fr-FR/2025/07/202507272200MongoliaYurts.jpg)|
 202507282200|TigerDay|Tigresse du Bengale, parc national de Kanha, Inde (© Axel Gomille/Nature Picture Library)|La Reine de la jungle|![](/fr-FR/2025/07/202507282200TigerDay.jpg)|
+202507292200|SaypeDubai|Fresque Beyond Walls de Saype à l’Expo 2020 de Dubaï, Émirats arabes unis (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|L’amitié n’a pas de frontière|![](/fr-FR/2025/07/202507292200SaypeDubai.jpg)|
