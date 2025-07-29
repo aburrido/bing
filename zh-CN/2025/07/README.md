@@ -30,3 +30,4 @@
 202507261600|BlackfinBarracuda|黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及 (© Alex Mustard/Nature Picture Library)|同步闪耀|![](/zh-CN/2025/07/202507261600BlackfinBarracuda.jpg)|
 202507271600|MongoliaYurts|蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)|领先一步|![](/zh-CN/2025/07/202507271600MongoliaYurts.jpg)|
 202507281600|TigerDay|雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)|丛林女王|![](/zh-CN/2025/07/202507281600TigerDay.jpg)|
+202507291600|RibadesellaSummer|里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)|理想的世界！|![](/zh-CN/2025/07/202507291600RibadesellaSummer.jpg)|
