@@ -30,3 +30,4 @@
 202507261830|BlackfinBarracuda|School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)|Shimmer in sync|![](/en-IN/2025/07/202507261830BlackfinBarracuda.jpg)|
 202507271830|MongoliaYurts|Yurts in the grassland of Mongolia (© Michel Arnault/Shutterstock)|A steppe ahead|![](/en-IN/2025/07/202507271830MongoliaYurts.jpg)|
 202507281830|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-IN/2025/07/202507281830TigerDay.jpg)|
+202507291830|AgraFortInside|Inside Agra Fort, Agra, Uttar Pradesh (© Luke Mackenzie/Getty Images)|Thrones, tales and turrets|![](/en-IN/2025/07/202507291830AgraFortInside.jpg)|
