@@ -31,3 +31,4 @@
 202507270400|BlackfinBarracuda|Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)|Plus d’appétit qu’un barracuda|![](/fr-CA/2025/07/202507270400BlackfinBarracuda.jpg)|
 202507280400|MongoliaYurts|Yourtes dans les steppes de Mongolie (© Michel Arnault/Shutterstock)|Protéger la nature, préserver les cultures|![](/fr-CA/2025/07/202507280400MongoliaYurts.jpg)|
 202507290400|TigerDay|Tigresse du Bengale, parc national de Kanha, Inde (© Axel Gomille/Nature Picture Library)|La Reine de la jungle|![](/fr-CA/2025/07/202507290400TigerDay.jpg)|
+202507300400|SaypeDubai|Fresque Beyond Walls de Saype à l’Expo 2020 de Dubaï, Émirats arabes unis (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|L’amitié n’a pas de frontière|![](/fr-CA/2025/07/202507300400SaypeDubai.jpg)|

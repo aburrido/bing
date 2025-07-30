@@ -31,3 +31,4 @@
 202507270400|BlackfinBarracuda|School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)|Shimmer in sync|![](/en-CA/2025/07/202507270400BlackfinBarracuda.jpg)|
 202507280400|MongoliaYurts|Yurts in the grassland of Mongolia (© Michel Arnault/Shutterstock)|A steppe ahead|![](/en-CA/2025/07/202507280400MongoliaYurts.jpg)|
 202507290400|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-CA/2025/07/202507290400TigerDay.jpg)|
+202507300400|SaypeDubai|'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Friendship without borders|![](/en-CA/2025/07/202507300400SaypeDubai.jpg)|
