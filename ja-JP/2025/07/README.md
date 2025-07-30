@@ -31,3 +31,4 @@
 202507271500|MongoliaYurts|大草原に佇むゲル,  モンゴル国 (© Michel Arnault/Shutterstock)|今日は世界自然保護デー|![](/ja-JP/2025/07/202507271500MongoliaYurts.jpg)|
 202507281500|TigerDay|ベンガルトラのメス, インド (© Axel Gomille/Nature Picture Library)|今日は世界トラの日|![](/ja-JP/2025/07/202507281500TigerDay.jpg)|
 202507291500|SaypeDubai|Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|今日は国際フレンドシップ・デー|![](/ja-JP/2025/07/202507291500SaypeDubai.jpg)|
+202507301500|NaPaliKauai|ナ・パリ・コースト, 米国 ハワイ州 (© Russ Bishop/DanitaDelimont.com)|断崖絶壁の海岸線|![](/ja-JP/2025/07/202507301500NaPaliKauai.jpg)|
