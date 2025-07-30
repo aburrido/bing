@@ -31,3 +31,4 @@
 202507272200|MongoliaYurts|Jurten in der mongolischen Steppe (© Michel Arnault/Shutterstock)|Im Einklang mit der Natur|![](/de-DE/2025/07/202507272200MongoliaYurts.jpg)|
 202507282200|TigerDay|Königstigerin, Kanha-Nationalpark, Indien (© Axel Gomille/Nature Picture Library)|Die Dschungelkönigin|![](/de-DE/2025/07/202507282200TigerDay.jpg)|
 202507292200|SaypeDubai|Monumentales Kunstwerk »Beyond Walls« von Saype auf der Expo 2020 Dubai, Vereinigte Arabische Emirate (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Freundschaft kennt keine Grenzen|![](/de-DE/2025/07/202507292200SaypeDubai.jpg)|
+202507302200|NaPaliKauai|Kalalau Beach an der Nā Pali Küste, Kauai, Hawaii, USA (© Russ Bishop/DanitaDelimont.com)|Ein abgeschiedenes Paradies|![](/de-DE/2025/07/202507302200NaPaliKauai.jpg)|
