@@ -31,3 +31,4 @@
 202507271600|MongoliaYurts|蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)|领先一步|![](/zh-CN/2025/07/202507271600MongoliaYurts.jpg)|
 202507281600|TigerDay|雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)|丛林女王|![](/zh-CN/2025/07/202507281600TigerDay.jpg)|
 202507291600|RibadesellaSummer|里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)|理想的世界！|![](/zh-CN/2025/07/202507291600RibadesellaSummer.jpg)|
+202507301600|NaPaliKauai|纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)|远离尘嚣|![](/zh-CN/2025/07/202507301600NaPaliKauai.jpg)|
