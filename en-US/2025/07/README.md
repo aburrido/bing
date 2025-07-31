@@ -32,3 +32,4 @@
 202507280700|MongoliaYurts|Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)|A steppe ahead|![](/en-US/2025/07/202507280700MongoliaYurts.jpg)|
 202507290700|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-US/2025/07/202507290700TigerDay.jpg)|
 202507300700|SaypeDubai|'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Friendship without borders|![](/en-US/2025/07/202507300700SaypeDubai.jpg)|
+202507310700|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Madagascar native|![](/en-US/2025/07/202507310700BabyLemur.jpg)|

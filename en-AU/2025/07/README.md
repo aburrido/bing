@@ -32,3 +32,4 @@
 202507280700|MongoliaYurts|Yurts in the grassland of Mongolia (© Michel Arnault/Shutterstock)|Info|![](/en-AU/2025/07/202507280700MongoliaYurts.jpg)|
 202507290700|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|Info|![](/en-AU/2025/07/202507290700TigerDay.jpg)|
 202507300700|RibadesellaSummer|Ribadesella, Asturias, Spain (© Agnieszka Glowala/Getty Images)|Info|![](/en-AU/2025/07/202507300700RibadesellaSummer.jpg)|
+202507310700|NaPaliKauai|Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii, United States (© Russ Bishop/DanitaDelimont.com)|Info|![](/en-AU/2025/07/202507310700NaPaliKauai.jpg)|
