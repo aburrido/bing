@@ -32,3 +32,4 @@
 202507281500|TigerDay|ベンガルトラのメス, インド (© Axel Gomille/Nature Picture Library)|今日は世界トラの日|![](/ja-JP/2025/07/202507281500TigerDay.jpg)|
 202507291500|SaypeDubai|Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|今日は国際フレンドシップ・デー|![](/ja-JP/2025/07/202507291500SaypeDubai.jpg)|
 202507301500|NaPaliKauai|ナ・パリ・コースト, 米国 ハワイ州 (© Russ Bishop/DanitaDelimont.com)|断崖絶壁の海岸線|![](/ja-JP/2025/07/202507301500NaPaliKauai.jpg)|
+202507311500|EdinburghFringe|エディンバラの旧市街, スコットランド (© MEDITERRANEAN/Getty Images)|今日からエディンバラ・フェスティバル・フリンジ|![](/ja-JP/2025/07/202507311500EdinburghFringe.jpg)|
