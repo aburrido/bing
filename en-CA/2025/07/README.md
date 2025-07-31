@@ -32,3 +32,4 @@
 202507280400|MongoliaYurts|Yurts in the grassland of Mongolia (© Michel Arnault/Shutterstock)|A steppe ahead|![](/en-CA/2025/07/202507280400MongoliaYurts.jpg)|
 202507290400|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-CA/2025/07/202507290400TigerDay.jpg)|
 202507300400|SaypeDubai|'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Friendship without borders|![](/en-CA/2025/07/202507300400SaypeDubai.jpg)|
+202507310400|NaPaliKauai|Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii, United States (© Russ Bishop/DanitaDelimont.com)|Off the grid|![](/en-CA/2025/07/202507310400NaPaliKauai.jpg)|
