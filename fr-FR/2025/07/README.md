@@ -31,3 +31,4 @@
 202507282200|TigerDay|Tigresse du Bengale, parc national de Kanha, Inde (© Axel Gomille/Nature Picture Library)|La Reine de la jungle|![](/fr-FR/2025/07/202507282200TigerDay.jpg)|
 202507292200|SaypeDubai|Fresque Beyond Walls de Saype à l’Expo 2020 de Dubaï, Émirats arabes unis (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|L’amitié n’a pas de frontière|![](/fr-FR/2025/07/202507292200SaypeDubai.jpg)|
 202507302200|NaPaliKauai|Plage de Kalalau sur la côte Nā Pali, Kauai, Hawaï, États-Unis (© Russ Bishop/DanitaDelimont.com)|Kalalau, entre terre sacrée et océan|![](/fr-FR/2025/07/202507302200NaPaliKauai.jpg)|
+202507312200|LorientCeltic|Costumes folkloriques bretons, Lorient, Finistère (© guy-ozenne/Getty images)|Lorient, au rythme des peuples celtes|![](/fr-FR/2025/07/202507312200LorientCeltic.jpg)|
