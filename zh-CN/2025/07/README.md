@@ -32,3 +32,4 @@
 202507281600|TigerDay|雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)|丛林女王|![](/zh-CN/2025/07/202507281600TigerDay.jpg)|
 202507291600|RibadesellaSummer|里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)|理想的世界！|![](/zh-CN/2025/07/202507291600RibadesellaSummer.jpg)|
 202507301600|NaPaliKauai|纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)|远离尘嚣|![](/zh-CN/2025/07/202507301600NaPaliKauai.jpg)|
+202507311600|EdinburghFringe|皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)|惊喜随时上演|![](/zh-CN/2025/07/202507311600EdinburghFringe.jpg)|
