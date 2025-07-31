@@ -32,3 +32,4 @@
 202507282300|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-GB/2025/07/202507282300TigerDay.jpg)|
 202507292300|SaypeDubai|'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)|Friendship without borders|![](/en-GB/2025/07/202507292300SaypeDubai.jpg)|
 202507302300|NaPaliKauai|Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii, United States (© Russ Bishop/DanitaDelimont.com)|Off the grid|![](/en-GB/2025/07/202507302300NaPaliKauai.jpg)|
+202507312300|EdinburghFringe|Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)|Expect the unexpected|![](/en-GB/2025/07/202507312300EdinburghFringe.jpg)|
