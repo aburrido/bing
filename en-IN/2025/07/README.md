@@ -32,3 +32,4 @@
 202507281830|TigerDay|Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)|The jungle queen|![](/en-IN/2025/07/202507281830TigerDay.jpg)|
 202507291830|AgraFortInside|Inside Agra Fort, Agra, Uttar Pradesh (© Luke Mackenzie/Getty Images)|Thrones, tales and turrets|![](/en-IN/2025/07/202507291830AgraFortInside.jpg)|
 202507301830|NaPaliKauai|Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii, United States (© Russ Bishop/DanitaDelimont.com)|Off the grid|![](/en-IN/2025/07/202507301830NaPaliKauai.jpg)|
+202507311830|EdinburghFringe|Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)|Expect the unexpected|![](/en-IN/2025/07/202507311830EdinburghFringe.jpg)|
