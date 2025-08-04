@@ -3,3 +3,4 @@
 202508010400|EdinburghFringe|Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)|Expect the unexpected|![](/en-CA/2025/08/202508010400EdinburghFringe.jpg)|
 202508020400|FruitaPetroglyphs|Petroglyphs near Fruita in Capitol Reef National Park, Utah, United States (© Nicolas VINCENT/Adobe Stock)|Age-old storyboard|![](/en-CA/2025/08/202508020400FruitaPetroglyphs.jpg)|
 202508030400|HappySunflower|Sunflowers blooming in a field in summer (© Arsgera/Shutterstock)|Hello yellow!|![](/en-CA/2025/08/202508030400HappySunflower.jpg)|
+202508040400|LaplandOwl|Great grey owls in their nest, Finland (© imageBROKER.com/Alamy Stock Photo)|Whooo's home?|![](/en-CA/2025/08/202508040400LaplandOwl.jpg)|
