@@ -5,3 +5,4 @@
 202508020700|FruitaPetroglyphs|Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)|Age-old storyboard|![](/en-US/2025/08/202508020700FruitaPetroglyphs.jpg)|
 202508030700|HappySunflower|Sunflowers in a field in summer (© Arsgera/Shutterstock)|Hello yellow!|![](/en-US/2025/08/202508030700HappySunflower.jpg)|
 202508040700|LaplandOwl|Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)|Whooo's home?|![](/en-US/2025/08/202508040700LaplandOwl.jpg)|
+202508050700|CaliforniaTidepool|Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)|Tide and seek|![](/en-US/2025/08/202508050700CaliforniaTidepool.jpg)|
