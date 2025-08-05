@@ -5,3 +5,4 @@
 202508021600|HappySunflower|夏天田野里盛开的向日葵 (© Arsgera/Shutterstock)|你好，黄色！|![](/zh-CN/2025/08/202508021600HappySunflower.jpg)|
 202508031600|LaplandOwl|巢中的乌林鸮, 芬兰 (© imageBROKER.com/Alamy Stock Photo)|这是谁的家？|![](/zh-CN/2025/08/202508031600LaplandOwl.jpg)|
 202508041600|CaliforniaTidepool|拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)|潮起潮落|![](/zh-CN/2025/08/202508041600CaliforniaTidepool.jpg)|
+202508051600|BabyLemur|环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加 (© Andy Rouse/Nature Picture Library)|马达加斯加原住民|![](/zh-CN/2025/08/202508051600BabyLemur.jpg)|
