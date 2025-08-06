@@ -6,3 +6,4 @@
 202508032200|LaplandOwl|Bartkäuze im Nest, Finnland (© imageBROKER.com/Alamy)|Mystische Jäger der Nacht|![](/de-DE/2025/08/202508032200LaplandOwl.jpg)|
 202508042200|PoppyfieldAdelschlag|Mohnfelder, Adelschlag, Bayern (© Michael Rucker/Getty Images)|Bayerische Idylle|![](/de-DE/2025/08/202508042200PoppyfieldAdelschlag.jpg)|
 202508052200|BabyLemur|Katta-Junges spielt mit seinem Schwanz, Madagaskar (© Andy Rouse/Nature Picture Library)|Ein pelziger Geselle|![](/de-DE/2025/08/202508052200BabyLemur.jpg)|
+202508062200|GasparillaLight|Gasparilla Island Rear Range Light, Boca Grande, Florida, USA (© Wiltser/Getty Images)|Stille Helden der Seefahrt|![](/de-DE/2025/08/202508062200GasparillaLight.jpg)|
