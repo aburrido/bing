@@ -5,3 +5,4 @@
 202508030400|HappySunflower|Sunflowers blooming in a field in summer (© Arsgera/Shutterstock)|Hello yellow!|![](/en-CA/2025/08/202508030400HappySunflower.jpg)|
 202508040400|LaplandOwl|Great grey owls in their nest, Finland (© imageBROKER.com/Alamy Stock Photo)|Whooo's home?|![](/en-CA/2025/08/202508040400LaplandOwl.jpg)|
 202508050400|CaliforniaTidepool|Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)|Tide and seek|![](/en-CA/2025/08/202508050400CaliforniaTidepool.jpg)|
+202508060400|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Madagascar native|![](/en-CA/2025/08/202508060400BabyLemur.jpg)|
