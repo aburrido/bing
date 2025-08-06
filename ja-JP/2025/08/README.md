@@ -6,3 +6,4 @@
 202508031500|LaplandOwl|カラフトフクロウのペア, フィンランド (© imageBROKER.com/Alamy)|今日は国際フクロウの日|![](/ja-JP/2025/08/202508031500LaplandOwl.jpg)|
 202508041500|CaliforniaTidepool|ラホヤの引き潮, 米国 カリフォルニア州 (© Andrew Shoemaker/DanitaDelimont.com)|岩場の小さな潮だまり|![](/ja-JP/2025/08/202508041500CaliforniaTidepool.jpg)|
 202508051500|HiroshimaPeace2025|平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)|今日は広島平和記念日|![](/ja-JP/2025/08/202508051500HiroshimaPeace2025.jpg)|
+202508061500|BabyLemur|ワオキツネザル, マダガスカル (© Andy Rouse/Nature Picture Library)|しましまの長い尾を誇るサル|![](/ja-JP/2025/08/202508061500BabyLemur.jpg)|
