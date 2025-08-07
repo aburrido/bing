@@ -7,3 +7,4 @@
 202508041830|CaliforniaTidepool|Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)|Tide and seek|![](/en-IN/2025/08/202508041830CaliforniaTidepool.jpg)|
 202508051830|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Madagascar native|![](/en-IN/2025/08/202508051830BabyLemur.jpg)|
 202508061830|MalshejGhat|Malshej Ghat, Maharashtra (© anand purohit/Getty Images)|Misty roads and mountain moods|![](/en-IN/2025/08/202508061830MalshejGhat.jpg)|
+202508071830|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|All for falls and falls for all|![](/en-IN/2025/08/202508071830IguazuArgentina.jpg)|
