@@ -7,3 +7,4 @@
 202508041600|CaliforniaTidepool|拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)|潮起潮落|![](/zh-CN/2025/08/202508041600CaliforniaTidepool.jpg)|
 202508051600|BabyLemur|环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加 (© Andy Rouse/Nature Picture Library)|马达加斯加原住民|![](/zh-CN/2025/08/202508051600BabyLemur.jpg)|
 202508061600|GasparillaLight|加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国 (© Wiltser/Getty Images)|海岸的密码|![](/zh-CN/2025/08/202508061600GasparillaLight.jpg)|
+202508071600|IguazuArgentina|伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)|奔流不息，为你为我|![](/zh-CN/2025/08/202508071600IguazuArgentina.jpg)|
