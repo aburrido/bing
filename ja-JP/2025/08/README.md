@@ -8,3 +8,4 @@
 202508051500|HiroshimaPeace2025|平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)|今日は広島平和記念日|![](/ja-JP/2025/08/202508051500HiroshimaPeace2025.jpg)|
 202508061500|BabyLemur|ワオキツネザル, マダガスカル (© Andy Rouse/Nature Picture Library)|しましまの長い尾を誇るサル|![](/ja-JP/2025/08/202508061500BabyLemur.jpg)|
 202508071500|IguazuArgentina|イグアスの滝, アルゼンチン (© Mark Meredith/Getty Images)|世界最大級の滝群|![](/ja-JP/2025/08/202508071500IguazuArgentina.jpg)|
+202508081500|MaoriRock|マオリの彫刻, ニュージーランド (© Joppi/Getty Images)|今日は「世界の先住民の国際デー」|![](/ja-JP/2025/08/202508081500MaoriRock.jpg)|
