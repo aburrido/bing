@@ -8,3 +8,4 @@
 202508051830|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Madagascar native|![](/en-IN/2025/08/202508051830BabyLemur.jpg)|
 202508061830|MalshejGhat|Malshej Ghat, Maharashtra (© anand purohit/Getty Images)|Misty roads and mountain moods|![](/en-IN/2025/08/202508061830MalshejGhat.jpg)|
 202508071830|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|All for falls and falls for all|![](/en-IN/2025/08/202508071830IguazuArgentina.jpg)|
+202508081830|RakhiRice|A rakhi (© Seemanta Dutta/Getty Images)|'Knot' your ordinary bond|![](/en-IN/2025/08/202508081830RakhiRice.jpg)|
