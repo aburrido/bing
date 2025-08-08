@@ -7,3 +7,4 @@
 202508050400|CaliforniaTidepool|Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)|Tide and seek|![](/en-CA/2025/08/202508050400CaliforniaTidepool.jpg)|
 202508060400|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Madagascar native|![](/en-CA/2025/08/202508060400BabyLemur.jpg)|
 202508070400|MinganWonders|Monoliths of the Mingan Archipelago, Quebec (© David Boutin Photography/Getty Images)|Carved by sea and time|![](/en-CA/2025/08/202508070400MinganWonders.jpg)|
+202508080400|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|All for falls and falls for all|![](/en-CA/2025/08/202508080400IguazuArgentina.jpg)|

@@ -7,3 +7,4 @@
 202508050400|CaliforniaTidepool|Bassins de marée à La Jolla, Californie, États-Unis (© Andrew Shoemaker/DanitaDelimont.com)|Quand la mer façonne des mondes miniatures|![](/fr-CA/2025/08/202508050400CaliforniaTidepool.jpg)|
 202508060400|BabyLemur|Un jeune Lemur catta qui joue avec sa queue, Madagascar (© Andy Rouse/Nature Picture Library)|Naître, jouer, survivre|![](/fr-CA/2025/08/202508060400BabyLemur.jpg)|
 202508070400|MinganWonders|Monolithes de l'archipel de Mingan, Québec (© David Boutin Photography/Getty Images)|Sculptés par le temps qui passe|![](/fr-CA/2025/08/202508070400MinganWonders.jpg)|
+202508080400|IguazuArgentina|Chutes des Trois Mousquetaires, Iguazú, Argentine (© Mark Meredith/Getty Images)|Un pour tous et tous pour un!|![](/fr-CA/2025/08/202508080400IguazuArgentina.jpg)|
