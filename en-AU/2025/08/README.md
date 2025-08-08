@@ -8,3 +8,4 @@
 202508050700|CaliforniaTidepool|Tide pools in La Jolla, California, United States (© Andrew Shoemaker/DanitaDelimont.com)|Info|![](/en-AU/2025/08/202508050700CaliforniaTidepool.jpg)|
 202508060700|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Info|![](/en-AU/2025/08/202508060700BabyLemur.jpg)|
 202508070700|GasparillaLight|Gasparilla Island Rear Range Light, Boca Grande, Florida, United States (© Wiltser/Getty Images)|Info|![](/en-AU/2025/08/202508070700GasparillaLight.jpg)|
+202508080700|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|Info|![](/en-AU/2025/08/202508080700IguazuArgentina.jpg)|
