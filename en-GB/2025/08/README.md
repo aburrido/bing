@@ -8,3 +8,4 @@
 202508052300|BabyLemur|Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)|Madagascar native|![](/en-GB/2025/08/202508052300BabyLemur.jpg)|
 202508062300|SweetheartAbbey2025|Sweetheart Abbey, Dumfries and Galloway, Scotland (© Westend61/Getty Images)|Love set in stone|![](/en-GB/2025/08/202508062300SweetheartAbbey2025.jpg)|
 202508072300|BalloonFiesta2025|Hot air balloons over a golf course during the Bristol International Balloon Fiesta (© Ben Birchall/PA Images/Getty Images)|Sky's the limit|![](/en-GB/2025/08/202508072300BalloonFiesta2025.jpg)|
+202508082300|MaoriRock|Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)|Honouring Indigenous voices|![](/en-GB/2025/08/202508082300MaoriRock.jpg)|
