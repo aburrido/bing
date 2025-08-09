@@ -9,3 +9,4 @@
 202508061830|MalshejGhat|Malshej Ghat, Maharashtra (© anand purohit/Getty Images)|Misty roads and mountain moods|![](/en-IN/2025/08/202508061830MalshejGhat.jpg)|
 202508071830|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|All for falls and falls for all|![](/en-IN/2025/08/202508071830IguazuArgentina.jpg)|
 202508081830|RakhiRice|A rakhi (© Seemanta Dutta/Getty Images)|'Knot' your ordinary bond|![](/en-IN/2025/08/202508081830RakhiRice.jpg)|
+202508091830|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Roar for a cause|![](/en-IN/2025/08/202508091830LionessKenya.jpg)|
