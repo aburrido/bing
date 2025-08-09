@@ -9,3 +9,4 @@
 202508060700|NaPaliKauai|Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)|Off the grid|![](/en-US/2025/08/202508060700NaPaliKauai.jpg)|
 202508070700|GasparillaLight|Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)|Code of the coastline|![](/en-US/2025/08/202508070700GasparillaLight.jpg)|
 202508080700|IguazuArgentina|Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|All for falls and falls for all|![](/en-US/2025/08/202508080700IguazuArgentina.jpg)|
+202508090700|MaoriRock|Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)|Honoring Indigenous voices|![](/en-US/2025/08/202508090700MaoriRock.jpg)|
