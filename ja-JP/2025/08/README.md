@@ -9,3 +9,4 @@
 202508061500|BabyLemur|ワオキツネザル, マダガスカル (© Andy Rouse/Nature Picture Library)|しましまの長い尾を誇るサル|![](/ja-JP/2025/08/202508061500BabyLemur.jpg)|
 202508071500|IguazuArgentina|イグアスの滝, アルゼンチン (© Mark Meredith/Getty Images)|世界最大級の滝群|![](/ja-JP/2025/08/202508071500IguazuArgentina.jpg)|
 202508081500|MaoriRock|マオリの彫刻, ニュージーランド (© Joppi/Getty Images)|今日は「世界の先住民の国際デー」|![](/ja-JP/2025/08/202508081500MaoriRock.jpg)|
+202508091500|LionessKenya|マサイマラ国立保護区のライオン, ケニア (© Tandem Stock/Adobe Stock)|今日は世界ライオンの日|![](/ja-JP/2025/08/202508091500LionessKenya.jpg)|
