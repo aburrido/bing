@@ -10,3 +10,4 @@
 202508071600|IguazuArgentina|伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)|奔流不息，为你为我|![](/zh-CN/2025/08/202508071600IguazuArgentina.jpg)|
 202508081600|MaoriRock|陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰 (© Joppi/Getty Images)|致敬原住民之声|![](/zh-CN/2025/08/202508081600MaoriRock.jpg)|
 202508091600|LionessKenya|马赛马拉国家保护区的雌狮,肯尼亚 (© Tandem Stock/Adobe Stock)|为正义怒吼|![](/zh-CN/2025/08/202508091600LionessKenya.jpg)|
+202508101600|SantaMaddalena|圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)|来自山巅的明信片|![](/zh-CN/2025/08/202508101600SantaMaddalena.jpg)|
