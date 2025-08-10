@@ -10,3 +10,4 @@
 202508072300|BalloonFiesta2025|Hot air balloons over a golf course during the Bristol International Balloon Fiesta (© Ben Birchall/PA Images/Getty Images)|Sky's the limit|![](/en-GB/2025/08/202508072300BalloonFiesta2025.jpg)|
 202508082300|MaoriRock|Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)|Honouring Indigenous voices|![](/en-GB/2025/08/202508082300MaoriRock.jpg)|
 202508092300|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Roar for a cause|![](/en-GB/2025/08/202508092300LionessKenya.jpg)|
+202508102300|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Postcard from the peaks|![](/en-GB/2025/08/202508102300SantaMaddalena.jpg)|
