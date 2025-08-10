@@ -10,3 +10,4 @@
 202508072200|IguazuArgentina|Die Drei-Musketiere-Fälle bei den Iguazú-Wasserfällen, Argentinien (© Mark Meredith/Getty Images)|Der große Auftritt der Natur|![](/de-DE/2025/08/202508072200IguazuArgentina.jpg)|
 202508082200|RhineFirework|Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)|Ein sensationelles Feuerwerkspektakel|![](/de-DE/2025/08/202508082200RhineFirework.jpg)|
 202508092200|LionessKenya|Löwin im Maasai Mara Nationalreservat, Kenia (© Tandem Stock/Adobe Stock)|Die Königin des Dschungels|![](/de-DE/2025/08/202508092200LionessKenya.jpg)|
+202508102200|SantaMaddalena|Dorf Santa Maddalena, Dolomiten, Italien (© Sakrapee Nopparat/Getty Images)|Postkarte von den Gipfeln|![](/de-DE/2025/08/202508102200SantaMaddalena.jpg)|

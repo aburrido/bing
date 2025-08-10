@@ -10,3 +10,4 @@
 202508072200|IguazuArgentina|Chutes des Trois Mousquetaires, Iguazú, Argentine (© Mark Meredith/Getty Images)|Un pour tous et tous pour un !|![](/fr-FR/2025/08/202508072200IguazuArgentina.jpg)|
 202508082200|MaoriRock|Sculptures rupestres maories de Mine Bay, Lac Taupō, Nouvelle-Zélande (© Joppi/Getty Images)|La mémoire des premiers peuples gravée dans la roche|![](/fr-FR/2025/08/202508082200MaoriRock.jpg)|
 202508092200|LionessKenya|Lionne dans la réserve nationale du Masai Mara, Kenya (© Tandem Stock/Adobe Stock)|Un rugissement en sursis|![](/fr-FR/2025/08/202508092200LionessKenya.jpg)|
+202508102200|SantaMaddalena|Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)|Un tableau vivant au cœur des Dolomites|![](/fr-FR/2025/08/202508102200SantaMaddalena.jpg)|
