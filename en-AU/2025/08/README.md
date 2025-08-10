@@ -10,3 +10,4 @@
 202508070700|GasparillaLight|Gasparilla Island Rear Range Light, Boca Grande, Florida, United States (© Wiltser/Getty Images)|Info|![](/en-AU/2025/08/202508070700GasparillaLight.jpg)|
 202508080700|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|Info|![](/en-AU/2025/08/202508080700IguazuArgentina.jpg)|
 202508090700|RotatoriaLetras|Letters Square Roundabout, Manaus, Brazil (© Cristian Lourenço/Getty Images)|Info|![](/en-AU/2025/08/202508090700RotatoriaLetras.jpg)|
+202508100700|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Info|![](/en-AU/2025/08/202508100700LionessKenya.jpg)|
