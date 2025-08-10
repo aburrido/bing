@@ -10,3 +10,4 @@
 202508071500|IguazuArgentina|イグアスの滝, アルゼンチン (© Mark Meredith/Getty Images)|世界最大級の滝群|![](/ja-JP/2025/08/202508071500IguazuArgentina.jpg)|
 202508081500|MaoriRock|マオリの彫刻, ニュージーランド (© Joppi/Getty Images)|今日は「世界の先住民の国際デー」|![](/ja-JP/2025/08/202508081500MaoriRock.jpg)|
 202508091500|LionessKenya|マサイマラ国立保護区のライオン, ケニア (© Tandem Stock/Adobe Stock)|今日は世界ライオンの日|![](/ja-JP/2025/08/202508091500LionessKenya.jpg)|
+202508101500|MountainDay2025|中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)|今日は山の日|![](/ja-JP/2025/08/202508101500MountainDay2025.jpg)|
