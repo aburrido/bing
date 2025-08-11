@@ -11,3 +11,4 @@
 202508081600|MaoriRock|陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰 (© Joppi/Getty Images)|致敬原住民之声|![](/zh-CN/2025/08/202508081600MaoriRock.jpg)|
 202508091600|LionessKenya|马赛马拉国家保护区的雌狮,肯尼亚 (© Tandem Stock/Adobe Stock)|为正义怒吼|![](/zh-CN/2025/08/202508091600LionessKenya.jpg)|
 202508101600|SantaMaddalena|圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)|来自山巅的明信片|![](/zh-CN/2025/08/202508101600SantaMaddalena.jpg)|
+202508111600|KenyaElephants|非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)|野性、智慧与奇迹|![](/zh-CN/2025/08/202508111600KenyaElephants.jpg)|
