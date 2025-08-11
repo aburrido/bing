@@ -11,3 +11,4 @@
 202508081830|RakhiRice|A rakhi (© Seemanta Dutta/Getty Images)|'Knot' your ordinary bond|![](/en-IN/2025/08/202508081830RakhiRice.jpg)|
 202508091830|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Roar for a cause|![](/en-IN/2025/08/202508091830LionessKenya.jpg)|
 202508101830|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Postcard from the peaks|![](/en-IN/2025/08/202508101830SantaMaddalena.jpg)|
+202508111830|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Wild, wise and wonderful|![](/en-IN/2025/08/202508111830KenyaElephants.jpg)|
