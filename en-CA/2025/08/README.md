@@ -10,3 +10,4 @@
 202508080400|IguazuArgentina|The Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)|All for falls and falls for all|![](/en-CA/2025/08/202508080400IguazuArgentina.jpg)|
 202508090400|MaoriRock|Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)|Honouring Indigenous voices|![](/en-CA/2025/08/202508090400MaoriRock.jpg)|
 202508100400|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Roar for a cause|![](/en-CA/2025/08/202508100400LionessKenya.jpg)|
+202508110400|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Postcard from the peaks|![](/en-CA/2025/08/202508110400SantaMaddalena.jpg)|
