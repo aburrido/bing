@@ -11,3 +11,4 @@
 202508082200|RhineFirework|Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)|Ein sensationelles Feuerwerkspektakel|![](/de-DE/2025/08/202508082200RhineFirework.jpg)|
 202508092200|LionessKenya|Löwin im Maasai Mara Nationalreservat, Kenia (© Tandem Stock/Adobe Stock)|Die Königin des Dschungels|![](/de-DE/2025/08/202508092200LionessKenya.jpg)|
 202508102200|SantaMaddalena|Dorf Santa Maddalena, Dolomiten, Italien (© Sakrapee Nopparat/Getty Images)|Postkarte von den Gipfeln|![](/de-DE/2025/08/202508102200SantaMaddalena.jpg)|
+202508112200|KenyaElephants|Afrikanische Elefantenherde, Amboseli-Nationalpark, Kenia (© Chase Dekker/Minden Pictures)|Weise Riesen|![](/de-DE/2025/08/202508112200KenyaElephants.jpg)|
