@@ -11,3 +11,4 @@
 202508090400|MaoriRock|Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)|Honouring Indigenous voices|![](/en-CA/2025/08/202508090400MaoriRock.jpg)|
 202508100400|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Roar for a cause|![](/en-CA/2025/08/202508100400LionessKenya.jpg)|
 202508110400|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Postcard from the peaks|![](/en-CA/2025/08/202508110400SantaMaddalena.jpg)|
+202508120400|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Wild, wise and wonderful|![](/en-CA/2025/08/202508120400KenyaElephants.jpg)|

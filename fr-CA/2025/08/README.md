@@ -11,3 +11,4 @@
 202508090400|MaoriRock|Sculptures rupestres maories de Mine Bay, Lac Taupō, Nouvelle-Zélande (© Joppi/Getty Images)|La mémoire des premiers peuples gravée dans la roche|![](/fr-CA/2025/08/202508090400MaoriRock.jpg)|
 202508100400|LionessKenya|Lionne dans la réserve nationale du Masai Mara, Kenya (© Tandem Stock/Adobe Stock)|Un rugissement en sursis|![](/fr-CA/2025/08/202508100400LionessKenya.jpg)|
 202508110400|SantaMaddalena|Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)|Un tableau vivant au cœur des Dolomites|![](/fr-CA/2025/08/202508110400SantaMaddalena.jpg)|
+202508120400|KenyaElephants|Troupeau d’éléphants d’Afrique, parc national d’Amboseli, Kenya (© Chase Dekker/Minden Pictures)|Mémoire d’éléphant, cœur immense|![](/fr-CA/2025/08/202508120400KenyaElephants.jpg)|
