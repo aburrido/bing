@@ -12,3 +12,4 @@
 202508090700|RotatoriaLetras|Letters Square Roundabout, Manaus, Brazil (© Cristian Lourenço/Getty Images)|Info|![](/en-AU/2025/08/202508090700RotatoriaLetras.jpg)|
 202508100700|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Info|![](/en-AU/2025/08/202508100700LionessKenya.jpg)|
 202508110700|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Info|![](/en-AU/2025/08/202508110700SantaMaddalena.jpg)|
+202508120700|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Info|![](/en-AU/2025/08/202508120700KenyaElephants.jpg)|
