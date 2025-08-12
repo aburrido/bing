@@ -12,3 +12,4 @@
 202508092300|LionessKenya|Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)|Roar for a cause|![](/en-GB/2025/08/202508092300LionessKenya.jpg)|
 202508102300|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Postcard from the peaks|![](/en-GB/2025/08/202508102300SantaMaddalena.jpg)|
 202508112300|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Wild, wise and wonderful|![](/en-GB/2025/08/202508112300KenyaElephants.jpg)|
+202508122300|CoronaArch|A man rappels off Corona Arch near Moab, Utah, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Earth's open secret|![](/en-GB/2025/08/202508122300CoronaArch.jpg)|
