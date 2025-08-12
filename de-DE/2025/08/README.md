@@ -12,3 +12,4 @@
 202508092200|LionessKenya|Löwin im Maasai Mara Nationalreservat, Kenia (© Tandem Stock/Adobe Stock)|Die Königin des Dschungels|![](/de-DE/2025/08/202508092200LionessKenya.jpg)|
 202508102200|SantaMaddalena|Dorf Santa Maddalena, Dolomiten, Italien (© Sakrapee Nopparat/Getty Images)|Postkarte von den Gipfeln|![](/de-DE/2025/08/202508102200SantaMaddalena.jpg)|
 202508112200|KenyaElephants|Afrikanische Elefantenherde, Amboseli-Nationalpark, Kenia (© Chase Dekker/Minden Pictures)|Weise Riesen|![](/de-DE/2025/08/202508112200KenyaElephants.jpg)|
+202508122200|CoronaArch|Ein Mann seilt sich vom Corona Arch nahe Moab ab, Utah, USA (© Grant Ordelheide/TANDEM Stills + Motion)|Ein Geheimnis der Natur|![](/de-DE/2025/08/202508122200CoronaArch.jpg)|

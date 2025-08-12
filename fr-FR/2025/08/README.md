@@ -12,3 +12,4 @@
 202508092200|LionessKenya|Lionne dans la réserve nationale du Masai Mara, Kenya (© Tandem Stock/Adobe Stock)|Un rugissement en sursis|![](/fr-FR/2025/08/202508092200LionessKenya.jpg)|
 202508102200|SantaMaddalena|Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)|Un tableau vivant au cœur des Dolomites|![](/fr-FR/2025/08/202508102200SantaMaddalena.jpg)|
 202508112200|KenyaElephants|Troupeau d’éléphants d’Afrique, parc national d’Amboseli, Kenya (© Chase Dekker/Minden Pictures)|Mémoire d’éléphant, cœur immense|![](/fr-FR/2025/08/202508112200KenyaElephants.jpg)|
+202508122200|Flamingos|Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)|Le flamant rose, emblème vivant de la Camargue|![](/fr-FR/2025/08/202508122200Flamingos.jpg)|
