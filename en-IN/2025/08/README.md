@@ -13,3 +13,4 @@
 202508101830|SantaMaddalena|Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)|Postcard from the peaks|![](/en-IN/2025/08/202508101830SantaMaddalena.jpg)|
 202508111830|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Wild, wise and wonderful|![](/en-IN/2025/08/202508111830KenyaElephants.jpg)|
 202508121830|CoronaArch|A man rappels off Corona Arch near Moab, Utah, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Earth's open secret|![](/en-IN/2025/08/202508121830CoronaArch.jpg)|
+202508131830|PizNairPeak|Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)|Taking it from the top|![](/en-IN/2025/08/202508131830PizNairPeak.jpg)|
