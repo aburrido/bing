@@ -13,3 +13,4 @@
 202508101500|MountainDay2025|中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)|今日は山の日|![](/ja-JP/2025/08/202508101500MountainDay2025.jpg)|
 202508111500|KenyaElephants|アフリカゾウの群れ, ケニア (© Chase Dekker/Minden Pictures)|今日は世界ゾウの日|![](/ja-JP/2025/08/202508111500KenyaElephants.jpg)|
 202508121500|CoronaArch|コロナ・アーチ, 米国 ユタ州 (© Grant Ordelheide/TANDEM Stills + Motion)|岩のアーチからぶら下がる冒険者|![](/ja-JP/2025/08/202508121500CoronaArch.jpg)|
+202508131500|PizNairPeak|ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)|アルプスの名峰|![](/ja-JP/2025/08/202508131500PizNairPeak.jpg)|
