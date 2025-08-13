@@ -12,3 +12,4 @@
 202508100400|LionessKenya|Lionne dans la réserve nationale du Masai Mara, Kenya (© Tandem Stock/Adobe Stock)|Un rugissement en sursis|![](/fr-CA/2025/08/202508100400LionessKenya.jpg)|
 202508110400|SantaMaddalena|Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)|Un tableau vivant au cœur des Dolomites|![](/fr-CA/2025/08/202508110400SantaMaddalena.jpg)|
 202508120400|KenyaElephants|Troupeau d’éléphants d’Afrique, parc national d’Amboseli, Kenya (© Chase Dekker/Minden Pictures)|Mémoire d’éléphant, cœur immense|![](/fr-CA/2025/08/202508120400KenyaElephants.jpg)|
+202508130400|CoronaArch|Descente en rappel de Corona Arch, Utah, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|Une fenêtre vers l’infini|![](/fr-CA/2025/08/202508130400CoronaArch.jpg)|
