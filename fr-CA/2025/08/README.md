@@ -13,3 +13,4 @@
 202508110400|SantaMaddalena|Village de Santa Maddalena, Dolomites, Italie (© Sakrapee Nopparat/Getty Images)|Un tableau vivant au cœur des Dolomites|![](/fr-CA/2025/08/202508110400SantaMaddalena.jpg)|
 202508120400|KenyaElephants|Troupeau d’éléphants d’Afrique, parc national d’Amboseli, Kenya (© Chase Dekker/Minden Pictures)|Mémoire d’éléphant, cœur immense|![](/fr-CA/2025/08/202508120400KenyaElephants.jpg)|
 202508130400|CoronaArch|Descente en rappel de Corona Arch, Utah, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|Une fenêtre vers l’infini|![](/fr-CA/2025/08/202508130400CoronaArch.jpg)|
+202508140400|PizNairPeak|Station téléphérique du mont Piz Nair, Grisons, Suisse (© Roberto Moiola/Alamy)|Le sommet des Grisons|![](/fr-CA/2025/08/202508140400PizNairPeak.jpg)|
