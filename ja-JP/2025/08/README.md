@@ -14,3 +14,4 @@
 202508111500|KenyaElephants|アフリカゾウの群れ, ケニア (© Chase Dekker/Minden Pictures)|今日は世界ゾウの日|![](/ja-JP/2025/08/202508111500KenyaElephants.jpg)|
 202508121500|CoronaArch|コロナ・アーチ, 米国 ユタ州 (© Grant Ordelheide/TANDEM Stills + Motion)|岩のアーチからぶら下がる冒険者|![](/ja-JP/2025/08/202508121500CoronaArch.jpg)|
 202508131500|PizNairPeak|ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)|アルプスの名峰|![](/ja-JP/2025/08/202508131500PizNairPeak.jpg)|
+202508141500|SpottedEagleRay|マダラトビエイ, エクアドル (© Tui De Roy/Minden Pictures)|羽ばたくように泳ぐ美しい魚|![](/ja-JP/2025/08/202508141500SpottedEagleRay.jpg)|
