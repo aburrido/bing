@@ -14,3 +14,4 @@
 202508111830|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Wild, wise and wonderful|![](/en-IN/2025/08/202508111830KenyaElephants.jpg)|
 202508121830|CoronaArch|A man rappels off Corona Arch near Moab, Utah, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Earth's open secret|![](/en-IN/2025/08/202508121830CoronaArch.jpg)|
 202508131830|PizNairPeak|Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)|Taking it from the top|![](/en-IN/2025/08/202508131830PizNairPeak.jpg)|
+202508141830|RefFort2025|Red Fort, Delhi (© MadhoG/Getty Images)|Unfurling freedom|![](/en-IN/2025/08/202508141830RefFort2025.jpg)|
