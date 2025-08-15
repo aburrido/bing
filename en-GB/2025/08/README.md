@@ -15,3 +15,4 @@
 202508122300|CoronaArch|A man rappels off Corona Arch near Moab, Utah, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Earth's open secret|![](/en-GB/2025/08/202508122300CoronaArch.jpg)|
 202508132300|PizNairPeak|Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)|Taking it from the top|![](/en-GB/2025/08/202508132300PizNairPeak.jpg)|
 202508142300|SpottedEagleRay|Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Winging it underwater|![](/en-GB/2025/08/202508142300SpottedEagleRay.jpg)|
+202508152300|GarlicFestival2025|Wild garlic, Greatwood Copse, Isle of Wight, England (© Available Light Photography/Alamy Stock Photo)|A 'clove' affair to remember|![](/en-GB/2025/08/202508152300GarlicFestival2025.jpg)|
