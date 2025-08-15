@@ -15,3 +15,4 @@
 202508121500|CoronaArch|コロナ・アーチ, 米国 ユタ州 (© Grant Ordelheide/TANDEM Stills + Motion)|岩のアーチからぶら下がる冒険者|![](/ja-JP/2025/08/202508121500CoronaArch.jpg)|
 202508131500|PizNairPeak|ピッツ・ネイル, スイス (© Roberto Moiola/Alamy)|アルプスの名峰|![](/ja-JP/2025/08/202508131500PizNairPeak.jpg)|
 202508141500|SpottedEagleRay|マダラトビエイ, エクアドル (© Tui De Roy/Minden Pictures)|羽ばたくように泳ぐ美しい魚|![](/ja-JP/2025/08/202508141500SpottedEagleRay.jpg)|
+202508151500|Okuribi2025|大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)|今日は五山送り火|![](/ja-JP/2025/08/202508151500Okuribi2025.jpg)|
