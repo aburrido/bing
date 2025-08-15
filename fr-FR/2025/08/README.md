@@ -15,3 +15,4 @@
 202508122200|Flamingos|Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)|Le flamant rose, emblème vivant de la Camargue|![](/fr-FR/2025/08/202508122200Flamingos.jpg)|
 202508132200|PizNairPeak|Station téléphérique du mont Piz Nair, Grisons, Suisse (© Roberto Moiola/Alamy)|Le sommet des Grisons|![](/fr-FR/2025/08/202508132200PizNairPeak.jpg)|
 202508142200|SpottedEagleRay|Raies léopards, île San Cristóbal, archipel des Galápagos, Équateur (© Tui De Roy/Minden Pictures)|Les ailes de l’océan|![](/fr-FR/2025/08/202508142200SpottedEagleRay.jpg)|
+202508152200|KiteFrejus|Cerfs-volants dans le ciel de Fréjus, Var, Provence-Alpes-Côte d’Azur (© ICHAUVEL/Getty Images)|Le ciel en fête|![](/fr-FR/2025/08/202508152200KiteFrejus.jpg)|
