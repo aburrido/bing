@@ -14,3 +14,4 @@
 202508120400|KenyaElephants|African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)|Wild, wise and wonderful|![](/en-CA/2025/08/202508120400KenyaElephants.jpg)|
 202508130400|CoronaArch|A man rappels off Corona Arch near Moab, Utah, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Earth's open secret|![](/en-CA/2025/08/202508130400CoronaArch.jpg)|
 202508140400|PizNairPeak|Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)|Taking it from the top|![](/en-CA/2025/08/202508140400PizNairPeak.jpg)|
+202508150400|CNExhibit|The Orbitor ride at the Canadian National Exhibition, Toronto (© James Hackland/Alamy Stock Photo)|CNE nights, city lights|![](/en-CA/2025/08/202508150400CNExhibit.jpg)|
