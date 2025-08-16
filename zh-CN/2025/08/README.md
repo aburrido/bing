@@ -16,3 +16,4 @@
 202508131600|PizNairPeak|皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)|从山顶俯瞰|![](/zh-CN/2025/08/202508131600PizNairPeak.jpg)|
 202508141600|SpottedEagleRay|斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|水下翱翔|![](/zh-CN/2025/08/202508141600SpottedEagleRay.jpg)|
 202508151600|ColorfulBeehives|色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)|成为改变的一“蜂”|![](/zh-CN/2025/08/202508151600ColorfulBeehives.jpg)|
+||||![](/zh-CN/2025/08/.jpg)|
