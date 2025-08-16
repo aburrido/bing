@@ -17,3 +17,4 @@
 202508141600|SpottedEagleRay|斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)|水下翱翔|![](/zh-CN/2025/08/202508141600SpottedEagleRay.jpg)|
 202508151600|ColorfulBeehives|色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)|成为改变的一“蜂”|![](/zh-CN/2025/08/202508151600ColorfulBeehives.jpg)|
 ||||![](/zh-CN/2025/08/.jpg)|
+202508161600|LyngvigLighthouse|灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)|眺望大海的高塔|![](/zh-CN/2025/08/202508161600LyngvigLighthouse.jpg)|
