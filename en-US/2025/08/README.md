@@ -17,3 +17,4 @@
 202508140700|PizNairPeak|Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)|Taking it from the top|![](/en-US/2025/08/202508140700PizNairPeak.jpg)|
 202508150700|SpottedEagleRay|Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Winging it underwater|![](/en-US/2025/08/202508150700SpottedEagleRay.jpg)|
 202508160700|ColorfulBeehives|Colorful beehives in Italy (© Roberto Caucino/Shutterstock)|Bee the change|![](/en-US/2025/08/202508160700ColorfulBeehives.jpg)|
+||||![](/en-US/2025/08/.jpg)|

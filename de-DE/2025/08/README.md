@@ -16,3 +16,4 @@
 202508132200|PizNairPeak|Seilbahnstation auf dem Piz Nair, Graubünden, Schweiz (© Roberto Moiola/Alamy)|Der Gipfel ruft|![](/de-DE/2025/08/202508132200PizNairPeak.jpg)|
 202508142200|SpottedEagleRay|Gefleckte Adlerrochen, Insel San Cristóbal, Galapagosinseln, Ecuador (© Tui De Roy/Minden Pictures)|Unter Wasser fliegen|![](/de-DE/2025/08/202508142200SpottedEagleRay.jpg)|
 202508152200|ColorfulBeehives|Bunte Bienenstöcke, Italien (© Roberto Caucino/Shutterstock)|Kleine Helfer, große Wirkung|![](/de-DE/2025/08/202508152200ColorfulBeehives.jpg)|
+||||![](/de-DE/2025/08/.jpg)|
