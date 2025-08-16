@@ -17,3 +17,4 @@
 202508141830|RefFort2025|Red Fort, Delhi (© MadhoG/Getty Images)|Unfurling freedom|![](/en-IN/2025/08/202508141830RefFort2025.jpg)|
 202508151830|ColorfulBeehives|Colourful beehives, Italy (© Roberto Caucino/Shutterstock)|Bee the change|![](/en-IN/2025/08/202508151830ColorfulBeehives.jpg)|
 ||||![](/en-IN/2025/08/.jpg)|
+202508161830|LyngvigLighthouse|Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)|One tall way to spot the sea|![](/en-IN/2025/08/202508161830LyngvigLighthouse.jpg)|
