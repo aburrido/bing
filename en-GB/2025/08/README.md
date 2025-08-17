@@ -18,3 +18,4 @@
 202508152300|GarlicFestival2025|Wild garlic, Greatwood Copse, Isle of Wight, England (© Available Light Photography/Alamy Stock Photo)|A 'clove' affair to remember|![](/en-GB/2025/08/202508152300GarlicFestival2025.jpg)|
 ||||![](/en-GB/2025/08/.jpg)|
 202508162300|LyngvigLighthouse|Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)|One tall way to spot the sea|![](/en-GB/2025/08/202508162300LyngvigLighthouse.jpg)|
+202508172300|AvalancheLake|Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)|Stream a little dream|![](/en-GB/2025/08/202508172300AvalancheLake.jpg)|
