@@ -17,3 +17,4 @@
 202508150400|CNExhibit|L’attraction Orbitor à l’Exposition nationale canadienne, Toronto (© James Hackland/Alamy Stock Photo)|Manèges, musique et magie : bienvenue à l’Ex!|![](/fr-CA/2025/08/202508150400CNExhibit.jpg)|
 202508160400|ColorfulBeehives|Ruches colorées, Italie (© Roberto Caucino/Shutterstock)|Des ruches qui font le buzzzzzz!|![](/fr-CA/2025/08/202508160400ColorfulBeehives.jpg)|
 ||||![](/fr-CA/2025/08/.jpg)|
+202508170400|LyngvigLighthouse|Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)|Au rythme des phares, d’un océan à l’autre|![](/fr-CA/2025/08/202508170400LyngvigLighthouse.jpg)|
