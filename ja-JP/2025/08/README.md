@@ -18,3 +18,4 @@
 202508151500|Okuribi2025|大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)|今日は五山送り火|![](/ja-JP/2025/08/202508151500Okuribi2025.jpg)|
 ||||![](/ja-JP/2025/08/.jpg)|
 202508161500|LyngvigLighthouse|リングヴィグ灯台, デンマーク (© Caroline Brundle Bugge/Getty Images)|砂丘に立つ白亜の灯台|![](/ja-JP/2025/08/202508161500LyngvigLighthouse.jpg)|
+202508171500|AvalancheLake|アヴァランチ湖, 米国 ニューヨーク州 (© Posnov/Getty Images)|緑に包まれた高山湖|![](/ja-JP/2025/08/202508171500AvalancheLake.jpg)|
