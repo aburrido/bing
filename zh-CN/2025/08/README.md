@@ -18,3 +18,4 @@
 202508151600|ColorfulBeehives|色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)|成为改变的一“蜂”|![](/zh-CN/2025/08/202508151600ColorfulBeehives.jpg)|
 ||||![](/zh-CN/2025/08/.jpg)|
 202508161600|LyngvigLighthouse|灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)|眺望大海的高塔|![](/zh-CN/2025/08/202508161600LyngvigLighthouse.jpg)|
+202508171600|AvalancheLake|雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)|溪流入梦|![](/zh-CN/2025/08/202508171600AvalancheLake.jpg)|
