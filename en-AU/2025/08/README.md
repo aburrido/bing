@@ -19,3 +19,4 @@
 202508160700|ColorfulBeehives|Colourful beehives, Italy (© Roberto Caucino/Shutterstock)|Info|![](/en-AU/2025/08/202508160700ColorfulBeehives.jpg)|
 ||||![](/en-AU/2025/08/.jpg)|
 202508170700|LyngvigLighthouse|Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)|Info|![](/en-AU/2025/08/202508170700LyngvigLighthouse.jpg)|
+202508180700|AvalancheLake|Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)|Info|![](/en-AU/2025/08/202508180700AvalancheLake.jpg)|
