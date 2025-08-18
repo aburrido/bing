@@ -19,3 +19,4 @@
 ||||![](/ja-JP/2025/08/.jpg)|
 202508161500|LyngvigLighthouse|リングヴィグ灯台, デンマーク (© Caroline Brundle Bugge/Getty Images)|砂丘に立つ白亜の灯台|![](/ja-JP/2025/08/202508161500LyngvigLighthouse.jpg)|
 202508171500|AvalancheLake|アヴァランチ湖, 米国 ニューヨーク州 (© Posnov/Getty Images)|緑に包まれた高山湖|![](/ja-JP/2025/08/202508171500AvalancheLake.jpg)|
+202508181500|SantaMaddalena|サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)|絵本のような村|![](/ja-JP/2025/08/202508181500SantaMaddalena.jpg)|
