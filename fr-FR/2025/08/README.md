@@ -19,3 +19,4 @@
 ||||![](/fr-FR/2025/08/.jpg)|
 202508162200|LyngvigLighthouse|Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)|Au rythme des phares, d’un océan à l’autre|![](/fr-FR/2025/08/202508162200LyngvigLighthouse.jpg)|
 202508172200|ColorfulBeehives|Ruches colorées, Italie (© Roberto Caucino/Shutterstock)|Des ruches qui font le buzzzzzz !|![](/fr-FR/2025/08/202508172200ColorfulBeehives.jpg)|
+202508182200|GipuzcoaSummer|Couches de flysch à Zumaia, Pays basque, Espagne (© Eloi_Omella/Getty Images)|Voyage au cœur des âges|![](/fr-FR/2025/08/202508182200GipuzcoaSummer.jpg)|
