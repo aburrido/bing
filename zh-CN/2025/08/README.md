@@ -20,3 +20,4 @@
 202508161600|LyngvigLighthouse|灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)|眺望大海的高塔|![](/zh-CN/2025/08/202508161600LyngvigLighthouse.jpg)|
 202508171600|AvalancheLake|雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)|溪流入梦|![](/zh-CN/2025/08/202508171600AvalancheLake.jpg)|
 202508181600|GipuzcoaSummer|祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)|随海而流的岩石！|![](/zh-CN/2025/08/202508181600GipuzcoaSummer.jpg)|
+202508191600|CitadelBonifacio|博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)|永恒的建筑|![](/zh-CN/2025/08/202508191600CitadelBonifacio.jpg)|
