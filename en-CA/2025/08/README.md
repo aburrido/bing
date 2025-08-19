@@ -19,3 +19,4 @@
 ||||![](/en-CA/2025/08/.jpg)|
 202508170400|LyngvigLighthouse|Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)|One tall way to spot the sea|![](/en-CA/2025/08/202508170400LyngvigLighthouse.jpg)|
 202508180400|AvalancheLake|Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)|Stream a little dream|![](/en-CA/2025/08/202508180400AvalancheLake.jpg)|
+202508190400|VanIsland|Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)|The edge of the Pacific|![](/en-CA/2025/08/202508190400VanIsland.jpg)|
