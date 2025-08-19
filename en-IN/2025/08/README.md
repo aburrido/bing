@@ -20,3 +20,4 @@
 202508161830|LyngvigLighthouse|Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)|One tall way to spot the sea|![](/en-IN/2025/08/202508161830LyngvigLighthouse.jpg)|
 202508171830|AvalancheLake|Avalanche Lake trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)|Stream a little dream|![](/en-IN/2025/08/202508171830AvalancheLake.jpg)|
 202508181830|SpottedEagleRay|Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Winging it underwater|![](/en-IN/2025/08/202508181830SpottedEagleRay.jpg)|
+202508191830|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-IN/2025/08/202508191830CitadelBonifacio.jpg)|
