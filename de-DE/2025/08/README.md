@@ -20,3 +20,4 @@
 202508162200|LyngvigLighthouse|Lyngvig Leuchtturm, Hvide Sande, Dänemark (© Caroline Brundle Bugge/Getty Images)|Imposante Wegweiser|![](/de-DE/2025/08/202508162200LyngvigLighthouse.jpg)|
 202508172200|GermanyHiker|Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)|Der Berg ruft!|![](/de-DE/2025/08/202508172200GermanyHiker.jpg)|
 202508182200|GipuzcoaSummer|Flysch-Felsformationen in Zumaia, Baskenland, Spanien (© Eloi_Omella/Getty Images)|Wunder der Geologie|![](/de-DE/2025/08/202508182200GipuzcoaSummer.jpg)|
+202508192200|CitadelBonifacio|Die Zitadelle von Bonifacio, Südkorsika, Frankreich (© Marc Dozier/Getty Images)|Mächtige Mauern hoch über dem Meer|![](/de-DE/2025/08/202508192200CitadelBonifacio.jpg)|
