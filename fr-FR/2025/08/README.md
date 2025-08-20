@@ -21,3 +21,4 @@
 202508172200|ColorfulBeehives|Ruches colorées, Italie (© Roberto Caucino/Shutterstock)|Des ruches qui font le buzzzzzz !|![](/fr-FR/2025/08/202508172200ColorfulBeehives.jpg)|
 202508182200|GipuzcoaSummer|Couches de flysch à Zumaia, Pays basque, Espagne (© Eloi_Omella/Getty Images)|Voyage au cœur des âges|![](/fr-FR/2025/08/202508182200GipuzcoaSummer.jpg)|
 202508192200|CitadelBonifacio|Citadelle de Bonifacio, Corse-du-Sud, France (© Marc Dozier/Getty Images)|Entre ciel et mer, Bonifacio suspendue|![](/fr-FR/2025/08/202508192200CitadelBonifacio.jpg)|
+202508202200|WheatearBird|Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)|Un souffle d’ailes sur les landes anglaises|![](/fr-FR/2025/08/202508202200WheatearBird.jpg)|
