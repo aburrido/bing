@@ -21,3 +21,4 @@
 202508171600|AvalancheLake|雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)|溪流入梦|![](/zh-CN/2025/08/202508171600AvalancheLake.jpg)|
 202508181600|GipuzcoaSummer|祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)|随海而流的岩石！|![](/zh-CN/2025/08/202508181600GipuzcoaSummer.jpg)|
 202508191600|CitadelBonifacio|博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)|永恒的建筑|![](/zh-CN/2025/08/202508191600CitadelBonifacio.jpg)|
+202508201600|WheatearBird|穗䳭和盛开的帚石楠，峰区国家公园，英格兰 (© Ben Hall/Nature Picture Library)|伫立凝视|![](/zh-CN/2025/08/202508201600WheatearBird.jpg)|
