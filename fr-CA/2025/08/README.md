@@ -20,3 +20,4 @@
 202508170400|LyngvigLighthouse|Phare de Lyngvig, Hvide Sande, Danemark (© Caroline Brundle Bugge/Getty Images)|Au rythme des phares, d’un océan à l’autre|![](/fr-CA/2025/08/202508170400LyngvigLighthouse.jpg)|
 202508180400|AvalancheLake|Sentier du lac Avalanche, Adirondacks High Peaks, États-Unis (© Posnov/Getty Images)|Randonnée sauvage en terre glaciaire|![](/fr-CA/2025/08/202508180400AvalancheLake.jpg)|
 202508190400|VanIsland|Vue aérienne de l’île de Vancouver, Colombie-Britannique (© edb3_16/Getty Images)|L’île de tous les possibles|![](/fr-CA/2025/08/202508190400VanIsland.jpg)|
+202508200400|CitadelBonifacio|Citadelle de Bonifacio, Corse-du-Sud, France (© Marc Dozier/Getty Images)|Entre ciel et mer, Bonifacio|![](/fr-CA/2025/08/202508200400CitadelBonifacio.jpg)|
