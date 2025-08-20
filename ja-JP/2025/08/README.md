@@ -21,3 +21,4 @@
 202508171500|AvalancheLake|アヴァランチ湖, 米国 ニューヨーク州 (© Posnov/Getty Images)|緑に包まれた高山湖|![](/ja-JP/2025/08/202508171500AvalancheLake.jpg)|
 202508181500|SantaMaddalena|サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)|絵本のような村|![](/ja-JP/2025/08/202508181500SantaMaddalena.jpg)|
 202508191500|CitadelBonifacio|ボニファシオの城塞, フランス (© Marc Dozier/Getty Images)|地中海を見下ろす絶景のお城|![](/ja-JP/2025/08/202508191500CitadelBonifacio.jpg)|
+202508201500|WheatearBird|ピーク・ディストリクト国立公園, イングランド (© Ben Hall/Nature Picture Library)|花咲く野に佇むハシグロヒタキ|![](/ja-JP/2025/08/202508201500WheatearBird.jpg)|
