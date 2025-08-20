@@ -21,3 +21,4 @@
 202508170700|LyngvigLighthouse|Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)|One tall way to spot the sea|![](/en-US/2025/08/202508170700LyngvigLighthouse.jpg)|
 202508180700|AvalancheLake|Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)|Stream a little dream|![](/en-US/2025/08/202508180700AvalancheLake.jpg)|
 202508190700|SolarAviation|Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)|Powered by the sun|![](/en-US/2025/08/202508190700SolarAviation.jpg)|
+202508200700|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-US/2025/08/202508200700CitadelBonifacio.jpg)|
