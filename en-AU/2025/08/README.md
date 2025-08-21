@@ -22,3 +22,4 @@
 202508180700|AvalancheLake|Avalanche Lake Trail at Adirondack High Peaks, New York, United States (© Posnov/Getty Images)|Info|![](/en-AU/2025/08/202508180700AvalancheLake.jpg)|
 202508190700|GipuzcoaSummer|Layers of flysch in Zumaia, Basque Country, Spain (© Eloi_Omella/Getty Images)|Info|![](/en-AU/2025/08/202508190700GipuzcoaSummer.jpg)|
 202508200700|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Info|![](/en-AU/2025/08/202508200700CitadelBonifacio.jpg)|
+202508210700|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Info|![](/en-AU/2025/08/202508210700WheatearBird.jpg)|

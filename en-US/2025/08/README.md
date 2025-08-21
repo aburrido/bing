@@ -22,3 +22,4 @@
 202508180700|AvalancheLake|Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)|Stream a little dream|![](/en-US/2025/08/202508180700AvalancheLake.jpg)|
 202508190700|SolarAviation|Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)|Powered by the sun|![](/en-US/2025/08/202508190700SolarAviation.jpg)|
 202508200700|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-US/2025/08/202508200700CitadelBonifacio.jpg)|
+202508210700|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Perched and poised|![](/en-US/2025/08/202508210700WheatearBird.jpg)|
