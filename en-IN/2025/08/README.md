@@ -22,3 +22,4 @@
 202508181830|SpottedEagleRay|Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)|Winging it underwater|![](/en-IN/2025/08/202508181830SpottedEagleRay.jpg)|
 202508191830|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-IN/2025/08/202508191830CitadelBonifacio.jpg)|
 202508201830|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Perched and poised|![](/en-IN/2025/08/202508201830WheatearBird.jpg)|
+202508211830|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Nature's green quilt|![](/en-IN/2025/08/202508211830PalouseWA.jpg)|
