@@ -22,3 +22,4 @@
 202508182200|GipuzcoaSummer|Flysch-Felsformationen in Zumaia, Baskenland, Spanien (© Eloi_Omella/Getty Images)|Wunder der Geologie|![](/de-DE/2025/08/202508182200GipuzcoaSummer.jpg)|
 202508192200|CitadelBonifacio|Die Zitadelle von Bonifacio, Südkorsika, Frankreich (© Marc Dozier/Getty Images)|Mächtige Mauern hoch über dem Meer|![](/de-DE/2025/08/202508192200CitadelBonifacio.jpg)|
 202508202200|WheatearBird|Steinschmätzer, Peak-District-Nationalpark, England (© Ben Hall/Nature Picture Library)|Kleine Flugkünstler|![](/de-DE/2025/08/202508202200WheatearBird.jpg)|
+202508212200|FieldKaiserstuhl|Ansicht eines landwirtschaftlichen Feldes, Kaiserstuhl, Baden-Württemberg (© EyeEM Mobile GmbH/Getty Images)|Inmitten unendlicher Weinterrassen|![](/de-DE/2025/08/202508212200FieldKaiserstuhl.jpg)|
