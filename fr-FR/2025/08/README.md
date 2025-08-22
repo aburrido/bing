@@ -23,3 +23,4 @@
 202508192200|CitadelBonifacio|Citadelle de Bonifacio, Corse-du-Sud, France (© Marc Dozier/Getty Images)|Entre ciel et mer, Bonifacio suspendue|![](/fr-FR/2025/08/202508192200CitadelBonifacio.jpg)|
 202508202200|WheatearBird|Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)|Un souffle d’ailes sur les landes anglaises|![](/fr-FR/2025/08/202508202200WheatearBird.jpg)|
 202508212200|RockSeine|Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)|Rock et patrimoine, même tempo|![](/fr-FR/2025/08/202508212200RockSeine.jpg)|
+202508222200|SaintBarbaras|Cathédrale Sainte-Barbe, Kutná Hora, Tchéquie (© Castka/Getty Images)|Une cathédrale en hommage aux mineurs|![](/fr-FR/2025/08/202508222200SaintBarbaras.jpg)|
