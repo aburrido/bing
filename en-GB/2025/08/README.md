@@ -23,3 +23,4 @@
 202508192300|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-GB/2025/08/202508192300CitadelBonifacio.jpg)|
 202508202300|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Perched and poised|![](/en-GB/2025/08/202508202300WheatearBird.jpg)|
 202508212300|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Nature's green quilt|![](/en-GB/2025/08/202508212300PalouseWA.jpg)|
+202508222300|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|'Fallow' me|![](/en-GB/2025/08/202508222300CervusDama.jpg)|
