@@ -23,3 +23,4 @@
 202508190700|GipuzcoaSummer|Layers of flysch in Zumaia, Basque Country, Spain (© Eloi_Omella/Getty Images)|Info|![](/en-AU/2025/08/202508190700GipuzcoaSummer.jpg)|
 202508200700|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Info|![](/en-AU/2025/08/202508200700CitadelBonifacio.jpg)|
 202508210700|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Info|![](/en-AU/2025/08/202508210700WheatearBird.jpg)|
+202508220700|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Info|![](/en-AU/2025/08/202508220700PalouseWA.jpg)|
