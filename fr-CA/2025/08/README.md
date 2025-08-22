@@ -22,3 +22,4 @@
 202508190400|VanIsland|Vue aérienne de l’île de Vancouver, Colombie-Britannique (© edb3_16/Getty Images)|L’île de tous les possibles|![](/fr-CA/2025/08/202508190400VanIsland.jpg)|
 202508200400|CitadelBonifacio|Citadelle de Bonifacio, Corse-du-Sud, France (© Marc Dozier/Getty Images)|Entre ciel et mer, Bonifacio|![](/fr-CA/2025/08/202508200400CitadelBonifacio.jpg)|
 202508210400|WheatearBird|Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)|Un souffle d’ailes sur les landes anglaises|![](/fr-CA/2025/08/202508210400WheatearBird.jpg)|
+202508220400|PalouseWA|Collines ondulantes de la Palouse, Washington, États-Unis (© svetlana57/Getty Images)|Un océan de velours vert|![](/fr-CA/2025/08/202508220400PalouseWA.jpg)|

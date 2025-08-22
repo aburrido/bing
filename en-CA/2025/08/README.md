@@ -22,3 +22,4 @@
 202508190400|VanIsland|Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)|The edge of the Pacific|![](/en-CA/2025/08/202508190400VanIsland.jpg)|
 202508200400|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-CA/2025/08/202508200400CitadelBonifacio.jpg)|
 202508210400|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Perched and poised|![](/en-CA/2025/08/202508210400WheatearBird.jpg)|
+202508220400|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Nature's green quilt|![](/en-CA/2025/08/202508220400PalouseWA.jpg)|
