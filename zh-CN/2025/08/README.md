@@ -23,3 +23,4 @@
 202508191600|CitadelBonifacio|博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)|永恒的建筑|![](/zh-CN/2025/08/202508191600CitadelBonifacio.jpg)|
 202508201600|WheatearBird|穗䳭和盛开的帚石楠，峰区国家公园，英格兰 (© Ben Hall/Nature Picture Library)|伫立凝视|![](/zh-CN/2025/08/202508201600WheatearBird.jpg)|
 202508211600|PalouseWA|帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)|大自然的绿色地毯|![](/zh-CN/2025/08/202508211600PalouseWA.jpg)|
+202508221600|ChushuY25|秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国 (© tawatchaiprakobkit/Getty images)|彩林叠翠间的瀑布|![](/zh-CN/2025/08/202508221600ChushuY25.jpg)|
