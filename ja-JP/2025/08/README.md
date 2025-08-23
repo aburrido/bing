@@ -24,3 +24,4 @@
 202508201500|WheatearBird|ピーク・ディストリクト国立公園, イングランド (© Ben Hall/Nature Picture Library)|花咲く野に佇むハシグロヒタキ|![](/ja-JP/2025/08/202508201500WheatearBird.jpg)|
 202508211500|PalouseWA|パルース丘陵, 米国 ワシントン州 (© svetlana57/Getty Images)|緑と金の畑に覆われた丘陵|![](/ja-JP/2025/08/202508211500PalouseWA.jpg)|
 202508221500|Morningglory2025|早朝に開花する美しいアサガオ (© borchee/Getty Images)|今日は処暑|![](/ja-JP/2025/08/202508221500Morningglory2025.jpg)|
+202508231500|CervusDama|ダマジカ, イギリス (© Enrique Aguirre Aves/Getty Images)|季節ごとに装いを変えるシカ|![](/ja-JP/2025/08/202508231500CervusDama.jpg)|
