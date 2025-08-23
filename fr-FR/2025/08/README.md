@@ -24,3 +24,4 @@
 202508202200|WheatearBird|Traquet motteux au milieu de la bruyère, parc national du Peak District, Angleterre (© Ben Hall/Nature Picture Library)|Un souffle d’ailes sur les landes anglaises|![](/fr-FR/2025/08/202508202200WheatearBird.jpg)|
 202508212200|RockSeine|Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)|Rock et patrimoine, même tempo|![](/fr-FR/2025/08/202508212200RockSeine.jpg)|
 202508222200|SaintBarbaras|Cathédrale Sainte-Barbe, Kutná Hora, Tchéquie (© Castka/Getty Images)|Une cathédrale en hommage aux mineurs|![](/fr-FR/2025/08/202508222200SaintBarbaras.jpg)|
+202508232200|CervusDama|Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)|Silence, on broute !|![](/fr-FR/2025/08/202508232200CervusDama.jpg)|

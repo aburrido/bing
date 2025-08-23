@@ -24,3 +24,4 @@
 202508202200|WheatearBird|Steinschmätzer, Peak-District-Nationalpark, England (© Ben Hall/Nature Picture Library)|Kleine Flugkünstler|![](/de-DE/2025/08/202508202200WheatearBird.jpg)|
 202508212200|FieldKaiserstuhl|Ansicht eines landwirtschaftlichen Feldes, Kaiserstuhl, Baden-Württemberg (© EyeEM Mobile GmbH/Getty Images)|Inmitten unendlicher Weinterrassen|![](/de-DE/2025/08/202508212200FieldKaiserstuhl.jpg)|
 202508222200|SaintBarbaras|Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)|Ein Juwel der Spätgotik|![](/de-DE/2025/08/202508222200SaintBarbaras.jpg)|
+202508232200|CervusDama|Europäischer Damhirsch, England (© Enrique Aguirre Aves/Getty Images)|Natur mit Noblesse|![](/de-DE/2025/08/202508232200CervusDama.jpg)|
