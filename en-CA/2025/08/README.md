@@ -23,3 +23,4 @@
 202508200400|CitadelBonifacio|The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)|Built to last|![](/en-CA/2025/08/202508200400CitadelBonifacio.jpg)|
 202508210400|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Perched and poised|![](/en-CA/2025/08/202508210400WheatearBird.jpg)|
 202508220400|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Nature's green quilt|![](/en-CA/2025/08/202508220400PalouseWA.jpg)|
+202508230400|SaintBarbaras|St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)|Gothic majesty|![](/en-CA/2025/08/202508230400SaintBarbaras.jpg)|
