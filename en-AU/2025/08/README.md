@@ -25,3 +25,4 @@
 202508210700|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Info|![](/en-AU/2025/08/202508210700WheatearBird.jpg)|
 202508220700|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Info|![](/en-AU/2025/08/202508220700PalouseWA.jpg)|
 202508230700|Flamingos|Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)|Info|![](/en-AU/2025/08/202508230700Flamingos.jpg)|
+202508240700|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/08/202508240700CervusDama.jpg)|

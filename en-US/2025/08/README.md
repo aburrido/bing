@@ -25,3 +25,4 @@
 202508210700|WheatearBird|Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)|Perched and poised|![](/en-US/2025/08/202508210700WheatearBird.jpg)|
 202508220700|PalouseWA|Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)|Nature's green quilt|![](/en-US/2025/08/202508220700PalouseWA.jpg)|
 202508230700|SaintBarbaras|St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)|Gothic majesty|![](/en-US/2025/08/202508230700SaintBarbaras.jpg)|
+202508240700|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|'Fallow' us|![](/en-US/2025/08/202508240700CervusDama.jpg)|
