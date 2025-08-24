@@ -25,3 +25,4 @@
 202508211600|PalouseWA|帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)|大自然的绿色地毯|![](/zh-CN/2025/08/202508211600PalouseWA.jpg)|
 202508221600|ChushuY25|秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国 (© tawatchaiprakobkit/Getty images)|彩林叠翠间的瀑布|![](/zh-CN/2025/08/202508221600ChushuY25.jpg)|
 202508231600|CervusDama|欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)|“跟我来”|![](/zh-CN/2025/08/202508231600CervusDama.jpg)|
+202508241600|YellowstoneRiver|方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)|从火山之源到河流之路|![](/zh-CN/2025/08/202508241600YellowstoneRiver.jpg)|
