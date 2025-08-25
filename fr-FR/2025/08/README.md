@@ -26,3 +26,4 @@
 202508222200|SaintBarbaras|Cathédrale Sainte-Barbe, Kutná Hora, Tchéquie (© Castka/Getty Images)|Une cathédrale en hommage aux mineurs|![](/fr-FR/2025/08/202508222200SaintBarbaras.jpg)|
 202508232200|CervusDama|Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)|Silence, on broute !|![](/fr-FR/2025/08/202508232200CervusDama.jpg)|
 202508242200|YellowstoneRiver|Observatoire de Calcite Springs et rivière Yellowstone, parc national de Yellowstone, Wyoming, États-Unis (© Rebecca L. Latson/Getty Images)|Là où la roche devient rivière|![](/fr-FR/2025/08/202508242200YellowstoneRiver.jpg)|
+202508252200|TrulliHouses|Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Trulli, c’est pas fini !|![](/fr-FR/2025/08/202508252200TrulliHouses.jpg)|
