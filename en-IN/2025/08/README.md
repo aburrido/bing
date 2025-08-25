@@ -26,3 +26,4 @@
 202508221830|SaintBarbaras|St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)|Gothic majesty|![](/en-IN/2025/08/202508221830SaintBarbaras.jpg)|
 202508231830|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|'Fallow' me|![](/en-IN/2025/08/202508231830CervusDama.jpg)|
 202508241830|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)|From volcanic roots to river routes|![](/en-IN/2025/08/202508241830YellowstoneRiver.jpg)|
+202508251830|FaroeLake|Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)|A lake above the ocean|![](/en-IN/2025/08/202508251830FaroeLake.jpg)|
