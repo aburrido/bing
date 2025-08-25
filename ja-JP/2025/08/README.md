@@ -26,3 +26,4 @@
 202508221500|Morningglory2025|早朝に開花する美しいアサガオ (© borchee/Getty Images)|今日は処暑|![](/ja-JP/2025/08/202508221500Morningglory2025.jpg)|
 202508231500|CervusDama|ダマジカ, イギリス (© Enrique Aguirre Aves/Getty Images)|季節ごとに装いを変えるシカ|![](/ja-JP/2025/08/202508231500CervusDama.jpg)|
 202508241500|YellowstoneRiver|イエローストーン国立公園, 米国 ワイオミング州 (© Rebecca L. Latson/Getty Images)|白い崖とうねる川|![](/ja-JP/2025/08/202508241500YellowstoneRiver.jpg)|
+202508251500|TrulliHouses|アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)|とんがり屋根が並ぶ小さな町|![](/ja-JP/2025/08/202508251500TrulliHouses.jpg)|
