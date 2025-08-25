@@ -25,3 +25,4 @@
 202508220400|PalouseWA|Collines ondulantes de la Palouse, Washington, États-Unis (© svetlana57/Getty Images)|Un océan de velours vert|![](/fr-CA/2025/08/202508220400PalouseWA.jpg)|
 202508230400|SaintBarbaras|Cathédrale Sainte-Barbe, Kutná Hora, Tchéquie (© Castka/Getty Images)|Une cathédrale en hommage aux mineurs|![](/fr-CA/2025/08/202508230400SaintBarbaras.jpg)|
 202508240400|CervusDama|Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)|Silence, on broute!|![](/fr-CA/2025/08/202508240400CervusDama.jpg)|
+202508250400|Gannets|Colonie de fous de Bassan, Québec (© Vladone/Getty Images)|L’envol majestueux|![](/fr-CA/2025/08/202508250400Gannets.jpg)|
