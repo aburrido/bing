@@ -26,3 +26,4 @@
 202508222300|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|'Fallow' me|![](/en-GB/2025/08/202508222300CervusDama.jpg)|
 202508232300|NottingHillCarnival2025|Notting Hill Carnival wall mural, London (© BRIAN ANTHONY/Alamy Stock Photo)|Paint the town rhythmic|![](/en-GB/2025/08/202508232300NottingHillCarnival2025.jpg)|
 202508242300|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)|From volcanic roots to river routes|![](/en-GB/2025/08/202508242300YellowstoneRiver.jpg)|
+202508252300|TrulliHouses|Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)|A 'trulli' remarkable town|![](/en-GB/2025/08/202508252300TrulliHouses.jpg)|
