@@ -26,3 +26,4 @@
 202508220700|PalouseWA|Rolling hills of the Palouse, Washington, United States (© svetlana57/Getty Images)|Info|![](/en-AU/2025/08/202508220700PalouseWA.jpg)|
 202508230700|Flamingos|Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)|Info|![](/en-AU/2025/08/202508230700Flamingos.jpg)|
 202508240700|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/08/202508240700CervusDama.jpg)|
+202508250700|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)|Info|![](/en-AU/2025/08/202508250700YellowstoneRiver.jpg)|

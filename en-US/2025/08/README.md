@@ -26,3 +26,4 @@
 202508220700|PalouseWA|Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)|Nature's green quilt|![](/en-US/2025/08/202508220700PalouseWA.jpg)|
 202508230700|SaintBarbaras|St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)|Gothic majesty|![](/en-US/2025/08/202508230700SaintBarbaras.jpg)|
 202508240700|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|'Fallow' us|![](/en-US/2025/08/202508240700CervusDama.jpg)|
+202508250700|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)|From volcanic roots to river routes|![](/en-US/2025/08/202508250700YellowstoneRiver.jpg)|
