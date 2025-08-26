@@ -26,3 +26,4 @@
 202508230400|SaintBarbaras|St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)|Gothic majesty|![](/en-CA/2025/08/202508230400SaintBarbaras.jpg)|
 202508240400|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|'Fallow' me|![](/en-CA/2025/08/202508240400CervusDama.jpg)|
 202508250400|Gannets|Colony of northern gannets, Quebec (© Vladone/Getty Images)|Wings wide open|![](/en-CA/2025/08/202508250400Gannets.jpg)|
+202508260400|TrulliHouses|Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)|A 'trulli' remarkable town|![](/en-CA/2025/08/202508260400TrulliHouses.jpg)|
