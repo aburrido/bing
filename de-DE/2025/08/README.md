@@ -27,3 +27,4 @@
 202508232200|CervusDama|Europäischer Damhirsch, England (© Enrique Aguirre Aves/Getty Images)|Natur mit Noblesse|![](/de-DE/2025/08/202508232200CervusDama.jpg)|
 202508242200|YellowstoneRiver|Aussichtspunkt Calcite Springs und Yellowstone River, Yellowstone-Nationalpark, Wyoming, USA (© Rebecca L. Latson/Getty Images)|Naturgewalten im Wandel|![](/de-DE/2025/08/202508242200YellowstoneRiver.jpg)|
 202508252200|KitesurferGermany|Silhouette eines springenden Kitesurfers bei Sonnenuntergang im baltischen Meer (© Jens Breuer/Getty Images)|Wind, Wellen und Adrenalin|![](/de-DE/2025/08/202508252200KitesurferGermany.jpg)|
+202508262200|FaroeLake|Sørvágsvatn-See, Insel Vágar, Färöer-Inseln (© Anton Petrus/Getty Images)|Ein See über dem Ozean|![](/de-DE/2025/08/202508262200FaroeLake.jpg)|
