@@ -27,3 +27,4 @@
 202508231600|CervusDama|欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)|“跟我来”|![](/zh-CN/2025/08/202508231600CervusDama.jpg)|
 202508241600|YellowstoneRiver|方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)|从火山之源到河流之路|![](/zh-CN/2025/08/202508241600YellowstoneRiver.jpg)|
 202508251600|TrulliHouses|阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)|一座非凡的特鲁洛小镇|![](/zh-CN/2025/08/202508251600TrulliHouses.jpg)|
+202508261600|FaroeLake|瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)|海洋上方的湖泊|![](/zh-CN/2025/08/202508261600FaroeLake.jpg)|
