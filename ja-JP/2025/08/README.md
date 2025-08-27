@@ -28,3 +28,4 @@
 202508241500|YellowstoneRiver|イエローストーン国立公園, 米国 ワイオミング州 (© Rebecca L. Latson/Getty Images)|白い崖とうねる川|![](/ja-JP/2025/08/202508241500YellowstoneRiver.jpg)|
 202508251500|TrulliHouses|アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)|とんがり屋根が並ぶ小さな町|![](/ja-JP/2025/08/202508251500TrulliHouses.jpg)|
 202508261500|FaroeLake|ソールヴァグスヴァトン湖, デンマーク (© Anton Petrus/Getty Images)|今日は世界湖沼の日|![](/ja-JP/2025/08/202508261500FaroeLake.jpg)|
+202508271500|WhiteEgret|ダイサギ, ハンガリー  (© Markus Varesvuo/Nature Picture Library)|世界を渡る白き旅人|![](/ja-JP/2025/08/202508271500WhiteEgret.jpg)|
