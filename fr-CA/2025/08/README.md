@@ -27,3 +27,4 @@
 202508240400|CervusDama|Daim européen, Angleterre (© Enrique Aguirre Aves/Getty Images)|Silence, on broute!|![](/fr-CA/2025/08/202508240400CervusDama.jpg)|
 202508250400|Gannets|Colonie de fous de Bassan, Québec (© Vladone/Getty Images)|L’envol majestueux|![](/fr-CA/2025/08/202508250400Gannets.jpg)|
 202508260400|TrulliHouses|Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Trulli, c’est pas fini!|![](/fr-CA/2025/08/202508260400TrulliHouses.jpg)|
+202508270400|FaroeLake|Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)|Vers l’infini… et l’eau de là|![](/fr-CA/2025/08/202508270400FaroeLake.jpg)|
