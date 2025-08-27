@@ -28,3 +28,4 @@
 202508241830|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)|From volcanic roots to river routes|![](/en-IN/2025/08/202508241830YellowstoneRiver.jpg)|
 202508251830|FaroeLake|Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)|A lake above the ocean|![](/en-IN/2025/08/202508251830FaroeLake.jpg)|
 202508261830|ClayGanesha|Clay-idol of Ganesha at a temple near Bengaluru (© Amith Nag Photography/Getty Images)|Crafted with soil and soul|![](/en-IN/2025/08/202508261830ClayGanesha.jpg)|
+202508271830|WhiteEgret|Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)|This egret has no regrets|![](/en-IN/2025/08/202508271830WhiteEgret.jpg)|
