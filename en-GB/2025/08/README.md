@@ -28,3 +28,4 @@
 202508242300|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)|From volcanic roots to river routes|![](/en-GB/2025/08/202508242300YellowstoneRiver.jpg)|
 202508252300|TrulliHouses|Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)|A 'trulli' remarkable town|![](/en-GB/2025/08/202508252300TrulliHouses.jpg)|
 202508262300|FaroeLake|Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)|A lake above the ocean|![](/en-GB/2025/08/202508262300FaroeLake.jpg)|
+202508272300|WhiteEgret|Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)|This egret has no regrets|![](/en-GB/2025/08/202508272300WhiteEgret.jpg)|
