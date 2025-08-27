@@ -28,3 +28,4 @@
 202508240700|CervusDama|European fallow deer, England (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/08/202508240700CervusDama.jpg)|
 202508250700|YellowstoneRiver|Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming, United States (© Rebecca L. Latson/Getty Images)|Info|![](/en-AU/2025/08/202508250700YellowstoneRiver.jpg)|
 202508260700|TrulliHouses|Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)|Info|![](/en-AU/2025/08/202508260700TrulliHouses.jpg)|
+202508270700|FaroeLake|Sørvágsvatn lake, Island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)|Info|![](/en-AU/2025/08/202508270700FaroeLake.jpg)|
