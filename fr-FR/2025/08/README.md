@@ -28,3 +28,4 @@
 202508242200|YellowstoneRiver|Observatoire de Calcite Springs et rivière Yellowstone, parc national de Yellowstone, Wyoming, États-Unis (© Rebecca L. Latson/Getty Images)|Là où la roche devient rivière|![](/fr-FR/2025/08/202508242200YellowstoneRiver.jpg)|
 202508252200|TrulliHouses|Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Trulli, c’est pas fini !|![](/fr-FR/2025/08/202508252200TrulliHouses.jpg)|
 202508262200|FaroeLake|Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)|Vers l’infini… et l’eau de là|![](/fr-FR/2025/08/202508262200FaroeLake.jpg)|
+202508272200|WhiteEgret|Grande Aigrette, Hongrie (© Markus Varesvuo/Nature Picture Library)|Ça vit d’air pur et d’eau fraîche, une aigrette|![](/fr-FR/2025/08/202508272200WhiteEgret.jpg)|
