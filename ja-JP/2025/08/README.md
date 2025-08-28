@@ -29,3 +29,4 @@
 202508251500|TrulliHouses|アルベロベッロ, イタリア (© Feng Wei Photography/Getty Images)|とんがり屋根が並ぶ小さな町|![](/ja-JP/2025/08/202508251500TrulliHouses.jpg)|
 202508261500|FaroeLake|ソールヴァグスヴァトン湖, デンマーク (© Anton Petrus/Getty Images)|今日は世界湖沼の日|![](/ja-JP/2025/08/202508261500FaroeLake.jpg)|
 202508271500|WhiteEgret|ダイサギ, ハンガリー  (© Markus Varesvuo/Nature Picture Library)|世界を渡る白き旅人|![](/ja-JP/2025/08/202508271500WhiteEgret.jpg)|
+202508281500|PlazaMayor|マヨール広場, スペイン (© AirPano LLC/Amazing Aerial Agency)|歴史的な長方形の広場|![](/ja-JP/2025/08/202508281500PlazaMayor.jpg)|
