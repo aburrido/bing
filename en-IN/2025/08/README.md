@@ -29,3 +29,4 @@
 202508251830|FaroeLake|Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)|A lake above the ocean|![](/en-IN/2025/08/202508251830FaroeLake.jpg)|
 202508261830|ClayGanesha|Clay-idol of Ganesha at a temple near Bengaluru (© Amith Nag Photography/Getty Images)|Crafted with soil and soul|![](/en-IN/2025/08/202508261830ClayGanesha.jpg)|
 202508271830|WhiteEgret|Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)|This egret has no regrets|![](/en-IN/2025/08/202508271830WhiteEgret.jpg)|
+202508281830|PlazaMayor|Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)|The heart of the grid|![](/en-IN/2025/08/202508281830PlazaMayor.jpg)|
