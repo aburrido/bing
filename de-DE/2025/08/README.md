@@ -29,3 +29,4 @@
 202508252200|KitesurferGermany|Silhouette eines springenden Kitesurfers bei Sonnenuntergang im baltischen Meer (© Jens Breuer/Getty Images)|Wind, Wellen und Adrenalin|![](/de-DE/2025/08/202508252200KitesurferGermany.jpg)|
 202508262200|FaroeLake|Sørvágsvatn-See, Insel Vágar, Färöer-Inseln (© Anton Petrus/Getty Images)|Ein See über dem Ozean|![](/de-DE/2025/08/202508262200FaroeLake.jpg)|
 202508272200|WhiteEgret|Silberreiher, Ungarn (© Markus Varesvuo/Nature Picture Library)|Majestät in Weiß|![](/de-DE/2025/08/202508272200WhiteEgret.jpg)|
+202508282200|PlazaMayor|Luftaufnahme der Plaza Mayor, Madrid, Spanien (© AirPano LLC/Amazing Aerial Agency)|Das Wahrzeichen der Stadt|![](/de-DE/2025/08/202508282200PlazaMayor.jpg)|
