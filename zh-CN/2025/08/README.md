@@ -29,3 +29,4 @@
 202508251600|TrulliHouses|阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)|一座非凡的特鲁洛小镇|![](/zh-CN/2025/08/202508251600TrulliHouses.jpg)|
 202508261600|FaroeLake|瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)|海洋上方的湖泊|![](/zh-CN/2025/08/202508261600FaroeLake.jpg)|
 202508271600|WhiteEgret|大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)|这只白鹭毫无遗憾|![](/zh-CN/2025/08/202508271600WhiteEgret.jpg)|
+202508281600|PlazaMayor|马约尔广场鸟瞰图, 马德里, 西班牙 (© AirPano LLC/Amazing Aerial Agency)|网格的心脏|![](/zh-CN/2025/08/202508281600PlazaMayor.jpg)|
