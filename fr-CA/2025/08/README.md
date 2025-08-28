@@ -28,3 +28,4 @@
 202508250400|Gannets|Colonie de fous de Bassan, Québec (© Vladone/Getty Images)|L’envol majestueux|![](/fr-CA/2025/08/202508250400Gannets.jpg)|
 202508260400|TrulliHouses|Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Trulli, c’est pas fini!|![](/fr-CA/2025/08/202508260400TrulliHouses.jpg)|
 202508270400|FaroeLake|Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)|Vers l’infini… et l’eau de là|![](/fr-CA/2025/08/202508270400FaroeLake.jpg)|
+202508280400|WhiteEgret|Grande Aigrette, Hongrie (© Markus Varesvuo/Nature Picture Library)|Ça vit d’air pur et d’eau fraîche, une aigrette|![](/fr-CA/2025/08/202508280400WhiteEgret.jpg)|
