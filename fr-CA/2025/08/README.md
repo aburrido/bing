@@ -29,3 +29,4 @@
 202508260400|TrulliHouses|Les maisons trulli d’Alberobello, Pouilles, Italie (© Feng Wei Photography/Getty Images)|Trulli, c’est pas fini!|![](/fr-CA/2025/08/202508260400TrulliHouses.jpg)|
 202508270400|FaroeLake|Lac Sørvágsvatn, île de Vágar, Îles Féroé (© Anton Petrus/Getty Images)|Vers l’infini… et l’eau de là|![](/fr-CA/2025/08/202508270400FaroeLake.jpg)|
 202508280400|WhiteEgret|Grande Aigrette, Hongrie (© Markus Varesvuo/Nature Picture Library)|Ça vit d’air pur et d’eau fraîche, une aigrette|![](/fr-CA/2025/08/202508280400WhiteEgret.jpg)|
+202508290400|PlazaMayor|Vue aérienne de la Plaza Mayor, Madrid, Espagne (© AirPano LLC/Amazing Aerial Agency)|La géométrie du souvenir|![](/fr-CA/2025/08/202508290400PlazaMayor.jpg)|

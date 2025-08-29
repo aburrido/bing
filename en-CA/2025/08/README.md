@@ -29,3 +29,4 @@
 202508260400|TrulliHouses|Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)|A 'trulli' remarkable town|![](/en-CA/2025/08/202508260400TrulliHouses.jpg)|
 202508270400|FaroeLake|Sørvágsvatn lake, island of Vágar, Faroe Islands (© Anton Petrus/Getty Images)|A lake above the ocean|![](/en-CA/2025/08/202508270400FaroeLake.jpg)|
 202508280400|WhiteEgret|Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)|This egret has no regrets|![](/en-CA/2025/08/202508280400WhiteEgret.jpg)|
+202508290400|PlazaMayor|Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)|The heart of the grid|![](/en-CA/2025/08/202508290400PlazaMayor.jpg)|
