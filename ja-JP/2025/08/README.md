@@ -30,3 +30,4 @@
 202508261500|FaroeLake|ソールヴァグスヴァトン湖, デンマーク (© Anton Petrus/Getty Images)|今日は世界湖沼の日|![](/ja-JP/2025/08/202508261500FaroeLake.jpg)|
 202508271500|WhiteEgret|ダイサギ, ハンガリー  (© Markus Varesvuo/Nature Picture Library)|世界を渡る白き旅人|![](/ja-JP/2025/08/202508271500WhiteEgret.jpg)|
 202508281500|PlazaMayor|マヨール広場, スペイン (© AirPano LLC/Amazing Aerial Agency)|歴史的な長方形の広場|![](/ja-JP/2025/08/202508281500PlazaMayor.jpg)|
+202508291500|OmagariFireworks2025|全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)|今日は全国花火競技大会の開催日|![](/ja-JP/2025/08/202508291500OmagariFireworks2025.jpg)|
