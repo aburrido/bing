@@ -31,3 +31,4 @@
 202508272200|WhiteEgret|Silberreiher, Ungarn (© Markus Varesvuo/Nature Picture Library)|Majestät in Weiß|![](/de-DE/2025/08/202508272200WhiteEgret.jpg)|
 202508282200|PlazaMayor|Luftaufnahme der Plaza Mayor, Madrid, Spanien (© AirPano LLC/Amazing Aerial Agency)|Das Wahrzeichen der Stadt|![](/de-DE/2025/08/202508282200PlazaMayor.jpg)|
 202508292200|MaldivesWhaleShark|Walhai vor der Küste des Alifu Dhaalu-Atolls, Malediven (© Bachir Moukarzel/Amazing Aerial Agency)|Faszinierend, friedlich, gefährdet|![](/de-DE/2025/08/202508292200MaldivesWhaleShark.jpg)|
+202508302200|ScottsBluff|Scotts Bluff National Monument in Gering, Nebraska, USA (© Hawk Buckman/Getty Images)|Markante Landschaftsformen mit langer Geschichte|![](/de-DE/2025/08/202508302200ScottsBluff.jpg)|
