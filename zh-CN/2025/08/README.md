@@ -31,3 +31,4 @@
 202508271600|WhiteEgret|大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)|这只白鹭毫无遗憾|![](/zh-CN/2025/08/202508271600WhiteEgret.jpg)|
 202508281600|PlazaMayor|马约尔广场鸟瞰图, 马德里, 西班牙 (© AirPano LLC/Amazing Aerial Agency)|网格的心脏|![](/zh-CN/2025/08/202508281600PlazaMayor.jpg)|
 202508291600|MaldivesWhaleShark|阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫 (© Bachir Moukarzel/Amazing Aerial Agency)|有鳍且惊艳|![](/zh-CN/2025/08/202508291600MaldivesWhaleShark.jpg)|
+202508301600|ScottsBluff|杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)|彩绘的云，静默的悬崖|![](/zh-CN/2025/08/202508301600ScottsBluff.jpg)|
