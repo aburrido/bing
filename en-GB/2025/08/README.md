@@ -31,3 +31,4 @@
 202508272300|WhiteEgret|Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)|This egret has no regrets|![](/en-GB/2025/08/202508272300WhiteEgret.jpg)|
 202508282300|PlazaMayor|Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)|The heart of the grid|![](/en-GB/2025/08/202508282300PlazaMayor.jpg)|
 202508292300|MaldivesWhaleShark|Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)|Finned and fabulous|![](/en-GB/2025/08/202508292300MaldivesWhaleShark.jpg)|
+202508302300|ScottsBluff|Scotts Bluff National Monument in Gering, Nebraska, United States (© Hawk Buckman/Getty Images)|Painted clouds, still cliffs|![](/en-GB/2025/08/202508302300ScottsBluff.jpg)|
