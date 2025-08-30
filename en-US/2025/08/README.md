@@ -31,3 +31,4 @@
 202508270700|FaroeLake|Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)|A lake above the ocean|![](/en-US/2025/08/202508270700FaroeLake.jpg)|
 202508280700|WhiteEgret|Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)|This egret has no regrets|![](/en-US/2025/08/202508280700WhiteEgret.jpg)|
 202508290700|PlazaMayor|Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)|The heart of the grid|![](/en-US/2025/08/202508290700PlazaMayor.jpg)|
+202508300700|MaldivesWhaleShark|Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)|Finned and fabulous|![](/en-US/2025/08/202508300700MaldivesWhaleShark.jpg)|
