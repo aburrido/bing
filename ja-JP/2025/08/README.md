@@ -32,3 +32,4 @@
 202508281500|PlazaMayor|マヨール広場, スペイン (© AirPano LLC/Amazing Aerial Agency)|歴史的な長方形の広場|![](/ja-JP/2025/08/202508281500PlazaMayor.jpg)|
 202508291500|OmagariFireworks2025|全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)|今日は全国花火競技大会の開催日|![](/ja-JP/2025/08/202508291500OmagariFireworks2025.jpg)|
 202508301500|ScottsBluff|スコッツブラフ国定記念物, 米国 ネブラスカ州 (© Hawk Buckman/Getty Images)|彩られた雲と静かな断崖|![](/ja-JP/2025/08/202508301500ScottsBluff.jpg)|
+202508311500|SaintBarbaras|聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)|尖頭アーチと肋骨ヴォールト|![](/ja-JP/2025/08/202508311500SaintBarbaras.jpg)|
