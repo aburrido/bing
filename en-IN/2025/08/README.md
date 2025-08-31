@@ -32,3 +32,4 @@
 202508281830|PlazaMayor|Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)|The heart of the grid|![](/en-IN/2025/08/202508281830PlazaMayor.jpg)|
 202508291830|MaldivesWhaleShark|Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)|Finned and fabulous|![](/en-IN/2025/08/202508291830MaldivesWhaleShark.jpg)|
 202508301830|ScottsBluff|Scotts Bluff National Monument in Gering, Nebraska, United States (© Hawk Buckman/Getty Images)|Painted clouds, still cliffs|![](/en-IN/2025/08/202508301830ScottsBluff.jpg)|
+202508311830|PerseidsPine|An ancient bristlecone pine, Great Basin National Park, Nevada, United States (© Wirestock Creators/Shutterstock)|Timeless glow|![](/en-IN/2025/08/202508311830PerseidsPine.jpg)|
