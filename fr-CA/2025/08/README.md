@@ -31,3 +31,4 @@
 202508280400|WhiteEgret|Grande Aigrette, Hongrie (© Markus Varesvuo/Nature Picture Library)|Ça vit d’air pur et d’eau fraîche, une aigrette|![](/fr-CA/2025/08/202508280400WhiteEgret.jpg)|
 202508290400|PlazaMayor|Vue aérienne de la Plaza Mayor, Madrid, Espagne (© AirPano LLC/Amazing Aerial Agency)|La géométrie du souvenir|![](/fr-CA/2025/08/202508290400PlazaMayor.jpg)|
 202508300400|MaldivesWhaleShark|Requin-baleine au large de l’atoll Alifu Dhaalu, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)|Glisse silencieuse en eaux cristallines|![](/fr-CA/2025/08/202508300400MaldivesWhaleShark.jpg)|
+202508310400|ScottsBluff|Monument national de Scotts Bluff, Gering, Nebraska, États-Unis (© Hawk Buckman/Getty Images)|Le grand Bluff de la nature|![](/fr-CA/2025/08/202508310400ScottsBluff.jpg)|
