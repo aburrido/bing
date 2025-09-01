@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202508311600|FieldKaiserstuhl|凯撒施图尔，巴登-符腾堡，德国 (© EyeEM Mobile GmbH/Getty Images)|风景如画的葡萄园|![](/zh-CN/2025/09/202508311600FieldKaiserstuhl.jpg)|
+202509011600|DeadvleiTrees|骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)|死谷的幽灵|![](/zh-CN/2025/09/202509011600DeadvleiTrees.jpg)|
