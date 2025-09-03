@@ -4,3 +4,4 @@
 202509012200|DeadvleiTrees|Acacias à girafe, Deadvlei, parc Namib-Naukluft, Namibie (© Inge Johnsson/Alamy)|Les arbres du passé|![](/fr-FR/2025/09/202509012200DeadvleiTrees.jpg)|
 ||||![](/fr-FR/2025/09/.jpg)|
 202509022200|MontSaintMichel|Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)|Là où le ciel touche la mer|![](/fr-FR/2025/09/202509022200MontSaintMichel.jpg)|
+202509032200|WrestlingBears|Bagarre amicale de grizzlis, parc national Katmai, Alaska, États-Unis (© Cavan Images/Adobe Stock)|Les grizzlis... aussi !|![](/fr-FR/2025/09/202509032200WrestlingBears.jpg)|
