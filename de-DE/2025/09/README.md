@@ -5,3 +5,4 @@
 ||||![](/de-DE/2025/09/.jpg)|
 202509022200|MinnesotaWaters|Boundary Waters Canoe Area Wilderness, Minnesota, USA (© s.tomas/Shutterstock)|Unberührte Wildnis|![](/de-DE/2025/09/202509022200MinnesotaWaters.jpg)|
 202509032200|WrestlingBears|Raufende Grizzlybären, Katmai-Nationalpark, Alaska, USA (© Cavan Images/Adobe Stock)|Verspielte Giganten|![](/de-DE/2025/09/202509032200WrestlingBears.jpg)|
+202509042200|SunsetPier|Pacific Park, Santa Monica State Beach, Kalifornien, USA (© EXTREME-PHOTOGRAPHER/Getty Images)|Kalifornischer Abendzauber|![](/de-DE/2025/09/202509042200SunsetPier.jpg)|
