@@ -4,3 +4,4 @@
 202509020400|DeadvleiTrees|Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy Stock Photo)|Ghosts of Deadvlei|![](/en-CA/2025/09/202509020400DeadvleiTrees.jpg)|
 202509030400|WrestlingBears|Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)|Bear with us|![](/en-CA/2025/09/202509030400WrestlingBears.jpg)|
 202509040400|TiFF25|CN Tower illuminated at night in Toronto, Ontario (© R.M. Nunes/Shutterstock)|TIFF turns 50|![](/en-CA/2025/09/202509040400TiFF25.jpg)|
+202509050400|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-CA/2025/09/202509050400SunsetPier.jpg)|
