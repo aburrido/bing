@@ -6,3 +6,4 @@
 ||||![](/en-US/2025/09/.jpg)|
 202509030700|MinnesotaWaters|Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)|Protected stillness|![](/en-US/2025/09/202509030700MinnesotaWaters.jpg)|
 202509040700|WrestlingBears|Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)|Bear with us—it's National Wildlife Day|![](/en-US/2025/09/202509040700WrestlingBears.jpg)|
+202509050700|SunsetPier|Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-US/2025/09/202509050700SunsetPier.jpg)|
