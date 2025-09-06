@@ -7,3 +7,4 @@
 202509032200|WrestlingBears|Bagarre amicale de grizzlis, parc national Katmai, Alaska, États-Unis (© Cavan Images/Adobe Stock)|Les grizzlis... aussi !|![](/fr-FR/2025/09/202509032200WrestlingBears.jpg)|
 202509042200|SunsetPier|Pacific Park, plage d'État de Santa Monica, Californie, États-Unis (© EXTREME-PHOTOGRAPHER/Getty Images)|Là où la mer se donne en spectacle|![](/fr-FR/2025/09/202509042200SunsetPier.jpg)|
 202509052200|LilleMarket|Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)|Lille en fête !|![](/fr-FR/2025/09/202509052200LilleMarket.jpg)|
+202509062200|BlueGdansk|Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)|Une cité faite d’ambre et d’écume|![](/fr-FR/2025/09/202509062200BlueGdansk.jpg)|
