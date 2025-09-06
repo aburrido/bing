@@ -5,3 +5,4 @@
 202509030400|WrestlingBears|Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)|Bear with us|![](/en-CA/2025/09/202509030400WrestlingBears.jpg)|
 202509040400|TiFF25|CN Tower illuminated at night in Toronto, Ontario (© R.M. Nunes/Shutterstock)|TIFF turns 50|![](/en-CA/2025/09/202509040400TiFF25.jpg)|
 202509050400|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-CA/2025/09/202509050400SunsetPier.jpg)|
+202509060400|RufousHummer|Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)|A hum-dinger of a day|![](/en-CA/2025/09/202509060400RufousHummer.jpg)|
