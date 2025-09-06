@@ -6,3 +6,4 @@
 202509030700|MinnesotaWaters|Boundary Waters Canoe Area Wilderness, Minnesota, United States (© s.tomas/Shutterstock)|Info|![](/en-AU/2025/09/202509030700MinnesotaWaters.jpg)|
 202509040700|WrestlingBears|Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)|Info|![](/en-AU/2025/09/202509040700WrestlingBears.jpg)|
 202509050700|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|Info|![](/en-AU/2025/09/202509050700SunsetPier.jpg)|
+202509060700|RufousHummer|Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)|Info|![](/en-AU/2025/09/202509060700RufousHummer.jpg)|
