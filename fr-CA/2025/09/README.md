@@ -6,3 +6,4 @@
 202509040400|TiFF25|Tour CN illuminée de nuit à Toronto, Ontario (© R.M. Nunes/Shutterstock)|Le TIFF fête ses 50 ans|![](/fr-CA/2025/09/202509040400TiFF25.jpg)|
 202509050400|SunsetPier|Pacific Park, plage d'État de Santa Monica, Californie, États-Unis (© EXTREME-PHOTOGRAPHER/Getty Images)|Là où la mer se donne en spectacle|![](/fr-CA/2025/09/202509050400SunsetPier.jpg)|
 202509060400|RufousHummer|Colibri roux, parc du Golden Gate, San Francisco, Californie, États-Unis (© jeremyborkat/Getty Images)|Petits mais costauds!|![](/fr-CA/2025/09/202509060400RufousHummer.jpg)|
+202509070400|BlueGdansk|Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)|Une cité faite d’ambre et d’écume|![](/fr-CA/2025/09/202509070400BlueGdansk.jpg)|
