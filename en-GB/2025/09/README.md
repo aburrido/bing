@@ -8,3 +8,4 @@
 202509042300|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-GB/2025/09/202509042300SunsetPier.jpg)|
 202509052300|RufousHummer|Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)|Hover on hold|![](/en-GB/2025/09/202509052300RufousHummer.jpg)|
 202509062300|GreatNorthRun2025|The Glasshouse International Centre for Music, Gateshead, England (© ChrisHepburn/iStock/Getty Images)|One step at a Tyne|![](/en-GB/2025/09/202509062300GreatNorthRun2025.jpg)|
+202509072300|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-GB/2025/09/202509072300OrchardLibrary.jpg)|
