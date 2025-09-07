@@ -8,3 +8,4 @@
 202509041830|BoatraceOnam|Oarsmen rowing in snake boats at Aranmula, Kerala (© Rajesh Narayanan/Shutterstock)|Racing the harvest tides|![](/en-IN/2025/09/202509041830BoatraceOnam.jpg)|
 202509051830|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-IN/2025/09/202509051830SunsetPier.jpg)|
 202509061830|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-IN/2025/09/202509061830BlueGdansk.jpg)|
+202509071830|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-IN/2025/09/202509071830OrchardLibrary.jpg)|
