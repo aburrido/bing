@@ -7,3 +7,4 @@
 202509041500|SunsetPier|パシフィック・パーク, 米国 カリフォルニア州 (© EXTREME-PHOTOGRAPHER/Getty Images)|夕陽に染まる遊園地のシルエット|![](/ja-JP/2025/09/202509041500SunsetPier.jpg)|
 202509051500|RufousHummer|アカフトオハチドリ, 米国 カリフォルニア州 (© jeremyborkat/Getty Images)|北米を翔ける小さな旅人|![](/ja-JP/2025/09/202509051500RufousHummer.jpg)|
 202509061500|BlueGdansk|グダニスク, ポーランド (© Oscar Dominguez/TANDEM Stills + Motion)|バルト海に輝く色とりどりの港町|![](/ja-JP/2025/09/202509061500BlueGdansk.jpg)|
+202509071500|OrchardLibrary|ライブラリー＠オーチャード, シンガポール (© Darwin Fan/Getty Images)|今日は国際識字デー|![](/ja-JP/2025/09/202509071500OrchardLibrary.jpg)|
