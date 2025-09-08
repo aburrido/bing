@@ -9,3 +9,4 @@
 202509052200|LilleMarket|Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)|Lille en fête !|![](/fr-FR/2025/09/202509052200LilleMarket.jpg)|
 202509062200|BlueGdansk|Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)|Une cité faite d’ambre et d’écume|![](/fr-FR/2025/09/202509062200BlueGdansk.jpg)|
 202509072200|OrchardLibrary|Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)|L’alphabétisation : un droit, un avenir|![](/fr-FR/2025/09/202509072200OrchardLibrary.jpg)|
+202509082200|SwissSquirrel|Femelle écureuil roux avec de la mousse, Suisse (© Jean-Luc and Francoise Ziegler/Minden Pictures)|La forêt à hauteur d’écureuil|![](/fr-FR/2025/09/202509082200SwissSquirrel.jpg)|
