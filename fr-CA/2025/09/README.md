@@ -7,3 +7,4 @@
 202509050400|SunsetPier|Pacific Park, plage d'État de Santa Monica, Californie, États-Unis (© EXTREME-PHOTOGRAPHER/Getty Images)|Là où la mer se donne en spectacle|![](/fr-CA/2025/09/202509050400SunsetPier.jpg)|
 202509060400|RufousHummer|Colibri roux, parc du Golden Gate, San Francisco, Californie, États-Unis (© jeremyborkat/Getty Images)|Petits mais costauds!|![](/fr-CA/2025/09/202509060400RufousHummer.jpg)|
 202509070400|BlueGdansk|Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)|Une cité faite d’ambre et d’écume|![](/fr-CA/2025/09/202509070400BlueGdansk.jpg)|
+202509080400|OrchardLibrary|Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)|L’alphabétisation : un droit, un avenir|![](/fr-CA/2025/09/202509080400OrchardLibrary.jpg)|

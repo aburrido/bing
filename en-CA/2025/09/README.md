@@ -7,3 +7,4 @@
 202509050400|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-CA/2025/09/202509050400SunsetPier.jpg)|
 202509060400|RufousHummer|Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)|A hum-dinger of a day|![](/en-CA/2025/09/202509060400RufousHummer.jpg)|
 202509070400|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-CA/2025/09/202509070400BlueGdansk.jpg)|
+202509080400|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-CA/2025/09/202509080400OrchardLibrary.jpg)|
