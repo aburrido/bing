@@ -9,3 +9,4 @@
 202509052300|RufousHummer|Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)|Hover on hold|![](/en-GB/2025/09/202509052300RufousHummer.jpg)|
 202509062300|GreatNorthRun2025|The Glasshouse International Centre for Music, Gateshead, England (© ChrisHepburn/iStock/Getty Images)|One step at a Tyne|![](/en-GB/2025/09/202509062300GreatNorthRun2025.jpg)|
 202509072300|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-GB/2025/09/202509072300OrchardLibrary.jpg)|
+202509082300|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-GB/2025/09/202509082300SwissSquirrel.jpg)|
