@@ -9,3 +9,4 @@
 202509051830|SunsetPier|Pacific Park, Santa Monica State Beach, California, United States (© EXTREME-PHOTOGRAPHER/Getty Images)|A pier-fect evening|![](/en-IN/2025/09/202509051830SunsetPier.jpg)|
 202509061830|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-IN/2025/09/202509061830BlueGdansk.jpg)|
 202509071830|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-IN/2025/09/202509071830OrchardLibrary.jpg)|
+202509081830|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-IN/2025/09/202509081830SwissSquirrel.jpg)|
