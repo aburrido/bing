@@ -8,3 +8,4 @@
 202509051600|RufousHummer|棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)|忙碌的一天|![](/zh-CN/2025/09/202509051600RufousHummer.jpg)|
 202509061600|BlueGdansk|位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)|淡彩的梦境和静水|![](/zh-CN/2025/09/202509061600BlueGdansk.jpg)|
 202509071600|OrchardLibrary|乌节图书馆，新加坡 (© Darwin Fan/Getty Images)|当天预订|![](/zh-CN/2025/09/202509071600OrchardLibrary.jpg)|
+202509081600|SwissSquirrel|一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)|她一根一根地准备着|![](/zh-CN/2025/09/202509081600SwissSquirrel.jpg)|
