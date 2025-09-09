@@ -10,3 +10,4 @@
 202509062200|BlueGdansk|Danzig am Ufer der Mottlau, Polen (© Oscar Dominguez/TANDEM Stills + Motion)|Eine Perle an der Ostsee|![](/de-DE/2025/09/202509062200BlueGdansk.jpg)|
 202509072200|OrchardLibrary|library@orchard, Singapur (© Darwin Fan/Getty Images)|Lesen bringt Wesen|![](/de-DE/2025/09/202509072200OrchardLibrary.jpg)|
 202509082200|SwissSquirrel|Ein Eurasisches Eichhörnchen trägt Moos, Schweiz (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Ein Meister des Kletterns|![](/de-DE/2025/09/202509082200SwissSquirrel.jpg)|
+202509092200|YorkshireHay|Heuballen, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|Ein traditionsreiches Handwerk|![](/de-DE/2025/09/202509092200YorkshireHay.jpg)|

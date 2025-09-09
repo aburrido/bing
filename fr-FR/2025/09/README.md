@@ -10,3 +10,4 @@
 202509062200|BlueGdansk|Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)|Une cité faite d’ambre et d’écume|![](/fr-FR/2025/09/202509062200BlueGdansk.jpg)|
 202509072200|OrchardLibrary|Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)|L’alphabétisation : un droit, un avenir|![](/fr-FR/2025/09/202509072200OrchardLibrary.jpg)|
 202509082200|SwissSquirrel|Femelle écureuil roux avec de la mousse, Suisse (© Jean-Luc and Francoise Ziegler/Minden Pictures)|La forêt à hauteur d’écureuil|![](/fr-FR/2025/09/202509082200SwissSquirrel.jpg)|
+202509092200|YorkshireHay|Bottes de foin, North Yorkshire, Angleterre (© Nick Brundle Photography/Getty Images)|Le temps des foins|![](/fr-FR/2025/09/202509092200YorkshireHay.jpg)|
