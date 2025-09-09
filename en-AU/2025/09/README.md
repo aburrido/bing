@@ -9,3 +9,4 @@
 202509060700|RufousHummer|Rufous hummingbird, Golden Gate Park, San Francisco, California, United States (© jeremyborkat/Getty Images)|Info|![](/en-AU/2025/09/202509060700RufousHummer.jpg)|
 202509070700|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Info|![](/en-AU/2025/09/202509070700BlueGdansk.jpg)|
 202509080700|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Info|![](/en-AU/2025/09/202509080700OrchardLibrary.jpg)|
+202509090700|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Info|![](/en-AU/2025/09/202509090700SwissSquirrel.jpg)|
