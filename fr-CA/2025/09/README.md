@@ -8,3 +8,4 @@
 202509060400|RufousHummer|Colibri roux, parc du Golden Gate, San Francisco, Californie, États-Unis (© jeremyborkat/Getty Images)|Petits mais costauds!|![](/fr-CA/2025/09/202509060400RufousHummer.jpg)|
 202509070400|BlueGdansk|Ville de Gdańsk, rives de la rivière Motława, Pologne (© Oscar Dominguez/TANDEM Stills + Motion)|Une cité faite d’ambre et d’écume|![](/fr-CA/2025/09/202509070400BlueGdansk.jpg)|
 202509080400|OrchardLibrary|Bibliothèque library@orchard, Singapour (© Darwin Fan/Getty Images)|L’alphabétisation : un droit, un avenir|![](/fr-CA/2025/09/202509080400OrchardLibrary.jpg)|
+202509090400|SwissSquirrel|Femelle écureuil roux avec de la mousse, Suisse (© Jean-Luc and Francoise Ziegler/Minden Pictures)|La forêt à hauteur d’écureuil|![](/fr-CA/2025/09/202509090400SwissSquirrel.jpg)|
