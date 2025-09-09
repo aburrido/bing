@@ -9,3 +9,4 @@
 202509061600|BlueGdansk|位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)|淡彩的梦境和静水|![](/zh-CN/2025/09/202509061600BlueGdansk.jpg)|
 202509071600|OrchardLibrary|乌节图书馆，新加坡 (© Darwin Fan/Getty Images)|当天预订|![](/zh-CN/2025/09/202509071600OrchardLibrary.jpg)|
 202509081600|SwissSquirrel|一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)|她一根一根地准备着|![](/zh-CN/2025/09/202509081600SwissSquirrel.jpg)|
+202509091600|YorkshireHay|干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)|阳光明媚，赶紧打草|![](/zh-CN/2025/09/202509091600YorkshireHay.jpg)|
