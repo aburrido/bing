@@ -10,3 +10,4 @@
 202509071500|OrchardLibrary|ライブラリー＠オーチャード, シンガポール (© Darwin Fan/Getty Images)|今日は国際識字デー|![](/ja-JP/2025/09/202509071500OrchardLibrary.jpg)|
 202509081500|SwissSquirrel|苔を運ぶキタリス, スイス (© Jean-Luc and Francoise Ziegler/Minden Pictures)|ふわふわのしっぽを持つリス|![](/ja-JP/2025/09/202509081500SwissSquirrel.jpg)|
 202509091500|YorkshireHay|ヨークの農場, イングランド (© Nick Brundle Photography/Getty Images)|金色に輝く牧草ロール|![](/ja-JP/2025/09/202509091500YorkshireHay.jpg)|
+202509101500|ExtremaduraJamon|モンフラグエ国立公園にあるペニャ・ファルコン岩, スペイン (© Daniel Viñé Garcia/Getty Images)|岩山を挟んで流れる二本の川|![](/ja-JP/2025/09/202509101500ExtremaduraJamon.jpg)|
