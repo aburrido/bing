@@ -9,3 +9,4 @@
 202509070400|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-CA/2025/09/202509070400BlueGdansk.jpg)|
 202509080400|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-CA/2025/09/202509080400OrchardLibrary.jpg)|
 202509090400|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-CA/2025/09/202509090400SwissSquirrel.jpg)|
+202509100400|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-CA/2025/09/202509100400YorkshireHay.jpg)|
