@@ -11,3 +11,4 @@
 202509072300|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-GB/2025/09/202509072300OrchardLibrary.jpg)|
 202509082300|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-GB/2025/09/202509082300SwissSquirrel.jpg)|
 202509092300|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-GB/2025/09/202509092300YorkshireHay.jpg)|
+202509102300|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-GB/2025/09/202509102300BlueGdansk.jpg)|
