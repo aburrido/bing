@@ -12,3 +12,4 @@
 202509082200|SwissSquirrel|Femelle écureuil roux avec de la mousse, Suisse (© Jean-Luc and Francoise Ziegler/Minden Pictures)|La forêt à hauteur d’écureuil|![](/fr-FR/2025/09/202509082200SwissSquirrel.jpg)|
 202509092200|YorkshireHay|Bottes de foin, North Yorkshire, Angleterre (© Nick Brundle Photography/Getty Images)|Le temps des foins|![](/fr-FR/2025/09/202509092200YorkshireHay.jpg)|
 202509102200|ExtremaduraJamon|Rocher Peña Falcón sur le fleuve Tage, parc national de Monfragüe, Espagne (© Daniel Viñé Garcia/Getty Images)|Monfragüe, trésor d’Espagne|![](/fr-FR/2025/09/202509102200ExtremaduraJamon.jpg)|
+202509112200|SpinnerDolphins|Groupe de dauphins à long bec dans la mer Rouge, Marsa Alam, Égypte (© Franco Banfi/Nature Picture Library)|Les danseurs de la mer Rouge|![](/fr-FR/2025/09/202509112200SpinnerDolphins.jpg)|

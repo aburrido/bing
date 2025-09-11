@@ -12,3 +12,4 @@
 202509082200|SwissSquirrel|Ein Eurasisches Eichhörnchen trägt Moos, Schweiz (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Ein Meister des Kletterns|![](/de-DE/2025/09/202509082200SwissSquirrel.jpg)|
 202509092200|YorkshireHay|Heuballen, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|Ein traditionsreiches Handwerk|![](/de-DE/2025/09/202509092200YorkshireHay.jpg)|
 202509102200|ExtremaduraJamon|Geierfelsen (Peña Falcon) am Fluss Tajo im Nationalpark Monfragüe, Spanien (© Daniel Viñé Garcia/Getty Images)|Ein Blick in den Himmel lohnt sich!|![](/de-DE/2025/09/202509102200ExtremaduraJamon.jpg)|
+202509112200|SpinnerDolphins|Gruppe von Spinnerdelfinen im Roten Meer bei Marsa Alam, Ägypten (© Franco Banfi/Nature Picture Library)|Frei und wild durchs Meer|![](/de-DE/2025/09/202509112200SpinnerDolphins.jpg)|
