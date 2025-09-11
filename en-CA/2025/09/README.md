@@ -10,3 +10,4 @@
 202509080400|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-CA/2025/09/202509080400OrchardLibrary.jpg)|
 202509090400|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-CA/2025/09/202509090400SwissSquirrel.jpg)|
 202509100400|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-CA/2025/09/202509100400YorkshireHay.jpg)|
+202509110400|ExtremaduraJamon|View from Salto del Gitano, Monfragüe National Park, Cáceres, Extremadura, Spain (© Daniel Viñé Garcia/Getty Images)|Get ready to look up at the sky!|![](/en-CA/2025/09/202509110400ExtremaduraJamon.jpg)|
