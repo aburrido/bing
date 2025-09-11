@@ -11,3 +11,4 @@
 202509080700|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Info|![](/en-AU/2025/09/202509080700OrchardLibrary.jpg)|
 202509090700|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Info|![](/en-AU/2025/09/202509090700SwissSquirrel.jpg)|
 202509100700|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|Info|![](/en-AU/2025/09/202509100700YorkshireHay.jpg)|
+202509110700|ExtremaduraJamon|Peña Falcon rock on the Tagus river, Monfragüe National Park, Spain (© Daniel Viñé Garcia/Getty Images)|Info|![](/en-AU/2025/09/202509110700ExtremaduraJamon.jpg)|

@@ -12,3 +12,4 @@
 202509080700|OrchardLibrary|Library@orchard, Singapore (© Darwin Fan/Getty Images)|Booked for the day|![](/en-US/2025/09/202509080700OrchardLibrary.jpg)|
 202509090700|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-US/2025/09/202509090700SwissSquirrel.jpg)|
 202509100700|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-US/2025/09/202509100700YorkshireHay.jpg)|
+202509110700|LibertyManhattan|Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)|In unity and remembrance|![](/en-US/2025/09/202509110700LibertyManhattan.jpg)|
