@@ -12,3 +12,4 @@
 202509082300|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-GB/2025/09/202509082300SwissSquirrel.jpg)|
 202509092300|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-GB/2025/09/202509092300YorkshireHay.jpg)|
 202509102300|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-GB/2025/09/202509102300BlueGdansk.jpg)|
+202509112300|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-GB/2025/09/202509112300SpinnerDolphins.jpg)|
