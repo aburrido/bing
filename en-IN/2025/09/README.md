@@ -13,3 +13,4 @@
 202509091830|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-IN/2025/09/202509091830YorkshireHay.jpg)|
 202509101830|ButterflyBeach|Butterfly Beach in Canacona, South Goa (© Puneet Vikram Singh, Nature and Concept photographer/Getty Images)|Jewel beyond the tides|![](/en-IN/2025/09/202509101830ButterflyBeach.jpg)|
 202509111830|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-IN/2025/09/202509111830SpinnerDolphins.jpg)|
+202509121830|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-IN/2025/09/202509121830PointReyesSeashore.jpg)|
