@@ -13,3 +13,4 @@
 202509090700|SwissSquirrel|A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)|Twig by twig, she prepares|![](/en-US/2025/09/202509090700SwissSquirrel.jpg)|
 202509100700|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|'Hay' there!|![](/en-US/2025/09/202509100700YorkshireHay.jpg)|
 202509110700|LibertyManhattan|Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)|In unity and remembrance|![](/en-US/2025/09/202509110700LibertyManhattan.jpg)|
+202509120700|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-US/2025/09/202509120700SpinnerDolphins.jpg)|
