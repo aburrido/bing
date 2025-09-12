@@ -12,3 +12,4 @@
 202509091500|YorkshireHay|ヨークの農場, イングランド (© Nick Brundle Photography/Getty Images)|金色に輝く牧草ロール|![](/ja-JP/2025/09/202509091500YorkshireHay.jpg)|
 202509101500|ExtremaduraJamon|モンフラグエ国立公園にあるペニャ・ファルコン岩, スペイン (© Daniel Viñé Garcia/Getty Images)|岩山を挟んで流れる二本の川|![](/ja-JP/2025/09/202509101500ExtremaduraJamon.jpg)|
 202509111500|SpaceDay2025|種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)|今日は宇宙の日|![](/ja-JP/2025/09/202509111500SpaceDay2025.jpg)|
+202509121500|PointReyesSeashore|ポイント・レイズ国定海岸, 米国 カリフォルニア州 (© Enrique Aguirre Aves/Getty Images)|チムニー・ロックの美しい海岸|![](/ja-JP/2025/09/202509121500PointReyesSeashore.jpg)|
