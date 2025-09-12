@@ -13,3 +13,4 @@
 202509092200|YorkshireHay|Bottes de foin, North Yorkshire, Angleterre (© Nick Brundle Photography/Getty Images)|Le temps des foins|![](/fr-FR/2025/09/202509092200YorkshireHay.jpg)|
 202509102200|ExtremaduraJamon|Rocher Peña Falcón sur le fleuve Tage, parc national de Monfragüe, Espagne (© Daniel Viñé Garcia/Getty Images)|Monfragüe, trésor d’Espagne|![](/fr-FR/2025/09/202509102200ExtremaduraJamon.jpg)|
 202509112200|SpinnerDolphins|Groupe de dauphins à long bec dans la mer Rouge, Marsa Alam, Égypte (© Franco Banfi/Nature Picture Library)|Les danseurs de la mer Rouge|![](/fr-FR/2025/09/202509112200SpinnerDolphins.jpg)|
+202509122200|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, Californie, États-Unis (© Enrique Aguirre Aves/Getty Images)|La vigie du Pacifique|![](/fr-FR/2025/09/202509122200PointReyesSeashore.jpg)|
