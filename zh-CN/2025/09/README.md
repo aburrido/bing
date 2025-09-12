@@ -12,3 +12,4 @@
 202509091600|YorkshireHay|干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)|阳光明媚，赶紧打草|![](/zh-CN/2025/09/202509091600YorkshireHay.jpg)|
 202509101600|ExtremaduraJamon|蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)|准备仰望天空吧！|![](/zh-CN/2025/09/202509101600ExtremaduraJamon.jpg)|
 202509111600|SpinnerDolphins|红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)|野性畅游，自在徜徉|![](/zh-CN/2025/09/202509111600SpinnerDolphins.jpg)|
+202509121600|PointReyesSeashore|烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)|崎岖而狂野|![](/zh-CN/2025/09/202509121600PointReyesSeashore.jpg)|
