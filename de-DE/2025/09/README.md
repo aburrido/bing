@@ -14,3 +14,4 @@
 202509102200|ExtremaduraJamon|Geierfelsen (Peña Falcon) am Fluss Tajo im Nationalpark Monfragüe, Spanien (© Daniel Viñé Garcia/Getty Images)|Ein Blick in den Himmel lohnt sich!|![](/de-DE/2025/09/202509102200ExtremaduraJamon.jpg)|
 202509112200|SpinnerDolphins|Gruppe von Spinnerdelfinen im Roten Meer bei Marsa Alam, Ägypten (© Franco Banfi/Nature Picture Library)|Frei und wild durchs Meer|![](/de-DE/2025/09/202509112200SpinnerDolphins.jpg)|
 202509122200|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, Kalifornien, USA (© Enrique Aguirre Aves/Getty Images)|Ungezähmte Landschaft|![](/de-DE/2025/09/202509122200PointReyesSeashore.jpg)|
+202509132200|GeraOrangerie|Orangerie Gera, Thüringen (© luchschenF/Shutterstock)|Zeugen der Vergangenheit|![](/de-DE/2025/09/202509132200GeraOrangerie.jpg)|
