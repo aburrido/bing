@@ -13,3 +13,4 @@
 202509100700|YorkshireHay|Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)|Info|![](/en-AU/2025/09/202509100700YorkshireHay.jpg)|
 202509110700|ExtremaduraJamon|Peña Falcon rock on the Tagus river, Monfragüe National Park, Spain (© Daniel Viñé Garcia/Getty Images)|Info|![](/en-AU/2025/09/202509110700ExtremaduraJamon.jpg)|
 202509120700|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Info|![](/en-AU/2025/09/202509120700SpinnerDolphins.jpg)|
+202509130700|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/09/202509130700PointReyesSeashore.jpg)|
