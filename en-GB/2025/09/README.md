@@ -14,3 +14,4 @@
 202509102300|BlueGdansk|Gdańsk on the banks of the Motława river, Poland (© Oscar Dominguez/TANDEM Stills + Motion)|Pastel dreams and still waters|![](/en-GB/2025/09/202509102300BlueGdansk.jpg)|
 202509112300|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-GB/2025/09/202509112300SpinnerDolphins.jpg)|
 202509122300|PromsNight2025|Royal Albert Hall, South Kensington, London (© Gonzalo Azumendi/Stone/Getty Images)|Ending on a high note|![](/en-GB/2025/09/202509122300PromsNight2025.jpg)|
+202509132300|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-GB/2025/09/202509132300HohWaterfall.jpg)|
