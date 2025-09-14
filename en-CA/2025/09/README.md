@@ -13,3 +13,4 @@
 202509110400|ExtremaduraJamon|View from Salto del Gitano, Monfragüe National Park, Cáceres, Extremadura, Spain (© Daniel Viñé Garcia/Getty Images)|Get ready to look up at the sky!|![](/en-CA/2025/09/202509110400ExtremaduraJamon.jpg)|
 202509120400|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-CA/2025/09/202509120400SpinnerDolphins.jpg)|
 202509130400|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-CA/2025/09/202509130400PointReyesSeashore.jpg)|
+202509140400|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-CA/2025/09/202509140400HohWaterfall.jpg)|
