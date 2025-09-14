@@ -15,3 +15,4 @@
 202509111830|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-IN/2025/09/202509111830SpinnerDolphins.jpg)|
 202509121830|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-IN/2025/09/202509121830PointReyesSeashore.jpg)|
 202509131830|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-IN/2025/09/202509131830HohWaterfall.jpg)|
+202509141830|Echasse|Black-winged stilts, France (© Antonio Sementa/500px/Getty Images)|Wading for a sign|![](/en-IN/2025/09/202509141830Echasse.jpg)|
