@@ -15,3 +15,4 @@
 202509110700|LibertyManhattan|Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)|In unity and remembrance|![](/en-US/2025/09/202509110700LibertyManhattan.jpg)|
 202509120700|SpinnerDolphins|Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)|Swim wild, swim free|![](/en-US/2025/09/202509120700SpinnerDolphins.jpg)|
 202509130700|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-US/2025/09/202509130700PointReyesSeashore.jpg)|
+202509140700|HohWaterfall|A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-US/2025/09/202509140700HohWaterfall.jpg)|
