@@ -15,3 +15,4 @@
 202509121600|PointReyesSeashore|烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)|崎岖而狂野|![](/zh-CN/2025/09/202509121600PointReyesSeashore.jpg)|
 202509131600|HohWaterfall|奥林匹克国家公园的瀑布, 华盛顿, 美国 (© Chris Moore/TANDEM Stills + Motion)|苔藓与薄雾|![](/zh-CN/2025/09/202509131600HohWaterfall.jpg)|
 202509141600|Echasse|黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)|涉水寻迹|![](/zh-CN/2025/09/202509141600Echasse.jpg)|
+202509151600|OzoneEarth|从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象 (© Stocktrek Images/Getty Images)|巨大的成功|![](/zh-CN/2025/09/202509151600OzoneEarth.jpg)|
