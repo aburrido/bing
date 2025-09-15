@@ -15,3 +15,4 @@
 202509121500|PointReyesSeashore|ポイント・レイズ国定海岸, 米国 カリフォルニア州 (© Enrique Aguirre Aves/Getty Images)|チムニー・ロックの美しい海岸|![](/ja-JP/2025/09/202509121500PointReyesSeashore.jpg)|
 202509131500|HohWaterfall|オリンピック国立公園, 米国 ワシントン州 (© Chris Moore/TANDEM Stills + Motion)|苔と水が織りなす風景|![](/ja-JP/2025/09/202509131500HohWaterfall.jpg)|
 202509141500|AgedDay2025|アメリカワシミミズク (© Scott Suriano/Getty Images)|今日は敬老の日|![](/ja-JP/2025/09/202509141500AgedDay2025.jpg)|
+202509151500|OzoneEarth|高度約 360km から撮影したガルフコースト (© Stocktrek Images/Getty Images)|今日は国際オゾン層保護デー|![](/ja-JP/2025/09/202509151500OzoneEarth.jpg)|
