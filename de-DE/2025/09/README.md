@@ -16,3 +16,4 @@
 202509122200|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, Kalifornien, USA (© Enrique Aguirre Aves/Getty Images)|Ungezähmte Landschaft|![](/de-DE/2025/09/202509122200PointReyesSeashore.jpg)|
 202509132200|GeraOrangerie|Orangerie Gera, Thüringen (© luchschenF/Shutterstock)|Zeugen der Vergangenheit|![](/de-DE/2025/09/202509132200GeraOrangerie.jpg)|
 202509142200|Echasse|Stelzenläufer, Frankreich (© Antonio Sementa/500px/Getty Images)|Anmutig und stimmfreudig|![](/de-DE/2025/09/202509142200Echasse.jpg)|
+202509152200|OzoneEarth|Nachtansicht der Golfküstenstaaten aus 362 Kilometern Höhe über der Erde (© Stocktrek Images/Getty Images)|Ein stratosphärischer Erfolg|![](/de-DE/2025/09/202509152200OzoneEarth.jpg)|

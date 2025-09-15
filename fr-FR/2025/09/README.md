@@ -16,3 +16,4 @@
 202509122200|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, Californie, États-Unis (© Enrique Aguirre Aves/Getty Images)|La vigie du Pacifique|![](/fr-FR/2025/09/202509122200PointReyesSeashore.jpg)|
 202509132200|HohWaterfall|Cascade dans le parc national Olympic, État de Washington, États-Unis (© Chris Moore/TANDEM Stills + Motion)|La cathédrale des mousses|![](/fr-FR/2025/09/202509132200HohWaterfall.jpg)|
 202509142200|Echasse|Échasses blanches, France (© Antonio Sementa/500px/Getty Images)|Bec à bec dans les salants|![](/fr-FR/2025/09/202509142200Echasse.jpg)|
+202509152200|OzoneEarth|Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)|La couche d’ozone, un succès environnemental|![](/fr-FR/2025/09/202509152200OzoneEarth.jpg)|
