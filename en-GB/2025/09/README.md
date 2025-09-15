@@ -16,3 +16,4 @@
 202509122300|PromsNight2025|Royal Albert Hall, South Kensington, London (© Gonzalo Azumendi/Stone/Getty Images)|Ending on a high note|![](/en-GB/2025/09/202509122300PromsNight2025.jpg)|
 202509132300|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-GB/2025/09/202509132300HohWaterfall.jpg)|
 202509142300|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-GB/2025/09/202509142300PointReyesSeashore.jpg)|
+202509152300|OzoneEarth|A nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)|A stratospheric success|![](/en-GB/2025/09/202509152300OzoneEarth.jpg)|
