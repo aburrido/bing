@@ -17,3 +17,4 @@
 202509131830|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-IN/2025/09/202509131830HohWaterfall.jpg)|
 202509141830|Echasse|Black-winged stilts, France (© Antonio Sementa/500px/Getty Images)|Wading for a sign|![](/en-IN/2025/09/202509141830Echasse.jpg)|
 202509151830|OzoneEarth|A nighttime view of the Gulf Coast states from 350 kilometres above Earth (© Stocktrek Images/Getty Images)|A stratospheric success|![](/en-IN/2025/09/202509151830OzoneEarth.jpg)|
+202509161830|YoungMoose|A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)|A crown in the making|![](/en-IN/2025/09/202509161830YoungMoose.jpg)|
