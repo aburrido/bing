@@ -16,3 +16,4 @@
 202509131500|HohWaterfall|オリンピック国立公園, 米国 ワシントン州 (© Chris Moore/TANDEM Stills + Motion)|苔と水が織りなす風景|![](/ja-JP/2025/09/202509131500HohWaterfall.jpg)|
 202509141500|AgedDay2025|アメリカワシミミズク (© Scott Suriano/Getty Images)|今日は敬老の日|![](/ja-JP/2025/09/202509141500AgedDay2025.jpg)|
 202509151500|OzoneEarth|高度約 360km から撮影したガルフコースト (© Stocktrek Images/Getty Images)|今日は国際オゾン層保護デー|![](/ja-JP/2025/09/202509151500OzoneEarth.jpg)|
+202509161500|YoungMoose|若いオスのヘラジカ, 米国 アラスカ州 (© Grant Ordelheide/TANDEM Stills + Motion)|若き角の輝き|![](/ja-JP/2025/09/202509161500YoungMoose.jpg)|
