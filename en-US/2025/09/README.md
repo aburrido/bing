@@ -17,3 +17,4 @@
 202509130700|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-US/2025/09/202509130700PointReyesSeashore.jpg)|
 202509140700|HohWaterfall|A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-US/2025/09/202509140700HohWaterfall.jpg)|
 202509150700|DallasLegorreta|Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)|Vibrancy in every brick|![](/en-US/2025/09/202509150700DallasLegorreta.jpg)|
+202509160700|OzoneEarth|Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)|A stratospheric success|![](/en-US/2025/09/202509160700OzoneEarth.jpg)|

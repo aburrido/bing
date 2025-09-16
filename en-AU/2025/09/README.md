@@ -16,3 +16,4 @@
 202509130700|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Info|![](/en-AU/2025/09/202509130700PointReyesSeashore.jpg)|
 202509140700|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Info|![](/en-AU/2025/09/202509140700HohWaterfall.jpg)|
 202509150700|Echasse|Black-winged stilts, France (© Antonio Sementa/500px/Getty Images)|Info|![](/en-AU/2025/09/202509150700Echasse.jpg)|
+202509160700|OzoneEarth|A nighttime view of the Gulf Coast states from 362 kilometres above Earth (© Stocktrek Images/Getty Images)|Info|![](/en-AU/2025/09/202509160700OzoneEarth.jpg)|
