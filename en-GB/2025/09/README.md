@@ -17,3 +17,4 @@
 202509132300|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-GB/2025/09/202509132300HohWaterfall.jpg)|
 202509142300|PointReyesSeashore|Chimney Rock, Point Reyes National Seashore, California, United States (© Enrique Aguirre Aves/Getty Images)|Rugged and wild|![](/en-GB/2025/09/202509142300PointReyesSeashore.jpg)|
 202509152300|OzoneEarth|A nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)|A stratospheric success|![](/en-GB/2025/09/202509152300OzoneEarth.jpg)|
+202509162300|YoungMoose|A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)|A crown in the making|![](/en-GB/2025/09/202509162300YoungMoose.jpg)|
