@@ -16,3 +16,4 @@
 202509140400|HohWaterfall|A waterfall in Olympic National Park, Washington, United States (© Chris Moore/TANDEM Stills + Motion)|Moss and mist|![](/en-CA/2025/09/202509140400HohWaterfall.jpg)|
 202509150400|BrentonHighlandsNP|Coastline at Cape Breton Highlands National Park, Nova Scotia (© Tiago_Fernandez/Getty Images)|Cape Brenton views|![](/en-CA/2025/09/202509150400BrentonHighlandsNP.jpg)|
 202509160400|OzoneEarth|A nighttime view of the Gulf Coast states from 362 kilometres above Earth (© Stocktrek Images/Getty Images)|A stratospheric success|![](/en-CA/2025/09/202509160400OzoneEarth.jpg)|
+202509170400|YoungMoose|A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)|A crown in the making|![](/en-CA/2025/09/202509170400YoungMoose.jpg)|
