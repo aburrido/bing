@@ -18,3 +18,4 @@
 202509142200|Echasse|Stelzenläufer, Frankreich (© Antonio Sementa/500px/Getty Images)|Anmutig und stimmfreudig|![](/de-DE/2025/09/202509142200Echasse.jpg)|
 202509152200|OzoneEarth|Nachtansicht der Golfküstenstaaten aus 362 Kilometern Höhe über der Erde (© Stocktrek Images/Getty Images)|Ein stratosphärischer Erfolg|![](/de-DE/2025/09/202509152200OzoneEarth.jpg)|
 202509162200|YoungMoose|Ein junger Elchbulle im Denali-Nationalpark, Alaska, USA (© Grant Ordelheide/TANDEM Stills + Motion)|Ein ehrfürchtiger Einzelgänger|![](/de-DE/2025/09/202509162200YoungMoose.jpg)|
+202509172200|DunquinIreland|Serpentinenartiger Pfad, Dunquin Pier, County Kerry, Irland (© Hugh O'Connor/Getty Images)|Der westlichste Punkt Irlands|![](/de-DE/2025/09/202509172200DunquinIreland.jpg)|
