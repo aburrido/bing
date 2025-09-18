@@ -19,3 +19,4 @@
 202509152200|OzoneEarth|Nachtansicht der Golfküstenstaaten aus 362 Kilometern Höhe über der Erde (© Stocktrek Images/Getty Images)|Ein stratosphärischer Erfolg|![](/de-DE/2025/09/202509152200OzoneEarth.jpg)|
 202509162200|YoungMoose|Ein junger Elchbulle im Denali-Nationalpark, Alaska, USA (© Grant Ordelheide/TANDEM Stills + Motion)|Ein ehrfürchtiger Einzelgänger|![](/de-DE/2025/09/202509162200YoungMoose.jpg)|
 202509172200|DunquinIreland|Serpentinenartiger Pfad, Dunquin Pier, County Kerry, Irland (© Hugh O'Connor/Getty Images)|Der westlichste Punkt Irlands|![](/de-DE/2025/09/202509172200DunquinIreland.jpg)|
+202509182200|ThousandIslands|Thousand Islands, Sankt-Lorenz-Strom, Grenze zwischen den USA und Kanada (© benedek/Getty Images)|Tausend Gründe, diesen Ort zu besuchen|![](/de-DE/2025/09/202509182200ThousandIslands.jpg)|

@@ -19,3 +19,4 @@
 202509152200|OzoneEarth|Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)|La couche d’ozone, un succès environnemental|![](/fr-FR/2025/09/202509152200OzoneEarth.jpg)|
 202509162200|YoungMoose|Jeune élan mâle, parc national de Denali, Alaska, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|Le souffle calme de la force|![](/fr-FR/2025/09/202509162200YoungMoose.jpg)|
 202509172200|DunquinIreland|Escalier sinueux de Dunquin Pier, comté de Kerry, Irlande (© Hugh O'Connor/Getty Images)|Un ruban de pierre vers la mer|![](/fr-FR/2025/09/202509172200DunquinIreland.jpg)|
+202509182200|BolDor|Vue aérienne du circuit Paul Ricard, Le Castellet (© Sami Sarkis/Getty Images)|Place à 24 heures de légende|![](/fr-FR/2025/09/202509182200BolDor.jpg)|
