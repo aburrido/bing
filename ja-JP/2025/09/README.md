@@ -18,3 +18,4 @@
 202509151500|OzoneEarth|高度約 360km から撮影したガルフコースト (© Stocktrek Images/Getty Images)|今日は国際オゾン層保護デー|![](/ja-JP/2025/09/202509151500OzoneEarth.jpg)|
 202509161500|YoungMoose|若いオスのヘラジカ, 米国 アラスカ州 (© Grant Ordelheide/TANDEM Stills + Motion)|若き角の輝き|![](/ja-JP/2025/09/202509161500YoungMoose.jpg)|
 202509171500|DunquinIreland|ダンキンの船着き場, アイルランド (© Hugh O'Connor/Getty Images)|崖沿いに続く美しい蛇行階段|![](/ja-JP/2025/09/202509171500DunquinIreland.jpg)|
+202509181500|ThousandIslands|サウザンド諸島 (© benedek/Getty Images)|川に浮かぶ 1,800 の島々|![](/ja-JP/2025/09/202509181500ThousandIslands.jpg)|
