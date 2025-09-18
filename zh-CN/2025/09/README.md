@@ -18,3 +18,4 @@
 202509151600|OzoneEarth|从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象 (© Stocktrek Images/Getty Images)|巨大的成功|![](/zh-CN/2025/09/202509151600OzoneEarth.jpg)|
 202509161600|YoungMoose|迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)|成长中的冠冕|![](/zh-CN/2025/09/202509161600YoungMoose.jpg)|
 202509171600|DunquinIreland|邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)|爱尔兰岛的西端|![](/zh-CN/2025/09/202509171600DunquinIreland.jpg)|
+202509181600|ThousandIslands|千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)|千般理由，邀您探索|![](/zh-CN/2025/09/202509181600ThousandIslands.jpg)|
