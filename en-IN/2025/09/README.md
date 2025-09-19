@@ -20,3 +20,4 @@
 202509161830|YoungMoose|A young bull moose in Denali National Park, Alaska, United States (© Grant Ordelheide/TANDEM Stills + Motion)|A crown in the making|![](/en-IN/2025/09/202509161830YoungMoose.jpg)|
 202509171830|DunquinIreland|Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)|Ireland's western edge|![](/en-IN/2025/09/202509171830DunquinIreland.jpg)|
 202509181830|ThousandIslands|Thousand Islands region, St. Lawrence River, USA-Canada border (© benedek/Getty Images)|A thousand reasons to visit|![](/en-IN/2025/09/202509181830ThousandIslands.jpg)|
+202509191830|OktoberfestSwing|Swing carousel at Oktoberfest, Munich, Bavaria, Germany (© LOOK-foto/Alamy)|A tale of brews and views|![](/en-IN/2025/09/202509191830OktoberfestSwing.jpg)|
