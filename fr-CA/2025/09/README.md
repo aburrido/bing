@@ -18,3 +18,4 @@
 202509160400|OzoneEarth|Vue nocturne des États américains bordant le golfe du Mexique, depuis 360 kilomètres au-dessus de la Terre (© Stocktrek Images/Getty Images)|La couche d’ozone, un succès environnemental|![](/fr-CA/2025/09/202509160400OzoneEarth.jpg)|
 202509170400|YoungMoose|Jeune élan mâle, parc national de Denali, Alaska, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|Le souffle calme de la force|![](/fr-CA/2025/09/202509170400YoungMoose.jpg)|
 202509180400|DunquinIreland|Escalier sinueux de Dunquin Pier, comté de Kerry, Irlande (© Hugh O'Connor/Getty Images)|Un ruban de pierre vers la mer|![](/fr-CA/2025/09/202509180400DunquinIreland.jpg)|
+202509190400|ThousandIslands|Région des Mille-Îles, Saint-Laurent, frontière canado-américaine (© benedek/Getty Images)|Le courant passe toujours au Saint-Laurent!|![](/fr-CA/2025/09/202509190400ThousandIslands.jpg)|
