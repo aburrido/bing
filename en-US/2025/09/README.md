@@ -20,3 +20,4 @@
 202509160700|OzoneEarth|Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)|A stratospheric success|![](/en-US/2025/09/202509160700OzoneEarth.jpg)|
 202509170700|YoungMoose|Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)|A crown in the making|![](/en-US/2025/09/202509170700YoungMoose.jpg)|
 202509180700|DunquinIreland|Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)|Ireland's western edge|![](/en-US/2025/09/202509180700DunquinIreland.jpg)|
+202509190700|ThousandIslands|Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)|A thousand reasons to visit|![](/en-US/2025/09/202509190700ThousandIslands.jpg)|
