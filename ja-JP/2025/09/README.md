@@ -20,3 +20,4 @@
 202509171500|DunquinIreland|ダンキンの船着き場, アイルランド (© Hugh O'Connor/Getty Images)|崖沿いに続く美しい蛇行階段|![](/ja-JP/2025/09/202509171500DunquinIreland.jpg)|
 202509181500|ThousandIslands|サウザンド諸島 (© benedek/Getty Images)|川に浮かぶ 1,800 の島々|![](/ja-JP/2025/09/202509181500ThousandIslands.jpg)|
 202509191500|OktoberfestSwing|テレーゼンヴィーゼの回転ブランコ, ドイツ (© LOOK-foto/Alamy)|今日はオクトーバーフェストの開幕日|![](/ja-JP/2025/09/202509191500OktoberfestSwing.jpg)|
+202509201500|IceOtters|プリンス・ウィリアム湾, 米国 アラスカ州 (© Gerald Corsi/Getty Images)|今週はラッコ啓蒙週間|![](/ja-JP/2025/09/202509201500IceOtters.jpg)|
