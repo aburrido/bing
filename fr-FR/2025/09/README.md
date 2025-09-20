@@ -21,3 +21,4 @@
 202509172200|DunquinIreland|Escalier sinueux de Dunquin Pier, comté de Kerry, Irlande (© Hugh O'Connor/Getty Images)|Un ruban de pierre vers la mer|![](/fr-FR/2025/09/202509172200DunquinIreland.jpg)|
 202509182200|BolDor|Vue aérienne du circuit Paul Ricard, Le Castellet (© Sami Sarkis/Getty Images)|Place à 24 heures de légende|![](/fr-FR/2025/09/202509182200BolDor.jpg)|
 202509192200|OktoberfestSwing|Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)|À vos pintes, prêts, trinquez !|![](/fr-FR/2025/09/202509192200OktoberfestSwing.jpg)|
+202509202200|EtretatBeach|L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)|Une cathédrale de pierre et de mer|![](/fr-FR/2025/09/202509202200EtretatBeach.jpg)|
