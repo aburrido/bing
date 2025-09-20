@@ -20,3 +20,4 @@
 202509171600|DunquinIreland|邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)|爱尔兰岛的西端|![](/zh-CN/2025/09/202509171600DunquinIreland.jpg)|
 202509181600|ThousandIslands|千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)|千般理由，邀您探索|![](/zh-CN/2025/09/202509181600ThousandIslands.jpg)|
 202509191600|OktoberfestSwing|慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国 (© LOOK-foto/Alamy)|关于啤酒和风景的故事|![](/zh-CN/2025/09/202509191600OktoberfestSwing.jpg)|
+202509201600|IceOtters|海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)|酷毙了|![](/zh-CN/2025/09/202509201600IceOtters.jpg)|
