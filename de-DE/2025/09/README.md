@@ -22,3 +22,4 @@
 202509182200|ThousandIslands|Thousand Islands, Sankt-Lorenz-Strom, Grenze zwischen den USA und Kanada (© benedek/Getty Images)|Tausend Gründe, diesen Ort zu besuchen|![](/de-DE/2025/09/202509182200ThousandIslands.jpg)|
 202509192200|OktoberfestHackerFestzelt|Hacker-Festzelt auf dem Oktoberfest, München, Bayern (© Westend61/Getty Images Plus)|O’zapft is!|![](/de-DE/2025/09/202509192200OktoberfestHackerFestzelt.jpg)|
 202509202200|IceOtters|Seeotter, Prinz-William-Sund, Alaska, USA (© Gerald Corsi/Getty Images)|Warmes Herz in eisigen Küsten|![](/de-DE/2025/09/202509202200IceOtters.jpg)|
+202509212200|AspenEquinox|Espenbäume im Herbst, Fishlake National Forest, Utah, USA (© Danita Delimont/Getty Images)|Zwischen Sommer und Winter|![](/de-DE/2025/09/202509212200AspenEquinox.jpg)|
