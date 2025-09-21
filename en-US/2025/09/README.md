@@ -22,3 +22,4 @@
 202509180700|DunquinIreland|Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)|Ireland's western edge|![](/en-US/2025/09/202509180700DunquinIreland.jpg)|
 202509190700|ThousandIslands|Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)|A thousand reasons to visit|![](/en-US/2025/09/202509190700ThousandIslands.jpg)|
 202509200700|OktoberfestSwing|Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)|A tale of brews and views|![](/en-US/2025/09/202509200700OktoberfestSwing.jpg)|
+202509210700|IceOtters|Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)|Otterly cool|![](/en-US/2025/09/202509210700IceOtters.jpg)|
