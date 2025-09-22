@@ -22,3 +22,4 @@
 202509190700|ThousandIslands|Thousand Islands region, St. Lawrence River, USA-Canada border (© benedek/Getty Images)|Info|![](/en-AU/2025/09/202509190700ThousandIslands.jpg)|
 202509200700|OktoberfestSwing|Swing carousel at Oktoberfest, Munich, Bavaria, Germany (© LOOK-foto/Alamy)|Info|![](/en-AU/2025/09/202509200700OktoberfestSwing.jpg)|
 202509210700|IceOtters|Sea otters, Prince William Sound, Alaska, United States (© Gerald Corsi/Getty Images)|Info|![](/en-AU/2025/09/202509210700IceOtters.jpg)|
+202509220700|AspenEquinox|Aspen trees during autumn, Fishlake National Forest, Utah, United States (© Danita Delimont/Getty Images)|Info|![](/en-AU/2025/09/202509220700AspenEquinox.jpg)|
