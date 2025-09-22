@@ -23,3 +23,4 @@
 202509192200|OktoberfestSwing|Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)|À vos pintes, prêts, trinquez !|![](/fr-FR/2025/09/202509192200OktoberfestSwing.jpg)|
 202509202200|EtretatBeach|L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)|Une cathédrale de pierre et de mer|![](/fr-FR/2025/09/202509202200EtretatBeach.jpg)|
 202509212200|AspenEquinox|Peupliers faux-trembles en automne, forêt nationale de Fishlake, Utah, États-Unis (© Danita Delimont/Getty Images)|Peupliers faux-trembles… mais pas de peur !|![](/fr-FR/2025/09/202509212200AspenEquinox.jpg)|
+202509222200|ToucanForest|Toucan à carène, Costa Rica (© Juan Carlos Vindas/Getty Images)|Quand le toucan va, tout va|![](/fr-FR/2025/09/202509222200ToucanForest.jpg)|
