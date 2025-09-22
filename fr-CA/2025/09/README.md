@@ -21,3 +21,4 @@
 202509190400|ThousandIslands|Région des Mille-Îles, Saint-Laurent, frontière canado-américaine (© benedek/Getty Images)|Le courant passe toujours au Saint-Laurent!|![](/fr-CA/2025/09/202509190400ThousandIslands.jpg)|
 202509200400|OktoberfestSwing|Carrousel à balançoires à l’Oktoberfest de Munich, Bavière, Allemagne (© LOOK-foto/Alamy)|À vos pintes, prêts, trinquez!|![](/fr-CA/2025/09/202509200400OktoberfestSwing.jpg)|
 202509210400|IceOtters|Loutres de mer, Baie du Prince-William, Alaska, États-Unis (© Gerald Corsi/Getty Images)|Loutrement adorable|![](/fr-CA/2025/09/202509210400IceOtters.jpg)|
+202509220400|AspenEquinox|Peupliers faux-trembles en automne, forêt nationale de Fishlake, Utah, États-Unis (© Danita Delimont/Getty Images)|Peupliers faux-trembles… mais pas de peur !|![](/fr-CA/2025/09/202509220400AspenEquinox.jpg)|
