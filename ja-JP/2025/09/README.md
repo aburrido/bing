@@ -23,3 +23,4 @@
 202509201500|IceOtters|プリンス・ウィリアム湾, 米国 アラスカ州 (© Gerald Corsi/Getty Images)|今週はラッコ啓蒙週間|![](/ja-JP/2025/09/202509201500IceOtters.jpg)|
 202509211500|ToucanForest|サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)|色とりどりのくちばしを持つオオハシ|![](/ja-JP/2025/09/202509211500ToucanForest.jpg)|
 202509221500|AutumnEquinox2025|秋の七草 ハギ (© kororokerokero/Getty Images)|今日は秋分の日|![](/ja-JP/2025/09/202509221500AutumnEquinox2025.jpg)|
+202509231500|BearLodge|デビルスタワー, 米国 ワイオミング州 (© Laura Hedien/Getty Images)|空を切り裂く稲妻と巨大な岩山|![](/ja-JP/2025/09/202509231500BearLodge.jpg)|
