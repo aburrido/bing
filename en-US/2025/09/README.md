@@ -24,3 +24,4 @@
 202509200700|OktoberfestSwing|Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)|A tale of brews and views|![](/en-US/2025/09/202509200700OktoberfestSwing.jpg)|
 202509210700|IceOtters|Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)|Otterly cool|![](/en-US/2025/09/202509210700IceOtters.jpg)|
 202509220700|AspenEquinox|Aspen trees during fall, Fishlake National Forest, Utah (© Danita Delimont/Getty Images)|Midway to winter|![](/en-US/2025/09/202509220700AspenEquinox.jpg)|
+202509230700|ToucanForest|Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)|Beak-side story|![](/en-US/2025/09/202509230700ToucanForest.jpg)|
