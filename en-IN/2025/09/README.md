@@ -24,3 +24,4 @@
 202509201830|IceOtters|Sea otters, Prince William Sound, Alaska, United States (© Gerald Corsi/Getty Images)|Otterly cool|![](/en-IN/2025/09/202509201830IceOtters.jpg)|
 202509211830|AspenEquinox|Aspen trees during autumn Fishlake National Forest, Utah, United States (© Danita Delimont/Getty Images)|Midway to winter|![](/en-IN/2025/09/202509211830AspenEquinox.jpg)|
 202509221830|ToucanForest|Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)|Beak-side story|![](/en-IN/2025/09/202509221830ToucanForest.jpg)|
+202509231830|BearLodge|Devils Tower National Monument, Wyoming, United States (© Laura Hedien/Getty Images)|The lonely giant|![](/en-IN/2025/09/202509231830BearLodge.jpg)|
