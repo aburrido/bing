@@ -23,3 +23,4 @@
 202509201600|IceOtters|海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)|酷毙了|![](/zh-CN/2025/09/202509201600IceOtters.jpg)|
 202509211600|AspenEquinox|秋日的白杨树，鱼湖国家森林，犹他州，美国 (© Danita Delimont/Getty Images)|到冬天的中途|![](/zh-CN/2025/09/202509211600AspenEquinox.jpg)|
 202509221600|AutumnalEquinoxY25|航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)|树树皆秋色|![](/zh-CN/2025/09/202509221600AutumnalEquinoxY25.jpg)|
+202509231600|BearLodge|魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)|孤独的巨人|![](/zh-CN/2025/09/202509231600BearLodge.jpg)|
