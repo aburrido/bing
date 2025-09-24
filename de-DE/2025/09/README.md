@@ -25,3 +25,4 @@
 202509212200|AspenEquinox|Espenbäume im Herbst, Fishlake National Forest, Utah, USA (© Danita Delimont/Getty Images)|Zwischen Sommer und Winter|![](/de-DE/2025/09/202509212200AspenEquinox.jpg)|
 202509222200|ToucanForest|Fischertukan in Costa Rica (© Juan Carlos Vindas/Getty Images)|Ein Dschungelstar|![](/de-DE/2025/09/202509222200ToucanForest.jpg)|
 202509232200|BearLodge|Devils Tower National Monument, Wyoming, USA (© Laura Hedien/Getty Images)|Der einsame Riese|![](/de-DE/2025/09/202509232200BearLodge.jpg)|
+202509242200|FortChittorgarh|Chittorgarh Fort, Rajasthan, Indien (© chetansoni/Shutterstock)|Gedenksteine des Mutes|![](/de-DE/2025/09/202509242200FortChittorgarh.jpg)|
