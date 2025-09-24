@@ -25,3 +25,4 @@
 202509212300|AspenEquinox|Aspen trees during autumn, Fishlake National Forest, Utah, United States (© Danita Delimont/Getty Images)|Midway to winter|![](/en-GB/2025/09/202509212300AspenEquinox.jpg)|
 202509222300|ToucanForest|Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)|Beak-side story|![](/en-GB/2025/09/202509222300ToucanForest.jpg)|
 202509232300|BearLodge|Devils Tower National Monument, Wyoming, United States (© Laura Hedien/Getty Images)|The lonely giant|![](/en-GB/2025/09/202509232300BearLodge.jpg)|
+202509242300|FortChittorgarh|Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)|Carved stones of courage|![](/en-GB/2025/09/202509242300FortChittorgarh.jpg)|
