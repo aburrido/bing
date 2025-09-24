@@ -24,3 +24,4 @@
 202509211600|AspenEquinox|秋日的白杨树，鱼湖国家森林，犹他州，美国 (© Danita Delimont/Getty Images)|到冬天的中途|![](/zh-CN/2025/09/202509211600AspenEquinox.jpg)|
 202509221600|AutumnalEquinoxY25|航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)|树树皆秋色|![](/zh-CN/2025/09/202509221600AutumnalEquinoxY25.jpg)|
 202509231600|BearLodge|魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)|孤独的巨人|![](/zh-CN/2025/09/202509231600BearLodge.jpg)|
+202509241600|FortChittorgarh|奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)|忠勇的雕刻石|![](/zh-CN/2025/09/202509241600FortChittorgarh.jpg)|
