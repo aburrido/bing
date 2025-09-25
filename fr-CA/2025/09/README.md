@@ -24,3 +24,4 @@
 202509220400|AspenEquinox|Peupliers faux-trembles en automne, forêt nationale de Fishlake, Utah, États-Unis (© Danita Delimont/Getty Images)|Peupliers faux-trembles… mais pas de peur !|![](/fr-CA/2025/09/202509220400AspenEquinox.jpg)|
 202509230400|ToucanForest|Toucan à carène, Costa Rica (© Juan Carlos Vindas/Getty Images)|Quand le toucan va, tout va|![](/fr-CA/2025/09/202509230400ToucanForest.jpg)|
 202509240400|BearLodge|Monument national de la tour du Diable, Wyoming, États-Unis (© Laura Hedien/Getty Images)|Quelle est cette tour mystérieuse?|![](/fr-CA/2025/09/202509240400BearLodge.jpg)|
+202509250400|FortChittorgarh|Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)|La raison du plus fort est Chittorgarh!|![](/fr-CA/2025/09/202509250400FortChittorgarh.jpg)|
