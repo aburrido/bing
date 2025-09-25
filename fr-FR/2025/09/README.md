@@ -26,3 +26,4 @@
 202509222200|ToucanForest|Toucan à carène, Costa Rica (© Juan Carlos Vindas/Getty Images)|Quand le toucan va, tout va|![](/fr-FR/2025/09/202509222200ToucanForest.jpg)|
 202509232200|BearLodge|Monument national de la tour du Diable, Wyoming, États-Unis (© Laura Hedien/Getty Images)|Le diable est dans les détails… géologiques !|![](/fr-FR/2025/09/202509232200BearLodge.jpg)|
 202509242200|FortChittorgarh|Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)|La raison du plus fort est Chittorgarh !|![](/fr-FR/2025/09/202509242200FortChittorgarh.jpg)|
+202509252200|AutumnChipmunk|Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)|Espèce de rongeur…. toi-même !|![](/fr-FR/2025/09/202509252200AutumnChipmunk.jpg)|
