@@ -25,3 +25,4 @@
 202509221600|AutumnalEquinoxY25|航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)|树树皆秋色|![](/zh-CN/2025/09/202509221600AutumnalEquinoxY25.jpg)|
 202509231600|BearLodge|魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)|孤独的巨人|![](/zh-CN/2025/09/202509231600BearLodge.jpg)|
 202509241600|FortChittorgarh|奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)|忠勇的雕刻石|![](/zh-CN/2025/09/202509241600FortChittorgarh.jpg)|
+202509251600|AutumnChipmunk|最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)|速度与毛茸茸|![](/zh-CN/2025/09/202509251600AutumnChipmunk.jpg)|
