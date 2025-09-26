@@ -27,3 +27,4 @@
 202509231830|BearLodge|Devils Tower National Monument, Wyoming, United States (© Laura Hedien/Getty Images)|The lonely giant|![](/en-IN/2025/09/202509231830BearLodge.jpg)|
 202509241830|FortChittorgarh|Chittorgarh Fort, Rajasthan (© chetansoni/Shutterstock)|Carved stones of courage|![](/en-IN/2025/09/202509241830FortChittorgarh.jpg)|
 202509251830|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)|The fast and the furriest|![](/en-IN/2025/09/202509251830AutumnChipmunk.jpg)|
+202509261830|TankLakes|Tank Lakes, Alpine Lakes Wilderness, Washington, United States (© Austin Trigg/TANDEM Stills + Motion)|Weeding and wishing|![](/en-IN/2025/09/202509261830TankLakes.jpg)|
