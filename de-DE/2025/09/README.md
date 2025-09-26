@@ -27,3 +27,4 @@
 202509232200|BearLodge|Devils Tower National Monument, Wyoming, USA (© Laura Hedien/Getty Images)|Der einsame Riese|![](/de-DE/2025/09/202509232200BearLodge.jpg)|
 202509242200|FortChittorgarh|Chittorgarh Fort, Rajasthan, Indien (© chetansoni/Shutterstock)|Gedenksteine des Mutes|![](/de-DE/2025/09/202509242200FortChittorgarh.jpg)|
 202509252200|AutumnChipmunk|Kleines Streifenhörnchen, Kootenai National Forest, Montana, USA (© Donald M. Jones/Minden Pictures)|Klein, aber flink!|![](/de-DE/2025/09/202509252200AutumnChipmunk.jpg)|
+202509262200|BerlinAutumn|Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)|Mystische Atmosphäre|![](/de-DE/2025/09/202509262200BerlinAutumn.jpg)|

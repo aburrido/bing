@@ -27,3 +27,4 @@
 202509232200|BearLodge|Monument national de la tour du Diable, Wyoming, États-Unis (© Laura Hedien/Getty Images)|Le diable est dans les détails… géologiques !|![](/fr-FR/2025/09/202509232200BearLodge.jpg)|
 202509242200|FortChittorgarh|Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)|La raison du plus fort est Chittorgarh !|![](/fr-FR/2025/09/202509242200FortChittorgarh.jpg)|
 202509252200|AutumnChipmunk|Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)|Espèce de rongeur…. toi-même !|![](/fr-FR/2025/09/202509252200AutumnChipmunk.jpg)|
+202509262200|TankLakes|Lacs Tank, Alpine Lakes Wilderness, chaîne des Cascades, Washington, États-Unis (© Austin Trigg/TANDEM Stills + Motion)|Faites un vœu !|![](/fr-FR/2025/09/202509262200TankLakes.jpg)|
