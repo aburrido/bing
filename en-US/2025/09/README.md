@@ -27,3 +27,4 @@
 202509230700|ToucanForest|Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)|Beak-side story|![](/en-US/2025/09/202509230700ToucanForest.jpg)|
 202509240700|BearLodge|Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)|The lonely giant|![](/en-US/2025/09/202509240700BearLodge.jpg)|
 202509250700|FortChittorgarh|Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)|Carved stones of courage|![](/en-US/2025/09/202509250700FortChittorgarh.jpg)|
+202509260700|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)|The fast and the furriest|![](/en-US/2025/09/202509260700AutumnChipmunk.jpg)|
