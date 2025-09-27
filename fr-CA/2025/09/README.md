@@ -26,3 +26,4 @@
 202509240400|BearLodge|Monument national de la tour du Diable, Wyoming, États-Unis (© Laura Hedien/Getty Images)|Quelle est cette tour mystérieuse?|![](/fr-CA/2025/09/202509240400BearLodge.jpg)|
 202509250400|FortChittorgarh|Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)|La raison du plus fort est Chittorgarh!|![](/fr-CA/2025/09/202509250400FortChittorgarh.jpg)|
 202509260400|AutumnChipmunk|Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)|Espèce de rongeur…. toi-même !|![](/fr-CA/2025/09/202509260400AutumnChipmunk.jpg)|
+202509270400|RedMapleleaf|Érable rouge en automne, Canada (© LiuSol/Getty Images)|La plus belle saison|![](/fr-CA/2025/09/202509270400RedMapleleaf.jpg)|
