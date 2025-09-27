@@ -28,3 +28,4 @@
 202509242200|FortChittorgarh|Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)|La raison du plus fort est Chittorgarh !|![](/fr-FR/2025/09/202509242200FortChittorgarh.jpg)|
 202509252200|AutumnChipmunk|Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)|Espèce de rongeur…. toi-même !|![](/fr-FR/2025/09/202509252200AutumnChipmunk.jpg)|
 202509262200|TankLakes|Lacs Tank, Alpine Lakes Wilderness, chaîne des Cascades, Washington, États-Unis (© Austin Trigg/TANDEM Stills + Motion)|Faites un vœu !|![](/fr-FR/2025/09/202509262200TankLakes.jpg)|
+202509272200|PienzaItaly|Ville de Pienza, Toscane, Italie (© zpagistock/Getty Images)|Pienza et son pecorino, c’est fort de fromage !|![](/fr-FR/2025/09/202509272200PienzaItaly.jpg)|
