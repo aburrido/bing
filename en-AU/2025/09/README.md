@@ -27,3 +27,4 @@
 202509240700|BearLodge|Devils Tower National Monument, Wyoming, United States (© Laura Hedien/Getty Images)|Info|![](/en-AU/2025/09/202509240700BearLodge.jpg)|
 202509250700|FortChittorgarh|Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)|Info|![](/en-AU/2025/09/202509250700FortChittorgarh.jpg)|
 202509260700|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)|Info|![](/en-AU/2025/09/202509260700AutumnChipmunk.jpg)|
+202509270700|TankLakes|Tank Lakes, Alpine Lakes Wilderness, Washington, United States (© Austin Trigg/TANDEM Stills + Motion)|Info|![](/en-AU/2025/09/202509270700TankLakes.jpg)|

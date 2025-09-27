@@ -28,3 +28,4 @@
 202509240700|BearLodge|Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)|The lonely giant|![](/en-US/2025/09/202509240700BearLodge.jpg)|
 202509250700|FortChittorgarh|Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)|Carved stones of courage|![](/en-US/2025/09/202509250700FortChittorgarh.jpg)|
 202509260700|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)|The fast and the furriest|![](/en-US/2025/09/202509260700AutumnChipmunk.jpg)|
+202509270700|TankLakes|Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)|Weeding and wishing|![](/en-US/2025/09/202509270700TankLakes.jpg)|
