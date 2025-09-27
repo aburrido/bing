@@ -27,3 +27,4 @@
 202509241500|FortChittorgarh|チットールガル城, インド (© chetansoni/Shutterstock)|勇者たちの誇りを刻むお城|![](/ja-JP/2025/09/202509241500FortChittorgarh.jpg)|
 202509251500|AutumnChipmunk|チビシマリス, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)|頬を膨らませる姿|![](/ja-JP/2025/09/202509251500AutumnChipmunk.jpg)|
 202509261500|TankLakes|タンク・レイクス, 米国 ワシントン州 (© Austin Trigg/TANDEM Stills + Motion)|星降る夜の水鏡|![](/ja-JP/2025/09/202509261500TankLakes.jpg)|
+202509271500|PienzaItaly|ピエンツァ, イタリア (© zpagistock/Getty Images)|トスカーナの小さな町|![](/ja-JP/2025/09/202509271500PienzaItaly.jpg)|
