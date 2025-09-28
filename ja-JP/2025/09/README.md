@@ -28,3 +28,4 @@
 202509251500|AutumnChipmunk|チビシマリス, 米国 モンタナ州 (© Donald M. Jones/Minden Pictures)|頬を膨らませる姿|![](/ja-JP/2025/09/202509251500AutumnChipmunk.jpg)|
 202509261500|TankLakes|タンク・レイクス, 米国 ワシントン州 (© Austin Trigg/TANDEM Stills + Motion)|星降る夜の水鏡|![](/ja-JP/2025/09/202509261500TankLakes.jpg)|
 202509271500|PienzaItaly|ピエンツァ, イタリア (© zpagistock/Getty Images)|トスカーナの小さな町|![](/ja-JP/2025/09/202509271500PienzaItaly.jpg)|
+202509281500|ManekiNeko|豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)|今日は招き猫の日|![](/ja-JP/2025/09/202509281500ManekiNeko.jpg)|
