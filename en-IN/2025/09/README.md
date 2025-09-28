@@ -29,3 +29,4 @@
 202509251830|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)|The fast and the furriest|![](/en-IN/2025/09/202509251830AutumnChipmunk.jpg)|
 202509261830|TankLakes|Tank Lakes, Alpine Lakes Wilderness, Washington, United States (© Austin Trigg/TANDEM Stills + Motion)|Weeding and wishing|![](/en-IN/2025/09/202509261830TankLakes.jpg)|
 202509271830|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-IN/2025/09/202509271830PienzaItaly.jpg)|
+202509281830|HoutenHouses|Rainbow houses in the town of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-IN/2025/09/202509281830HoutenHouses.jpg)|
