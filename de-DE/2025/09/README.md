@@ -29,3 +29,4 @@
 202509252200|AutumnChipmunk|Kleines Streifenhörnchen, Kootenai National Forest, Montana, USA (© Donald M. Jones/Minden Pictures)|Klein, aber flink!|![](/de-DE/2025/09/202509252200AutumnChipmunk.jpg)|
 202509262200|BerlinAutumn|Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)|Mystische Atmosphäre|![](/de-DE/2025/09/202509262200BerlinAutumn.jpg)|
 202509272200|PienzaItaly|Die Stadt Pienza in der Toskana, Italien (© zpagistock/Getty Images)|Ein Juwel der Toskana|![](/de-DE/2025/09/202509272200PienzaItaly.jpg)|
+202509282200|HoutenHouses|Regenbogenhäuser in der Stadt Houten, Niederlande (© George Pachantouris/Getty Images)|Farben am Wasser|![](/de-DE/2025/09/202509282200HoutenHouses.jpg)|
