@@ -27,3 +27,4 @@
 202509250400|FortChittorgarh|Fort de Chittorgarh, Rajasthan, Inde (© chetansoni/Shutterstock)|La raison du plus fort est Chittorgarh!|![](/fr-CA/2025/09/202509250400FortChittorgarh.jpg)|
 202509260400|AutumnChipmunk|Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)|Espèce de rongeur…. toi-même !|![](/fr-CA/2025/09/202509260400AutumnChipmunk.jpg)|
 202509270400|RedMapleleaf|Érable rouge en automne, Canada (© LiuSol/Getty Images)|La plus belle saison|![](/fr-CA/2025/09/202509270400RedMapleleaf.jpg)|
+202509280400|PienzaItaly|Ville de Pienza, Toscane, Italie (© zpagistock/Getty Images)|Pienza et son pecorino, c’est fort de fromage!|![](/fr-CA/2025/09/202509280400PienzaItaly.jpg)|

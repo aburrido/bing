@@ -27,3 +27,4 @@
 202509250400|FortChittorgarh|Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)|Carved stones of courage|![](/en-CA/2025/09/202509250400FortChittorgarh.jpg)|
 202509260400|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)|The fast and the furriest|![](/en-CA/2025/09/202509260400AutumnChipmunk.jpg)|
 202509270400|RedMapleleaf|Red maple in fall, Canada (© LiuSol/Getty Images)|Nature's red couture|![](/en-CA/2025/09/202509270400RedMapleleaf.jpg)|
+202509280400|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-CA/2025/09/202509280400PienzaItaly.jpg)|
