@@ -28,3 +28,4 @@
 202509250700|FortChittorgarh|Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)|Info|![](/en-AU/2025/09/202509250700FortChittorgarh.jpg)|
 202509260700|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)|Info|![](/en-AU/2025/09/202509260700AutumnChipmunk.jpg)|
 202509270700|TankLakes|Tank Lakes, Alpine Lakes Wilderness, Washington, United States (© Austin Trigg/TANDEM Stills + Motion)|Info|![](/en-AU/2025/09/202509270700TankLakes.jpg)|
+202509280700|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|Info|![](/en-AU/2025/09/202509280700PienzaItaly.jpg)|
