@@ -30,3 +30,4 @@
 202509271600|PienzaItaly|托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)|品味皮恩扎|![](/zh-CN/2025/09/202509271600PienzaItaly.jpg)|
 202509281600|HoutenHouses|豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)|彩虹骑行与宁静氛围|![](/zh-CN/2025/09/202509281600HoutenHouses.jpg)|
 ||||![](/zh-CN/2025/09/.jpg)|
+202509291600|EucalyptusKoala|桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)|坚持重要的事情|![](/zh-CN/2025/09/202509291600EucalyptusKoala.jpg)|
