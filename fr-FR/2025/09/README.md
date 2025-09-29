@@ -30,3 +30,4 @@
 202509262200|TankLakes|Lacs Tank, Alpine Lakes Wilderness, chaîne des Cascades, Washington, États-Unis (© Austin Trigg/TANDEM Stills + Motion)|Faites un vœu !|![](/fr-FR/2025/09/202509262200TankLakes.jpg)|
 202509272200|PienzaItaly|Ville de Pienza, Toscane, Italie (© zpagistock/Getty Images)|Pienza et son pecorino, c’est fort de fromage !|![](/fr-FR/2025/09/202509272200PienzaItaly.jpg)|
 202509282200|HoutenHouses|Maisons arc-en-ciel dans la ville de Houten, Pays-Bas (© George Pachantouris/Getty Images)|Au pied des maisons arc-en-ciel, un trésor|![](/fr-FR/2025/09/202509282200HoutenHouses.jpg)|
+202509292200|EucalyptusKoala|Koala dans un eucalyptus, parc national de Great Otway, Australie (© Jamie Lamb - elusive-images.co.uk/Getty Images)|L’art du Koa-laisser-aller|![](/fr-FR/2025/09/202509292200EucalyptusKoala.jpg)|

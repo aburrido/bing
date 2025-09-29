@@ -30,3 +30,4 @@
 202509262200|BerlinAutumn|Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)|Mystische Atmosphäre|![](/de-DE/2025/09/202509262200BerlinAutumn.jpg)|
 202509272200|PienzaItaly|Die Stadt Pienza in der Toskana, Italien (© zpagistock/Getty Images)|Ein Juwel der Toskana|![](/de-DE/2025/09/202509272200PienzaItaly.jpg)|
 202509282200|HoutenHouses|Regenbogenhäuser in der Stadt Houten, Niederlande (© George Pachantouris/Getty Images)|Farben am Wasser|![](/de-DE/2025/09/202509282200HoutenHouses.jpg)|
+202509292200|EucalyptusKoala|Koala in einem Eukalyptusbaum, Great-Otway-Nationalpark, Australien (© Jamie Lamb - elusive-images.co.uk/Getty Images)|Fest im Griff, weich im Blick|![](/de-DE/2025/09/202509292200EucalyptusKoala.jpg)|
