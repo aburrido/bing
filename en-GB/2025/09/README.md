@@ -30,3 +30,4 @@
 202509262300|YosemiteClark|Clark Range, Sierra Nevada, Yosemite National Park, California, United States (© Robb Hirsch/TANDEM Stills + Motion)|Echoes from the Clark Range|![](/en-GB/2025/09/202509262300YosemiteClark.jpg)|
 202509272300|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-GB/2025/09/202509272300PienzaItaly.jpg)|
 202509282300|HoutenHouses|Rainbow houses in the town of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-GB/2025/09/202509282300HoutenHouses.jpg)|
+202509292300|EucalyptusKoala|Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)|Clinging to what matters|![](/en-GB/2025/09/202509292300EucalyptusKoala.jpg)|
