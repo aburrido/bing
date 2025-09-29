@@ -29,3 +29,4 @@
 202509261500|TankLakes|タンク・レイクス, 米国 ワシントン州 (© Austin Trigg/TANDEM Stills + Motion)|星降る夜の水鏡|![](/ja-JP/2025/09/202509261500TankLakes.jpg)|
 202509271500|PienzaItaly|ピエンツァ, イタリア (© zpagistock/Getty Images)|トスカーナの小さな町|![](/ja-JP/2025/09/202509271500PienzaItaly.jpg)|
 202509281500|ManekiNeko|豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)|今日は招き猫の日|![](/ja-JP/2025/09/202509281500ManekiNeko.jpg)|
+202509291500|EucalyptusKoala|コアラ, オーストラリア (© Jamie Lamb - elusive-images.co.uk/Getty Images)|丸い体とふわふわの耳をもつ動物|![](/ja-JP/2025/09/202509291500EucalyptusKoala.jpg)|
