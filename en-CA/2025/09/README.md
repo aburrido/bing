@@ -28,3 +28,4 @@
 202509260400|AutumnChipmunk|Least chipmunk, Kootenai National Forest, Montana, United States (© Donald M. Jones/Minden Pictures)|The fast and the furriest|![](/en-CA/2025/09/202509260400AutumnChipmunk.jpg)|
 202509270400|RedMapleleaf|Red maple in fall, Canada (© LiuSol/Getty Images)|Nature's red couture|![](/en-CA/2025/09/202509270400RedMapleleaf.jpg)|
 202509280400|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-CA/2025/09/202509280400PienzaItaly.jpg)|
+202509290400|HoutenHouses|Rainbow houses in the town of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-CA/2025/09/202509290400HoutenHouses.jpg)|

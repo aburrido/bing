@@ -28,3 +28,4 @@
 202509260400|AutumnChipmunk|Tamia mineur, forêt nationale de Kootenai, Montana, États-Unis (© Donald M. Jones/Minden Pictures)|Espèce de rongeur…. toi-même !|![](/fr-CA/2025/09/202509260400AutumnChipmunk.jpg)|
 202509270400|RedMapleleaf|Érable rouge en automne, Canada (© LiuSol/Getty Images)|La plus belle saison|![](/fr-CA/2025/09/202509270400RedMapleleaf.jpg)|
 202509280400|PienzaItaly|Ville de Pienza, Toscane, Italie (© zpagistock/Getty Images)|Pienza et son pecorino, c’est fort de fromage!|![](/fr-CA/2025/09/202509280400PienzaItaly.jpg)|
+202509290400|HoutenHouses|Maisons arc-en-ciel dans la ville de Houten, Pays-Bas (© George Pachantouris/Getty Images)|Au pied des maisons arc-en-ciel, un trésor|![](/fr-CA/2025/09/202509290400HoutenHouses.jpg)|
