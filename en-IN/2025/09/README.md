@@ -31,3 +31,4 @@
 202509271830|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-IN/2025/09/202509271830PienzaItaly.jpg)|
 202509281830|HoutenHouses|Rainbow houses in the town of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-IN/2025/09/202509281830HoutenHouses.jpg)|
 202509291830|EucalyptusKoala|Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)|Clinging to what matters|![](/en-IN/2025/09/202509291830EucalyptusKoala.jpg)|
+202509301830|GoddessDurga2025|Goddess Durga idol at a puja pandal in Kolkata, West Bengal (© Arnav Pratap Singh/Getty Images)|Gracefully divine|![](/en-IN/2025/09/202509301830GoddessDurga2025.jpg)|
