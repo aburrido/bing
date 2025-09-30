@@ -30,3 +30,4 @@
 202509271500|PienzaItaly|ピエンツァ, イタリア (© zpagistock/Getty Images)|トスカーナの小さな町|![](/ja-JP/2025/09/202509271500PienzaItaly.jpg)|
 202509281500|ManekiNeko|豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)|今日は招き猫の日|![](/ja-JP/2025/09/202509281500ManekiNeko.jpg)|
 202509291500|EucalyptusKoala|コアラ, オーストラリア (© Jamie Lamb - elusive-images.co.uk/Getty Images)|丸い体とふわふわの耳をもつ動物|![](/ja-JP/2025/09/202509291500EucalyptusKoala.jpg)|
+202509301500|YosemiteClark|クラーク山脈, 米国 カリフォルニア州 (© Robb Hirsch/TANDEM Stills + Motion)|氷河によって削られた険しい山脈|![](/ja-JP/2025/09/202509301500YosemiteClark.jpg)|
