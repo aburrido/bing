@@ -29,3 +29,4 @@
 202509270400|RedMapleleaf|Red maple in fall, Canada (© LiuSol/Getty Images)|Nature's red couture|![](/en-CA/2025/09/202509270400RedMapleleaf.jpg)|
 202509280400|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-CA/2025/09/202509280400PienzaItaly.jpg)|
 202509290400|HoutenHouses|Rainbow houses in the town of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-CA/2025/09/202509290400HoutenHouses.jpg)|
+202509300400|EucalyptusKoala|Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)|Clinging to what matters|![](/en-CA/2025/09/202509300400EucalyptusKoala.jpg)|
