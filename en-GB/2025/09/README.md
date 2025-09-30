@@ -31,3 +31,4 @@
 202509272300|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-GB/2025/09/202509272300PienzaItaly.jpg)|
 202509282300|HoutenHouses|Rainbow houses in the town of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-GB/2025/09/202509282300HoutenHouses.jpg)|
 202509292300|EucalyptusKoala|Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)|Clinging to what matters|![](/en-GB/2025/09/202509292300EucalyptusKoala.jpg)|
+202509302300|BlackMonthUK2025|Silhouette of former South African President Nelson Mandela, 26 Leake Street, London, 2019 (© Leon Neal/Getty Images)|History in focus|![](/en-GB/2025/09/202509302300BlackMonthUK2025.jpg)|
