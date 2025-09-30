@@ -31,3 +31,4 @@
 202509270700|TankLakes|Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)|Weeding and wishing|![](/en-US/2025/09/202509270700TankLakes.jpg)|
 202509280700|PienzaItaly|Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)|A taste of Pienza|![](/en-US/2025/09/202509280700PienzaItaly.jpg)|
 202509290700|HoutenHouses|The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)|Rainbow rides and quiet vibes|![](/en-US/2025/09/202509290700HoutenHouses.jpg)|
+202509300700|EucalyptusKoala|Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)|Clinging to what matters|![](/en-US/2025/09/202509300700EucalyptusKoala.jpg)|
