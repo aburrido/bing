@@ -31,3 +31,4 @@
 202509281600|HoutenHouses|豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)|彩虹骑行与宁静氛围|![](/zh-CN/2025/09/202509281600HoutenHouses.jpg)|
 ||||![](/zh-CN/2025/09/.jpg)|
 202509291600|EucalyptusKoala|桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)|坚持重要的事情|![](/zh-CN/2025/09/202509291600EucalyptusKoala.jpg)|
+202509301600|YosemiteClark|克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国 (© Robb Hirsch/TANDEM Stills + Motion)|克拉克山脉的回声|![](/zh-CN/2025/09/202509301600YosemiteClark.jpg)|
