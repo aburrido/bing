@@ -4,3 +4,4 @@
 202510011500|OxbowBend|オックスボウ・ベンド, 米国 ワイオミング州 (© DanitaDelimont.com/AWL Images/SuperStock)|スネーク川と山々の絶景スポット|![](/ja-JP/2025/10/202510011500OxbowBend.jpg)|
 202510021500|SkyeHeather|グレン・ブリトル, スコットランド (© Adam Mowery/TANDEM Stills + Motion)|紫の花咲く大地|![](/ja-JP/2025/10/202510021500SkyeHeather.jpg)|
 202510031500|DragonEndeavour|エンデバーから見た ISS のソーラーパネル (© NASA)|今日から世界宇宙週間|![](/ja-JP/2025/10/202510031500DragonEndeavour.jpg)|
+202510041500|TeacherOwl|森に佇むキンメフクロウ (© Ondrej Prosicky/Alamy)|今日は世界教師デー|![](/ja-JP/2025/10/202510041500TeacherOwl.jpg)|
