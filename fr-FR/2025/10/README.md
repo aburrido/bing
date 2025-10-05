@@ -5,3 +5,4 @@
 202510022200|SkyeHeather|Bruyère à Glen Brittle, île de Skye, Écosse (© Adam Mowery/TANDEM Stills + Motion)|L’Écosse et ses landes mystérieuses…|![](/fr-FR/2025/10/202510022200SkyeHeather.jpg)|
 202510032200|CamagueHorses|Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)|Chevaux de Camargue, Aigues-Mortes, Occitanie|![](/fr-FR/2025/10/202510032200CamagueHorses.jpg)|
 202510042200|TeacherOwl|Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)|Un hommage aux alchimistes du savoir|![](/fr-FR/2025/10/202510042200TeacherOwl.jpg)|
+202510052200|AnshunBridge|Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Un pont vers la lune|![](/fr-FR/2025/10/202510052200AnshunBridge.jpg)|
