@@ -6,3 +6,4 @@
 202510031600|DragonEndeavour|从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列 (© NASA)|使命必达|![](/zh-CN/2025/10/202510031600DragonEndeavour.jpg)|
 202510041600|TeacherOwl|中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)|庆祝智慧！|![](/zh-CN/2025/10/202510041600TeacherOwl.jpg)|
 202510051600|AnshunBridge|安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)|千里共婵娟|![](/zh-CN/2025/10/202510051600AnshunBridge.jpg)|
+202510061600|RidgwayAspens|里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)|金色的秋日余晖|![](/zh-CN/2025/10/202510061600RidgwayAspens.jpg)|
