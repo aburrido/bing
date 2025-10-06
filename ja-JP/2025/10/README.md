@@ -6,3 +6,4 @@
 202510031500|DragonEndeavour|エンデバーから見た ISS のソーラーパネル (© NASA)|今日から世界宇宙週間|![](/ja-JP/2025/10/202510031500DragonEndeavour.jpg)|
 202510041500|TeacherOwl|森に佇むキンメフクロウ (© Ondrej Prosicky/Alamy)|今日は世界教師デー|![](/ja-JP/2025/10/202510041500TeacherOwl.jpg)|
 202510051500|AnshunBridge|錦江に映える安順橋と満月, 中国 (© Philippe LEJEANVRE/Getty Images)|今日は中秋の名月|![](/ja-JP/2025/10/202510051500AnshunBridge.jpg)|
+202510061500|RidgwayAspens|スネフェルス山, 米国 コロラド州 (© Grant Ordelheide/TANDEM Stills + Motion)|黄金に染まる山|![](/ja-JP/2025/10/202510061500RidgwayAspens.jpg)|
