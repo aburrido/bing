@@ -5,3 +5,4 @@
 202510030400|SkyeHeather|Bruyère à Glen Brittle, île de Skye, Écosse (© Adam Mowery/TANDEM Stills + Motion)|L’Écosse et ses landes mystérieuses…|![](/fr-CA/2025/10/202510030400SkyeHeather.jpg)|
 202510040400|InsideOutNB|« Inside Out » par JR, place Nathan Phillips, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)|La seule nuit où l’insomnie est un art|![](/fr-CA/2025/10/202510040400InsideOutNB.jpg)|
 202510050400|TeacherOwl|Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)|Un hommage aux alchimistes du savoir|![](/fr-CA/2025/10/202510050400TeacherOwl.jpg)|
+202510060400|AnshunBridge|Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Un pont vers la lune|![](/fr-CA/2025/10/202510060400AnshunBridge.jpg)|
