@@ -6,3 +6,4 @@
 202510032200|CamagueHorses|Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)|Chevaux de Camargue, Aigues-Mortes, Occitanie|![](/fr-FR/2025/10/202510032200CamagueHorses.jpg)|
 202510042200|TeacherOwl|Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)|Un hommage aux alchimistes du savoir|![](/fr-FR/2025/10/202510042200TeacherOwl.jpg)|
 202510052200|AnshunBridge|Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Un pont vers la lune|![](/fr-FR/2025/10/202510052200AnshunBridge.jpg)|
+202510062200|CapAntibes|Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)|L’arrière-saison en majesté|![](/fr-FR/2025/10/202510062200CapAntibes.jpg)|
