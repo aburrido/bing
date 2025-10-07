@@ -7,3 +7,4 @@
 202510042200|TeacherOwl|Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)|Un hommage aux alchimistes du savoir|![](/fr-FR/2025/10/202510042200TeacherOwl.jpg)|
 202510052200|AnshunBridge|Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Un pont vers la lune|![](/fr-FR/2025/10/202510052200AnshunBridge.jpg)|
 202510062200|CapAntibes|Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)|L’arrière-saison en majesté|![](/fr-FR/2025/10/202510062200CapAntibes.jpg)|
+202510072200|OctopusCyanea|Pieuvre diurne, Maui, Hawaï, États-Unis (© Dave Fleetham/plainpicture)|Poulpe un jour, poulpe toujours !|![](/fr-FR/2025/10/202510072200OctopusCyanea.jpg)|
