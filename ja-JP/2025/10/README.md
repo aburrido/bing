@@ -7,3 +7,4 @@
 202510041500|TeacherOwl|森に佇むキンメフクロウ (© Ondrej Prosicky/Alamy)|今日は世界教師デー|![](/ja-JP/2025/10/202510041500TeacherOwl.jpg)|
 202510051500|AnshunBridge|錦江に映える安順橋と満月, 中国 (© Philippe LEJEANVRE/Getty Images)|今日は中秋の名月|![](/ja-JP/2025/10/202510051500AnshunBridge.jpg)|
 202510061500|RidgwayAspens|スネフェルス山, 米国 コロラド州 (© Grant Ordelheide/TANDEM Stills + Motion)|黄金に染まる山|![](/ja-JP/2025/10/202510061500RidgwayAspens.jpg)|
+202510071500|Ryuzufalls2025|竜頭の滝, 栃木県 日光市 (© kecl/Getty images)|今日は寒露|![](/ja-JP/2025/10/202510071500Ryuzufalls2025.jpg)|
