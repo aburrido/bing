@@ -7,3 +7,4 @@
 202510040700|DragonEndeavour|ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)|Info|![](/en-AU/2025/10/202510040700DragonEndeavour.jpg)|
 202510050700|TeacherOwl|Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)|Info|![](/en-AU/2025/10/202510050700TeacherOwl.jpg)|
 202510060700|AnshunBridge|Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Info|![](/en-AU/2025/10/202510060700AnshunBridge.jpg)|
+202510070700|RidgwayAspens|Autumn colours below Mount Sneffels near Ridgway, Colorado, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Info|![](/en-AU/2025/10/202510070700RidgwayAspens.jpg)|
