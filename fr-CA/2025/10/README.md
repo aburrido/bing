@@ -7,3 +7,4 @@
 202510050400|TeacherOwl|Chouette boréale dans une forêt d’Europe centrale (© Ondrej Prosicky/Alamy)|Un hommage aux alchimistes du savoir|![](/fr-CA/2025/10/202510050400TeacherOwl.jpg)|
 202510060400|AnshunBridge|Pont Anshun illuminé pour la fête de la mi-automne, Chengdu, Chine (© Philippe LEJEANVRE/Getty Images)|Un pont vers la lune|![](/fr-CA/2025/10/202510060400AnshunBridge.jpg)|
 202510070400|RidgwayAspens|Couleurs d’automne au pied du mont Sneffels, Colorado, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|La ruée vers l’or|![](/fr-CA/2025/10/202510070400RidgwayAspens.jpg)|
+202510080400|OctopusCyanea|Pieuvre diurne, Maui, Hawaï, États-Unis (© Dave Fleetham/plainpicture)|Poulpe un jour, poulpe toujours!|![](/fr-CA/2025/10/202510080400OctopusCyanea.jpg)|
