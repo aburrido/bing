@@ -8,3 +8,4 @@
 202510050700|TeacherOwl|Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)|Info|![](/en-AU/2025/10/202510050700TeacherOwl.jpg)|
 202510060700|AnshunBridge|Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Info|![](/en-AU/2025/10/202510060700AnshunBridge.jpg)|
 202510070700|RidgwayAspens|Autumn colours below Mount Sneffels near Ridgway, Colorado, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Info|![](/en-AU/2025/10/202510070700RidgwayAspens.jpg)|
+202510080700|OctopusCyanea|Day octopus, Maui, Hawaii, United States (© Dave Fleetham/plainpicture)|Info|![](/en-AU/2025/10/202510080700OctopusCyanea.jpg)|
