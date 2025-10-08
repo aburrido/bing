@@ -8,3 +8,4 @@
 202510052200|AnshunBridge|Anshun-Brücke, beleuchtet zum Mondfest, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|Bis zum Mond und zurück|![](/de-DE/2025/10/202510052200AnshunBridge.jpg)|
 202510062200|RidgwayAspens|Herbstfarben unterhalb des Mount Sneffels nahe Ridgway, Colorado, USA (© Grant Ordelheide/TANDEM Stills + Motion)|Goldener Herbstglanz|![](/de-DE/2025/10/202510062200RidgwayAspens.jpg)|
 202510072200|OctopusCyanea|Großer Blauer Krake, Maui, Hawaii, USA (© Dave Fleetham/plainpicture)|Tarnung in Bewegung|![](/de-DE/2025/10/202510072200OctopusCyanea.jpg)|
+202510082200|WebbPillars|Die Säulen der Schöpfung, betrachtet vom James-Webb-Weltraumteleskop (© NASA)|Ein Universum in voller Blüte|![](/de-DE/2025/10/202510082200WebbPillars.jpg)|
