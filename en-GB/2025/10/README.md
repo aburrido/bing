@@ -8,3 +8,4 @@
 202510052300|AnshunBridge|Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)|To the moon and back|![](/en-GB/2025/10/202510052300AnshunBridge.jpg)|
 202510062300|RidgwayAspens|Autumn colours below Mount Sneffels near Ridgway, Colorado, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Golden autumn glow|![](/en-GB/2025/10/202510062300RidgwayAspens.jpg)|
 202510072300|OctopusCyanea|Day octopus, Maui, Hawaii, United States (© Dave Fleetham/plainpicture)|Camouflage in motion|![](/en-GB/2025/10/202510072300OctopusCyanea.jpg)|
+202510082300|WebbPillars|The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)|Universe in bloom|![](/en-GB/2025/10/202510082300WebbPillars.jpg)|
