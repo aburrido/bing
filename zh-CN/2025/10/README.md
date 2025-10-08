@@ -8,3 +8,4 @@
 202510051600|AnshunBridge|安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)|千里共婵娟|![](/zh-CN/2025/10/202510051600AnshunBridge.jpg)|
 202510061600|RidgwayAspens|里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)|金色的秋日余晖|![](/zh-CN/2025/10/202510061600RidgwayAspens.jpg)|
 202510071600|OctopusCyanea|白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)|动态伪装|![](/zh-CN/2025/10/202510071600OctopusCyanea.jpg)|
+202510081600|WebbPillars|‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)|宇宙在绽放|![](/zh-CN/2025/10/202510081600WebbPillars.jpg)|
