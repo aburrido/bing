@@ -9,3 +9,4 @@
 202510062200|CapAntibes|Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)|L’arrière-saison en majesté|![](/fr-FR/2025/10/202510062200CapAntibes.jpg)|
 202510072200|OctopusCyanea|Pieuvre diurne, Maui, Hawaï, États-Unis (© Dave Fleetham/plainpicture)|Poulpe un jour, poulpe toujours !|![](/fr-FR/2025/10/202510072200OctopusCyanea.jpg)|
 202510082200|WebbPillars|Les Piliers de la Création vus par le télescope spatial James Webb (© NASA)|Les cathédrales du cosmos|![](/fr-FR/2025/10/202510082200WebbPillars.jpg)|
+202510092200|MonurikiFiji|Récif corallien entourant l’île de Monuriki, archipel des Mamanuca, Fidji (© David Wall/SuperStock)|L’île était une fois, les Fidji|![](/fr-FR/2025/10/202510092200MonurikiFiji.jpg)|
