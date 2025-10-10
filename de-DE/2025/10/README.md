@@ -10,3 +10,4 @@
 202510072200|OctopusCyanea|Großer Blauer Krake, Maui, Hawaii, USA (© Dave Fleetham/plainpicture)|Tarnung in Bewegung|![](/de-DE/2025/10/202510072200OctopusCyanea.jpg)|
 202510082200|WebbPillars|Die Säulen der Schöpfung, betrachtet vom James-Webb-Weltraumteleskop (© NASA)|Ein Universum in voller Blüte|![](/de-DE/2025/10/202510082200WebbPillars.jpg)|
 202510092200|MonurikiFiji|Korallenriff rund um die Insel Monuriki, Mamanuca-Inseln, Fidschi (© David Wall/SuperStock)|Ein Hauch von Freiheit|![](/de-DE/2025/10/202510092200MonurikiFiji.jpg)|
+202510102200|WoodDuckHen|Brautente (Weibchen), USA (© ps50ace/iStock/Getty Images)|Instinkt kennt den Weg|![](/de-DE/2025/10/202510102200WoodDuckHen.jpg)|
