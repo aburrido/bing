@@ -10,3 +10,4 @@
 202510071600|OctopusCyanea|白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)|动态伪装|![](/zh-CN/2025/10/202510071600OctopusCyanea.jpg)|
 202510081600|WebbPillars|‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)|宇宙在绽放|![](/zh-CN/2025/10/202510081600WebbPillars.jpg)|
 202510091600|MonurikiFiji|莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)|思绪之礁|![](/zh-CN/2025/10/202510091600MonurikiFiji.jpg)|
+202510101600|WoodDuckHen|林鸳鸯，美国 (© ps50ace/iStock/Getty Images)|下一站：墨西哥！|![](/zh-CN/2025/10/202510101600WoodDuckHen.jpg)|
