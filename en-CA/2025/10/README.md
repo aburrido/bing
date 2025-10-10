@@ -9,3 +9,4 @@
 202510070400|RidgwayAspens|Fall colours below Mount Sneffels near Ridgway, Colorado, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Golden fall glow|![](/en-CA/2025/10/202510070400RidgwayAspens.jpg)|
 202510080400|OctopusCyanea|Day octopus, Maui, Hawaii, United States (© Dave Fleetham/plainpicture)|Camouflage in motion|![](/en-CA/2025/10/202510080400OctopusCyanea.jpg)|
 202510090400|WebbPillars|The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)|Universe in bloom|![](/en-CA/2025/10/202510090400WebbPillars.jpg)|
+202510100400|MonurikiFiji|Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)|A reef of reflection|![](/en-CA/2025/10/202510100400MonurikiFiji.jpg)|
