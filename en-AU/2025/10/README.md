@@ -10,3 +10,4 @@
 202510070700|RidgwayAspens|Autumn colours below Mount Sneffels near Ridgway, Colorado, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Info|![](/en-AU/2025/10/202510070700RidgwayAspens.jpg)|
 202510080700|OctopusCyanea|Day octopus, Maui, Hawaii, United States (© Dave Fleetham/plainpicture)|Info|![](/en-AU/2025/10/202510080700OctopusCyanea.jpg)|
 202510090700|WebbPillars|The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)|Info|![](/en-AU/2025/10/202510090700WebbPillars.jpg)|
+202510100700|MonurikiFiji|Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)|Info|![](/en-AU/2025/10/202510100700MonurikiFiji.jpg)|
