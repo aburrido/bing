@@ -10,3 +10,4 @@
 202510072300|OctopusCyanea|Day octopus, Maui, Hawaii, United States (© Dave Fleetham/plainpicture)|Camouflage in motion|![](/en-GB/2025/10/202510072300OctopusCyanea.jpg)|
 202510082300|WebbPillars|The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)|Universe in bloom|![](/en-GB/2025/10/202510082300WebbPillars.jpg)|
 202510092300|MonurikiFiji|Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)|A reef of reflection|![](/en-GB/2025/10/202510092300MonurikiFiji.jpg)|
+202510102300|WoodDuckHen|Wood duck hen, United States (© ps50ace/iStock/Getty Images)|Nest stop: Mexico!|![](/en-GB/2025/10/202510102300WoodDuckHen.jpg)|
