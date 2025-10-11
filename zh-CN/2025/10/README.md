@@ -11,3 +11,4 @@
 202510081600|WebbPillars|‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)|宇宙在绽放|![](/zh-CN/2025/10/202510081600WebbPillars.jpg)|
 202510091600|MonurikiFiji|莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)|思绪之礁|![](/zh-CN/2025/10/202510091600MonurikiFiji.jpg)|
 202510101600|WoodDuckHen|林鸳鸯，美国 (© ps50ace/iStock/Getty Images)|下一站：墨西哥！|![](/zh-CN/2025/10/202510101600WoodDuckHen.jpg)|
+202510111600|SaranacLake|萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国 (© DenisTangneyJr/Getty Images)|爱上萨拉纳克|![](/zh-CN/2025/10/202510111600SaranacLake.jpg)|
