@@ -10,3 +10,4 @@
 202510080400|OctopusCyanea|Pieuvre diurne, Maui, Hawaï, États-Unis (© Dave Fleetham/plainpicture)|Poulpe un jour, poulpe toujours!|![](/fr-CA/2025/10/202510080400OctopusCyanea.jpg)|
 202510090400|WebbPillars|Les Piliers de la Création vus par le télescope spatial James Webb (© NASA)|Les cathédrales du cosmos|![](/fr-CA/2025/10/202510090400WebbPillars.jpg)|
 202510100400|MonurikiFiji|Récif corallien entourant l’île de Monuriki, archipel des Mamanuca, Fidji (© David Wall/SuperStock)|L’île était une fois, les Fidji|![](/fr-CA/2025/10/202510100400MonurikiFiji.jpg)|
+202510110400|WoodDuckHen|Cane branchu, États-Unis (© ps50ace/iStock/Getty Images)|Prochain arrêt : le Sud !|![](/fr-CA/2025/10/202510110400WoodDuckHen.jpg)|
