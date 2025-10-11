@@ -11,3 +11,4 @@
 202510082200|WebbPillars|Les Piliers de la Création vus par le télescope spatial James Webb (© NASA)|Les cathédrales du cosmos|![](/fr-FR/2025/10/202510082200WebbPillars.jpg)|
 202510092200|MonurikiFiji|Récif corallien entourant l’île de Monuriki, archipel des Mamanuca, Fidji (© David Wall/SuperStock)|L’île était une fois, les Fidji|![](/fr-FR/2025/10/202510092200MonurikiFiji.jpg)|
 202510102200|WoodDuckHen|Cane branchu, États-Unis (© ps50ace/iStock/Getty Images)|Prochain arrêt : le Sud !|![](/fr-FR/2025/10/202510102200WoodDuckHen.jpg)|
+202510112200|SaranacLake|Village de Saranac Lake, Montagnes Adirondacks, New York, États-Unis (© DenisTangneyJr/Getty Images)|Un village américain qui ne manque pas de souffle|![](/fr-FR/2025/10/202510112200SaranacLake.jpg)|
