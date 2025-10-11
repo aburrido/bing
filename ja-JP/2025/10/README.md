@@ -11,3 +11,4 @@
 202510081500|WebbPillars|ジェームズ・ウェッブ宇宙望遠鏡が撮影した創造の柱 (© NASA)|10 月 4 日から 10 日まで世界宇宙週間|![](/ja-JP/2025/10/202510081500WebbPillars.jpg)|
 202510091500|MonurikiFiji|モンリキ島, フィジー (© David Wall/SuperStock)|今日はフィジー共和国の独立記念日|![](/ja-JP/2025/10/202510091500MonurikiFiji.jpg)|
 202510101500|WoodDuckHen|メスのアメリカオシ, 米国 (© ps50ace/iStock/Getty Images)|今日は世界渡り鳥の日|![](/ja-JP/2025/10/202510101500WoodDuckHen.jpg)|
+202510111500|SaranacLake|サラナック・レイク村, 米国 ニューヨーク州 (© DenisTangneyJr/Getty Images)|湖に映る紅葉の風景|![](/ja-JP/2025/10/202510111500SaranacLake.jpg)|
