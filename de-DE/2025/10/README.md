@@ -12,3 +12,4 @@
 202510092200|MonurikiFiji|Korallenriff rund um die Insel Monuriki, Mamanuca-Inseln, Fidschi (© David Wall/SuperStock)|Ein Hauch von Freiheit|![](/de-DE/2025/10/202510092200MonurikiFiji.jpg)|
 202510102200|WoodDuckHen|Brautente (Weibchen), USA (© ps50ace/iStock/Getty Images)|Instinkt kennt den Weg|![](/de-DE/2025/10/202510102200WoodDuckHen.jpg)|
 202510112200|SaranacLake|Saranac Lake, Adirondack Mountains, New York, USA (© DenisTangneyJr/Getty Images)|Herbstidylle am See|![](/de-DE/2025/10/202510112200SaranacLake.jpg)|
+202510122200|HinterseeWaterfall|Wasserfall in der Wimbachklamm, Bayern (© EyeEm Mobile GmbH/Getty Images)|Die Stimme des Wassers|![](/de-DE/2025/10/202510122200HinterseeWaterfall.jpg)|
