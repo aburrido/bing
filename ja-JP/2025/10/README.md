@@ -12,3 +12,4 @@
 202510091500|MonurikiFiji|モンリキ島, フィジー (© David Wall/SuperStock)|今日はフィジー共和国の独立記念日|![](/ja-JP/2025/10/202510091500MonurikiFiji.jpg)|
 202510101500|WoodDuckHen|メスのアメリカオシ, 米国 (© ps50ace/iStock/Getty Images)|今日は世界渡り鳥の日|![](/ja-JP/2025/10/202510101500WoodDuckHen.jpg)|
 202510111500|SaranacLake|サラナック・レイク村, 米国 ニューヨーク州 (© DenisTangneyJr/Getty Images)|湖に映る紅葉の風景|![](/ja-JP/2025/10/202510111500SaranacLake.jpg)|
+202510121500|OiaSantorini|イア村, グリース (© f9photos/Getty Images)|青空と海に囲まれたイア村|![](/ja-JP/2025/10/202510121500OiaSantorini.jpg)|
