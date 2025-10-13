@@ -13,3 +13,4 @@
 202510102200|WoodDuckHen|Cane branchu, États-Unis (© ps50ace/iStock/Getty Images)|Prochain arrêt : le Sud !|![](/fr-FR/2025/10/202510102200WoodDuckHen.jpg)|
 202510112200|SaranacLake|Village de Saranac Lake, Montagnes Adirondacks, New York, États-Unis (© DenisTangneyJr/Getty Images)|Un village américain qui ne manque pas de souffle|![](/fr-FR/2025/10/202510112200SaranacLake.jpg)|
 202510122200|HinterseeWaterfall|Gorges de Wimbachklamm, Bavière, Allemagne (© EyeEm Mobile GmbH/Getty Images)|Un lieu qui coule de source|![](/fr-FR/2025/10/202510122200HinterseeWaterfall.jpg)|
+202510132200|OiaSantorini|Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)|Le blanc en héritage|![](/fr-FR/2025/10/202510132200OiaSantorini.jpg)|
