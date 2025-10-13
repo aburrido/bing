@@ -13,3 +13,4 @@
 202510100700|MonurikiFiji|Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)|Info|![](/en-AU/2025/10/202510100700MonurikiFiji.jpg)|
 202510110700|WoodDuckHen|Wood duck hen, United States (© ps50ace/iStock/Getty Images)|Info|![](/en-AU/2025/10/202510110700WoodDuckHen.jpg)|
 202510120700|SaranacLake|Village of Saranac Lake, Adirondack Mountains, New York, United States (© DenisTangneyJr/Getty Images)|Info|![](/en-AU/2025/10/202510120700SaranacLake.jpg)|
+202510130700|HinterseeWaterfall|Waterfall at Wimbachklamm Gorge, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)|Info|![](/en-AU/2025/10/202510130700HinterseeWaterfall.jpg)|
