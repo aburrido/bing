@@ -13,3 +13,4 @@
 202510102300|WoodDuckHen|Wood duck hen, United States (© ps50ace/iStock/Getty Images)|Nest stop: Mexico!|![](/en-GB/2025/10/202510102300WoodDuckHen.jpg)|
 202510112300|SaranacLake|Village of Saranac Lake, Adirondack Mountains, New York, United States (© DenisTangneyJr/Getty Images)|Falling for Saranac|![](/en-GB/2025/10/202510112300SaranacLake.jpg)|
 202510122300|StarlingBrighton2025|Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)|Rust meets rush|![](/en-GB/2025/10/202510122300StarlingBrighton2025.jpg)|
+202510132300|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-GB/2025/10/202510132300OiaSantorini.jpg)|
