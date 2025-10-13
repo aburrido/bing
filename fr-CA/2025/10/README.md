@@ -12,3 +12,4 @@
 202510100400|MonurikiFiji|Récif corallien entourant l’île de Monuriki, archipel des Mamanuca, Fidji (© David Wall/SuperStock)|L’île était une fois, les Fidji|![](/fr-CA/2025/10/202510100400MonurikiFiji.jpg)|
 202510110400|WoodDuckHen|Cane branchu, États-Unis (© ps50ace/iStock/Getty Images)|Prochain arrêt : le Sud !|![](/fr-CA/2025/10/202510110400WoodDuckHen.jpg)|
 202510120400|SaranacLake|Village de Saranac Lake, Montagnes Adirondacks, New York, États-Unis (© DenisTangneyJr/Getty Images)|Un village américain qui ne manque pas de souffle|![](/fr-CA/2025/10/202510120400SaranacLake.jpg)|
+202510130400|AlgonParkOnt|Rapides de la rivière dans le parc provincial Algonquin, Ontario (© Pgiam/Getty Images)|Une saison pour dire merci|![](/fr-CA/2025/10/202510130400AlgonParkOnt.jpg)|
