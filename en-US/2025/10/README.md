@@ -14,3 +14,4 @@
 202510110700|WoodDuckHen|Wood duck hen (© ps50ace/iStock/Getty Images)|Nest stop, Mexico!|![](/en-US/2025/10/202510110700WoodDuckHen.jpg)|
 202510120700|SaranacLake|Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)|Falling for Saranac|![](/en-US/2025/10/202510120700SaranacLake.jpg)|
 202510130700|MuleCanyon|House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)|Flames of the past|![](/en-US/2025/10/202510130700MuleCanyon.jpg)|
+202510140700|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-US/2025/10/202510140700OiaSantorini.jpg)|
