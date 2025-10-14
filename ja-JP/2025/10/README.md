@@ -14,3 +14,4 @@
 202510111500|SaranacLake|サラナック・レイク村, 米国 ニューヨーク州 (© DenisTangneyJr/Getty Images)|湖に映る紅葉の風景|![](/ja-JP/2025/10/202510111500SaranacLake.jpg)|
 202510121500|OiaSantorini|イア村, グリース (© f9photos/Getty Images)|青空と海に囲まれたイア村|![](/ja-JP/2025/10/202510121500OiaSantorini.jpg)|
 202510131500|RailwayDay2025|第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)|今日は鉄道の日|![](/ja-JP/2025/10/202510131500RailwayDay2025.jpg)|
+202510141500|HoutenHouses|ハウテン町, オランダ (© George Pachantouris/Getty Images)|ハウテンのカラフルな家並み|![](/ja-JP/2025/10/202510141500HoutenHouses.jpg)|
