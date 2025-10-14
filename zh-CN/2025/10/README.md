@@ -14,3 +14,4 @@
 202510111600|SaranacLake|萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国 (© DenisTangneyJr/Getty Images)|爱上萨拉纳克|![](/zh-CN/2025/10/202510111600SaranacLake.jpg)|
 202510121600|HinterseeWaterfall|温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)|水声低语|![](/zh-CN/2025/10/202510121600HinterseeWaterfall.jpg)|
 202510131600|OiaSantorini|伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)|蓝与白的梦境|![](/zh-CN/2025/10/202510131600OiaSantorini.jpg)|
+202510141600|AmethystLaccaria|紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)|孢子奇遇记|![](/zh-CN/2025/10/202510141600AmethystLaccaria.jpg)|
