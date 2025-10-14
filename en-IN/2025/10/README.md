@@ -14,3 +14,4 @@
 202510111830|SaranacLake|Village of Saranac Lake, Adirondack Mountains, New York, United States (© DenisTangneyJr/Getty Images)|Falling for Saranac|![](/en-IN/2025/10/202510111830SaranacLake.jpg)|
 202510121830|MamallapuramBoat|Fishing boat on a beach in Mamallapuram, Tamil Nadu (© Danielrao/Getty Images)|Calm seas, waiting boat|![](/en-IN/2025/10/202510121830MamallapuramBoat.jpg)|
 202510131830|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-IN/2025/10/202510131830OiaSantorini.jpg)|
+202510141830|AmethystLaccaria|Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)|The spore the merrier|![](/en-IN/2025/10/202510141830AmethystLaccaria.jpg)|
