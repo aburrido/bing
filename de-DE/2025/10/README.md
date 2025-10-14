@@ -14,3 +14,4 @@
 202510112200|SaranacLake|Saranac Lake, Adirondack Mountains, New York, USA (© DenisTangneyJr/Getty Images)|Herbstidylle am See|![](/de-DE/2025/10/202510112200SaranacLake.jpg)|
 202510122200|HinterseeWaterfall|Wasserfall in der Wimbachklamm, Bayern (© EyeEm Mobile GmbH/Getty Images)|Die Stimme des Wassers|![](/de-DE/2025/10/202510122200HinterseeWaterfall.jpg)|
 202510132200|OiaSantorini|Oia, Santorin, Griechenland (© f9photos/Getty Images)|Träume in Blau und Weiß gemalt|![](/de-DE/2025/10/202510132200OiaSantorini.jpg)|
+202510142200|AmethystLaccaria|Violette Lacktrichterlinge, Seabeck, Washington, USA (© Danita Delimont/Shutterstock)|Lila leuchtet der Wald|![](/de-DE/2025/10/202510142200AmethystLaccaria.jpg)|
