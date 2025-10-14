@@ -13,3 +13,4 @@
 202510110400|WoodDuckHen|Wood duck hen, United States (© ps50ace/iStock/Getty Images)|Nest stop: Mexico!|![](/en-CA/2025/10/202510110400WoodDuckHen.jpg)|
 202510120400|SaranacLake|Village of Saranac Lake, Adirondack Mountains, New York, United States (© DenisTangneyJr/Getty Images)|Falling for Saranac|![](/en-CA/2025/10/202510120400SaranacLake.jpg)|
 202510130400|AlgonParkOnt|River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)|Ontario's wild heart|![](/en-CA/2025/10/202510130400AlgonParkOnt.jpg)|
+202510140400|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-CA/2025/10/202510140400OiaSantorini.jpg)|
