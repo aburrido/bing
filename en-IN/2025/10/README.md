@@ -15,3 +15,4 @@
 202510121830|MamallapuramBoat|Fishing boat on a beach in Mamallapuram, Tamil Nadu (© Danielrao/Getty Images)|Calm seas, waiting boat|![](/en-IN/2025/10/202510121830MamallapuramBoat.jpg)|
 202510131830|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-IN/2025/10/202510131830OiaSantorini.jpg)|
 202510141830|AmethystLaccaria|Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)|The spore the merrier|![](/en-IN/2025/10/202510141830AmethystLaccaria.jpg)|
+202510151830|SiberianLynx|Eurasian lynx, Siberia (© Mario Plechaty Photograph/Shutterstock)|The phantom cat|![](/en-IN/2025/10/202510151830SiberianLynx.jpg)|
