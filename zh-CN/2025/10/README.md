@@ -15,3 +15,4 @@
 202510121600|HinterseeWaterfall|温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)|水声低语|![](/zh-CN/2025/10/202510121600HinterseeWaterfall.jpg)|
 202510131600|OiaSantorini|伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)|蓝与白的梦境|![](/zh-CN/2025/10/202510131600OiaSantorini.jpg)|
 202510141600|AmethystLaccaria|紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)|孢子奇遇记|![](/zh-CN/2025/10/202510141600AmethystLaccaria.jpg)|
+202510151600|SiberianLynx|欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)|幽灵之猫|![](/zh-CN/2025/10/202510151600SiberianLynx.jpg)|
