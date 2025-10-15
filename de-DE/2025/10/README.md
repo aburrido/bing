@@ -15,3 +15,4 @@
 202510122200|HinterseeWaterfall|Wasserfall in der Wimbachklamm, Bayern (© EyeEm Mobile GmbH/Getty Images)|Die Stimme des Wassers|![](/de-DE/2025/10/202510122200HinterseeWaterfall.jpg)|
 202510132200|OiaSantorini|Oia, Santorin, Griechenland (© f9photos/Getty Images)|Träume in Blau und Weiß gemalt|![](/de-DE/2025/10/202510132200OiaSantorini.jpg)|
 202510142200|AmethystLaccaria|Violette Lacktrichterlinge, Seabeck, Washington, USA (© Danita Delimont/Shutterstock)|Lila leuchtet der Wald|![](/de-DE/2025/10/202510142200AmethystLaccaria.jpg)|
+202510152200|SiberianLynx|Eurasischer Luchs, Sibirien (© Mario Plechaty Photograph/Shutterstock)|Der Schatten der Wälder|![](/de-DE/2025/10/202510152200SiberianLynx.jpg)|
