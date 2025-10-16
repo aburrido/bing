@@ -16,3 +16,4 @@
 202510130700|HinterseeWaterfall|Waterfall at Wimbachklamm Gorge, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)|Info|![](/en-AU/2025/10/202510130700HinterseeWaterfall.jpg)|
 202510140700|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Info|![](/en-AU/2025/10/202510140700OiaSantorini.jpg)|
 202510150700|AmethystLaccaria|Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)|Info|![](/en-AU/2025/10/202510150700AmethystLaccaria.jpg)|
+202510160700|SiberianLynx|Eurasian lynx, Siberia (© Mario Plechaty Photograph/Shutterstock)|Info|![](/en-AU/2025/10/202510160700SiberianLynx.jpg)|

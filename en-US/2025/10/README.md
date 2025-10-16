@@ -16,3 +16,4 @@
 202510130700|MuleCanyon|House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)|Flames of the past|![](/en-US/2025/10/202510130700MuleCanyon.jpg)|
 202510140700|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-US/2025/10/202510140700OiaSantorini.jpg)|
 202510150700|AmethystLaccaria|Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)|The spore the merrier|![](/en-US/2025/10/202510150700AmethystLaccaria.jpg)|
+202510160700|SiberianLynx|Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)|The phantom cat|![](/en-US/2025/10/202510160700SiberianLynx.jpg)|
