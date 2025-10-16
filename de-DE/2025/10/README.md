@@ -16,3 +16,4 @@
 202510132200|OiaSantorini|Oia, Santorin, Griechenland (© f9photos/Getty Images)|Träume in Blau und Weiß gemalt|![](/de-DE/2025/10/202510132200OiaSantorini.jpg)|
 202510142200|AmethystLaccaria|Violette Lacktrichterlinge, Seabeck, Washington, USA (© Danita Delimont/Shutterstock)|Lila leuchtet der Wald|![](/de-DE/2025/10/202510142200AmethystLaccaria.jpg)|
 202510152200|SiberianLynx|Eurasischer Luchs, Sibirien (© Mario Plechaty Photograph/Shutterstock)|Der Schatten der Wälder|![](/de-DE/2025/10/202510152200SiberianLynx.jpg)|
+202510162200|MettlachAutumn|Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)|Ein einzigartiger Panoramablick|![](/de-DE/2025/10/202510162200MettlachAutumn.jpg)|

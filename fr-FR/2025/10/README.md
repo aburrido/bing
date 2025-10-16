@@ -16,3 +16,4 @@
 202510132200|OiaSantorini|Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)|Le blanc en héritage|![](/fr-FR/2025/10/202510132200OiaSantorini.jpg)|
 202510142200|AmethystLaccaria|Champignon laccaria amethystina, Seabeck, Washington, États-Unis (© Danita Delimont/Shutterstock)|Fongique mais fantastique !|![](/fr-FR/2025/10/202510142200AmethystLaccaria.jpg)|
 202510152200|SiberianLynx|Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)|Le chat des neiges|![](/fr-FR/2025/10/202510152200SiberianLynx.jpg)|
+202510162200|CorsicaSunshine|Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)|Quand le soir embrasse la montagne corse|![](/fr-FR/2025/10/202510162200CorsicaSunshine.jpg)|
