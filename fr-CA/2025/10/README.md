@@ -15,3 +15,4 @@
 202510130400|AlgonParkOnt|Rapides de la rivière dans le parc provincial Algonquin, Ontario (© Pgiam/Getty Images)|Une saison pour dire merci|![](/fr-CA/2025/10/202510130400AlgonParkOnt.jpg)|
 202510140400|OiaSantorini|Village d’Oia, Santorin, Grèce (© f9photos/Getty Images)|Le blanc en héritage|![](/fr-CA/2025/10/202510140400OiaSantorini.jpg)|
 202510150400|AmethystLaccaria|Champignon Laccaria amethystina, Seabeck, Washington, États-Unis (© Danita Delimont/Shutterstock)|Fongique mais fantastique!|![](/fr-CA/2025/10/202510150400AmethystLaccaria.jpg)|
+202510160400|SiberianLynx|Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)|Le chat des neiges|![](/fr-CA/2025/10/202510160400SiberianLynx.jpg)|

@@ -15,3 +15,4 @@
 202510130400|AlgonParkOnt|River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)|Ontario's wild heart|![](/en-CA/2025/10/202510130400AlgonParkOnt.jpg)|
 202510140400|OiaSantorini|Village of Oia, Santorini, Greece (© f9photos/Getty Images)|Dreams painted in blue and white|![](/en-CA/2025/10/202510140400OiaSantorini.jpg)|
 202510150400|AmethystLaccaria|Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)|The spore the merrier|![](/en-CA/2025/10/202510150400AmethystLaccaria.jpg)|
+202510160400|SiberianLynx|Eurasian lynx, Siberia (© Mario Plechaty Photograph/Shutterstock)|The phantom cat|![](/en-CA/2025/10/202510160400SiberianLynx.jpg)|
