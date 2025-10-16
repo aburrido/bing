@@ -16,3 +16,4 @@
 202510131600|OiaSantorini|伊亚镇，圣托里尼岛，希腊 (© f9photos/Getty Images)|蓝与白的梦境|![](/zh-CN/2025/10/202510131600OiaSantorini.jpg)|
 202510141600|AmethystLaccaria|紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)|孢子奇遇记|![](/zh-CN/2025/10/202510141600AmethystLaccaria.jpg)|
 202510151600|SiberianLynx|欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)|幽灵之猫|![](/zh-CN/2025/10/202510151600SiberianLynx.jpg)|
+202510161600|RockRiverFalls|罗克河瀑布，上半岛，密歇根州，美国 (© Matt Anderson Photography/Getty Images)|爱上密歇根|![](/zh-CN/2025/10/202510161600RockRiverFalls.jpg)|
