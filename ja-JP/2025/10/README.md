@@ -17,3 +17,4 @@
 202510141500|HoutenHouses|ハウテン町, オランダ (© George Pachantouris/Getty Images)|ハウテンのカラフルな家並み|![](/ja-JP/2025/10/202510141500HoutenHouses.jpg)|
 202510151500|SiberianLynx|シベリアオオヤマネコ, シベリア (© Mario Plechaty Photograph/Shutterstock)|野生のハンターの鋭い眼差し|![](/ja-JP/2025/10/202510151500SiberianLynx.jpg)|
 202510161500|RockRiverFalls|ロック・リバー・フォールズ, 米国 ミシガン州 (© Matt Anderson Photography/Getty Images)|秋色に染まるロック・リバー・フォールズ|![](/ja-JP/2025/10/202510161500RockRiverFalls.jpg)|
+202510171500|SilburyHill|シルベリー・ヒル, イングランド (© dbstockphoto/Getty Images)|今日は国際考古学の日|![](/ja-JP/2025/10/202510171500SilburyHill.jpg)|
