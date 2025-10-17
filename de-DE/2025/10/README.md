@@ -17,3 +17,4 @@
 202510142200|AmethystLaccaria|Violette Lacktrichterlinge, Seabeck, Washington, USA (© Danita Delimont/Shutterstock)|Lila leuchtet der Wald|![](/de-DE/2025/10/202510142200AmethystLaccaria.jpg)|
 202510152200|SiberianLynx|Eurasischer Luchs, Sibirien (© Mario Plechaty Photograph/Shutterstock)|Der Schatten der Wälder|![](/de-DE/2025/10/202510152200SiberianLynx.jpg)|
 202510162200|MettlachAutumn|Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)|Ein einzigartiger Panoramablick|![](/de-DE/2025/10/202510162200MettlachAutumn.jpg)|
+202510172200|SilburyHill|Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|Wo Geschichte ruht|![](/de-DE/2025/10/202510172200SilburyHill.jpg)|
