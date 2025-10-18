@@ -18,3 +18,4 @@
 202510152200|SiberianLynx|Eurasischer Luchs, Sibirien (© Mario Plechaty Photograph/Shutterstock)|Der Schatten der Wälder|![](/de-DE/2025/10/202510152200SiberianLynx.jpg)|
 202510162200|MettlachAutumn|Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)|Ein einzigartiger Panoramablick|![](/de-DE/2025/10/202510162200MettlachAutumn.jpg)|
 202510172200|SilburyHill|Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|Wo Geschichte ruht|![](/de-DE/2025/10/202510172200SilburyHill.jpg)|
+202510182200|AppleHarvest|Erntereife Äpfel, Minnesota, USA (© Tammi Mild/Getty Images)|Erntegenuss pur|![](/de-DE/2025/10/202510182200AppleHarvest.jpg)|

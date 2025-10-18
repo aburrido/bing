@@ -18,3 +18,4 @@
 202510152200|SiberianLynx|Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)|Le chat des neiges|![](/fr-FR/2025/10/202510152200SiberianLynx.jpg)|
 202510162200|CorsicaSunshine|Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)|Quand le soir embrasse la montagne corse|![](/fr-FR/2025/10/202510162200CorsicaSunshine.jpg)|
 202510172200|SilburyHill|Site néolithique de la colline de Silbury, Tilshead, Wiltshire, Angleterre (© dbstockphoto/Getty Images)|Une colline pas comme les autres|![](/fr-FR/2025/10/202510172200SilburyHill.jpg)|
+202510182200|AppleHarvest|Pommes prêtes à être récoltées, Minnesota, États-Unis (© Tammi Mild/Getty Images)|Une cueillette à croquer !|![](/fr-FR/2025/10/202510182200AppleHarvest.jpg)|
