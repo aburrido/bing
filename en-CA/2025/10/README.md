@@ -17,3 +17,4 @@
 202510150400|AmethystLaccaria|Amethyst laccaria mushrooms, Seabeck, Washington, United States (© Danita Delimont/Shutterstock)|The spore the merrier|![](/en-CA/2025/10/202510150400AmethystLaccaria.jpg)|
 202510160400|SiberianLynx|Eurasian lynx, Siberia (© Mario Plechaty Photograph/Shutterstock)|The phantom cat|![](/en-CA/2025/10/202510160400SiberianLynx.jpg)|
 202510170400|JasperFestival|Northern lights over Patricia Lake in Jasper National Park, Alberta (© Daniel Viñé Garcia/Getty Images)|Power Down. Look Up.|![](/en-CA/2025/10/202510170400JasperFestival.jpg)|
+202510180400|SilburyHill|Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|The hill that remembers|![](/en-CA/2025/10/202510180400SilburyHill.jpg)|

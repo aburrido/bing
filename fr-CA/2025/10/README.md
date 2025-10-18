@@ -17,3 +17,4 @@
 202510150400|AmethystLaccaria|Champignon Laccaria amethystina, Seabeck, Washington, États-Unis (© Danita Delimont/Shutterstock)|Fongique mais fantastique!|![](/fr-CA/2025/10/202510150400AmethystLaccaria.jpg)|
 202510160400|SiberianLynx|Lynx de Sibérie, Sibérie (© Mario Plechaty Photograph/Shutterstock)|Le chat des neiges|![](/fr-CA/2025/10/202510160400SiberianLynx.jpg)|
 202510170400|JasperFestival|Aurores boréales au-dessus du lac Patricia, parc national de Jasper, Alberta (© Daniel Viñé Garcia/Getty Images)|La tête dans les étoiles|![](/fr-CA/2025/10/202510170400JasperFestival.jpg)|
+202510180400|SilburyHill|Site néolithique de la coline de Silbury, Tilshead, Wiltshire, Angleterre (© dbstockphoto/Getty Images)|Une colline pas comme les autres|![](/fr-CA/2025/10/202510180400SilburyHill.jpg)|
