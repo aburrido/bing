@@ -18,3 +18,4 @@
 202510152300|SiberianLynx|Eurasian lynx, Siberia (© Mario Plechaty Photograph/Shutterstock)|The phantom cat|![](/en-GB/2025/10/202510152300SiberianLynx.jpg)|
 202510162300|RockRiverFalls|Rock River Falls, Upper Peninsula, Michigan, United States (© Matt Anderson Photography/Getty Images)|Falling for Michigan|![](/en-GB/2025/10/202510162300RockRiverFalls.jpg)|
 202510172300|SilburyHill|Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|The hill that remembers|![](/en-GB/2025/10/202510172300SilburyHill.jpg)|
+202510182300|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Sweet on science|![](/en-GB/2025/10/202510182300AppleHarvest.jpg)|
