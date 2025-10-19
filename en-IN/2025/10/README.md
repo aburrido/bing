@@ -19,3 +19,4 @@
 202510161830|RockRiverFalls|Rock River Falls, Upper Peninsula, Michigan, United States (© Matt Anderson Photography/Getty Images)|Falling for Michigan|![](/en-IN/2025/10/202510161830RockRiverFalls.jpg)|
 202510171830|SilburyHill|Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|The hill that remembers|![](/en-IN/2025/10/202510171830SilburyHill.jpg)|
 202510181830|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Sweet on science|![](/en-IN/2025/10/202510181830AppleHarvest.jpg)|
+202510191830|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Life in the slow lane|![](/en-IN/2025/10/202510191830HoffmansSloth.jpg)|
