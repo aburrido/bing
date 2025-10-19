@@ -19,3 +19,4 @@
 202510161500|RockRiverFalls|ロック・リバー・フォールズ, 米国 ミシガン州 (© Matt Anderson Photography/Getty Images)|秋色に染まるロック・リバー・フォールズ|![](/ja-JP/2025/10/202510161500RockRiverFalls.jpg)|
 202510171500|SilburyHill|シルベリー・ヒル, イングランド (© dbstockphoto/Getty Images)|今日は国際考古学の日|![](/ja-JP/2025/10/202510171500SilburyHill.jpg)|
 202510181500|AppleHarvest|収穫時期を迎えたリンゴ, 米国 ミネソタ州 (© Tammi Mild/Getty Images)|たわわに実るリンゴ|![](/ja-JP/2025/10/202510181500AppleHarvest.jpg)|
+202510191500|HoffmansSloth|ホフマンナマケモノ, エクアドル (© Murray Cooper/Minden Pictures)|今日は国際ナマケモノの日|![](/ja-JP/2025/10/202510191500HoffmansSloth.jpg)|
