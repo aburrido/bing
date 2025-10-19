@@ -19,3 +19,4 @@
 202510161600|RockRiverFalls|罗克河瀑布，上半岛，密歇根州，美国 (© Matt Anderson Photography/Getty Images)|爱上密歇根|![](/zh-CN/2025/10/202510161600RockRiverFalls.jpg)|
 202510171600|SilburyHill|西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国 (© dbstockphotoa/Getty Images)|那座铭记往昔的山丘|![](/zh-CN/2025/10/202510171600SilburyHill.jpg)|
 202510181600|AppleHarvest|即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)|痴迷科学|![](/zh-CN/2025/10/202510181600AppleHarvest.jpg)|
+202510191600|HoffmansSloth|霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)|慢节奏的生活|![](/zh-CN/2025/10/202510191600HoffmansSloth.jpg)|
