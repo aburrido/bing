@@ -19,3 +19,4 @@
 202510170400|JasperFestival|Northern lights over Patricia Lake in Jasper National Park, Alberta (© Daniel Viñé Garcia/Getty Images)|Power Down. Look Up.|![](/en-CA/2025/10/202510170400JasperFestival.jpg)|
 202510180400|SilburyHill|Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|The hill that remembers|![](/en-CA/2025/10/202510180400SilburyHill.jpg)|
 202510190400|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Sweet on science|![](/en-CA/2025/10/202510190400AppleHarvest.jpg)|
+202510200400|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Life in the slow lane|![](/en-CA/2025/10/202510200400HoffmansSloth.jpg)|
