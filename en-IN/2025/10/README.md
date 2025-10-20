@@ -20,3 +20,4 @@
 202510171830|SilburyHill|Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|The hill that remembers|![](/en-IN/2025/10/202510171830SilburyHill.jpg)|
 202510181830|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Sweet on science|![](/en-IN/2025/10/202510181830AppleHarvest.jpg)|
 202510191830|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Life in the slow lane|![](/en-IN/2025/10/202510191830HoffmansSloth.jpg)|
+202510201830|OilLamps|Oil lamps lit during Diwali (© phive2015/Getty Images)|Glowing traditions|![](/en-IN/2025/10/202510201830OilLamps.jpg)|
