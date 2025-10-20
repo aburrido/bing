@@ -20,3 +20,4 @@
 202510172200|SilburyHill|Neolithische Stätte Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|Wo Geschichte ruht|![](/de-DE/2025/10/202510172200SilburyHill.jpg)|
 202510182200|AppleHarvest|Erntereife Äpfel, Minnesota, USA (© Tammi Mild/Getty Images)|Erntegenuss pur|![](/de-DE/2025/10/202510182200AppleHarvest.jpg)|
 202510192200|HoffmansSloth|Hoffmann-Zweifingerfaultier, Ecuador (© Murray Cooper/Minden Pictures)|Ein Leben in Zeitlupe|![](/de-DE/2025/10/202510192200HoffmansSloth.jpg)|
+202510202200|DiyaDiwali|Eine Diya im Harmandir Sahib (Goldener Tempel) während Diwali, Amritsar, Indien (© EyeEm Mobile GmbH/Getty Images)|Leuchtende Traditionen|![](/de-DE/2025/10/202510202200DiyaDiwali.jpg)|
