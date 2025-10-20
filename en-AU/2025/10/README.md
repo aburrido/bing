@@ -20,3 +20,4 @@
 202510170700|RockRiverFalls|Rock River Falls, Upper Peninsula, Michigan, United States (© Matt Anderson Photography/Getty Images)|Info|![](/en-AU/2025/10/202510170700RockRiverFalls.jpg)|
 202510180700|SilburyHill|Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)|Info|![](/en-AU/2025/10/202510180700SilburyHill.jpg)|
 202510190700|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Info|![](/en-AU/2025/10/202510190700AppleHarvest.jpg)|
+202510200700|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Info|![](/en-AU/2025/10/202510200700HoffmansSloth.jpg)|
