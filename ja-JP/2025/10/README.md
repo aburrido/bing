@@ -20,3 +20,4 @@
 202510171500|SilburyHill|シルベリー・ヒル, イングランド (© dbstockphoto/Getty Images)|今日は国際考古学の日|![](/ja-JP/2025/10/202510171500SilburyHill.jpg)|
 202510181500|AppleHarvest|収穫時期を迎えたリンゴ, 米国 ミネソタ州 (© Tammi Mild/Getty Images)|たわわに実るリンゴ|![](/ja-JP/2025/10/202510181500AppleHarvest.jpg)|
 202510191500|HoffmansSloth|ホフマンナマケモノ, エクアドル (© Murray Cooper/Minden Pictures)|今日は国際ナマケモノの日|![](/ja-JP/2025/10/202510191500HoffmansSloth.jpg)|
+202510201500|DiyaDiwali|ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)|今日はディワリ|![](/ja-JP/2025/10/202510201500DiyaDiwali.jpg)|
