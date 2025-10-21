@@ -21,3 +21,4 @@
 202510182300|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Sweet on science|![](/en-GB/2025/10/202510182300AppleHarvest.jpg)|
 202510192300|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Life in the slow lane|![](/en-GB/2025/10/202510192300HoffmansSloth.jpg)|
 202510202300|DiyaDiwali|A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)|Glowing traditions|![](/en-GB/2025/10/202510202300DiyaDiwali.jpg)|
+202510212300|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Set in stone|![](/en-GB/2025/10/202510212300BulgariaRocks.jpg)|
