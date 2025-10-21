@@ -21,3 +21,4 @@
 202510181600|AppleHarvest|即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)|痴迷科学|![](/zh-CN/2025/10/202510181600AppleHarvest.jpg)|
 202510191600|HoffmansSloth|霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)|慢节奏的生活|![](/zh-CN/2025/10/202510191600HoffmansSloth.jpg)|
 202510201600|ToucanForest|哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)|鸟喙的故事|![](/zh-CN/2025/10/202510201600ToucanForest.jpg)|
+202510211600|BulgariaRocks|贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)|刻在石头上|![](/zh-CN/2025/10/202510211600BulgariaRocks.jpg)|
