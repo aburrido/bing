@@ -21,3 +21,4 @@
 202510181500|AppleHarvest|収穫時期を迎えたリンゴ, 米国 ミネソタ州 (© Tammi Mild/Getty Images)|たわわに実るリンゴ|![](/ja-JP/2025/10/202510181500AppleHarvest.jpg)|
 202510191500|HoffmansSloth|ホフマンナマケモノ, エクアドル (© Murray Cooper/Minden Pictures)|今日は国際ナマケモノの日|![](/ja-JP/2025/10/202510191500HoffmansSloth.jpg)|
 202510201500|DiyaDiwali|ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)|今日はディワリ|![](/ja-JP/2025/10/202510201500DiyaDiwali.jpg)|
+202510211500|HeianDay2025|平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)|今日は平安遷都の日|![](/ja-JP/2025/10/202510211500HeianDay2025.jpg)|
