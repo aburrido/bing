@@ -22,3 +22,4 @@
 202510192200|HoffmansSloth|Hoffmann-Zweifingerfaultier, Ecuador (© Murray Cooper/Minden Pictures)|Ein Leben in Zeitlupe|![](/de-DE/2025/10/202510192200HoffmansSloth.jpg)|
 202510202200|DiyaDiwali|Eine Diya im Harmandir Sahib (Goldener Tempel) während Diwali, Amritsar, Indien (© EyeEm Mobile GmbH/Getty Images)|Leuchtende Traditionen|![](/de-DE/2025/10/202510202200DiyaDiwali.jpg)|
 202510212200|BulgariaRocks|Belogradtschik-Felsen, Bulgarien (© EvaL Miko/Shutterstock)|Felsen, die Geschichten erzählen|![](/de-DE/2025/10/202510212200BulgariaRocks.jpg)|
+202510222200|SnowLeopard|Schneeleopardin mit ihren Jungen, Spitital, Cold Desert Biosphere Reserve, Indien (© Oriol Alamany/naturepl.com)|Majestät der Berge|![](/de-DE/2025/10/202510222200SnowLeopard.jpg)|
