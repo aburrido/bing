@@ -22,3 +22,4 @@
 202510191830|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Life in the slow lane|![](/en-IN/2025/10/202510191830HoffmansSloth.jpg)|
 202510201830|OilLamps|Oil lamps lit during Diwali (© phive2015/Getty Images)|Glowing traditions|![](/en-IN/2025/10/202510201830OilLamps.jpg)|
 202510211830|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Set in stone|![](/en-IN/2025/10/202510211830BulgariaRocks.jpg)|
+202510221830|SnowLeopard|Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)|Snow much love|![](/en-IN/2025/10/202510221830SnowLeopard.jpg)|
