@@ -22,3 +22,4 @@
 202510192300|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Life in the slow lane|![](/en-GB/2025/10/202510192300HoffmansSloth.jpg)|
 202510202300|DiyaDiwali|A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)|Glowing traditions|![](/en-GB/2025/10/202510202300DiyaDiwali.jpg)|
 202510212300|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Set in stone|![](/en-GB/2025/10/202510212300BulgariaRocks.jpg)|
+202510222300|SnowLeopard|Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)|Snow much love|![](/en-GB/2025/10/202510222300SnowLeopard.jpg)|
