@@ -21,3 +21,4 @@
 202510190400|AppleHarvest|Pommes prêtes à être récoltées, Minnesota, États-Unis (© Tammi Mild/Getty Images)|Une cueillette à croquer!|![](/fr-CA/2025/10/202510190400AppleHarvest.jpg)|
 202510200400|HoffmansSloth|Paresseux d’Hoffmann, Équateur (© Murray Cooper/Minden Pictures)|Aujourd’hui, on s’accroche… à la paresse!|![](/fr-CA/2025/10/202510200400HoffmansSloth.jpg)|
 202510210400|DiyaDiwali|Une diya au Temple d'Or pendant Diwali, Amritsar, Inde (© EyeEm Mobile GmbH/Getty Images)|Une lumière dans l’obscurité|![](/fr-CA/2025/10/202510210400DiyaDiwali.jpg)|
+202510220400|BulgariaRocks|Rochers de Belogradchik, Bulgarie (© EvaL Miko/Shutterstock)|Pierre qui roule n’amasse pas légende… sauf ici!|![](/fr-CA/2025/10/202510220400BulgariaRocks.jpg)|
