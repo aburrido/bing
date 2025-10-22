@@ -22,3 +22,4 @@
 202510190700|AppleHarvest|Apples ready for harvest, Minnesota, United States (© Tammi Mild/Getty Images)|Info|![](/en-AU/2025/10/202510190700AppleHarvest.jpg)|
 202510200700|HoffmansSloth|Hoffmann's two-toed sloth, Ecuador (© Murray Cooper/Minden Pictures)|Info|![](/en-AU/2025/10/202510200700HoffmansSloth.jpg)|
 202510210700|CapAntibes|Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)|Info|![](/en-AU/2025/10/202510210700CapAntibes.jpg)|
+202510220700|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Info|![](/en-AU/2025/10/202510220700BulgariaRocks.jpg)|
