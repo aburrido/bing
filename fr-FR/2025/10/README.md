@@ -23,3 +23,4 @@
 202510202200|DiyaDiwali|Une diya au Temple d'Or pendant Diwali, Amritsar, Inde (© EyeEm Mobile GmbH/Getty Images)|Une lumière dans l’obscurité|![](/fr-FR/2025/10/202510202200DiyaDiwali.jpg)|
 202510212200|BulgariaRocks|Rochers de Belogradchik, Bulgarie (© EvaL Miko/Shutterstock)|Pierre qui roule n’amasse pas légende… sauf ici !|![](/fr-FR/2025/10/202510212200BulgariaRocks.jpg)|
 202510222200|SnowLeopard|Léopard des neiges avec ses petits, réserve de la biosphère du désert froid, Inde (© Oriol Alamany/naturepl.com)|Le maître du camouflage|![](/fr-FR/2025/10/202510222200SnowLeopard.jpg)|
+202510232200|QueenMary|Vue nocturne du paquebot Queen Mary, Long Beach, Californie, États-Unis (© Kit Leong/Shutterstock)|La croisière s’amuse d’épouvante !|![](/fr-FR/2025/10/202510232200QueenMary.jpg)|
