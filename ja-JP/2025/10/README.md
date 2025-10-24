@@ -24,3 +24,4 @@
 202510211500|HeianDay2025|平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)|今日は平安遷都の日|![](/ja-JP/2025/10/202510211500HeianDay2025.jpg)|
 202510221500|AomoriAutumn2025|八甲田山の紅葉, 青森県青森市 (© Mekdet/Getty images)|今日は霜降|![](/ja-JP/2025/10/202510221500AomoriAutumn2025.jpg)|
 202510231500|QueenMary|クイーン・メリー, 米国 カリフォルニア州 (© Kit Leong/Shutterstock)|ライトアップされた元豪華客船|![](/ja-JP/2025/10/202510231500QueenMary.jpg)|
+202510241500|MartimoaapaFinland|マルティモアパの泥炭地, フィンランド (© romikatarina/Shutterstock)|空から見たマルティモアパの湿原保護区|![](/ja-JP/2025/10/202510241500MartimoaapaFinland.jpg)|
