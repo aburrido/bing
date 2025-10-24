@@ -24,3 +24,4 @@
 202510212200|BulgariaRocks|Belogradtschik-Felsen, Bulgarien (© EvaL Miko/Shutterstock)|Felsen, die Geschichten erzählen|![](/de-DE/2025/10/202510212200BulgariaRocks.jpg)|
 202510222200|SnowLeopard|Schneeleopardin mit ihren Jungen, Spitital, Cold Desert Biosphere Reserve, Indien (© Oriol Alamany/naturepl.com)|Majestät der Berge|![](/de-DE/2025/10/202510222200SnowLeopard.jpg)|
 202510232200|StMangLibrary|Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)|Orte der Begegnung und Inspiration|![](/de-DE/2025/10/202510232200StMangLibrary.jpg)|
+202510242200|MartimoaapaFinland|Luftaufnahme des Moorgebiets im Martimoaapa-Moorreservat, Finnland (© romikatarina/Shutterstock)|Finnlands lebendiges Moor|![](/de-DE/2025/10/202510242200MartimoaapaFinland.jpg)|
