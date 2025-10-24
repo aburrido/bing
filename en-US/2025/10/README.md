@@ -24,3 +24,4 @@
 202510210700|DiyaDiwali|A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)|Glowing traditions|![](/en-US/2025/10/202510210700DiyaDiwali.jpg)|
 202510220700|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Set in stone|![](/en-US/2025/10/202510220700BulgariaRocks.jpg)|
 202510230700|SnowLeopard|Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)|Snow much love|![](/en-US/2025/10/202510230700SnowLeopard.jpg)|
+202510240700|QueenMary|Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)|From 'Grey Ghost' to ghost stories|![](/en-US/2025/10/202510240700QueenMary.jpg)|

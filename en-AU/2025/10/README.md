@@ -24,3 +24,4 @@
 202510210700|CapAntibes|Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)|Info|![](/en-AU/2025/10/202510210700CapAntibes.jpg)|
 202510220700|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Info|![](/en-AU/2025/10/202510220700BulgariaRocks.jpg)|
 202510230700|SnowLeopard|Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)|Info|![](/en-AU/2025/10/202510230700SnowLeopard.jpg)|
+202510240700|QueenMary|Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)|Info|![](/en-AU/2025/10/202510240700QueenMary.jpg)|
