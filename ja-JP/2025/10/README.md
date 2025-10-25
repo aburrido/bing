@@ -25,3 +25,4 @@
 202510221500|AomoriAutumn2025|八甲田山の紅葉, 青森県青森市 (© Mekdet/Getty images)|今日は霜降|![](/ja-JP/2025/10/202510221500AomoriAutumn2025.jpg)|
 202510231500|QueenMary|クイーン・メリー, 米国 カリフォルニア州 (© Kit Leong/Shutterstock)|ライトアップされた元豪華客船|![](/ja-JP/2025/10/202510231500QueenMary.jpg)|
 202510241500|MartimoaapaFinland|マルティモアパの泥炭地, フィンランド (© romikatarina/Shutterstock)|空から見たマルティモアパの湿原保護区|![](/ja-JP/2025/10/202510241500MartimoaapaFinland.jpg)|
+202510251500|PumpkinFarm|カボチャ農園, 米国 ノースカロライナ州 (© Matthew H Irvin/Getty Images)|今日はナショナル・パンプキン・デー|![](/ja-JP/2025/10/202510251500PumpkinFarm.jpg)|
