@@ -24,3 +24,4 @@
 202510220400|BulgariaRocks|Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)|Set in stone|![](/en-CA/2025/10/202510220400BulgariaRocks.jpg)|
 202510230400|SnowLeopard|Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)|Snow much love|![](/en-CA/2025/10/202510230400SnowLeopard.jpg)|
 202510240400|QueenMary|Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)|From 'Grey Ghost' to ghost stories|![](/en-CA/2025/10/202510240400QueenMary.jpg)|
+202510250400|MartimoaapaFinland|Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)|Finland's living peatland|![](/en-CA/2025/10/202510250400MartimoaapaFinland.jpg)|
