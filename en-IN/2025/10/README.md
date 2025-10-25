@@ -25,3 +25,4 @@
 202510221830|SnowLeopard|Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)|Snow much love|![](/en-IN/2025/10/202510221830SnowLeopard.jpg)|
 202510231830|QueenMary|Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)|From 'Grey Ghost' to ghost stories|![](/en-IN/2025/10/202510231830QueenMary.jpg)|
 202510241830|MartimoaapaFinland|Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)|Finland's living peatland|![](/en-IN/2025/10/202510241830MartimoaapaFinland.jpg)|
+202510251830|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Bigger, bolder, beakier|![](/en-IN/2025/10/202510251830AfricanRaven.jpg)|
