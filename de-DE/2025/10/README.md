@@ -26,3 +26,4 @@
 202510232200|StMangLibrary|Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)|Orte der Begegnung und Inspiration|![](/de-DE/2025/10/202510232200StMangLibrary.jpg)|
 202510242200|MartimoaapaFinland|Luftaufnahme des Moorgebiets im Martimoaapa-Moorreservat, Finnland (© romikatarina/Shutterstock)|Finnlands lebendiges Moor|![](/de-DE/2025/10/202510242200MartimoaapaFinland.jpg)|
 202510252200|PumpkinFarm|Kürbisfarm in North Carolina, USA (© Matthew H Irvin/Getty Images)|Herbstzauber in Orange|![](/de-DE/2025/10/202510252200PumpkinFarm.jpg)|
+202510262300|AfricanRaven|Erzrabe, Simien-Nationalpark, Äthiopien (© Ignacio Yufera/FLPA/Minden Pictures)|König der Lüfte|![](/de-DE/2025/10/202510262300AfricanRaven.jpg)|
