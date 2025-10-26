@@ -26,3 +26,4 @@
 202510231600|QueenMary|玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国 (© Kit Leong/Shutterstock)|从“灰色幽灵”到幽灵传说|![](/zh-CN/2025/10/202510231600QueenMary.jpg)|
 202510241600|MartimoaapaFinland|马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰 (© romikatarina/Shutterstock)|芬兰的活泥炭地|![](/zh-CN/2025/10/202510241600MartimoaapaFinland.jpg)|
 202510251600|PumpkinFarm|北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)|南瓜日，今日登场！|![](/zh-CN/2025/10/202510251600PumpkinFarm.jpg)|
+202510261600|AutumnColorY25|被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)|千年秘境|![](/zh-CN/2025/10/202510261600AutumnColorY25.jpg)|
