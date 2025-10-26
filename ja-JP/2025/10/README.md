@@ -26,3 +26,4 @@
 202510231500|QueenMary|クイーン・メリー, 米国 カリフォルニア州 (© Kit Leong/Shutterstock)|ライトアップされた元豪華客船|![](/ja-JP/2025/10/202510231500QueenMary.jpg)|
 202510241500|MartimoaapaFinland|マルティモアパの泥炭地, フィンランド (© romikatarina/Shutterstock)|空から見たマルティモアパの湿原保護区|![](/ja-JP/2025/10/202510241500MartimoaapaFinland.jpg)|
 202510251500|PumpkinFarm|カボチャ農園, 米国 ノースカロライナ州 (© Matthew H Irvin/Getty Images)|今日はナショナル・パンプキン・デー|![](/ja-JP/2025/10/202510251500PumpkinFarm.jpg)|
+202510261500|AfricanRaven|オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)|大きなくちばしを持つカラス|![](/ja-JP/2025/10/202510261500AfricanRaven.jpg)|
