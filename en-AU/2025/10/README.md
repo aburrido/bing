@@ -27,3 +27,4 @@
 202510240700|QueenMary|Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)|Info|![](/en-AU/2025/10/202510240700QueenMary.jpg)|
 202510250700|MartimoaapaFinland|Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)|Info|![](/en-AU/2025/10/202510250700MartimoaapaFinland.jpg)|
 202510260700|PumpkinFarm|Pumpkin farm in North Carolina, United States (© Matthew H Irvin/Getty Images)|Info|![](/en-AU/2025/10/202510260700PumpkinFarm.jpg)|
+202510270700|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Info|![](/en-AU/2025/10/202510270700AfricanRaven.jpg)|

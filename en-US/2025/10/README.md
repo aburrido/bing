@@ -27,3 +27,4 @@
 202510240700|QueenMary|Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)|From 'Grey Ghost' to ghost stories|![](/en-US/2025/10/202510240700QueenMary.jpg)|
 202510250700|MartimoaapaFinland|Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)|Finland's living peatland|![](/en-US/2025/10/202510250700MartimoaapaFinland.jpg)|
 202510260700|PumpkinFarm|Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)|Oh my gourd, it's today!|![](/en-US/2025/10/202510260700PumpkinFarm.jpg)|
+202510270700|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Bigger, bolder, beakier|![](/en-US/2025/10/202510270700AfricanRaven.jpg)|
