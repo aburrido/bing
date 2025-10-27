@@ -27,3 +27,4 @@
 202510242200|MartimoaapaFinland|Vue aérienne de la tourbière, réserve de Martimoaapa, Finlande (© romikatarina/Shutterstock)|Une tourbière à consommer sans modération !|![](/fr-FR/2025/10/202510242200MartimoaapaFinland.jpg)|
 202510252200|PumpkinFarm|Ferme de citrouilles en Caroline du Nord, États-Unis (© Matthew H Irvin/Getty Images)|N’ayez pas la ci-trouille !|![](/fr-FR/2025/10/202510252200PumpkinFarm.jpg)|
 202510262300|ChampagneDay|Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)|Champagne !|![](/fr-FR/2025/10/202510262300ChampagneDay.jpg)|
+202510272300|TepliceRocks|Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)|Un monde au-delà de l’arche|![](/fr-FR/2025/10/202510272300TepliceRocks.jpg)|
