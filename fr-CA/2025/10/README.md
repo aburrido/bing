@@ -26,3 +26,4 @@
 202510240400|QueenMary|Vue nocturne du paquebot Queen Mary, Long Beach, Californie, États-Unis (© Kit Leong/Shutterstock)|La croisière s’amuse d’épouvante!|![](/fr-CA/2025/10/202510240400QueenMary.jpg)|
 202510250400|MartimoaapaFinland|Vue aérienne de la tourbière, réserve de Martimoaapa, Finlande (© romikatarina/Shutterstock)|Une tourbière à consommer sans modération!|![](/fr-CA/2025/10/202510250400MartimoaapaFinland.jpg)|
 202510260400|PumpkinFarm|Ferme de citrouilles en Caroline du Nord, États-Unis (© Matthew H Irvin/Getty Images)|N’ayez pas la ci-trouille!|![](/fr-CA/2025/10/202510260400PumpkinFarm.jpg)|
+202510270400|AfricanRaven|Corbeau corbivau, Montagnes Simien, Éthiopie (© Ignacio Yufera/FLPA/Minden Pictures)|Il a du bec!|![](/fr-CA/2025/10/202510270400AfricanRaven.jpg)|
