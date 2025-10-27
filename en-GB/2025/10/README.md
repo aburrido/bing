@@ -26,3 +26,4 @@
 202510232300|QueenMary|Night view of the RMS Queen Mary, Long Beach, California, United States (© Kit Leong/Shutterstock)|From 'Grey Ghost' to ghost stories|![](/en-GB/2025/10/202510232300QueenMary.jpg)|
 202510242300|MartimoaapaFinland|Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)|Finland's living peatland|![](/en-GB/2025/10/202510242300MartimoaapaFinland.jpg)|
 202510252300|DSTEnds2025|Clock tower of Emmanuel College, University of Cambridge, England (© Geography Photos/Universal Images Group/Getty Images)|Clocking off|![](/en-GB/2025/10/202510252300DSTEnds2025.jpg)|
+202510270000|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Bigger, bolder, beakier|![](/en-GB/2025/10/202510270000AfricanRaven.jpg)|
