@@ -28,3 +28,4 @@
 202510252200|PumpkinFarm|Ferme de citrouilles en Caroline du Nord, États-Unis (© Matthew H Irvin/Getty Images)|N’ayez pas la ci-trouille !|![](/fr-FR/2025/10/202510252200PumpkinFarm.jpg)|
 202510262300|ChampagneDay|Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)|Champagne !|![](/fr-FR/2025/10/202510262300ChampagneDay.jpg)|
 202510272300|TepliceRocks|Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)|Un monde au-delà de l’arche|![](/fr-FR/2025/10/202510272300TepliceRocks.jpg)|
+202510282300|FanalForest|Lauriers centenaires de la forêt de Fanal, île de Madère, Portugal (© Lukas Jonaitis/Shutterstock)|Forêt en clair-obscur|![](/fr-FR/2025/10/202510282300FanalForest.jpg)|

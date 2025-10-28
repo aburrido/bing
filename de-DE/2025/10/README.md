@@ -28,3 +28,4 @@
 202510252200|PumpkinFarm|Kürbisfarm in North Carolina, USA (© Matthew H Irvin/Getty Images)|Herbstzauber in Orange|![](/de-DE/2025/10/202510252200PumpkinFarm.jpg)|
 202510262300|AfricanRaven|Erzrabe, Simien-Nationalpark, Äthiopien (© Ignacio Yufera/FLPA/Minden Pictures)|König der Lüfte|![](/de-DE/2025/10/202510262300AfricanRaven.jpg)|
 202510272300|TepliceRocks|Das Gotische Tor in den Adršpach-Teplice-Felsen, Tschechien (© Kseniya_Milner/Getty Images)|Ein Tor zur Magie der Natur|![](/de-DE/2025/10/202510272300TepliceRocks.jpg)|
+202510282300|FanalForest|Uralte Stinklorbeerbäume im Fanal-Wald auf der Insel Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|In der Zeit verwurzelt|![](/de-DE/2025/10/202510282300FanalForest.jpg)|
