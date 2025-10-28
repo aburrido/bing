@@ -28,3 +28,4 @@
 202510251600|PumpkinFarm|北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)|南瓜日，今日登场！|![](/zh-CN/2025/10/202510251600PumpkinFarm.jpg)|
 202510261600|AutumnColorY25|被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)|千年秘境|![](/zh-CN/2025/10/202510261600AutumnColorY25.jpg)|
 202510271600|TepliceRocks|安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)|通往石之奇境的大门|![](/zh-CN/2025/10/202510271600TepliceRocks.jpg)|
+202510281600|FanalForest|法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)|时光扎根|![](/zh-CN/2025/10/202510281600FanalForest.jpg)|
