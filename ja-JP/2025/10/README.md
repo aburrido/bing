@@ -28,3 +28,4 @@
 202510251500|PumpkinFarm|カボチャ農園, 米国 ノースカロライナ州 (© Matthew H Irvin/Getty Images)|今日はナショナル・パンプキン・デー|![](/ja-JP/2025/10/202510251500PumpkinFarm.jpg)|
 202510261500|AfricanRaven|オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)|大きなくちばしを持つカラス|![](/ja-JP/2025/10/202510261500AfricanRaven.jpg)|
 202510271500|TepliceRocks|アドルシュパフ=テプリツェ奇岩群, チェコ共和国 (© Kseniya_Milner/Getty Images)|岩の迷宮|![](/ja-JP/2025/10/202510271500TepliceRocks.jpg)|
+202510281500|FanalForest|マデイラ島のファナルの森, ポルトガル (© Lukas Jonaitis/Shutterstock)|霧に包まれた幻想の森|![](/ja-JP/2025/10/202510281500FanalForest.jpg)|
