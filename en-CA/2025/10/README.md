@@ -28,3 +28,4 @@
 202510260400|PumpkinFarm|Pumpkin farm in North Carolina, United States (© Matthew H Irvin/Getty Images)|Oh my gourd, it's today!|![](/en-CA/2025/10/202510260400PumpkinFarm.jpg)|
 202510270400|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Bigger, bolder, beakier|![](/en-CA/2025/10/202510270400AfricanRaven.jpg)|
 202510280400|TepliceRocks|The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)|A gateway to stone wonders|![](/en-CA/2025/10/202510280400TepliceRocks.jpg)|
+202510290400|FanalForest|Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|Rooted in time|![](/en-CA/2025/10/202510290400FanalForest.jpg)|
