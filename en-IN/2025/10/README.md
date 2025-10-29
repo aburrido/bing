@@ -29,3 +29,4 @@
 202510261830|ChhathPuja|People worshipping the sun on Chhath, at Juhu Beach, Mumbai, Maharashtra (© Dinodia Photo/Getty Images)|Chhath on the shore|![](/en-IN/2025/10/202510261830ChhathPuja.jpg)|
 202510271830|TepliceRocks|The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)|A gateway to stone wonders|![](/en-IN/2025/10/202510271830TepliceRocks.jpg)|
 202510281830|FanalForest|Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|Rooted in time|![](/en-IN/2025/10/202510281830FanalForest.jpg)|
+202510291830|PushkarFair|Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)|Hooves, hues and heritage|![](/en-IN/2025/10/202510291830PushkarFair.jpg)|
