@@ -29,3 +29,4 @@
 202510261500|AfricanRaven|オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)|大きなくちばしを持つカラス|![](/ja-JP/2025/10/202510261500AfricanRaven.jpg)|
 202510271500|TepliceRocks|アドルシュパフ=テプリツェ奇岩群, チェコ共和国 (© Kseniya_Milner/Getty Images)|岩の迷宮|![](/ja-JP/2025/10/202510271500TepliceRocks.jpg)|
 202510281500|FanalForest|マデイラ島のファナルの森, ポルトガル (© Lukas Jonaitis/Shutterstock)|霧に包まれた幻想の森|![](/ja-JP/2025/10/202510281500FanalForest.jpg)|
+202510291500|PushkarFair|砂漠を歩くラクダたち, インド ラージャスターン州 (© f9photos/Getty Images)|今日からプシュカル・キャメルフェア|![](/ja-JP/2025/10/202510291500PushkarFair.jpg)|
