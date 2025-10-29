@@ -28,3 +28,4 @@
 202510252300|DSTEnds2025|Clock tower of Emmanuel College, University of Cambridge, England (© Geography Photos/Universal Images Group/Getty Images)|Clocking off|![](/en-GB/2025/10/202510252300DSTEnds2025.jpg)|
 202510270000|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Bigger, bolder, beakier|![](/en-GB/2025/10/202510270000AfricanRaven.jpg)|
 202510280000|TepliceRocks|The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)|A gateway to stone wonders|![](/en-GB/2025/10/202510280000TepliceRocks.jpg)|
+202510290000|FanalForest|Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|Rooted in time|![](/en-GB/2025/10/202510290000FanalForest.jpg)|
