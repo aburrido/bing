@@ -30,3 +30,4 @@
 202510272300|TepliceRocks|Das Gotische Tor in den Adršpach-Teplice-Felsen, Tschechien (© Kseniya_Milner/Getty Images)|Ein Tor zur Magie der Natur|![](/de-DE/2025/10/202510272300TepliceRocks.jpg)|
 202510282300|FanalForest|Uralte Stinklorbeerbäume im Fanal-Wald auf der Insel Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|In der Zeit verwurzelt|![](/de-DE/2025/10/202510282300FanalForest.jpg)|
 202510292300|PushkarFair|Kamele in Jaisalmer, Rajasthan, Indien (© f9photos/Getty Images)|Zwischen Dünen und Zeit|![](/de-DE/2025/10/202510292300PushkarFair.jpg)|
+202510302300|BranCastle|Eingang zum Schloss Bran, Brașov, Rumänien (© blue sky in my pocket/Getty Images)|Unter dem Zauber von Halloween|![](/de-DE/2025/10/202510302300BranCastle.jpg)|

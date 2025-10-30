@@ -30,3 +30,4 @@
 202510272300|TepliceRocks|Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)|Un monde au-delà de l’arche|![](/fr-FR/2025/10/202510272300TepliceRocks.jpg)|
 202510282300|FanalForest|Lauriers centenaires de la forêt de Fanal, île de Madère, Portugal (© Lukas Jonaitis/Shutterstock)|Forêt en clair-obscur|![](/fr-FR/2025/10/202510282300FanalForest.jpg)|
 202510292300|PushkarFair|Chameaux d’Arabie à Jaisalmer, Rajasthan, Inde (© f9photos/Getty Images)|Le « bosse » du sable|![](/fr-FR/2025/10/202510292300PushkarFair.jpg)|
+202510302300|BranCastle|Entrée du château de Bran, Brașov, Roumanie (© blue sky in my pocket/Getty Images) Caption URL:|Sortez vos gousses d’ail, vos pieux et vos cols roulés !|![](/fr-FR/2025/10/202510302300BranCastle.jpg)|
