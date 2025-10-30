@@ -29,3 +29,4 @@
 202510270000|AfricanRaven|Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)|Bigger, bolder, beakier|![](/en-GB/2025/10/202510270000AfricanRaven.jpg)|
 202510280000|TepliceRocks|The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)|A gateway to stone wonders|![](/en-GB/2025/10/202510280000TepliceRocks.jpg)|
 202510290000|FanalForest|Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|Rooted in time|![](/en-GB/2025/10/202510290000FanalForest.jpg)|
+202510300000|PushkarFair|Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)|Hooves, hues and heritage|![](/en-GB/2025/10/202510300000PushkarFair.jpg)|
