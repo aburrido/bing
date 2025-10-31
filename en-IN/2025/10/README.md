@@ -31,3 +31,4 @@
 202510281830|FanalForest|Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|Rooted in time|![](/en-IN/2025/10/202510281830FanalForest.jpg)|
 202510291830|PushkarFair|Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)|Hooves, hues and heritage|![](/en-IN/2025/10/202510291830PushkarFair.jpg)|
 202510301830|BranCastle|Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)|Legends in the mist|![](/en-IN/2025/10/202510301830BranCastle.jpg)|
+202510311830|BisonSprings|Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming, United States (© Cheryl Ramalho/Getty Images)|Herds of heritage|![](/en-IN/2025/10/202510311830BisonSprings.jpg)|
