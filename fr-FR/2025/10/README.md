@@ -31,3 +31,4 @@
 202510282300|FanalForest|Lauriers centenaires de la forêt de Fanal, île de Madère, Portugal (© Lukas Jonaitis/Shutterstock)|Forêt en clair-obscur|![](/fr-FR/2025/10/202510282300FanalForest.jpg)|
 202510292300|PushkarFair|Chameaux d’Arabie à Jaisalmer, Rajasthan, Inde (© f9photos/Getty Images)|Le « bosse » du sable|![](/fr-FR/2025/10/202510292300PushkarFair.jpg)|
 202510302300|BranCastle|Entrée du château de Bran, Brașov, Roumanie (© blue sky in my pocket/Getty Images) Caption URL:|Sortez vos gousses d’ail, vos pieux et vos cols roulés !|![](/fr-FR/2025/10/202510302300BranCastle.jpg)|
+202510312300|BisonSprings|Bisons près des sources chaudes de Yellowstone, Wyoming, États-Unis (© Cheryl Ramalho/Getty Images)|La résilience des bisons à Yellowstone|![](/fr-FR/2025/10/202510312300BisonSprings.jpg)|
