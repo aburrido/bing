@@ -31,3 +31,4 @@
 202510281600|FanalForest|法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)|时光扎根|![](/zh-CN/2025/10/202510281600FanalForest.jpg)|
 202510291600|PushkarFair|杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)|蹄声、色彩与传承|![](/zh-CN/2025/10/202510291600PushkarFair.jpg)|
 202510301600|BranCastle|布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)|在万圣节的魔咒之下|![](/zh-CN/2025/10/202510301600BranCastle.jpg)|
+202510311600|BisonSprings|野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国 (© Cheryl Ramalho/Getty Images)|古老血脉的兽群|![](/zh-CN/2025/10/202510311600BisonSprings.jpg)|
