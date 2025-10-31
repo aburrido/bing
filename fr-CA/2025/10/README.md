@@ -30,3 +30,4 @@
 202510280400|TepliceRocks|Porte gothique, rochers d'Adršpach-Teplice, Tchéquie (© Kseniya_Milner/Getty Images)|Un monde au-delà de l’arche|![](/fr-CA/2025/10/202510280400TepliceRocks.jpg)|
 202510290400|FanalForest|Lauriers centenaires de la forêt de Fanal, île de Madère, Portugal (© Lukas Jonaitis/Shutterstock)|Forêt en clair-obscur|![](/fr-CA/2025/10/202510290400FanalForest.jpg)|
 202510300400|PushkarFair|Chameaux d’Arabie à Jaisalmer, Rajasthan, Inde (© f9photos/Getty Images)|Le « bosse » du sable|![](/fr-CA/2025/10/202510300400PushkarFair.jpg)|
+202510310400|PumpkinHalloween|Différentes variétés de citrouilles et de courges (© davidfillion/Getty Images)|À vos sortilèges!|![](/fr-CA/2025/10/202510310400PumpkinHalloween.jpg)|

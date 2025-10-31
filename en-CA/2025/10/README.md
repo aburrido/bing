@@ -30,3 +30,4 @@
 202510280400|TepliceRocks|The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)|A gateway to stone wonders|![](/en-CA/2025/10/202510280400TepliceRocks.jpg)|
 202510290400|FanalForest|Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)|Rooted in time|![](/en-CA/2025/10/202510290400FanalForest.jpg)|
 202510300400|PushkarFair|Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)|Hooves, hues and heritage|![](/en-CA/2025/10/202510300400PushkarFair.jpg)|
+202510310400|PumpkinHalloween|Different kinds of pumpkins and gourds (© davidfillion/Getty Images)|Under the Halloween spell|![](/en-CA/2025/10/202510310400PumpkinHalloween.jpg)|
