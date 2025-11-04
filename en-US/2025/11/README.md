@@ -4,3 +4,4 @@
 202511010700|BisonSprings|Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)|Herds of heritage|![](/en-US/2025/11/202511010700BisonSprings.jpg)|
 202511020800|KyotoMaple|Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)|Where bamboo breathes and maples blaze|![](/en-US/2025/11/202511020800KyotoMaple.jpg)|
 202511030800|MexicoJelly|Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)|Just jellin'|![](/en-US/2025/11/202511030800MexicoJelly.jpg)|
+202511040800|TowerBridgeUK|Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)|Mind the gap—this one opens|![](/en-US/2025/11/202511040800TowerBridgeUK.jpg)|
