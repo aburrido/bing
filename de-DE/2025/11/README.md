@@ -4,3 +4,4 @@
 202511012300|KyotoMaple|Bunte Ahornblätter und Bambuswald in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)|Wo Bambus atmet und Ahornbäume leuchten|![](/de-DE/2025/11/202511012300KyotoMaple.jpg)|
 202511022300|MexicoJelly|Qualle schwimmt im Pazifik, Guerrero, Mexiko (© Christian Vizl/TANDEM Stills + Motion)|Wellenweise Wunder|![](/de-DE/2025/11/202511022300MexicoJelly.jpg)|
 202511032300|TowerBridgeUK|Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)|Mehr als nur Verbindung|![](/de-DE/2025/11/202511032300TowerBridgeUK.jpg)|
+202511042300|MoncayoAutumn|Buchenwald Peña Roya, Naturpark Moncayo, Saragossa, Aragonien, Spanien (© David Santiago Garcia/DEEPOL by plainpicture)|Farbenpracht des Herbstes|![](/de-DE/2025/11/202511042300MoncayoAutumn.jpg)|
