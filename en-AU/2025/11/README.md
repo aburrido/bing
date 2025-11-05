@@ -5,3 +5,4 @@
 202511020700|KyotoMaple|Colourful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)|Info|![](/en-AU/2025/11/202511020700KyotoMaple.jpg)|
 202511030800|MexicoJelly|Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)|Info|![](/en-AU/2025/11/202511030800MexicoJelly.jpg)|
 202511040800|TowerBridgeUK|Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)|Info|![](/en-AU/2025/11/202511040800TowerBridgeUK.jpg)|
+202511050800|MoncayoAutumn|Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)|Info|![](/en-AU/2025/11/202511050800MoncayoAutumn.jpg)|
