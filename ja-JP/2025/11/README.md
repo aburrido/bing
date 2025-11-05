@@ -5,3 +5,4 @@
 202511021500|HinterseeWaterfall|ウィンバッハ峡谷, ドイツ (© EyeEm Mobile GmbH/Getty Images)|爽やかな渓谷と木製の遊歩道|![](/ja-JP/2025/11/202511021500HinterseeWaterfall.jpg)|
 202511031500|TowerBridgeUK|タワーブリッジ, イングランド (© Nick Brundle Photography/Getty Images)|ロンドンを象徴する美しい橋|![](/ja-JP/2025/11/202511031500TowerBridgeUK.jpg)|
 202511041500|MoncayoAutumn|ペーニャ・ロヤのブナ林, スペイン (© David Santiago Garcia/DEEPOL by plainpicture)|モンカヨ自然公園の秋景色|![](/ja-JP/2025/11/202511041500MoncayoAutumn.jpg)|
+202511051500|LanternsThailand|ワット・プラタートハリプンチャイ寺院, タイ (© MR. ANUJAK JAIMOOK/Getty Images)|今日はロイクラトン|![](/ja-JP/2025/11/202511051500LanternsThailand.jpg)|
