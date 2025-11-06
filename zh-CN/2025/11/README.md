@@ -6,3 +6,4 @@
 202511031600|TowerBridgeUK|塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)|小心空隙，桥面将开启！|![](/zh-CN/2025/11/202511031600TowerBridgeUK.jpg)|
 202511041600|MoncayoAutumn|佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙 (© David Santiago Garcia/DEEPOL by plainpicture)|秋天来了，你开心吗？|![](/zh-CN/2025/11/202511041600MoncayoAutumn.jpg)|
 202511051600|LanternsThailand|哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国 (© MR. ANUJAK JAIMOOK/Getty Images)|满天心愿|![](/zh-CN/2025/11/202511051600LanternsThailand.jpg)|
+202511061600|WillowBear|丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)|魅力十足的巨型动物|![](/zh-CN/2025/11/202511061600WillowBear.jpg)|
