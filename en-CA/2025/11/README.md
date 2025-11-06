@@ -6,3 +6,4 @@
 202511030500|MexicoJelly|Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)|Just jellin'|![](/en-CA/2025/11/202511030500MexicoJelly.jpg)|
 202511040500|TowerBridgeUK|Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)|Mind the gap—this one opens|![](/en-CA/2025/11/202511040500TowerBridgeUK.jpg)|
 202511050500|MoncayoAutumn|Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)|Orange you glad it's autumn?|![](/en-CA/2025/11/202511050500MoncayoAutumn.jpg)|
+202511060500|LanternsThailand|Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Sky full of wishes|![](/en-CA/2025/11/202511060500LanternsThailand.jpg)|
