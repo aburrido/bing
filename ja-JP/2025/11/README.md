@@ -6,3 +6,4 @@
 202511031500|TowerBridgeUK|タワーブリッジ, イングランド (© Nick Brundle Photography/Getty Images)|ロンドンを象徴する美しい橋|![](/ja-JP/2025/11/202511031500TowerBridgeUK.jpg)|
 202511041500|MoncayoAutumn|ペーニャ・ロヤのブナ林, スペイン (© David Santiago Garcia/DEEPOL by plainpicture)|モンカヨ自然公園の秋景色|![](/ja-JP/2025/11/202511041500MoncayoAutumn.jpg)|
 202511051500|LanternsThailand|ワット・プラタートハリプンチャイ寺院, タイ (© MR. ANUJAK JAIMOOK/Getty Images)|今日はロイクラトン|![](/ja-JP/2025/11/202511051500LanternsThailand.jpg)|
+202511061500|Lidong2025|エナガ, 日本 (© feathercollector/Shutterstock)|今日は立冬|![](/ja-JP/2025/11/202511061500Lidong2025.jpg)|
