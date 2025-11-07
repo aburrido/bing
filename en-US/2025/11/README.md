@@ -7,3 +7,4 @@
 202511040800|TowerBridgeUK|Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)|Mind the gap—this one opens|![](/en-US/2025/11/202511040800TowerBridgeUK.jpg)|
 202511050800|MoncayoAutumn|Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)|Orange you glad it's fall?|![](/en-US/2025/11/202511050800MoncayoAutumn.jpg)|
 202511060800|LanternsThailand|Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Sky full of wishes|![](/en-US/2025/11/202511060800LanternsThailand.jpg)|
+202511070800|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|Week of the white bear|![](/en-US/2025/11/202511070800WillowBear.jpg)|
