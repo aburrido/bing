@@ -7,3 +7,4 @@
 202511042300|MoncayoAutumn|Buchenwald Peña Roya, Naturpark Moncayo, Saragossa, Aragonien, Spanien (© David Santiago Garcia/DEEPOL by plainpicture)|Farbenpracht des Herbstes|![](/de-DE/2025/11/202511042300MoncayoAutumn.jpg)|
 202511052300|LanternsThailand|Bunte Laternen im Tempel Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Ein Himmel voller Wünsche|![](/de-DE/2025/11/202511052300LanternsThailand.jpg)|
 202511062300|WillowBear|Eisbär in Churchill, Manitoba, Kanada (© karen crewe/Getty Images)|Der König des Nordens|![](/de-DE/2025/11/202511062300WillowBear.jpg)|
+202511072300|BandonBeach|Felsformationen am Bandon Beach in Bandon, Oregon, USA (© Grant Ordelheide/TANDEM Stills + Motion)|Naturkunst am Meer|![](/de-DE/2025/11/202511072300BandonBeach.jpg)|
