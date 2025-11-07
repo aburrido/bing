@@ -7,3 +7,4 @@
 202511041830|GurpurabAmritsar|Golden Temple, Amritsar, Punjab, India (© Alan_Lagadu/Getty Images)|Celebrating Guru Nanak Gurpurab|![](/en-IN/2025/11/202511041830GurpurabAmritsar.jpg)|
 202511051830|LanternsThailand|Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Sky full of wishes|![](/en-IN/2025/11/202511051830LanternsThailand.jpg)|
 202511061830|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|The patience of a polar bear|![](/en-IN/2025/11/202511061830WillowBear.jpg)|
+202511071830|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Rock stars of Bandon|![](/en-IN/2025/11/202511071830BandonBeach.jpg)|
