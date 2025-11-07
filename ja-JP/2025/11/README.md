@@ -7,3 +7,4 @@
 202511041500|MoncayoAutumn|ペーニャ・ロヤのブナ林, スペイン (© David Santiago Garcia/DEEPOL by plainpicture)|モンカヨ自然公園の秋景色|![](/ja-JP/2025/11/202511041500MoncayoAutumn.jpg)|
 202511051500|LanternsThailand|ワット・プラタートハリプンチャイ寺院, タイ (© MR. ANUJAK JAIMOOK/Getty Images)|今日はロイクラトン|![](/ja-JP/2025/11/202511051500LanternsThailand.jpg)|
 202511061500|Lidong2025|エナガ, 日本 (© feathercollector/Shutterstock)|今日は立冬|![](/ja-JP/2025/11/202511061500Lidong2025.jpg)|
+202511071500|BandonBeach|バンドンビーチの海蝕岩, 米国 オレゴン州 (© Grant Ordelheide/TANDEM Stills + Motion)|波や風に削られた岩|![](/ja-JP/2025/11/202511071500BandonBeach.jpg)|
