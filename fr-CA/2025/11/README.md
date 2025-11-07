@@ -7,3 +7,4 @@
 202511040500|TowerBridgeUK|Tower Bridge, Londres, Angleterre (© Nick Brundle Photography/Getty Images)|Pont-pourri d’histoire et d’ingéniosité|![](/fr-CA/2025/11/202511040500TowerBridgeUK.jpg)|
 202511050500|MoncayoAutumn|Forêt de hêtres de Añón de Moncayo, Parc naturel du Moncayo, Saragosse, Espagne (© David Santiago Garcia/DEEPOL by plainpicture)|Saragosse en habits d’automne|![](/fr-CA/2025/11/202511050500MoncayoAutumn.jpg)|
 202511060500|LanternsThailand|Lanterne colorées au temple de Wat Phra That Hariphunchai, Lamphun, Thaïlande (© MR. ANUJAK JAIMOOK/Getty Images)|Des vœux prêts à s’envoler|![](/fr-CA/2025/11/202511060500LanternsThailand.jpg)|
+202511070500|WillowBear|Ours polaire à Churchill, Manitoba, Canada (© karen crewe/Getty Images)|Un ours pas mal léché!|![](/fr-CA/2025/11/202511070500WillowBear.jpg)|
