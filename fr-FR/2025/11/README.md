@@ -8,3 +8,4 @@
 202511052300|LanternsThailand|Lanterne colorées au temple de Wat Phra That Hariphunchai, Lamphun, Thaïlande (© MR. ANUJAK JAIMOOK/Getty Images)|Des vœux prêts à s’envoler|![](/fr-FR/2025/11/202511052300LanternsThailand.jpg)|
 202511062300|WillowBear|Ours polaire à Churchill, Manitoba, Canada (© karen crewe/Getty Images)|Un ours pas mal léché !|![](/fr-FR/2025/11/202511062300WillowBear.jpg)|
 202511072300|BandonBeach|Pitons rocheux de la plage de Bandon, Oregon, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|L’Oregon sauvage|![](/fr-FR/2025/11/202511072300BandonBeach.jpg)|
+202511082300|LagoonNebula|Nuages interstellaires dans la nébuleuse de la Lagune, capturés par le télescope spatial Hubble (© ESA/NASA)|Un peu plus près des étoiles|![](/fr-FR/2025/11/202511082300LagoonNebula.jpg)|
