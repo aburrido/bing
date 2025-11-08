@@ -8,3 +8,4 @@
 202511050800|MoncayoAutumn|Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)|Info|![](/en-AU/2025/11/202511050800MoncayoAutumn.jpg)|
 202511060800|LanternsThailand|Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Info|![](/en-AU/2025/11/202511060800LanternsThailand.jpg)|
 202511070800|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|Info|![](/en-AU/2025/11/202511070800WillowBear.jpg)|
+202511080800|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Info|![](/en-AU/2025/11/202511080800BandonBeach.jpg)|
