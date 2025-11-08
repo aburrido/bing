@@ -7,3 +7,4 @@
 202511050000|GuyFawkesNight2025|Guy Fawkes Night fireworks at Glasgow Green, Scotland (© mountaintreks/Shutterstock)|A night that never fizzles out|![](/en-GB/2025/11/202511050000GuyFawkesNight2025.jpg)|
 202511060000|LanternsThailand|Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Sky full of wishes|![](/en-GB/2025/11/202511060000LanternsThailand.jpg)|
 202511070000|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|Bear-ly blending in|![](/en-GB/2025/11/202511070000WillowBear.jpg)|
+202511080000|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Rock stars of Bandon|![](/en-GB/2025/11/202511080000BandonBeach.jpg)|
