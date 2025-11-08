@@ -8,3 +8,4 @@
 202511051830|LanternsThailand|Colourful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)|Sky full of wishes|![](/en-IN/2025/11/202511051830LanternsThailand.jpg)|
 202511061830|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|The patience of a polar bear|![](/en-IN/2025/11/202511061830WillowBear.jpg)|
 202511071830|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Rock stars of Bandon|![](/en-IN/2025/11/202511071830BandonBeach.jpg)|
+202511081830|LagoonNebula|Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)|Once upon a star|![](/en-IN/2025/11/202511081830LagoonNebula.jpg)|
