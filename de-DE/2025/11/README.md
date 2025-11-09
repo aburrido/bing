@@ -9,3 +9,4 @@
 202511062300|WillowBear|Eisbär in Churchill, Manitoba, Kanada (© karen crewe/Getty Images)|Der König des Nordens|![](/de-DE/2025/11/202511062300WillowBear.jpg)|
 202511072300|BandonBeach|Felsformationen am Bandon Beach in Bandon, Oregon, USA (© Grant Ordelheide/TANDEM Stills + Motion)|Naturkunst am Meer|![](/de-DE/2025/11/202511072300BandonBeach.jpg)|
 202511082300|BerlinOberbaumbruecke|Herzen auf den Türmen der Oberbaumbrücke, Berlin (© fhm/Getty Images)|Symbol der Einheit|![](/de-DE/2025/11/202511082300BerlinOberbaumbruecke.jpg)|
+202511092300|PrairieDogTown|Schwarzschwanz-Präriehunde in der Roberts Prairie Dog Town, Badlands-Nationalpark, South Dakota, USA (© Greg Vaughn/Getty Images)|Verstecktes Leben unter der Prärie|![](/de-DE/2025/11/202511092300PrairieDogTown.jpg)|
