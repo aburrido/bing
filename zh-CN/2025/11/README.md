@@ -9,3 +9,4 @@
 202511061600|WillowBear|丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)|魅力十足的巨型动物|![](/zh-CN/2025/11/202511061600WillowBear.jpg)|
 202511071600|BandonBeach|班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)|班登的明星岩石|![](/zh-CN/2025/11/202511071600BandonBeach.jpg)|
 202511081600|LagoonNebula|礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)|从前有一颗星星|![](/zh-CN/2025/11/202511081600LagoonNebula.jpg)|
+202511091600|PrairieDogTown|土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)|草原之下的生命|![](/zh-CN/2025/11/202511091600PrairieDogTown.jpg)|
