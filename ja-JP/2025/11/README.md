@@ -9,3 +9,4 @@
 202511061500|Lidong2025|エナガ, 日本 (© feathercollector/Shutterstock)|今日は立冬|![](/ja-JP/2025/11/202511061500Lidong2025.jpg)|
 202511071500|BandonBeach|バンドンビーチの海蝕岩, 米国 オレゴン州 (© Grant Ordelheide/TANDEM Stills + Motion)|波や風に削られた岩|![](/ja-JP/2025/11/202511071500BandonBeach.jpg)|
 202511081500|LagoonNebula|ハッブル宇宙望遠鏡が撮影したラグーン星雲の星間雲 (© ESA/NASA)|今日はカール・セーガン・デー|![](/ja-JP/2025/11/202511081500LagoonNebula.jpg)|
+202511091500|MatsumotoCastleDay2025|松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)|今日は松本城の日|![](/ja-JP/2025/11/202511091500MatsumotoCastleDay2025.jpg)|
