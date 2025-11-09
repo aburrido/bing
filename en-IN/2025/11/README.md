@@ -9,3 +9,4 @@
 202511061830|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|The patience of a polar bear|![](/en-IN/2025/11/202511061830WillowBear.jpg)|
 202511071830|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Rock stars of Bandon|![](/en-IN/2025/11/202511071830BandonBeach.jpg)|
 202511081830|LagoonNebula|Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)|Once upon a star|![](/en-IN/2025/11/202511081830LagoonNebula.jpg)|
+202511091830|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, United States (© Greg Vaughn/Getty Images)|Life hidden beneath the prairie|![](/en-IN/2025/11/202511091830PrairieDogTown.jpg)|
