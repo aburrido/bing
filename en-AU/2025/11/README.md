@@ -10,3 +10,4 @@
 202511070800|WillowBear|Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)|Info|![](/en-AU/2025/11/202511070800WillowBear.jpg)|
 202511080800|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Info|![](/en-AU/2025/11/202511080800BandonBeach.jpg)|
 202511090800|LagoonNebula|Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)|Info|![](/en-AU/2025/11/202511090800LagoonNebula.jpg)|
+202511100800|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, United States (© Greg Vaughn/Getty Images)|Info|![](/en-AU/2025/11/202511100800PrairieDogTown.jpg)|
