@@ -10,3 +10,4 @@
 202511072300|BandonBeach|Pitons rocheux de la plage de Bandon, Oregon, États-Unis (© Grant Ordelheide/TANDEM Stills + Motion)|L’Oregon sauvage|![](/fr-FR/2025/11/202511072300BandonBeach.jpg)|
 202511082300|LagoonNebula|Nuages interstellaires dans la nébuleuse de la Lagune, capturés par le télescope spatial Hubble (© ESA/NASA)|Un peu plus près des étoiles|![](/fr-FR/2025/11/202511082300LagoonNebula.jpg)|
 202511092300|PrairieDogTown|Chiens de prairie à queue noire, Parc National des Badlands, Dakota du Sud, États-Unis (© Greg Vaughn/Getty Images)|La vie cachée de la prairie|![](/fr-FR/2025/11/202511092300PrairieDogTown.jpg)|
+202511102300|Armistice|Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)|Un symbole plus que jamais d’actualité|![](/fr-FR/2025/11/202511102300Armistice.jpg)|
