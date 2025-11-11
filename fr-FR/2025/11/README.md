@@ -12,3 +12,4 @@
 202511092300|PrairieDogTown|Chiens de prairie à queue noire, Parc National des Badlands, Dakota du Sud, États-Unis (© Greg Vaughn/Getty Images)|La vie cachée de la prairie|![](/fr-FR/2025/11/202511092300PrairieDogTown.jpg)|
 202511102300|Armistice|Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)|Un symbole plus que jamais d’actualité|![](/fr-FR/2025/11/202511102300Armistice.jpg)|
 ||||![](/fr-FR/2025/11/.jpg)|
+202511112300|ColosseumRome|Vue aérienne du Colisée, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Tous les chemins mènent à Rome|![](/fr-FR/2025/11/202511112300ColosseumRome.jpg)|
