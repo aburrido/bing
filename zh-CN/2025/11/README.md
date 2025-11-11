@@ -11,3 +11,4 @@
 202511081600|LagoonNebula|礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)|从前有一颗星星|![](/zh-CN/2025/11/202511081600LagoonNebula.jpg)|
 202511091600|PrairieDogTown|土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)|草原之下的生命|![](/zh-CN/2025/11/202511091600PrairieDogTown.jpg)|
 202511101600|ExternsteineSunset|条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)|传奇之地|![](/zh-CN/2025/11/202511101600ExternsteineSunset.jpg)|
+202511111600|ColosseumRome|斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)|条条大路通罗马|![](/zh-CN/2025/11/202511111600ColosseumRome.jpg)|
