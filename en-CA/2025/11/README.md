@@ -12,3 +12,4 @@
 202511090500|LagoonNebula|Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)|Once upon a star|![](/en-CA/2025/11/202511090500LagoonNebula.jpg)|
 202511100500|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, United States (© Greg Vaughn/Getty Images)|Life hidden beneath the prairie|![](/en-CA/2025/11/202511100500PrairieDogTown.jpg)|
 202511110500|AloeDichotoma|Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Quivering under starlight|![](/en-CA/2025/11/202511110500AloeDichotoma.jpg)|
+||||![](/en-CA/2025/11/.jpg)|

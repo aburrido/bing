@@ -12,3 +12,4 @@
 202511090800|LagoonNebula|Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)|Info|![](/en-AU/2025/11/202511090800LagoonNebula.jpg)|
 202511100800|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, United States (© Greg Vaughn/Getty Images)|Info|![](/en-AU/2025/11/202511100800PrairieDogTown.jpg)|
 202511110800|ExternsteineSunset|The Externsteine rock formation in the Teutoburg Forest, Germany (© Michael Sroka/Getty Images)|Info|![](/en-AU/2025/11/202511110800ExternsteineSunset.jpg)|
+||||![](/en-AU/2025/11/.jpg)|

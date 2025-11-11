@@ -12,3 +12,4 @@
 202511091500|MatsumotoCastleDay2025|松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)|今日は松本城の日|![](/ja-JP/2025/11/202511091500MatsumotoCastleDay2025.jpg)|
 202511101500|BulgariaRocks|ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)|浸食で形成された砂岩|![](/ja-JP/2025/11/202511101500BulgariaRocks.jpg)|
 202511111500|ColosseumRome|コロッセオ, イタリア (© Nico De Pasquale Photography/Getty Images)|ライトアップされたフラウィウス円形闘技場|![](/ja-JP/2025/11/202511111500ColosseumRome.jpg)|
+||||![](/ja-JP/2025/11/.jpg)|
