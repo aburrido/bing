@@ -10,3 +10,4 @@
 202511080000|BandonBeach|Sea stacks of Bandon Beach in Bandon, Oregon, United States (© Grant Ordelheide/TANDEM Stills + Motion)|Rock stars of Bandon|![](/en-GB/2025/11/202511080000BandonBeach.jpg)|
 202511090000|RemembranceSunday2025|Poppy field (© Howard Double/iStock/Getty Images)|Lest we forget…|![](/en-GB/2025/11/202511090000RemembranceSunday2025.jpg)|
 202511100000|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, USA (© Greg Vaughn/Getty Images)|Life hidden beneath the prairie|![](/en-GB/2025/11/202511100000PrairieDogTown.jpg)|
+202511110000|ExternsteineSunset|The Externsteine rock formation in the Teutoburg Forest, North Rhine-Westphalia, Germany (© Michael Sroka/Getty Images)|Where legends rise|![](/en-GB/2025/11/202511110000ExternsteineSunset.jpg)|
