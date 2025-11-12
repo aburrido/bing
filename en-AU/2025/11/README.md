@@ -13,3 +13,4 @@
 202511100800|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota, United States (© Greg Vaughn/Getty Images)|Info|![](/en-AU/2025/11/202511100800PrairieDogTown.jpg)|
 202511110800|ExternsteineSunset|The Externsteine rock formation in the Teutoburg Forest, Germany (© Michael Sroka/Getty Images)|Info|![](/en-AU/2025/11/202511110800ExternsteineSunset.jpg)|
 ||||![](/en-AU/2025/11/.jpg)|
+202511120800|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Info|![](/en-AU/2025/11/202511120800ColosseumRome.jpg)|
