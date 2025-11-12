@@ -13,3 +13,4 @@
 202511101500|BulgariaRocks|ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)|浸食で形成された砂岩|![](/ja-JP/2025/11/202511101500BulgariaRocks.jpg)|
 202511111500|ColosseumRome|コロッセオ, イタリア (© Nico De Pasquale Photography/Getty Images)|ライトアップされたフラウィウス円形闘技場|![](/ja-JP/2025/11/202511111500ColosseumRome.jpg)|
 ||||![](/ja-JP/2025/11/.jpg)|
+202511121500|AloeDichotoma|クイバーツリーの森, ナミビア (© Wim van den Heever/naturepl.com)|ナミビアにある星空観賞の名所|![](/ja-JP/2025/11/202511121500AloeDichotoma.jpg)|
