@@ -12,3 +12,4 @@
 202511090500|LagoonNebula|Nuages interstellaires dans la nébuleuse de la Lagune, capturés par le télescope spatial Hubble (© ESA/NASA)|Un peu plus près des étoiles|![](/fr-CA/2025/11/202511090500LagoonNebula.jpg)|
 202511100500|PrairieDogTown|Chiens de prairie à queue noire, Parc National des Badlands, Dakota du Sud, États-Unis (© Greg Vaughn/Getty Images)|La vie cachée de la prairie|![](/fr-CA/2025/11/202511100500PrairieDogTown.jpg)|
 202511110500|AloeDichotoma|Arbres carquois sous la Voie lactée, Keetmanshoop, Namibie (© Wim van den Heever/naturepl.com)|Les chandeliers du désert|![](/fr-CA/2025/11/202511110500AloeDichotoma.jpg)|
+202511120500|ColosseumRome|Vue aérienne du Colisée, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Tous les chemins mènent à Rome|![](/fr-CA/2025/11/202511120500ColosseumRome.jpg)|
