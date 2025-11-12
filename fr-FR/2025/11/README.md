@@ -13,3 +13,4 @@
 202511102300|Armistice|Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)|Un symbole plus que jamais d’actualité|![](/fr-FR/2025/11/202511102300Armistice.jpg)|
 ||||![](/fr-FR/2025/11/.jpg)|
 202511112300|ColosseumRome|Vue aérienne du Colisée, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Tous les chemins mènent à Rome|![](/fr-FR/2025/11/202511112300ColosseumRome.jpg)|
+202511122300|ParisAnniversary|Mémorial éphémère en hommage aux victimes des attentats de Paris, Vieux-Port, Marseille (© Anne-Christine Poujoulat/Getty Images)|Dix ans après, la lumière persiste|![](/fr-FR/2025/11/202511122300ParisAnniversary.jpg)|

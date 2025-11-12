@@ -12,3 +12,4 @@
 202511092300|PrairieDogTown|Schwarzschwanz-Präriehunde in der Roberts Prairie Dog Town, Badlands-Nationalpark, South Dakota, USA (© Greg Vaughn/Getty Images)|Verstecktes Leben unter der Prärie|![](/de-DE/2025/11/202511092300PrairieDogTown.jpg)|
 202511102300|ExternsteineSunset|Ansicht der Felsen gegen den Himmel während des Sonnenuntergangs, Externsteine, Teutoburger Wald, Nordrhein-Westfalen (© Michael Sroka/Getty Images)|Imposante Denkmäler|![](/de-DE/2025/11/202511102300ExternsteineSunset.jpg)|
 202511112300|ColosseumRome|Luftaufnahme des Kolosseums, Rom, Italien (© Nico De Pasquale Photography/Getty Images)|Alle Wege führen nach Rom|![](/de-DE/2025/11/202511112300ColosseumRome.jpg)|
+202511122300|AloeDichotoma|Köcherbäume bei Nacht mit der Milchstraße, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Die Sternenwächter|![](/de-DE/2025/11/202511122300AloeDichotoma.jpg)|
