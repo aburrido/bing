@@ -13,3 +13,4 @@
 202511100800|PrairieDogTown|Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)|Life hidden beneath the prairie|![](/en-US/2025/11/202511100800PrairieDogTown.jpg)|
 202511110800|MarineMemorial|Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)|Honoring their service|![](/en-US/2025/11/202511110800MarineMemorial.jpg)|
 202511120800|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|All roads lead to Rome|![](/en-US/2025/11/202511120800ColosseumRome.jpg)|
+202511130800|AloeDichotoma|Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Quivering under starlight|![](/en-US/2025/11/202511130800AloeDichotoma.jpg)|
