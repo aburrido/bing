@@ -13,3 +13,4 @@
 202511100500|PrairieDogTown|Chiens de prairie à queue noire, Parc National des Badlands, Dakota du Sud, États-Unis (© Greg Vaughn/Getty Images)|La vie cachée de la prairie|![](/fr-CA/2025/11/202511100500PrairieDogTown.jpg)|
 202511110500|AloeDichotoma|Arbres carquois sous la Voie lactée, Keetmanshoop, Namibie (© Wim van den Heever/naturepl.com)|Les chandeliers du désert|![](/fr-CA/2025/11/202511110500AloeDichotoma.jpg)|
 202511120500|ColosseumRome|Vue aérienne du Colisée, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Tous les chemins mènent à Rome|![](/fr-CA/2025/11/202511120500ColosseumRome.jpg)|
+202511130500|TntChrisMkt|Village d’hiver de la Distillerie 2020, Toronto (© Steve Russell/Toronto Star via Getty Images)|La saison la plus magique de l’année commence!|![](/fr-CA/2025/11/202511130500TntChrisMkt.jpg)|
