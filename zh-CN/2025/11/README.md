@@ -13,3 +13,4 @@
 202511101600|ExternsteineSunset|条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)|传奇之地|![](/zh-CN/2025/11/202511101600ExternsteineSunset.jpg)|
 202511111600|ColosseumRome|斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)|条条大路通罗马|![](/zh-CN/2025/11/202511111600ColosseumRome.jpg)|
 202511121600|AloeDichotoma|夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)|星光下的颤动之树|![](/zh-CN/2025/11/202511121600AloeDichotoma.jpg)|
+202511131600|ManateeBaby|海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)|快节奏时代，别忘了慢下来|![](/zh-CN/2025/11/202511131600ManateeBaby.jpg)|
