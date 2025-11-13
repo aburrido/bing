@@ -13,3 +13,4 @@
 202511110000|ExternsteineSunset|The Externsteine rock formation in the Teutoburg Forest, North Rhine-Westphalia, Germany (© Michael Sroka/Getty Images)|Where legends rise|![](/en-GB/2025/11/202511110000ExternsteineSunset.jpg)|
 ||||![](/en-GB/2025/11/.jpg)|
 202511120000|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|All roads lead to Rome|![](/en-GB/2025/11/202511120000ColosseumRome.jpg)|
+202511130000|AloeDichotoma|Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Quivering under starlight|![](/en-GB/2025/11/202511130000AloeDichotoma.jpg)|
