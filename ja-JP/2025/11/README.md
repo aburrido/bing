@@ -14,3 +14,4 @@
 202511111500|ColosseumRome|コロッセオ, イタリア (© Nico De Pasquale Photography/Getty Images)|ライトアップされたフラウィウス円形闘技場|![](/ja-JP/2025/11/202511111500ColosseumRome.jpg)|
 ||||![](/ja-JP/2025/11/.jpg)|
 202511121500|AloeDichotoma|クイバーツリーの森, ナミビア (© Wim van den Heever/naturepl.com)|ナミビアにある星空観賞の名所|![](/ja-JP/2025/11/202511121500AloeDichotoma.jpg)|
+202511131500|ManateeBaby|マナティー, 米国 フロリダ州 (© Gregory Sweeney/Getty Images)|11 月はマナティー啓発月間|![](/ja-JP/2025/11/202511131500ManateeBaby.jpg)|
