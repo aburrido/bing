@@ -14,3 +14,4 @@
 202511111830|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|All roads lead to Rome|![](/en-IN/2025/11/202511111830ColosseumRome.jpg)|
 ||||![](/en-IN/2025/11/.jpg)|
 202511121830|AloeDichotoma|Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Quivering under starlight|![](/en-IN/2025/11/202511121830AloeDichotoma.jpg)|
+202511131830|SaypeGeneva|Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)|Sketched into history|![](/en-IN/2025/11/202511131830SaypeGeneva.jpg)|
