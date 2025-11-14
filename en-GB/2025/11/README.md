@@ -14,3 +14,4 @@
 ||||![](/en-GB/2025/11/.jpg)|
 202511120000|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|All roads lead to Rome|![](/en-GB/2025/11/202511120000ColosseumRome.jpg)|
 202511130000|AloeDichotoma|Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Quivering under starlight|![](/en-GB/2025/11/202511130000AloeDichotoma.jpg)|
+202511140000|ManateeBaby|Mother manatee and calf, Crystal River, Florida, United States    (© Gregory Sweeney/Getty Images)|A slow reminder for a fast world|![](/en-GB/2025/11/202511140000ManateeBaby.jpg)|
