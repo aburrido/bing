@@ -15,3 +15,4 @@
 ||||![](/en-CA/2025/11/.jpg)|
 202511120500|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|All roads lead to Rome|![](/en-CA/2025/11/202511120500ColosseumRome.jpg)|
 202511130500|TntChrisMkt|The 2020 Distillery Winter Village, Toronto (© Steve Russell/Toronto Star via Getty Images)|Shop till you drop|![](/en-CA/2025/11/202511130500TntChrisMkt.jpg)|
+202511140500|ManateeBaby|Mother manatee and calf, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|A slow reminder for a fast world|![](/en-CA/2025/11/202511140500ManateeBaby.jpg)|
