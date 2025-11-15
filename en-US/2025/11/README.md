@@ -15,3 +15,4 @@
 202511120800|ColosseumRome|Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)|All roads lead to Rome|![](/en-US/2025/11/202511120800ColosseumRome.jpg)|
 202511130800|AloeDichotoma|Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Quivering under starlight|![](/en-US/2025/11/202511130800AloeDichotoma.jpg)|
 202511140800|ManateeBaby|Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)|A slow reminder for a fast world|![](/en-US/2025/11/202511140800ManateeBaby.jpg)|
+202511150800|IrohazakaAutumn|Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)|Bend it like Nikko|![](/en-US/2025/11/202511150800IrohazakaAutumn.jpg)|
