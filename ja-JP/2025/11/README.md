@@ -16,3 +16,4 @@
 202511121500|AloeDichotoma|クイバーツリーの森, ナミビア (© Wim van den Heever/naturepl.com)|ナミビアにある星空観賞の名所|![](/ja-JP/2025/11/202511121500AloeDichotoma.jpg)|
 202511131500|ManateeBaby|マナティー, 米国 フロリダ州 (© Gregory Sweeney/Getty Images)|11 月はマナティー啓発月間|![](/ja-JP/2025/11/202511131500ManateeBaby.jpg)|
 202511141500|IrohazakaAutumn|いろは坂, 栃木県 日光市 (© oneinchpunch/Shutterstock)|紅葉盛りのいろは坂|![](/ja-JP/2025/11/202511141500IrohazakaAutumn.jpg)|
+202511151500|LyonTraboules|リヨンにあるトラブール, フランス (© TPopova/Getty Images)|歴史ある建物に囲まれた空の窓|![](/ja-JP/2025/11/202511151500LyonTraboules.jpg)|
