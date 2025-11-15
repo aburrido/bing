@@ -15,3 +15,4 @@
 202511120500|ColosseumRome|Vue aérienne du Colisée, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Tous les chemins mènent à Rome|![](/fr-CA/2025/11/202511120500ColosseumRome.jpg)|
 202511130500|TntChrisMkt|Village d’hiver de la Distillerie 2020, Toronto (© Steve Russell/Toronto Star via Getty Images)|La saison la plus magique de l’année commence!|![](/fr-CA/2025/11/202511130500TntChrisMkt.jpg)|
 202511140500|ManateeBaby|Lamantin femelle et son petit, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)|Une vache marine au cœur d’éléphant|![](/fr-CA/2025/11/202511140500ManateeBaby.jpg)|
+202511150500|IrohazakaAutumn|Route de Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)|La route qui écrit l’automne|![](/fr-CA/2025/11/202511150500IrohazakaAutumn.jpg)|
