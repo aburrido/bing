@@ -16,3 +16,4 @@
 202511122300|ParisAnniversary|Mémorial éphémère en hommage aux victimes des attentats de Paris, Vieux-Port, Marseille (© Anne-Christine Poujoulat/Getty Images)|Dix ans après, la lumière persiste|![](/fr-FR/2025/11/202511122300ParisAnniversary.jpg)|
 202511132300|ManateeBaby|Lamantin femelle et son petit, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)|Une vache marine au cœur d’éléphant|![](/fr-FR/2025/11/202511132300ManateeBaby.jpg)|
 202511142300|IrohazakaAutumn|Route d'Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)|La route qui écrit l’automne|![](/fr-FR/2025/11/202511142300IrohazakaAutumn.jpg)|
+202511152300|LyonTraboules|Traboules du Vieux Lyon, Auvergne-Rhône-Alpes (© TPopova/Getty Images)|Lyon, mode traboule activé !|![](/fr-FR/2025/11/202511152300LyonTraboules.jpg)|

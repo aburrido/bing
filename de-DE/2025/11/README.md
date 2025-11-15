@@ -15,3 +15,4 @@
 202511122300|AloeDichotoma|Köcherbäume bei Nacht mit der Milchstraße, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Die Sternenwächter|![](/de-DE/2025/11/202511122300AloeDichotoma.jpg)|
 202511132300|ManateeBaby|Rundschwanzseekuh mit Kalb, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Schwimmend durch Florida|![](/de-DE/2025/11/202511132300ManateeBaby.jpg)|
 202511142300|IrohazakaAutumn|Irohazaka-Straße im Herbst, Nikkō, Tochigi, Japan (© oneinchpunch/Shutterstock)|Kurvenkunst in Nikkō|![](/de-DE/2025/11/202511142300IrohazakaAutumn.jpg)|
+202511152300|LyonTraboules|Eine Traboule in Lyon, Frankreich (© TPopova/Getty Images)|Historische Durchgänge|![](/de-DE/2025/11/202511152300LyonTraboules.jpg)|
