@@ -15,3 +15,4 @@
 202511121600|AloeDichotoma|夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)|星光下的颤动之树|![](/zh-CN/2025/11/202511121600AloeDichotoma.jpg)|
 202511131600|ManateeBaby|海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)|快节奏时代，别忘了慢下来|![](/zh-CN/2025/11/202511131600ManateeBaby.jpg)|
 202511141600|IrohazakaAutumn|秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)|像日光那样“弯道飞驰”|![](/zh-CN/2025/11/202511141600IrohazakaAutumn.jpg)|
+202511151600|LyonTraboules|里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国|承载过往的篇章|![](/zh-CN/2025/11/202511151600LyonTraboules.jpg)|
