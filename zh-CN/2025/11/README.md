@@ -16,3 +16,4 @@
 202511131600|ManateeBaby|海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)|快节奏时代，别忘了慢下来|![](/zh-CN/2025/11/202511131600ManateeBaby.jpg)|
 202511141600|IrohazakaAutumn|秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)|像日光那样“弯道飞驰”|![](/zh-CN/2025/11/202511141600IrohazakaAutumn.jpg)|
 202511151600|LyonTraboules|里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国|承载过往的篇章|![](/zh-CN/2025/11/202511151600LyonTraboules.jpg)|
+202511161600|ShenandoahTrail|谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)|小径在召唤|![](/zh-CN/2025/11/202511161600ShenandoahTrail.jpg)|
