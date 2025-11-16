@@ -17,3 +17,4 @@
 202511131830|SaypeGeneva|Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)|Sketched into history|![](/en-IN/2025/11/202511131830SaypeGeneva.jpg)|
 202511141830|IrohazakaAutumn|Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)|Bend it like Nikko|![](/en-IN/2025/11/202511141830IrohazakaAutumn.jpg)|
 202511151830|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Passages with a past|![](/en-IN/2025/11/202511151830LyonTraboules.jpg)|
+202511161830|ShenandoahTrail|Autumn colours in Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)|The trails' call|![](/en-IN/2025/11/202511161830ShenandoahTrail.jpg)|
