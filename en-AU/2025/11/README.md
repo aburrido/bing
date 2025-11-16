@@ -17,3 +17,4 @@
 202511130800|AloeDichotoma|Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)|Info|![](/en-AU/2025/11/202511130800AloeDichotoma.jpg)|
 202511140800|ManateeBaby|Mother manatee and calf, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|Info|![](/en-AU/2025/11/202511140800ManateeBaby.jpg)|
 202511150800|IrohazakaAutumn|Irohazaka RoadTochigi, Japan (© oneinchpunch/Shutterstock)|Info|![](/en-AU/2025/11/202511150800IrohazakaAutumn.jpg)|
+202511160800|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Info|![](/en-AU/2025/11/202511160800LyonTraboules.jpg)|
