@@ -17,3 +17,4 @@
 202511132300|ManateeBaby|Lamantin femelle et son petit, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)|Une vache marine au cœur d’éléphant|![](/fr-FR/2025/11/202511132300ManateeBaby.jpg)|
 202511142300|IrohazakaAutumn|Route d'Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)|La route qui écrit l’automne|![](/fr-FR/2025/11/202511142300IrohazakaAutumn.jpg)|
 202511152300|LyonTraboules|Traboules du Vieux Lyon, Auvergne-Rhône-Alpes (© TPopova/Getty Images)|Lyon, mode traboule activé !|![](/fr-FR/2025/11/202511152300LyonTraboules.jpg)|
+202511162300|AlpesAutumn|Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)|Un dernier élan de couleur avant l’hiver|![](/fr-FR/2025/11/202511162300AlpesAutumn.jpg)|

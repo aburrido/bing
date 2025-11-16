@@ -16,3 +16,4 @@
 202511132300|ManateeBaby|Rundschwanzseekuh mit Kalb, Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Schwimmend durch Florida|![](/de-DE/2025/11/202511132300ManateeBaby.jpg)|
 202511142300|IrohazakaAutumn|Irohazaka-Straße im Herbst, Nikkō, Tochigi, Japan (© oneinchpunch/Shutterstock)|Kurvenkunst in Nikkō|![](/de-DE/2025/11/202511142300IrohazakaAutumn.jpg)|
 202511152300|LyonTraboules|Eine Traboule in Lyon, Frankreich (© TPopova/Getty Images)|Historische Durchgänge|![](/de-DE/2025/11/202511152300LyonTraboules.jpg)|
+202511162300|GermanyOwl|Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)|Majestätische Jäger der Nacht|![](/de-DE/2025/11/202511162300GermanyOwl.jpg)|
