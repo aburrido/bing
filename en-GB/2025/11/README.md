@@ -17,3 +17,4 @@
 202511140000|ManateeBaby|Mother manatee and calf, Crystal River, Florida, United States    (© Gregory Sweeney/Getty Images)|A slow reminder for a fast world|![](/en-GB/2025/11/202511140000ManateeBaby.jpg)|
 202511150000|IrohazakaAutumn|Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)|Bend it like Nikko|![](/en-GB/2025/11/202511150000IrohazakaAutumn.jpg)|
 202511160000|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Passages with a past|![](/en-GB/2025/11/202511160000LyonTraboules.jpg)|
+202511170000|ShenandoahTrail|Autumn colours in Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)|The trails' call|![](/en-GB/2025/11/202511170000ShenandoahTrail.jpg)|
