@@ -17,3 +17,4 @@
 202511140500|ManateeBaby|Lamantin femelle et son petit, Crystal River, Floride, États-Unis (© Gregory Sweeney/Getty Images)|Une vache marine au cœur d’éléphant|![](/fr-CA/2025/11/202511140500ManateeBaby.jpg)|
 202511150500|IrohazakaAutumn|Route de Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)|La route qui écrit l’automne|![](/fr-CA/2025/11/202511150500IrohazakaAutumn.jpg)|
 202511160500|LyonTraboules|Traboule du Vieux Lyon, France (© TPopova/Getty Images)|Lyon, mode traboule activé!|![](/fr-CA/2025/11/202511160500LyonTraboules.jpg)|
+202511170500|RedFoxVulpes|Renard roux, Canada (© RT-Images/Getty Images)|Rusé comme un renard… et fier de l’être!|![](/fr-CA/2025/11/202511170500RedFoxVulpes.jpg)|

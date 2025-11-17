@@ -18,3 +18,4 @@
 202511140500|ManateeBaby|Mother manatee and calf, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|A slow reminder for a fast world|![](/en-CA/2025/11/202511140500ManateeBaby.jpg)|
 202511150500|IrohazakaAutumn|Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)|Bend it like Nikko|![](/en-CA/2025/11/202511150500IrohazakaAutumn.jpg)|
 202511160500|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Passages with a past|![](/en-CA/2025/11/202511160500LyonTraboules.jpg)|
+202511170500|RedFoxVulpes|Red fox, Canada (© RT-Images/Getty Images)|Fox in focus|![](/en-CA/2025/11/202511170500RedFoxVulpes.jpg)|
