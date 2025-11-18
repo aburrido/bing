@@ -18,3 +18,4 @@
 202511151600|LyonTraboules|里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国|承载过往的篇章|![](/zh-CN/2025/11/202511151600LyonTraboules.jpg)|
 202511161600|ShenandoahTrail|谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)|小径在召唤|![](/zh-CN/2025/11/202511161600ShenandoahTrail.jpg)|
 202511171600|AutumnMerganser|雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)|秋日里的羽翼明星|![](/zh-CN/2025/11/202511171600AutumnMerganser.jpg)|
+202511181600|BudapestParliament|匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)|石头与符号，诉说一个民族的故事|![](/zh-CN/2025/11/202511181600BudapestParliament.jpg)|
