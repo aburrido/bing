@@ -18,3 +18,4 @@
 202511150500|IrohazakaAutumn|Route de Irohazaka en automne, Nikkō, Tochigi, Japon (© oneinchpunch/Shutterstock)|La route qui écrit l’automne|![](/fr-CA/2025/11/202511150500IrohazakaAutumn.jpg)|
 202511160500|LyonTraboules|Traboule du Vieux Lyon, France (© TPopova/Getty Images)|Lyon, mode traboule activé!|![](/fr-CA/2025/11/202511160500LyonTraboules.jpg)|
 202511170500|RedFoxVulpes|Renard roux, Canada (© RT-Images/Getty Images)|Rusé comme un renard… et fier de l’être!|![](/fr-CA/2025/11/202511170500RedFoxVulpes.jpg)|
+202511180500|AutumnMerganser|Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)|« Huppe », « Huppe », « Huppe » ! Qui va là!|![](/fr-CA/2025/11/202511180500AutumnMerganser.jpg)|

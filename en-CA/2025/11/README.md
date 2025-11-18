@@ -19,3 +19,4 @@
 202511150500|IrohazakaAutumn|Irohazaka Road in autumn, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)|Bend it like Nikko|![](/en-CA/2025/11/202511150500IrohazakaAutumn.jpg)|
 202511160500|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Passages with a past|![](/en-CA/2025/11/202511160500LyonTraboules.jpg)|
 202511170500|RedFoxVulpes|Red fox, Canada (© RT-Images/Getty Images)|Fox in focus|![](/en-CA/2025/11/202511170500RedFoxVulpes.jpg)|
+202511180500|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Autumn's feathered headliner|![](/en-CA/2025/11/202511180500AutumnMerganser.jpg)|
