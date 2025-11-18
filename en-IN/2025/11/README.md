@@ -19,3 +19,4 @@
 202511151830|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Passages with a past|![](/en-IN/2025/11/202511151830LyonTraboules.jpg)|
 202511161830|ShenandoahTrail|Autumn colours in Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)|The trails' call|![](/en-IN/2025/11/202511161830ShenandoahTrail.jpg)|
 202511171830|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Autumn's feathered headliner|![](/en-IN/2025/11/202511171830AutumnMerganser.jpg)|
+202511181830|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Stone, symbol and a nation's story|![](/en-IN/2025/11/202511181830BudapestParliament.jpg)|
