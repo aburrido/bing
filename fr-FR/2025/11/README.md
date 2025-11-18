@@ -19,3 +19,4 @@
 202511152300|LyonTraboules|Traboules du Vieux Lyon, Auvergne-Rhône-Alpes (© TPopova/Getty Images)|Lyon, mode traboule activé !|![](/fr-FR/2025/11/202511152300LyonTraboules.jpg)|
 202511162300|AlpesAutumn|Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)|Un dernier élan de couleur avant l’hiver|![](/fr-FR/2025/11/202511162300AlpesAutumn.jpg)|
 202511172300|AutumnMerganser|Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)|« Huppe », « Huppe », « Huppe » ! Qui va là !|![](/fr-FR/2025/11/202511172300AutumnMerganser.jpg)|
+202511182300|BudapestParliament|Parlement, Budapest, Hongrie (© Alexander Spatari/Getty Images)|Un Parlement de lumière|![](/fr-FR/2025/11/202511182300BudapestParliament.jpg)|
