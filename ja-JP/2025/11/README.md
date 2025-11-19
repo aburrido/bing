@@ -20,3 +20,4 @@
 202511161500|ShenandoahTrail|シェナンドー国立公園, 米国 バージニア州 (© Michael Ver Sprill/Getty Images)|今日はナショナル・ハイキング・デー|![](/ja-JP/2025/11/202511161500ShenandoahTrail.jpg)|
 202511171500|AutumnMerganser|オスのオウギアイサ, 米国 オレゴン州 (© Eric Vogt/TANDEM Stills + Motion)|湖で泳ぐ白黒の冠羽を持つ水鳥|![](/ja-JP/2025/11/202511171500AutumnMerganser.jpg)|
 202511181500|BudapestParliament|国会議事堂, ハンガリー (© Alexander Spatari/Getty Images)|ライトアップされたブダペストの心臓|![](/ja-JP/2025/11/202511181500BudapestParliament.jpg)|
+202511191500|SaypeGeneva|Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)|今日は「世界子どもの日」|![](/ja-JP/2025/11/202511191500SaypeGeneva.jpg)|
