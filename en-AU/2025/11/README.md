@@ -20,3 +20,4 @@
 202511160800|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Info|![](/en-AU/2025/11/202511160800LyonTraboules.jpg)|
 202511170800|ShenandoahTrail|Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)|Info|![](/en-AU/2025/11/202511170800ShenandoahTrail.jpg)|
 202511180800|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Info|![](/en-AU/2025/11/202511180800AutumnMerganser.jpg)|
+202511190800|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Info|![](/en-AU/2025/11/202511190800BudapestParliament.jpg)|
