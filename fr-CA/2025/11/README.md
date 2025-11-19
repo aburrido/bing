@@ -19,3 +19,4 @@
 202511160500|LyonTraboules|Traboule du Vieux Lyon, France (© TPopova/Getty Images)|Lyon, mode traboule activé!|![](/fr-CA/2025/11/202511160500LyonTraboules.jpg)|
 202511170500|RedFoxVulpes|Renard roux, Canada (© RT-Images/Getty Images)|Rusé comme un renard… et fier de l’être!|![](/fr-CA/2025/11/202511170500RedFoxVulpes.jpg)|
 202511180500|AutumnMerganser|Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)|« Huppe », « Huppe », « Huppe » ! Qui va là!|![](/fr-CA/2025/11/202511180500AutumnMerganser.jpg)|
+202511190500|BudapestParliament|Parlement, Budapest, Hongrie (© Alexander Spatari/Getty Images)|Un Parlement de lumière|![](/fr-CA/2025/11/202511190500BudapestParliament.jpg)|

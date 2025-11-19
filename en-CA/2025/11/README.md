@@ -20,3 +20,4 @@
 202511160500|LyonTraboules|A traboule in Lyon, France (© TPopova/Getty Images)|Passages with a past|![](/en-CA/2025/11/202511160500LyonTraboules.jpg)|
 202511170500|RedFoxVulpes|Red fox, Canada (© RT-Images/Getty Images)|Fox in focus|![](/en-CA/2025/11/202511170500RedFoxVulpes.jpg)|
 202511180500|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Autumn's feathered headliner|![](/en-CA/2025/11/202511180500AutumnMerganser.jpg)|
+202511190500|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Stone, symbol and a nation's story|![](/en-CA/2025/11/202511190500BudapestParliament.jpg)|
