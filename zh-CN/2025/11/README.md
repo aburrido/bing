@@ -19,3 +19,4 @@
 202511161600|ShenandoahTrail|谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)|小径在召唤|![](/zh-CN/2025/11/202511161600ShenandoahTrail.jpg)|
 202511171600|AutumnMerganser|雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)|秋日里的羽翼明星|![](/zh-CN/2025/11/202511171600AutumnMerganser.jpg)|
 202511181600|BudapestParliament|匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)|石头与符号，诉说一个民族的故事|![](/zh-CN/2025/11/202511181600BudapestParliament.jpg)|
+202511191600|PondCave|查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)|颂扬保护与美|![](/zh-CN/2025/11/202511191600PondCave.jpg)|
