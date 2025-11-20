@@ -21,3 +21,4 @@
 202511170800|ShenandoahTrail|Shenandoah National Park, Virginia, United States (© Michael Ver Sprill/Getty Images)|Info|![](/en-AU/2025/11/202511170800ShenandoahTrail.jpg)|
 202511180800|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Info|![](/en-AU/2025/11/202511180800AutumnMerganser.jpg)|
 202511190800|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Info|![](/en-AU/2025/11/202511190800BudapestParliament.jpg)|
+202511200800|PondCave|Chapada Diamantina, Bahia, Brazil (© Marcio Dufranc/Getty Images)|Info|![](/en-AU/2025/11/202511200800PondCave.jpg)|
