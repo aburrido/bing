@@ -21,3 +21,4 @@
 202511172300|AutumnMerganser|Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)|« Huppe », « Huppe », « Huppe » ! Qui va là !|![](/fr-FR/2025/11/202511172300AutumnMerganser.jpg)|
 202511182300|BudapestParliament|Parlement, Budapest, Hongrie (© Alexander Spatari/Getty Images)|Un Parlement de lumière|![](/fr-FR/2025/11/202511182300BudapestParliament.jpg)|
 202511192300|SaypeGeneva|L’artiste Saype avec son œuvre de land art au siège de l’ONU, Genève, Suisse (© Valentin Flauraud/EPA-EFE/Shutterstock)|Le monde entre leurs mains|![](/fr-FR/2025/11/202511192300SaypeGeneva.jpg)|
+202511202300|SealWaving|Phoques gris, parc d'État Robert Moses, Long Island, New York, États-Unis (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le pouvoir d’un bonjour|![](/fr-FR/2025/11/202511202300SealWaving.jpg)|

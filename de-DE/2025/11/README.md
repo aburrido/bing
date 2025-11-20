@@ -20,3 +20,4 @@
 202511172300|AutumnMerganser|Männlicher Kappensäger, Oregon, USA (© Eric Vogt/TANDEM Stills + Motion)|Herbststar mit Haube|![](/de-DE/2025/11/202511172300AutumnMerganser.jpg)|
 202511182300|BudapestParliament|Ungarisches Parlamentsgebäude, Budapest, Ungarn (© Alexander Spatari/Getty Images)|Stein, Symbol und die Geschichte einer Nation|![](/de-DE/2025/11/202511182300BudapestParliament.jpg)|
 202511192300|SaypeGeneva|Land-Art-Gemälde von Saype, Hauptsitz der Vereinten Nationen in Genf, Schweiz (© Valentin Flauraud/EPA-EFE/Shutterstock)|Jedes Kind zählt!|![](/de-DE/2025/11/202511192300SaypeGeneva.jpg)|
+202511202300|SealWaving|Seehunde im Robert Moses State Park, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Ein Gruß mit Flosse|![](/de-DE/2025/11/202511202300SealWaving.jpg)|
