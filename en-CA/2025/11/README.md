@@ -21,3 +21,4 @@
 202511170500|RedFoxVulpes|Red fox, Canada (© RT-Images/Getty Images)|Fox in focus|![](/en-CA/2025/11/202511170500RedFoxVulpes.jpg)|
 202511180500|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Autumn's feathered headliner|![](/en-CA/2025/11/202511180500AutumnMerganser.jpg)|
 202511190500|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Stone, symbol and a nation's story|![](/en-CA/2025/11/202511190500BudapestParliament.jpg)|
+202511200500|SaypeGeneva|Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)|Sketched into history|![](/en-CA/2025/11/202511200500SaypeGeneva.jpg)|

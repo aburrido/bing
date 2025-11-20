@@ -20,3 +20,4 @@
 202511170500|RedFoxVulpes|Renard roux, Canada (© RT-Images/Getty Images)|Rusé comme un renard… et fier de l’être!|![](/fr-CA/2025/11/202511170500RedFoxVulpes.jpg)|
 202511180500|AutumnMerganser|Harle couronné mâle, Oregon, États-Unis (© Eric Vogt/TANDEM Stills + Motion)|« Huppe », « Huppe », « Huppe » ! Qui va là!|![](/fr-CA/2025/11/202511180500AutumnMerganser.jpg)|
 202511190500|BudapestParliament|Parlement, Budapest, Hongrie (© Alexander Spatari/Getty Images)|Un Parlement de lumière|![](/fr-CA/2025/11/202511190500BudapestParliament.jpg)|
+202511200500|SaypeGeneva|L’artiste Saype avec son œuvre de land art au siège de l’ONU, Genève, Suisse (© Valentin Flauraud/EPA-EFE/Shutterstock)|Le monde entre leurs mains|![](/fr-CA/2025/11/202511200500SaypeGeneva.jpg)|
