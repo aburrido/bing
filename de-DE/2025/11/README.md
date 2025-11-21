@@ -21,3 +21,4 @@
 202511182300|BudapestParliament|Ungarisches Parlamentsgebäude, Budapest, Ungarn (© Alexander Spatari/Getty Images)|Stein, Symbol und die Geschichte einer Nation|![](/de-DE/2025/11/202511182300BudapestParliament.jpg)|
 202511192300|SaypeGeneva|Land-Art-Gemälde von Saype, Hauptsitz der Vereinten Nationen in Genf, Schweiz (© Valentin Flauraud/EPA-EFE/Shutterstock)|Jedes Kind zählt!|![](/de-DE/2025/11/202511192300SaypeGeneva.jpg)|
 202511202300|SealWaving|Seehunde im Robert Moses State Park, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Ein Gruß mit Flosse|![](/de-DE/2025/11/202511202300SealWaving.jpg)|
+202511212300|LeshanBuddha|Großer Buddha von Leshan, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)|Wächter über Flüsse und Zeit|![](/de-DE/2025/11/202511212300LeshanBuddha.jpg)|
