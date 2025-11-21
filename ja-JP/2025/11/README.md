@@ -22,3 +22,4 @@
 202511181500|BudapestParliament|国会議事堂, ハンガリー (© Alexander Spatari/Getty Images)|ライトアップされたブダペストの心臓|![](/ja-JP/2025/11/202511181500BudapestParliament.jpg)|
 202511191500|SaypeGeneva|Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)|今日は「世界子どもの日」|![](/ja-JP/2025/11/202511191500SaypeGeneva.jpg)|
 202511201500|SealWaving|ゼニガタアザラシ, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日は世界ハロー・デー|![](/ja-JP/2025/11/202511201500SealWaving.jpg)|
+202511211500|Kenrokuen2025|兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)|紅葉に彩られた日本庭園|![](/ja-JP/2025/11/202511211500Kenrokuen2025.jpg)|
