@@ -22,3 +22,4 @@
 202511181830|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Stone, symbol and a nation's story|![](/en-IN/2025/11/202511181830BudapestParliament.jpg)|
 202511191830|ManateeBaby|Mother manatee and calf, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|A slow reminder for a fast world|![](/en-IN/2025/11/202511191830ManateeBaby.jpg)|
 202511201830|KeralaEzhikara2025|Small island with a building near Ezhikkara, Kerala (© gulfu photography/Moment/Getty Images)|Going with the flow|![](/en-IN/2025/11/202511201830KeralaEzhikara2025.jpg)|
+202511211830|LeshanBuddha|Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)|The guardian of the waters|![](/en-IN/2025/11/202511211830LeshanBuddha.jpg)|
