@@ -22,3 +22,4 @@
 202511180800|AutumnMerganser|Male hooded merganser, Oregon, United States (© Eric Vogt/TANDEM Stills + Motion)|Info|![](/en-AU/2025/11/202511180800AutumnMerganser.jpg)|
 202511190800|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Info|![](/en-AU/2025/11/202511190800BudapestParliament.jpg)|
 202511200800|PondCave|Chapada Diamantina, Bahia, Brazil (© Marcio Dufranc/Getty Images)|Info|![](/en-AU/2025/11/202511200800PondCave.jpg)|
+202511210800|SealWaving|Harbour seals at Robert Moses State Park, Long Island, New York, United States (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2025/11/202511210800SealWaving.jpg)|

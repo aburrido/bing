@@ -21,3 +21,4 @@
 202511180800|AutumnMerganser|Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)|Fall's feathered headliner|![](/en-US/2025/11/202511180800AutumnMerganser.jpg)|
 202511190800|BudapestParliament|Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)|Stone, symbol, and a nation's story|![](/en-US/2025/11/202511190800BudapestParliament.jpg)|
 202511200800|SaypeGeneva|Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)|Sketched into history|![](/en-US/2025/11/202511200800SaypeGeneva.jpg)|
+202511210800|SealWaving|Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Sealed with a hello|![](/en-US/2025/11/202511210800SealWaving.jpg)|
