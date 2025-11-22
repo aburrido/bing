@@ -22,3 +22,4 @@
 202511191600|PondCave|查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)|颂扬保护与美|![](/zh-CN/2025/11/202511191600PondCave.jpg)|
 202511201600|SealWaving|罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|带着“你好”的问候|![](/zh-CN/2025/11/202511201600SealWaving.jpg)|
 202511211600|LeshanBuddha|乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)|守护江河的佛像|![](/zh-CN/2025/11/202511211600LeshanBuddha.jpg)|
+202511221600|MadgascarAmmonite|马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)|大自然的秘密代码|![](/zh-CN/2025/11/202511221600MadgascarAmmonite.jpg)|
