@@ -23,3 +23,4 @@
 202511192300|SaypeGeneva|L’artiste Saype avec son œuvre de land art au siège de l’ONU, Genève, Suisse (© Valentin Flauraud/EPA-EFE/Shutterstock)|Le monde entre leurs mains|![](/fr-FR/2025/11/202511192300SaypeGeneva.jpg)|
 202511202300|SealWaving|Phoques gris, parc d'État Robert Moses, Long Island, New York, États-Unis (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le pouvoir d’un bonjour|![](/fr-FR/2025/11/202511202300SealWaving.jpg)|
 202511212300|LeshanBuddha|Grand Bouddha de Leshan, Sichuan, Chine (© www.anotherdayattheoffice.org/Getty Images)|Le géant qui veille sur les eaux|![](/fr-FR/2025/11/202511212300LeshanBuddha.jpg)|
+202511222300|MadgascarAmmonite|Fossile d’ammonite de Madagascar (© ThomasLENNE/Shutterstock)|Fossile, mais pas has-been !|![](/fr-FR/2025/11/202511222300MadgascarAmmonite.jpg)|
