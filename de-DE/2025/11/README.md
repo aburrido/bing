@@ -23,3 +23,4 @@
 202511202300|SealWaving|Seehunde im Robert Moses State Park, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Ein Gruß mit Flosse|![](/de-DE/2025/11/202511202300SealWaving.jpg)|
 202511212300|LeshanBuddha|Großer Buddha von Leshan, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)|Wächter über Flüsse und Zeit|![](/de-DE/2025/11/202511212300LeshanBuddha.jpg)|
 202511222300|MadgascarAmmonite|Ammonitenfossil aus Madagaskar (© ThomasLENNE/Shutterstock)|Natur im Zahlencode|![](/de-DE/2025/11/202511222300MadgascarAmmonite.jpg)|
+202511232300|GwailorFort|Gwalior-Fort, Madhya Pradesh, Indien (© ImagesofIndia/Shutterstock)|Stille Zeugen vergangener Macht|![](/de-DE/2025/11/202511232300GwailorFort.jpg)|
