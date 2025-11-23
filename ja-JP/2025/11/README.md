@@ -24,3 +24,4 @@
 202511201500|SealWaving|ゼニガタアザラシ, 米国 ニューヨーク州 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|今日は世界ハロー・デー|![](/ja-JP/2025/11/202511201500SealWaving.jpg)|
 202511211500|Kenrokuen2025|兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)|紅葉に彩られた日本庭園|![](/ja-JP/2025/11/202511211500Kenrokuen2025.jpg)|
 202511221500|MadgascarAmmonite|アンモナイトの化石, マダガスカル (© ThomasLENNE/Shutterstock)|今日はフィボナッチ数の日|![](/ja-JP/2025/11/202511221500MadgascarAmmonite.jpg)|
+202511231500|GwailorFort|グワーリヤル城, インド マディヤ・プラデーシュ州 (© ImagesofIndia/Shutterstock)|丘の上に築かれた壮大な要塞|![](/ja-JP/2025/11/202511231500GwailorFort.jpg)|
