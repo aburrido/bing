@@ -24,3 +24,4 @@
 202511201830|KeralaEzhikara2025|Small island with a building near Ezhikkara, Kerala (© gulfu photography/Moment/Getty Images)|Going with the flow|![](/en-IN/2025/11/202511201830KeralaEzhikara2025.jpg)|
 202511211830|LeshanBuddha|Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)|The guardian of the waters|![](/en-IN/2025/11/202511211830LeshanBuddha.jpg)|
 202511221830|MadgascarAmmonite|Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)|Nature's secret code|![](/en-IN/2025/11/202511221830MadgascarAmmonite.jpg)|
+202511231830|GwailorFort|Gwalior Fort, Madhya Pradesh (© ImagesofIndia/Shutterstock)|Secrets in stone|![](/en-IN/2025/11/202511231830GwailorFort.jpg)|
