@@ -24,3 +24,4 @@
 202511200500|SaypeGeneva|Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)|Sketched into history|![](/en-CA/2025/11/202511200500SaypeGeneva.jpg)|
 202511210500|SealWaving|Harbour seals at Robert Moses State Park, Long Island, New York, United States (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Sealed with a hello|![](/en-CA/2025/11/202511210500SealWaving.jpg)|
 202511220500|LeshanBuddha|Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)|The guardian of the waters|![](/en-CA/2025/11/202511220500LeshanBuddha.jpg)|
+202511230500|MadgascarAmmonite|Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)|Nature's secret code|![](/en-CA/2025/11/202511230500MadgascarAmmonite.jpg)|
