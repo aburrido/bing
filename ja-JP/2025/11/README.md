@@ -25,3 +25,4 @@
 202511211500|Kenrokuen2025|兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)|紅葉に彩られた日本庭園|![](/ja-JP/2025/11/202511211500Kenrokuen2025.jpg)|
 202511221500|MadgascarAmmonite|アンモナイトの化石, マダガスカル (© ThomasLENNE/Shutterstock)|今日はフィボナッチ数の日|![](/ja-JP/2025/11/202511221500MadgascarAmmonite.jpg)|
 202511231500|GwailorFort|グワーリヤル城, インド マディヤ・プラデーシュ州 (© ImagesofIndia/Shutterstock)|丘の上に築かれた壮大な要塞|![](/ja-JP/2025/11/202511231500GwailorFort.jpg)|
+202511241500|TreviFountain|トレヴィの泉, イタリア (© Nico De Pasquale Photography/Getty Images)|願いを託す噴水|![](/ja-JP/2025/11/202511241500TreviFountain.jpg)|
