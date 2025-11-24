@@ -24,3 +24,4 @@
 202511210500|SealWaving|Phoques gris, parc d'État Robert Moses, Long Island, New York, États-Unis (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Le pouvoir d’un bonjour|![](/fr-CA/2025/11/202511210500SealWaving.jpg)|
 202511220500|LeshanBuddha|Grand Bouddha de Leshan, Sichuan, Chine (© www.anotherdayattheoffice.org/Getty Images)|Le géant qui veille sur les eaux|![](/fr-CA/2025/11/202511220500LeshanBuddha.jpg)|
 202511230500|MadgascarAmmonite|Fossile d’ammonite de Madagascar (© ThomasLENNE/Shutterstock)|Fossile, mais pas has-been!|![](/fr-CA/2025/11/202511230500MadgascarAmmonite.jpg)|
+202511240500|GwailorFort|Fort de Gwalior, Madhya Pradesh, Inde (© ImagesofIndia/Shutterstock)|La perle des forteresses|![](/fr-CA/2025/11/202511240500GwailorFort.jpg)|
