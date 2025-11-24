@@ -25,3 +25,4 @@
 202511210800|SealWaving|Harbour seals at Robert Moses State Park, Long Island, New York, United States (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)|Info|![](/en-AU/2025/11/202511210800SealWaving.jpg)|
 202511220800|MonteVelino|Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)|Info|![](/en-AU/2025/11/202511220800MonteVelino.jpg)|
 202511230800|MadgascarAmmonite|Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)|Info|![](/en-AU/2025/11/202511230800MadgascarAmmonite.jpg)|
+202511240800|GwailorFort|Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)|Info|![](/en-AU/2025/11/202511240800GwailorFort.jpg)|
