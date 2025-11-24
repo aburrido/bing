@@ -24,3 +24,4 @@
 202511211600|LeshanBuddha|乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)|守护江河的佛像|![](/zh-CN/2025/11/202511211600LeshanBuddha.jpg)|
 202511221600|MadgascarAmmonite|马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)|大自然的秘密代码|![](/zh-CN/2025/11/202511221600MadgascarAmmonite.jpg)|
 202511231600|GwailorFort|瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)|岩石中的秘密|![](/zh-CN/2025/11/202511231600GwailorFort.jpg)|
+202511241600|TreviFountain|罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)|爱情、幸运与硬币|![](/zh-CN/2025/11/202511241600TreviFountain.jpg)|
