@@ -25,3 +25,4 @@
 202511220000|LeshanBuddha|Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)|The guardian of the waters|![](/en-GB/2025/11/202511220000LeshanBuddha.jpg)|
 202511230000|MadgascarAmmonite|Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)|Nature's secret code|![](/en-GB/2025/11/202511230000MadgascarAmmonite.jpg)|
 202511240000|GwailorFort|Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)|Secrets in stone|![](/en-GB/2025/11/202511240000GwailorFort.jpg)|
+202511250000|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Love, luck and loose change|![](/en-GB/2025/11/202511250000TreviFountain.jpg)|
