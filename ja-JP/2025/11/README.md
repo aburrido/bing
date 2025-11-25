@@ -26,3 +26,4 @@
 202511221500|MadgascarAmmonite|アンモナイトの化石, マダガスカル (© ThomasLENNE/Shutterstock)|今日はフィボナッチ数の日|![](/ja-JP/2025/11/202511221500MadgascarAmmonite.jpg)|
 202511231500|GwailorFort|グワーリヤル城, インド マディヤ・プラデーシュ州 (© ImagesofIndia/Shutterstock)|丘の上に築かれた壮大な要塞|![](/ja-JP/2025/11/202511231500GwailorFort.jpg)|
 202511241500|TreviFountain|トレヴィの泉, イタリア (© Nico De Pasquale Photography/Getty Images)|願いを託す噴水|![](/ja-JP/2025/11/202511241500TreviFountain.jpg)|
+202511251500|TamagawaHotspring2025|玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)|今日は「いい風呂の日」|![](/ja-JP/2025/11/202511251500TamagawaHotspring2025.jpg)|
