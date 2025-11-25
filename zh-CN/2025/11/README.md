@@ -25,3 +25,4 @@
 202511221600|MadgascarAmmonite|马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)|大自然的秘密代码|![](/zh-CN/2025/11/202511221600MadgascarAmmonite.jpg)|
 202511231600|GwailorFort|瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)|岩石中的秘密|![](/zh-CN/2025/11/202511231600GwailorFort.jpg)|
 202511241600|TreviFountain|罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)|爱情、幸运与硬币|![](/zh-CN/2025/11/202511241600TreviFountain.jpg)|
+202511251600|OliveGrove|特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)|让树叶诉说历史|![](/zh-CN/2025/11/202511251600OliveGrove.jpg)|
