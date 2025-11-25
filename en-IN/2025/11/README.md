@@ -26,3 +26,4 @@
 202511221830|MadgascarAmmonite|Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)|Nature's secret code|![](/en-IN/2025/11/202511221830MadgascarAmmonite.jpg)|
 202511231830|GwailorFort|Gwalior Fort, Madhya Pradesh (© ImagesofIndia/Shutterstock)|Secrets in stone|![](/en-IN/2025/11/202511231830GwailorFort.jpg)|
 202511241830|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Love, luck, and loose change|![](/en-IN/2025/11/202511241830TreviFountain.jpg)|
+202511251830|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|'Leaf' it to history|![](/en-IN/2025/11/202511251830OliveGrove.jpg)|
