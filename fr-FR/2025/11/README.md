@@ -26,3 +26,4 @@
 202511222300|MadgascarAmmonite|Fossile d’ammonite de Madagascar (© ThomasLENNE/Shutterstock)|Fossile, mais pas has-been !|![](/fr-FR/2025/11/202511222300MadgascarAmmonite.jpg)|
 202511232300|GwailorFort|Fort de Gwalior, Madhya Pradesh, Inde (© ImagesofIndia/Shutterstock)|La perle des forteresses|![](/fr-FR/2025/11/202511232300GwailorFort.jpg)|
 202511242300|TreviFountain|La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Rome-antisme éternel|![](/fr-FR/2025/11/202511242300TreviFountain.jpg)|
+202511252300|HandmadeMarket|Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)|La saison la plus attendue de l’année est lancée !|![](/fr-FR/2025/11/202511252300HandmadeMarket.jpg)|

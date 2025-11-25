@@ -25,3 +25,4 @@
 202511222300|MadgascarAmmonite|Ammonitenfossil aus Madagaskar (© ThomasLENNE/Shutterstock)|Natur im Zahlencode|![](/de-DE/2025/11/202511222300MadgascarAmmonite.jpg)|
 202511232300|GwailorFort|Gwalior-Fort, Madhya Pradesh, Indien (© ImagesofIndia/Shutterstock)|Stille Zeugen vergangener Macht|![](/de-DE/2025/11/202511232300GwailorFort.jpg)|
 202511242300|ErfurtChristmas|Weihnachtsmarkt Erfurt, Thüringen (© Jareck/Getty Images)|Ein Fest der Düfte|![](/de-DE/2025/11/202511242300ErfurtChristmas.jpg)|
+202511252300|OliveGrove|Olivenhain in der Serra de Tramuntana, Mallorca, Balearische Inseln, Spanien (© cinoby/Getty Images)|Wurzeln der Vergangenheit|![](/de-DE/2025/11/202511252300OliveGrove.jpg)|
