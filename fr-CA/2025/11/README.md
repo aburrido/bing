@@ -26,3 +26,4 @@
 202511230500|MadgascarAmmonite|Fossile d’ammonite de Madagascar (© ThomasLENNE/Shutterstock)|Fossile, mais pas has-been!|![](/fr-CA/2025/11/202511230500MadgascarAmmonite.jpg)|
 202511240500|GwailorFort|Fort de Gwalior, Madhya Pradesh, Inde (© ImagesofIndia/Shutterstock)|La perle des forteresses|![](/fr-CA/2025/11/202511240500GwailorFort.jpg)|
 202511250500|TreviFountain|La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Rome-antisme éternel|![](/fr-CA/2025/11/202511250500TreviFountain.jpg)|
+202511260500|OliveGrove|Verger d’oliviers dans la Serra de Tramuntana, à Majorque, îles Baléares, Espagne (© cinoby/Getty Images)|L’arbre qui unit la terre et les hommes|![](/fr-CA/2025/11/202511260500OliveGrove.jpg)|
