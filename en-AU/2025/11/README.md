@@ -27,3 +27,4 @@
 202511230800|MadgascarAmmonite|Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)|Info|![](/en-AU/2025/11/202511230800MadgascarAmmonite.jpg)|
 202511240800|GwailorFort|Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)|Info|![](/en-AU/2025/11/202511240800GwailorFort.jpg)|
 202511250800|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Info|![](/en-AU/2025/11/202511250800TreviFountain.jpg)|
+202511260800|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|Info|![](/en-AU/2025/11/202511260800OliveGrove.jpg)|
