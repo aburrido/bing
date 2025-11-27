@@ -28,3 +28,4 @@
 202511242300|TreviFountain|La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Rome-antisme éternel|![](/fr-FR/2025/11/202511242300TreviFountain.jpg)|
 202511252300|HandmadeMarket|Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)|La saison la plus attendue de l’année est lancée !|![](/fr-FR/2025/11/202511252300HandmadeMarket.jpg)|
 202511262300|PierOfEastbourne2025|Jetée d’Eastbourne, East Sussex, Angleterre (© Tolga_TEZCAN/Getty Images)|Une jetée très british|![](/fr-FR/2025/11/202511262300PierOfEastbourne2025.jpg)|
+202511272300|InvernoItalia|Val Brandet, Brescia, Lombardie, Italie (© ClickAlps/Alamy)|Un paysage de glace à l’italienne|![](/fr-FR/2025/11/202511272300InvernoItalia.jpg)|

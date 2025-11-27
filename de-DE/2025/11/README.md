@@ -27,3 +27,4 @@
 202511242300|ErfurtChristmas|Weihnachtsmarkt Erfurt, Thüringen (© Jareck/Getty Images)|Ein Fest der Düfte|![](/de-DE/2025/11/202511242300ErfurtChristmas.jpg)|
 202511252300|OliveGrove|Olivenhain in der Serra de Tramuntana, Mallorca, Balearische Inseln, Spanien (© cinoby/Getty Images)|Wurzeln der Vergangenheit|![](/de-DE/2025/11/202511252300OliveGrove.jpg)|
 202511262300|PierOfEastbourne2025|Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)|Standhaft im Spiel der Gezeiten|![](/de-DE/2025/11/202511262300PierOfEastbourne2025.jpg)|
+202511272300|InvernoItalia|Val Brandet, Brescia, Lombardei, Italien (© ClickAlps/Alamy)|Flüstern in Weiß|![](/de-DE/2025/11/202511272300InvernoItalia.jpg)|
