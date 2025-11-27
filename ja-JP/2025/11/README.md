@@ -28,3 +28,4 @@
 202511241500|TreviFountain|トレヴィの泉, イタリア (© Nico De Pasquale Photography/Getty Images)|願いを託す噴水|![](/ja-JP/2025/11/202511241500TreviFountain.jpg)|
 202511251500|TamagawaHotspring2025|玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)|今日は「いい風呂の日」|![](/ja-JP/2025/11/202511251500TamagawaHotspring2025.jpg)|
 202511261500|LeshanBuddha|楽山大仏, 中国 四川省 (© www.anotherdayattheoffice.org/Getty Images)|崖に彫られた巨大な石仏|![](/ja-JP/2025/11/202511261500LeshanBuddha.jpg)|
+202511271500|PierOfEastbourne2025|イーストボーン・ピア, イングランド (© Tolga_TEZCAN/Getty Images)|ライトアップされたヴィクトリア様式の桟橋|![](/ja-JP/2025/11/202511271500PierOfEastbourne2025.jpg)|
