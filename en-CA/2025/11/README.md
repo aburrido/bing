@@ -28,3 +28,4 @@
 202511240500|GwailorFort|Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)|Secrets in stone|![](/en-CA/2025/11/202511240500GwailorFort.jpg)|
 202511250500|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Love, luck and loose change|![](/en-CA/2025/11/202511250500TreviFountain.jpg)|
 202511260500|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|'Leaf' it to history|![](/en-CA/2025/11/202511260500OliveGrove.jpg)|
+202511270500|PierOfEastbourne2025|Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)|Standing the test of tide|![](/en-CA/2025/11/202511270500PierOfEastbourne2025.jpg)|
