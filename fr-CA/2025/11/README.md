@@ -28,3 +28,4 @@
 202511250500|TreviFountain|La fontaine de Trevi, Rome, Italie (© Nico De Pasquale Photography/Getty Images)|Rome-antisme éternel|![](/fr-CA/2025/11/202511250500TreviFountain.jpg)|
 202511260500|OliveGrove|Verger d’oliviers dans la Serra de Tramuntana, à Majorque, îles Baléares, Espagne (© cinoby/Getty Images)|L’arbre qui unit la terre et les hommes|![](/fr-CA/2025/11/202511260500OliveGrove.jpg)|
 202511270500|PierOfEastbourne2025|Jetée d’Eastbourne, East Sussex, Angleterre (© Tolga_TEZCAN/Getty Images)|Une jetée très british|![](/fr-CA/2025/11/202511270500PierOfEastbourne2025.jpg)|
+202511280500|InvernoItalia|Val Brandet, Brescia, Lombardie, Italie (© ClickAlps/Alamy)|Un paysage de glace à l’italienne|![](/fr-CA/2025/11/202511280500InvernoItalia.jpg)|
