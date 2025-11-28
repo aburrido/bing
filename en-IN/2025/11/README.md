@@ -29,3 +29,4 @@
 202511251830|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|'Leaf' it to history|![](/en-IN/2025/11/202511251830OliveGrove.jpg)|
 202511261830|PierOfEastbourne2025|Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)|Standing the test of tide|![](/en-IN/2025/11/202511261830PierOfEastbourne2025.jpg)|
 202511271830|InvernoItalia|Val Brandet, Brescia, Lombardy, Italy (© ClickAlps/Alamy)|Echoes in white|![](/en-IN/2025/11/202511271830InvernoItalia.jpg)|
+202511281830|DeerVeluwe|Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)|Oh deer, it's cold!|![](/en-IN/2025/11/202511281830DeerVeluwe.jpg)|
