@@ -28,3 +28,4 @@
 202511251600|OliveGrove|特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)|让树叶诉说历史|![](/zh-CN/2025/11/202511251600OliveGrove.jpg)|
 202511261600|PierOfEastbourne2025|伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)|潮起潮落的坚守|![](/zh-CN/2025/11/202511261600PierOfEastbourne2025.jpg)|
 202511271600|InvernoItalia|瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)|白色回响|![](/zh-CN/2025/11/202511271600InvernoItalia.jpg)|
+202511281600|DeerVeluwe|荷兰梵高国家森林公园的马鹿雄鹿, 荷兰 (© CreativeNature_nl/Getty Images)|哎呀，好冷啊！|![](/zh-CN/2025/11/202511281600DeerVeluwe.jpg)|
