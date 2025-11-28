@@ -28,3 +28,4 @@
 202511250000|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Love, luck and loose change|![](/en-GB/2025/11/202511250000TreviFountain.jpg)|
 202511260000|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|'Leaf' it to history|![](/en-GB/2025/11/202511260000OliveGrove.jpg)|
 202511270000|PierOfEastbourne2025|Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)|Standing the test of tide|![](/en-GB/2025/11/202511270000PierOfEastbourne2025.jpg)|
+202511280000|InvernoItalia|Val Brandet, Corteno Golgi, Brescia, Lombardy, Italy (© ClickAlps/Alamy)|Echoes in white|![](/en-GB/2025/11/202511280000InvernoItalia.jpg)|
