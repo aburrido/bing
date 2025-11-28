@@ -29,3 +29,4 @@
 202511250800|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Info|![](/en-AU/2025/11/202511250800TreviFountain.jpg)|
 202511260800|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|Info|![](/en-AU/2025/11/202511260800OliveGrove.jpg)|
 202511270800|PierOfEastbourne2025|Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)|Info|![](/en-AU/2025/11/202511270800PierOfEastbourne2025.jpg)|
+202511280800|InvernoItalia|Val Brandet, Brescia, Lombardy, Italy (© ClickAlps/Alamy)|Info|![](/en-AU/2025/11/202511280800InvernoItalia.jpg)|

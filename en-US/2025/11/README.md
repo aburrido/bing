@@ -28,3 +28,4 @@
 202511250800|TreviFountain|The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)|Love, luck, and loose change|![](/en-US/2025/11/202511250800TreviFountain.jpg)|
 202511260800|OliveGrove|Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)|'Leaf' it to history|![](/en-US/2025/11/202511260800OliveGrove.jpg)|
 202511270800|TurkeyDetail|Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)|The echoes of Plymouth|![](/en-US/2025/11/202511270800TurkeyDetail.jpg)|
+202511280800|ConchaBelt|Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)|Wear your heritage|![](/en-US/2025/11/202511280800ConchaBelt.jpg)|
