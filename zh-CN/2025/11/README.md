@@ -30,3 +30,4 @@
 202511271600|InvernoItalia|瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)|白色回响|![](/zh-CN/2025/11/202511271600InvernoItalia.jpg)|
 202511281600|DeerVeluwe|荷兰梵高国家森林公园的马鹿雄鹿, 荷兰 (© CreativeNature_nl/Getty Images)|哎呀，好冷啊！|![](/zh-CN/2025/11/202511281600DeerVeluwe.jpg)|
 202511291600|LeipzigMarket|莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)|一路闪耀|![](/zh-CN/2025/11/202511291600LeipzigMarket.jpg)|
+202511301600|AntarcticArch|冰山上天然形成的拱门, 南极洲 (© Gabrielle/Adobe Stock)|冰雪凝息之处|![](/zh-CN/2025/11/202511301600AntarcticArch.jpg)|
