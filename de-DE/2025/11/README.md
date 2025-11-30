@@ -30,3 +30,4 @@
 202511272300|InvernoItalia|Val Brandet, Brescia, Lombardei, Italien (© ClickAlps/Alamy)|Flüstern in Weiß|![](/de-DE/2025/11/202511272300InvernoItalia.jpg)|
 202511282300|DeerVeluwe|Rothirsch im Nationalpark De Hoge Veluwe, Niederlande (© CreativeNature_nl/Getty Images)|Ganz schön frostig|![](/de-DE/2025/11/202511282300DeerVeluwe.jpg)|
 202511292300|LeipzigMarket|Weihnachtsmarkt in Leipzig, Sachsen (© Krzysztof Baranowski/Getty Images)|Glitzernde Adventsreise|![](/de-DE/2025/11/202511292300LeipzigMarket.jpg)|
+202511302300|AdventcalendarGermany|Adventskalendersäckchen mit süßen Überraschungen (© wideonet/Getty Images)|Säckchen voller Vorfreude|![](/de-DE/2025/11/202511302300AdventcalendarGermany.jpg)|

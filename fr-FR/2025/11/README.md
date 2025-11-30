@@ -31,3 +31,4 @@
 202511272300|InvernoItalia|Val Brandet, Brescia, Lombardie, Italie (© ClickAlps/Alamy)|Un paysage de glace à l’italienne|![](/fr-FR/2025/11/202511272300InvernoItalia.jpg)|
 202511282300|DeerVeluwe|Cerf élaphe dans le parc national De Hoge Veluwe, Pays-Bas (© CreativeNature_nl/Getty Images)|Brame-moi une histoire|![](/fr-FR/2025/11/202511282300DeerVeluwe.jpg)|
 202511292300|LeipzigMarket|Marché de Noël à Leipzig, Allemagne (© Krzysztof Baranowski/Getty Images)|Un Noël venu d’ailleurs|![](/fr-FR/2025/11/202511292300LeipzigMarket.jpg)|
+202511302300|AntarcticArch|Arche naturelle sculptée dans un iceberg, Antarctique (© Gabrielle/Adobe Stock)|L’arche du silence|![](/fr-FR/2025/11/202511302300AntarcticArch.jpg)|
