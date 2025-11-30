@@ -31,3 +31,4 @@
 202511270500|PierOfEastbourne2025|Eastbourne Pier, East Sussex, England (© Tolga_TEZCAN/Getty Images)|Standing the test of tide|![](/en-CA/2025/11/202511270500PierOfEastbourne2025.jpg)|
 202511280500|InvernoItalia|Val Brandet, Brescia, Lombardy, Italy (© ClickAlps/Alamy)|Echoes in white|![](/en-CA/2025/11/202511280500InvernoItalia.jpg)|
 202511290500|DeerVeluwe|Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)|Oh deer, it's cold!|![](/en-CA/2025/11/202511290500DeerVeluwe.jpg)|
+202511300500|LeipzigMarket|Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)|Twinkle all the way|![](/en-CA/2025/11/202511300500LeipzigMarket.jpg)|

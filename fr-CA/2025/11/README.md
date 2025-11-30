@@ -30,3 +30,4 @@
 202511270500|PierOfEastbourne2025|Jetée d’Eastbourne, East Sussex, Angleterre (© Tolga_TEZCAN/Getty Images)|Une jetée très british|![](/fr-CA/2025/11/202511270500PierOfEastbourne2025.jpg)|
 202511280500|InvernoItalia|Val Brandet, Brescia, Lombardie, Italie (© ClickAlps/Alamy)|Un paysage de glace à l’italienne|![](/fr-CA/2025/11/202511280500InvernoItalia.jpg)|
 202511290500|DeerVeluwe|Cerf élaphe dans le parc national De Hoge Veluwe, Pays-Bas (© CreativeNature_nl/Getty Images)|Brame-moi une histoire|![](/fr-CA/2025/11/202511290500DeerVeluwe.jpg)|
+202511300500|LeipzigMarket|Marché de Noël à Leipzig, Allemagne (© Krzysztof Baranowski/Getty Images)|Un Noël venu d’ailleurs|![](/fr-CA/2025/11/202511300500LeipzigMarket.jpg)|
