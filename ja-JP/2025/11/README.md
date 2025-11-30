@@ -31,3 +31,4 @@
 202511271500|PierOfEastbourne2025|イーストボーン・ピア, イングランド (© Tolga_TEZCAN/Getty Images)|ライトアップされたヴィクトリア様式の桟橋|![](/ja-JP/2025/11/202511271500PierOfEastbourne2025.jpg)|
 202511281500|DeerVeluwe|アカシカ, オランダ (© CreativeNature_nl/Getty Images)|ホーヘ・フェルウェ国立公園で咆哮するアカシカ|![](/ja-JP/2025/11/202511281500DeerVeluwe.jpg)|
 202511291500|LeipzigMarket|ライプツィヒ・クリスマスマーケット, ドイツ (© Krzysztof Baranowski/Getty Images)|賑やかなクリスマスマーケット|![](/ja-JP/2025/11/202511291500LeipzigMarket.jpg)|
+202511301500|AntarcticArch|南極の氷山に刻まれた天然のアーチ, 南極大陸 (© Gabrielle/Adobe Stock)|今日は南極の日|![](/ja-JP/2025/11/202511301500AntarcticArch.jpg)|
