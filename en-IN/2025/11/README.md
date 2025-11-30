@@ -31,3 +31,4 @@
 202511271830|InvernoItalia|Val Brandet, Brescia, Lombardy, Italy (© ClickAlps/Alamy)|Echoes in white|![](/en-IN/2025/11/202511271830InvernoItalia.jpg)|
 202511281830|DeerVeluwe|Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)|Oh deer, it's cold!|![](/en-IN/2025/11/202511281830DeerVeluwe.jpg)|
 202511291830|LeipzigMarket|Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)|Twinkle all the way|![](/en-IN/2025/11/202511291830LeipzigMarket.jpg)|
+202511301830|AntarcticArch|Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)|Where ice holds its breath|![](/en-IN/2025/11/202511301830AntarcticArch.jpg)|
