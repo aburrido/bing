@@ -30,3 +30,4 @@
 202511270800|TurkeyDetail|Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)|The echoes of Plymouth|![](/en-US/2025/11/202511270800TurkeyDetail.jpg)|
 202511280800|ConchaBelt|Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)|Wear your heritage|![](/en-US/2025/11/202511280800ConchaBelt.jpg)|
 202511290800|DeerVeluwe|Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)|Oh deer, it's cold!|![](/en-US/2025/11/202511290800DeerVeluwe.jpg)|
+202511300800|LeipzigMarket|Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)|Twinkle all the way|![](/en-US/2025/11/202511300800LeipzigMarket.jpg)|
