@@ -4,3 +4,4 @@
 202512010800|AntarcticArch|Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)|Info|![](/en-AU/2025/12/202512010800AntarcticArch.jpg)|
 202512020800|WillowLake|Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska, United States (© Patrick J. Endres/Getty Images)|Info|![](/en-AU/2025/12/202512020800WillowLake.jpg)|
 202512030800|BosqueCranes|Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico, United States (© Jack Dykinga/Minden Pictures)|Info|![](/en-AU/2025/12/202512030800BosqueCranes.jpg)|
+202512040800|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Info|![](/en-AU/2025/12/202512040800CheetahMound.jpg)|
