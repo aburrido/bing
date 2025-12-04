@@ -4,3 +4,4 @@
 202512012300|WillowLake|Willow Lake und Mount Blackburn, Wrangell-St.-Elias-Nationalpark und Schutzgebiet, Alaska, USA (© Patrick J. Endres/Getty Images)|Ein Ausblick, der Bände spricht|![](/de-DE/2025/12/202512012300WillowLake.jpg)|
 202512022300|BosqueCranes|Kanadakraniche im Sonnenaufgang, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jack Dykinga/Minden Pictures)|Morgendämmerung der Kraniche|![](/de-DE/2025/12/202512022300BosqueCranes.jpg)|
 202512032300|CheetahMound|Gepard im Maasai Mara National Reserve, Narok, Kenia (© Andy Rouse/naturepl.com)|Sprint ums Überleben|![](/de-DE/2025/12/202512032300CheetahMound.jpg)|
+202512042300|CopanRuins|Maya-Stätte von Copán, Honduras (© diegograndi/Getty Images)|Die Stadt der Sternenkarten|![](/de-DE/2025/12/202512042300CopanRuins.jpg)|
