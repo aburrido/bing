@@ -3,3 +3,4 @@
 202512010000|AntarcticArch|Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)|Where ice holds its breath|![](/en-GB/2025/12/202512010000AntarcticArch.jpg)|
 202512020000|LeipzigMarket|Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)|Twinkle all the way|![](/en-GB/2025/12/202512020000LeipzigMarket.jpg)|
 202512030000|BosqueCranes|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jack Dykinga/Minden Pictures)|Dawn of the cranes|![](/en-GB/2025/12/202512030000BosqueCranes.jpg)|
+202512040000|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Sprint for survival|![](/en-GB/2025/12/202512040000CheetahMound.jpg)|
