@@ -5,3 +5,4 @@
 202512021600|BosqueCranes|日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)|曙光中的鹤影|![](/zh-CN/2025/12/202512021600BosqueCranes.jpg)|
 202512031600|CheetahMound|马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)|为生存而疾驰|![](/zh-CN/2025/12/202512031600CheetahMound.jpg)|
 202512041600|CopanRuins|科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)|绘制星图的城市|![](/zh-CN/2025/12/202512041600CopanRuins.jpg)|
+202512051600|EvergladesSunrise|大沼泽地国家公园的蜘蛛网，佛罗里达州，美国 (© Troy Harrison/Getty Images)|佛罗里达州的生命湿地|![](/zh-CN/2025/12/202512051600EvergladesSunrise.jpg)|
