@@ -4,3 +4,4 @@
 202512020000|LeipzigMarket|Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)|Twinkle all the way|![](/en-GB/2025/12/202512020000LeipzigMarket.jpg)|
 202512030000|BosqueCranes|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Jack Dykinga/Minden Pictures)|Dawn of the cranes|![](/en-GB/2025/12/202512030000BosqueCranes.jpg)|
 202512040000|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Sprint for survival|![](/en-GB/2025/12/202512040000CheetahMound.jpg)|
+202512050000|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|The city that mapped the stars|![](/en-GB/2025/12/202512050000CopanRuins.jpg)|
