@@ -5,3 +5,4 @@
 202512022300|BosqueCranes|Grues du Canada au lever du soleil, Réserve faunique nationale de Bosque del Apache, Nouveau-Mexique, États-Unis (© Jack Dykinga/Minden Pictures)|Une lignée millénaire en mouvement|![](/fr-FR/2025/12/202512022300BosqueCranes.jpg)|
 202512032300|CheetahMound|Guépard dans la Réserve nationale du Maasai Mara, Narok, Kenya (© Andy Rouse/naturepl.com)|Un symbole d’élan et de fragilité|![](/fr-FR/2025/12/202512032300CheetahMound.jpg)|
 202512042300|CopanRuins|Site maya de Copán, Honduras (© diegograndi/Getty Images)|La cité où les pierres parlent aux étoiles|![](/fr-FR/2025/12/202512042300CopanRuins.jpg)|
+202512052300|StrasbourgNicolas|Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)|Quand la tradition éclaire la nuit|![](/fr-FR/2025/12/202512052300StrasbourgNicolas.jpg)|
