@@ -6,3 +6,4 @@
 202512032300|CheetahMound|Gepard im Maasai Mara National Reserve, Narok, Kenia (© Andy Rouse/naturepl.com)|Sprint ums Überleben|![](/de-DE/2025/12/202512032300CheetahMound.jpg)|
 202512042300|CopanRuins|Maya-Stätte von Copán, Honduras (© diegograndi/Getty Images)|Die Stadt der Sternenkarten|![](/de-DE/2025/12/202512042300CopanRuins.jpg)|
 202512052300|NicholasChocolate|Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)|Lasst uns froh und munter sein|![](/de-DE/2025/12/202512052300NicholasChocolate.jpg)|
+202512062300|MistyPineForest|Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)|Mystik zwischen Kiefern|![](/de-DE/2025/12/202512062300MistyPineForest.jpg)|
