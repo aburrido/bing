@@ -6,3 +6,4 @@
 202512030800|BosqueCranes|Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico, United States (© Jack Dykinga/Minden Pictures)|Info|![](/en-AU/2025/12/202512030800BosqueCranes.jpg)|
 202512040800|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Info|![](/en-AU/2025/12/202512040800CheetahMound.jpg)|
 202512050800|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|Info|![](/en-AU/2025/12/202512050800CopanRuins.jpg)|
+202512060800|EvergladesSunrise|Spider webs in Everglades National Park, Florida, United Sates (© Troy Harrison/Getty Images)|Info|![](/en-AU/2025/12/202512060800EvergladesSunrise.jpg)|

@@ -6,3 +6,4 @@
 202512030800|BosqueCranes|Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)|Dawn of the cranes|![](/en-US/2025/12/202512030800BosqueCranes.jpg)|
 202512040800|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Sprint for survival|![](/en-US/2025/12/202512040800CheetahMound.jpg)|
 202512050800|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|The city that mapped the stars|![](/en-US/2025/12/202512050800CopanRuins.jpg)|
+202512060800|EvergladesSunrise|Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)|Florida's living wetlands|![](/en-US/2025/12/202512060800EvergladesSunrise.jpg)|
