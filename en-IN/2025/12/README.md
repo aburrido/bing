@@ -6,3 +6,4 @@
 202512031830|IndianNavyDay2025|Indian Navy sailors rehearse for Navy Day at Mumbai's Gateway of India, 1 December 2016 (© Anshuman Poyrekar/Hindustan Times/Getty Images)|The night the tide shifted|![](/en-IN/2025/12/202512031830IndianNavyDay2025.jpg)|
 202512041830|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|The city that mapped the stars|![](/en-IN/2025/12/202512041830CopanRuins.jpg)|
 202512051830|EvergladesSunrise|Spider webs in Everglades National Park, Florida, United States (© Troy Harrison/Getty Images)|Florida's living wetlands|![](/en-IN/2025/12/202512051830EvergladesSunrise.jpg)|
+202512061830|MistyPineForest|A pine forest in Alsace, France (© alekseystemmer/Getty Images)|Mist-ery in the Pines|![](/en-IN/2025/12/202512061830MistyPineForest.jpg)|
