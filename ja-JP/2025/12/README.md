@@ -6,3 +6,4 @@
 202512031500|CheetahMound|チーター, ケニア (© Andy Rouse/naturepl.com)|今日は世界野生生物保全の日|![](/ja-JP/2025/12/202512031500CheetahMound.jpg)|
 202512041500|CopanRuins|コパンのマヤ遺跡, ホンジュラス (© diegograndi/Getty Images)|ホンジュラスにある世界遺産|![](/ja-JP/2025/12/202512041500CopanRuins.jpg)|
 202512051500|EvergladesSunrise|エバーグレーズ国立公園, 米国 (© Troy Harrison/Getty Images)|水とマングローブの迷宮|![](/ja-JP/2025/12/202512051500EvergladesSunrise.jpg)|
+202512061500|Daxue2025|白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)|今日 は「大雪」|![](/ja-JP/2025/12/202512061500Daxue2025.jpg)|
