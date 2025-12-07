@@ -7,3 +7,4 @@
 202512040800|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Sprint for survival|![](/en-US/2025/12/202512040800CheetahMound.jpg)|
 202512050800|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|The city that mapped the stars|![](/en-US/2025/12/202512050800CopanRuins.jpg)|
 202512060800|EvergladesSunrise|Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)|Florida's living wetlands|![](/en-US/2025/12/202512060800EvergladesSunrise.jpg)|
+202512070800|PearlHarborDay|USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)|Remembering Pearl Harbor|![](/en-US/2025/12/202512070800PearlHarborDay.jpg)|
