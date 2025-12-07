@@ -7,3 +7,4 @@
 202512042300|CopanRuins|Site maya de Copán, Honduras (© diegograndi/Getty Images)|La cité où les pierres parlent aux étoiles|![](/fr-FR/2025/12/202512042300CopanRuins.jpg)|
 202512052300|StrasbourgNicolas|Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)|Quand la tradition éclaire la nuit|![](/fr-FR/2025/12/202512052300StrasbourgNicolas.jpg)|
 202512062300|MistyPineForest|Forêt de pins, Alsace, Grand Est (© alekseystemmer/Getty Images)|Une forêt qui sent le sapin !|![](/fr-FR/2025/12/202512062300MistyPineForest.jpg)|
+202512072300|ComoChristmas|Illuminations de Noël sur les bâtiments de Domaso, lac de Côme, Italie (© Roberto Moiola/Getty Images)|Reflets de fête sur le lac de Côme|![](/fr-FR/2025/12/202512072300ComoChristmas.jpg)|
