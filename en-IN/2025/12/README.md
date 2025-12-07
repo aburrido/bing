@@ -7,3 +7,4 @@
 202512041830|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|The city that mapped the stars|![](/en-IN/2025/12/202512041830CopanRuins.jpg)|
 202512051830|EvergladesSunrise|Spider webs in Everglades National Park, Florida, United States (© Troy Harrison/Getty Images)|Florida's living wetlands|![](/en-IN/2025/12/202512051830EvergladesSunrise.jpg)|
 202512061830|MistyPineForest|A pine forest in Alsace, France (© alekseystemmer/Getty Images)|Mist-ery in the Pines|![](/en-IN/2025/12/202512061830MistyPineForest.jpg)|
+202512071830|ComoChristmas|Christmas lights on buildings of Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)|All is calm, all is bright|![](/en-IN/2025/12/202512071830ComoChristmas.jpg)|
