@@ -7,3 +7,4 @@
 202512040500|CheetahMound|Guépard dans la Réserve nationale du Maasai Mara, Narok, Kenya (© Andy Rouse/naturepl.com)|Un symbole d’élan et de fragilité|![](/fr-CA/2025/12/202512040500CheetahMound.jpg)|
 202512050500|CopanRuins|Site maya de Copán, Honduras (© diegograndi/Getty Images)|La cité où les pierres parlent aux étoiles|![](/fr-CA/2025/12/202512050500CopanRuins.jpg)|
 202512060500|EvergladesSunrise|Toiles d’araignées dans le parc national des Everglades, Floride, États-Unis (© Troy Harrison/Getty Images)|Le murmure des eaux vivantes|![](/fr-CA/2025/12/202512060500EvergladesSunrise.jpg)|
+202512070500|MistyPineForest|Forêt de pins, Alsace, France (© alekseystemmer/Getty Images)|Une forêt qui sent le sapin!|![](/fr-CA/2025/12/202512070500MistyPineForest.jpg)|

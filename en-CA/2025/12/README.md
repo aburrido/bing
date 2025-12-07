@@ -7,3 +7,4 @@
 202512040500|CheetahMound|Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)|Sprint for survival|![](/en-CA/2025/12/202512040500CheetahMound.jpg)|
 202512050500|CopanRuins|Maya site of Copán, Honduras (© diegograndi/Getty Images)|The city that mapped the stars|![](/en-CA/2025/12/202512050500CopanRuins.jpg)|
 202512060500|EvergladesSunrise|Spider webs in Everglades National Park, Florida, United States (© Troy Harrison/Getty Images)|Florida's living wetlands|![](/en-CA/2025/12/202512060500EvergladesSunrise.jpg)|
+202512070500|MistyPineForest|A pine forest in Alsace, France (© alekseystemmer/Getty Images)|Mist-ery in the pines|![](/en-CA/2025/12/202512070500MistyPineForest.jpg)|
