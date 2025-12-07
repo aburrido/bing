@@ -7,3 +7,4 @@
 202512041600|CopanRuins|科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)|绘制星图的城市|![](/zh-CN/2025/12/202512041600CopanRuins.jpg)|
 202512051600|EvergladesSunrise|大沼泽地国家公园的蜘蛛网，佛罗里达州，美国 (© Troy Harrison/Getty Images)|佛罗里达州的生命湿地|![](/zh-CN/2025/12/202512051600EvergladesSunrise.jpg)|
 202512061600|TheGreatSnowY25|雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)|雪落下的声音|![](/zh-CN/2025/12/202512061600TheGreatSnowY25.jpg)|
+202512071600|ComoChristmas|多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)|一切安详，一切明亮|![](/zh-CN/2025/12/202512071600ComoChristmas.jpg)|
