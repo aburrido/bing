@@ -8,3 +8,4 @@
 202512052300|StrasbourgNicolas|Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)|Quand la tradition éclaire la nuit|![](/fr-FR/2025/12/202512052300StrasbourgNicolas.jpg)|
 202512062300|MistyPineForest|Forêt de pins, Alsace, Grand Est (© alekseystemmer/Getty Images)|Une forêt qui sent le sapin !|![](/fr-FR/2025/12/202512062300MistyPineForest.jpg)|
 202512072300|ComoChristmas|Illuminations de Noël sur les bâtiments de Domaso, lac de Côme, Italie (© Roberto Moiola/Getty Images)|Reflets de fête sur le lac de Côme|![](/fr-FR/2025/12/202512072300ComoChristmas.jpg)|
+202512082300|LlamaDay|Guanaco, Punta Norte, Péninsule Valdés, Argentine (© Sylvain Cordier/naturepl.com)|Guanacool attitude !|![](/fr-FR/2025/12/202512082300LlamaDay.jpg)|

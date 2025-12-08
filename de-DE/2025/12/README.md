@@ -8,3 +8,4 @@
 202512052300|NicholasChocolate|Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)|Lasst uns froh und munter sein|![](/de-DE/2025/12/202512052300NicholasChocolate.jpg)|
 202512062300|MistyPineForest|Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)|Mystik zwischen Kiefern|![](/de-DE/2025/12/202512062300MistyPineForest.jpg)|
 202512072300|ComoChristmas|Weihnachtsbeleuchtung an den Gebäuden von Domaso am Comer See, Italien (© Roberto Moiola/Getty Images)|Alles ist still, alles erstrahlt|![](/de-DE/2025/12/202512072300ComoChristmas.jpg)|
+202512082300|LlamaDay|Guanako, Punta Norte, Halbinsel Valdés, Argentinien (© Sylvain Cordier/naturepl.com)|Im Blick des Guanako|![](/de-DE/2025/12/202512082300LlamaDay.jpg)|
