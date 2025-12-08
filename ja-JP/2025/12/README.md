@@ -8,3 +8,4 @@
 202512051500|EvergladesSunrise|エバーグレーズ国立公園, 米国 (© Troy Harrison/Getty Images)|水とマングローブの迷宮|![](/ja-JP/2025/12/202512051500EvergladesSunrise.jpg)|
 202512061500|Daxue2025|白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)|今日 は「大雪」|![](/ja-JP/2025/12/202512061500Daxue2025.jpg)|
 202512071500|ComoChristmas|ドマーゾ, イタリア (© Roberto Moiola/Getty Images)|コモ湖畔にある小さな町|![](/ja-JP/2025/12/202512071500ComoChristmas.jpg)|
+202512081500|LlamaDay|バルデス半島のグアナコ, アルゼンチン (© Sylvain Cordier/naturepl.com)|今日はリャマの日|![](/ja-JP/2025/12/202512081500LlamaDay.jpg)|
