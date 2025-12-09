@@ -9,3 +9,4 @@
 202512060500|EvergladesSunrise|Spider webs in Everglades National Park, Florida, United States (© Troy Harrison/Getty Images)|Florida's living wetlands|![](/en-CA/2025/12/202512060500EvergladesSunrise.jpg)|
 202512070500|MistyPineForest|A pine forest in Alsace, France (© alekseystemmer/Getty Images)|Mist-ery in the pines|![](/en-CA/2025/12/202512070500MistyPineForest.jpg)|
 202512080500|ComoChristmas|Christmas lights on buildings of Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)|All is calm, all is bright|![](/en-CA/2025/12/202512080500ComoChristmas.jpg)|
+202512090500|LlamaDay|Guanaco, Punta Norte, Valdés Peninsula, Argentina (© Sylvain Cordier/naturepl.com)|Say 'cheese'… or grass|![](/en-CA/2025/12/202512090500LlamaDay.jpg)|
