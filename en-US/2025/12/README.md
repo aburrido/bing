@@ -10,3 +10,4 @@
 202512070800|PearlHarborDay|USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)|Remembering Pearl Harbor|![](/en-US/2025/12/202512070800PearlHarborDay.jpg)|
 202512080800|ComoChristmas|Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)|All is calm, all is bright|![](/en-US/2025/12/202512080800ComoChristmas.jpg)|
 202512090800|LlamaDay|Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)|Say 'cheese'… or grass|![](/en-US/2025/12/202512090800LlamaDay.jpg)|
+202512100800|CordobaCathedral|Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)|Where cultures converge|![](/en-US/2025/12/202512100800CordobaCathedral.jpg)|
