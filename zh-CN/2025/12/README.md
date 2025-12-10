@@ -10,3 +10,4 @@
 202512071600|ComoChristmas|多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)|一切安详，一切明亮|![](/zh-CN/2025/12/202512071600ComoChristmas.jpg)|
 202512081600|LlamaDay|原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)|说“茄子”……或者“青草”|![](/zh-CN/2025/12/202512081600LlamaDay.jpg)|
 202512091600|CordobaCathedral|科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)|文化交汇之地|![](/zh-CN/2025/12/202512091600CordobaCathedral.jpg)|
+202512101600|EverestGlow|从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)|天地相接之处|![](/zh-CN/2025/12/202512101600EverestGlow.jpg)|
