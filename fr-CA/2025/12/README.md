@@ -10,3 +10,4 @@
 202512070500|MistyPineForest|Forêt de pins, Alsace, France (© alekseystemmer/Getty Images)|Une forêt qui sent le sapin!|![](/fr-CA/2025/12/202512070500MistyPineForest.jpg)|
 202512080500|ComoChristmas|Illuminations de Noël sur les bâtiments de Domaso, lac de Côme, Italie (© Roberto Moiola/Getty Images)|Reflets de fête sur le lac de Côme|![](/fr-CA/2025/12/202512080500ComoChristmas.jpg)|
 202512090500|LlamaDay|Guanaco, Punta Norte, Péninsule Valdés, Argentine (© Sylvain Cordier/naturepl.com)|Guanacool attitude!|![](/fr-CA/2025/12/202512090500LlamaDay.jpg)|
+202512100500|CordobaCathedral|Intérieur de la Mosquée-Cathédrale de Cordoue, Andalousie, Espagne (© Elena Zolotova/Getty Images)|Au carrefour des civilisations|![](/fr-CA/2025/12/202512100500CordobaCathedral.jpg)|

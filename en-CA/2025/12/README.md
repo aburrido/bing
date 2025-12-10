@@ -10,3 +10,4 @@
 202512070500|MistyPineForest|A pine forest in Alsace, France (© alekseystemmer/Getty Images)|Mist-ery in the pines|![](/en-CA/2025/12/202512070500MistyPineForest.jpg)|
 202512080500|ComoChristmas|Christmas lights on buildings of Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)|All is calm, all is bright|![](/en-CA/2025/12/202512080500ComoChristmas.jpg)|
 202512090500|LlamaDay|Guanaco, Punta Norte, Valdés Peninsula, Argentina (© Sylvain Cordier/naturepl.com)|Say 'cheese'… or grass|![](/en-CA/2025/12/202512090500LlamaDay.jpg)|
+202512100500|CordobaCathedral|Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)|Where cultures converge|![](/en-CA/2025/12/202512100500CordobaCathedral.jpg)|
