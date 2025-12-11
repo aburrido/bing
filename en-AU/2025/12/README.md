@@ -11,3 +11,4 @@
 202512080800|ComoChristmas|Christmas lights on buildings of Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)|Info|![](/en-AU/2025/12/202512080800ComoChristmas.jpg)|
 202512090800|LlamaDay|Guanaco, Punta Norte, Valdés Peninsula, Argentina (© Sylvain Cordier/naturepl.com)|Info|![](/en-AU/2025/12/202512090800LlamaDay.jpg)|
 202512100800|CastleAbruzzo|Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)|Info|![](/en-AU/2025/12/202512100800CastleAbruzzo.jpg)|
+202512110800|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Info|![](/en-AU/2025/12/202512110800EverestGlow.jpg)|
