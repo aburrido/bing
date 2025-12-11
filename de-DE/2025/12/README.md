@@ -11,3 +11,4 @@
 202512082300|LlamaDay|Guanako, Punta Norte, Halbinsel Valdés, Argentinien (© Sylvain Cordier/naturepl.com)|Im Blick des Guanako|![](/de-DE/2025/12/202512082300LlamaDay.jpg)|
 202512092300|CordobaCathedral|Innenraum der Mezquita-Kathedrale von Córdoba, Andalusien, Spanien (© Elena Zolotova/Getty Images)|Wo Kulturen sich begegnen|![](/de-DE/2025/12/202512092300CordobaCathedral.jpg)|
 202512102300|EverestGlow|Der Gipfel des Mount Everest bei Sonnenuntergang, gesehen vom Renjo La, Nepal (© shoults/Alamy)|Wo Himmel und Erde sich treffen|![](/de-DE/2025/12/202512102300EverestGlow.jpg)|
+202512112300|SpeckledPoinsettia|Gefleckter Weihnachtsstern (© DigiPub/Getty Images)|Ein Stern, der Weihnachten leuchten lässt|![](/de-DE/2025/12/202512112300SpeckledPoinsettia.jpg)|

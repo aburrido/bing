@@ -11,3 +11,4 @@
 202512082300|LlamaDay|Guanaco, Punta Norte, Péninsule Valdés, Argentine (© Sylvain Cordier/naturepl.com)|Guanacool attitude !|![](/fr-FR/2025/12/202512082300LlamaDay.jpg)|
 202512092300|CordobaCathedral|Intérieur de la Mosquée-Cathédrale de Cordoue, Andalousie, Espagne (© Elena Zolotova/Getty Images)|Au carrefour des civilisations|![](/fr-FR/2025/12/202512092300CordobaCathedral.jpg)|
 202512102300|EverestGlow|Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)|Le toit du monde|![](/fr-FR/2025/12/202512102300EverestGlow.jpg)|
+202512112300|SpeckledPoinsettia|Plante Poinsettia dite Étoile de Noël (© DigiPub/Getty Images)|Une Étoile de Noël en pot|![](/fr-FR/2025/12/202512112300SpeckledPoinsettia.jpg)|
