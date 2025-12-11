@@ -11,3 +11,4 @@
 202512081500|LlamaDay|バルデス半島のグアナコ, アルゼンチン (© Sylvain Cordier/naturepl.com)|今日はリャマの日|![](/ja-JP/2025/12/202512081500LlamaDay.jpg)|
 202512091500|CordobaCathedral|メスキータ, スペイン アンダルシア州 (© Elena Zolotova/Getty Images)|イスラムとキリスト教が交差する奇跡の空間|![](/ja-JP/2025/12/202512091500CordobaCathedral.jpg)|
 202512101500|EverestGlow|黄金色に染めるエベレスト, ネパール  (© shoults/Alamy)|今日は国際山岳デー|![](/ja-JP/2025/12/202512101500EverestGlow.jpg)|
+202512111500|SpeckledPoinsettia|雪のような白い斑点模様のポインセチア (© DigiPub/Getty Images)|今日はポインセチアの日|![](/ja-JP/2025/12/202512111500SpeckledPoinsettia.jpg)|
