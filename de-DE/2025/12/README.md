@@ -12,3 +12,4 @@
 202512092300|CordobaCathedral|Innenraum der Mezquita-Kathedrale von Córdoba, Andalusien, Spanien (© Elena Zolotova/Getty Images)|Wo Kulturen sich begegnen|![](/de-DE/2025/12/202512092300CordobaCathedral.jpg)|
 202512102300|EverestGlow|Der Gipfel des Mount Everest bei Sonnenuntergang, gesehen vom Renjo La, Nepal (© shoults/Alamy)|Wo Himmel und Erde sich treffen|![](/de-DE/2025/12/202512102300EverestGlow.jpg)|
 202512112300|SpeckledPoinsettia|Gefleckter Weihnachtsstern (© DigiPub/Getty Images)|Ein Stern, der Weihnachten leuchten lässt|![](/de-DE/2025/12/202512112300SpeckledPoinsettia.jpg)|
+202512122300|YosemiteWinter|Merced River, Yosemite-Nationalpark, Kalifornien, USA (© Ron and Patty Thomas/Getty Images)|Frostige Schönheit|![](/de-DE/2025/12/202512122300YosemiteWinter.jpg)|
