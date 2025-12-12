@@ -12,3 +12,4 @@
 202512091500|CordobaCathedral|メスキータ, スペイン アンダルシア州 (© Elena Zolotova/Getty Images)|イスラムとキリスト教が交差する奇跡の空間|![](/ja-JP/2025/12/202512091500CordobaCathedral.jpg)|
 202512101500|EverestGlow|黄金色に染めるエベレスト, ネパール  (© shoults/Alamy)|今日は国際山岳デー|![](/ja-JP/2025/12/202512101500EverestGlow.jpg)|
 202512111500|SpeckledPoinsettia|雪のような白い斑点模様のポインセチア (© DigiPub/Getty Images)|今日はポインセチアの日|![](/ja-JP/2025/12/202512111500SpeckledPoinsettia.jpg)|
+202512121500|YosemiteWinter|マーセド川, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)|マーセド川に映る雪景色|![](/ja-JP/2025/12/202512121500YosemiteWinter.jpg)|
