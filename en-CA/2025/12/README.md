@@ -12,3 +12,4 @@
 202512090500|LlamaDay|Guanaco, Punta Norte, Valdés Peninsula, Argentina (© Sylvain Cordier/naturepl.com)|Say 'cheese'… or grass|![](/en-CA/2025/12/202512090500LlamaDay.jpg)|
 202512100500|CordobaCathedral|Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)|Where cultures converge|![](/en-CA/2025/12/202512100500CordobaCathedral.jpg)|
 202512110500|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Where the sky meets Earth|![](/en-CA/2025/12/202512110500EverestGlow.jpg)|
+202512120500|SuspensionLights|Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)|Bridging the gap|![](/en-CA/2025/12/202512120500SuspensionLights.jpg)|
