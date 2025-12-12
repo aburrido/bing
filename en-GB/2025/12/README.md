@@ -11,3 +11,4 @@
 202512090000|LlamaDay|Guanaco, Punta Norte, Valdés Peninsula, Argentina (© Sylvain Cordier/naturepl.com)|Say 'cheese'… or grass|![](/en-GB/2025/12/202512090000LlamaDay.jpg)|
 202512100000|CordobaCathedral|Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)|Where cultures converge|![](/en-GB/2025/12/202512100000CordobaCathedral.jpg)|
 202512110000|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Where the sky meets Earth|![](/en-GB/2025/12/202512110000EverestGlow.jpg)|
+202512120000|SpeckledPoinsettia|Spotted poinsettia (© DigiPub/Getty Images)|The plant that paints the holidays red|![](/en-GB/2025/12/202512120000SpeckledPoinsettia.jpg)|
