@@ -13,3 +13,4 @@
 202512101500|EverestGlow|黄金色に染めるエベレスト, ネパール  (© shoults/Alamy)|今日は国際山岳デー|![](/ja-JP/2025/12/202512101500EverestGlow.jpg)|
 202512111500|SpeckledPoinsettia|雪のような白い斑点模様のポインセチア (© DigiPub/Getty Images)|今日はポインセチアの日|![](/ja-JP/2025/12/202512111500SpeckledPoinsettia.jpg)|
 202512121500|YosemiteWinter|マーセド川, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)|マーセド川に映る雪景色|![](/ja-JP/2025/12/202512121500YosemiteWinter.jpg)|
+202512131500|TuftedTitmouse|エボシガラ, 米国 マサチューセッツ州 (© Tim Laman/NPL/Minden Pictures)|今日からクリスマス・バード・カウント|![](/ja-JP/2025/12/202512131500TuftedTitmouse.jpg)|
