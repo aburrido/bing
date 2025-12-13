@@ -13,3 +13,4 @@
 202512101600|EverestGlow|从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)|天地相接之处|![](/zh-CN/2025/12/202512101600EverestGlow.jpg)|
 202512111600|SpeckledPoinsettia|有斑点的一品红 (© DigiPub/Getty Images)|点亮节日的红色植物|![](/zh-CN/2025/12/202512111600SpeckledPoinsettia.jpg)|
 202512121600|YosemiteWinter|默塞德河, 优胜美地国家公园, 加利福尼亚, 美国 (© Ron and Patty Thomas/Getty Images)|冰封的倒影|![](/zh-CN/2025/12/202512121600YosemiteWinter.jpg)|
+202512131600|TuftedTitmouse|簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)|假日鸟类大比拼|![](/zh-CN/2025/12/202512131600TuftedTitmouse.jpg)|
