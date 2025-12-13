@@ -13,3 +13,4 @@
 202512102300|EverestGlow|Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)|Le toit du monde|![](/fr-FR/2025/12/202512102300EverestGlow.jpg)|
 202512112300|SpeckledPoinsettia|Plante Poinsettia dite Étoile de Noël (© DigiPub/Getty Images)|Une Étoile de Noël en pot|![](/fr-FR/2025/12/202512112300SpeckledPoinsettia.jpg)|
 202512122300|RacletteDay|Vue sur un village de montagne illuminé, France (© Dario Berardi/500px)|Aujourd'hui, on sort son appareil à raclette !|![](/fr-FR/2025/12/202512122300RacletteDay.jpg)|
+202512132300|TuftedTitmouse|Mésange bicolore perchée sur des branches de pin, Massachusetts, États-Unis (© Tim Laman/NPL/Minden Pictures)|Sous la neige, le chant du vivant|![](/fr-FR/2025/12/202512132300TuftedTitmouse.jpg)|
