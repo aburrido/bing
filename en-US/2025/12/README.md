@@ -13,3 +13,4 @@
 202512100800|CordobaCathedral|Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)|Where cultures converge|![](/en-US/2025/12/202512100800CordobaCathedral.jpg)|
 202512110800|EverestGlow|Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Where the sky meets Earth|![](/en-US/2025/12/202512110800EverestGlow.jpg)|
 202512120800|SpeckledPoinsettia|Spotted poinsettia (© DigiPub/Getty Images)|The plant that paints the holidays red|![](/en-US/2025/12/202512120800SpeckledPoinsettia.jpg)|
+202512130800|YosemiteWinter|Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-US/2025/12/202512130800YosemiteWinter.jpg)|

@@ -13,3 +13,4 @@
 202512100800|CastleAbruzzo|Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)|Info|![](/en-AU/2025/12/202512100800CastleAbruzzo.jpg)|
 202512110800|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Info|![](/en-AU/2025/12/202512110800EverestGlow.jpg)|
 202512120800|SpeckledPoinsettia|Spotted poinsettia (© DigiPub/Getty Images)|Info|![](/en-AU/2025/12/202512120800SpeckledPoinsettia.jpg)|
+202512130800|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Info|![](/en-AU/2025/12/202512130800YosemiteWinter.jpg)|
