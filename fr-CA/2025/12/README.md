@@ -13,3 +13,4 @@
 202512100500|CordobaCathedral|Intérieur de la Mosquée-Cathédrale de Cordoue, Andalousie, Espagne (© Elena Zolotova/Getty Images)|Au carrefour des civilisations|![](/fr-CA/2025/12/202512100500CordobaCathedral.jpg)|
 202512110500|EverestGlow|Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)|Le toit du monde|![](/fr-CA/2025/12/202512110500EverestGlow.jpg)|
 202512120500|SuspensionLights|Le pont suspsendu de Capilano et son parc illuminés, Vancouver, Colombie-Britannique (© Brian Caissie/Getty Images)|Un pont sorti d’un conte de fée|![](/fr-CA/2025/12/202512120500SuspensionLights.jpg)|
+202512130500|YosemiteWinter|Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|L’hiver en majesté|![](/fr-CA/2025/12/202512130500YosemiteWinter.jpg)|

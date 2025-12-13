@@ -13,3 +13,4 @@
 202512100500|CordobaCathedral|Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)|Where cultures converge|![](/en-CA/2025/12/202512100500CordobaCathedral.jpg)|
 202512110500|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Where the sky meets Earth|![](/en-CA/2025/12/202512110500EverestGlow.jpg)|
 202512120500|SuspensionLights|Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)|Bridging the gap|![](/en-CA/2025/12/202512120500SuspensionLights.jpg)|
+202512130500|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-CA/2025/12/202512130500YosemiteWinter.jpg)|
