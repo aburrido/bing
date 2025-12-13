@@ -13,3 +13,4 @@
 202512101830|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Where the sky meets Earth|![](/en-IN/2025/12/202512101830EverestGlow.jpg)|
 202512111830|SpeckledPoinsettia|Spotted poinsettia (© DigiPub/Getty Images)|The plant that paints the holidays red|![](/en-IN/2025/12/202512111830SpeckledPoinsettia.jpg)|
 202512121830|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-IN/2025/12/202512121830YosemiteWinter.jpg)|
+202512131830|RBtiger|Royal Bengal tiger (© sourabh/Getty Images)|A silent force in India's wilderness|![](/en-IN/2025/12/202512131830RBtiger.jpg)|
