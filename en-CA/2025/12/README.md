@@ -14,3 +14,4 @@
 202512110500|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Where the sky meets Earth|![](/en-CA/2025/12/202512110500EverestGlow.jpg)|
 202512120500|SuspensionLights|Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)|Bridging the gap|![](/en-CA/2025/12/202512120500SuspensionLights.jpg)|
 202512130500|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-CA/2025/12/202512130500YosemiteWinter.jpg)|
+202512140500|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|The great holiday bird-off|![](/en-CA/2025/12/202512140500TuftedTitmouse.jpg)|

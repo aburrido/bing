@@ -14,3 +14,4 @@
 202512110500|EverestGlow|Le sommet du mont Everest au coucher du soleil, vu depuis Renjo La, Népal (© shoults/Alamy)|Le toit du monde|![](/fr-CA/2025/12/202512110500EverestGlow.jpg)|
 202512120500|SuspensionLights|Le pont suspsendu de Capilano et son parc illuminés, Vancouver, Colombie-Britannique (© Brian Caissie/Getty Images)|Un pont sorti d’un conte de fée|![](/fr-CA/2025/12/202512120500SuspensionLights.jpg)|
 202512130500|YosemiteWinter|Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|L’hiver en majesté|![](/fr-CA/2025/12/202512130500YosemiteWinter.jpg)|
+202512140500|TuftedTitmouse|Mésange bicolore perchée sur des branches de pin, Massachusetts, États-Unis (© Tim Laman/NPL/Minden Pictures)|Sous la neige, le chant du vivant|![](/fr-CA/2025/12/202512140500TuftedTitmouse.jpg)|
