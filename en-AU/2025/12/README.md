@@ -14,3 +14,4 @@
 202512110800|EverestGlow|The summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)|Info|![](/en-AU/2025/12/202512110800EverestGlow.jpg)|
 202512120800|SpeckledPoinsettia|Spotted poinsettia (© DigiPub/Getty Images)|Info|![](/en-AU/2025/12/202512120800SpeckledPoinsettia.jpg)|
 202512130800|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Info|![](/en-AU/2025/12/202512130800YosemiteWinter.jpg)|
+202512140800|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|Info|![](/en-AU/2025/12/202512140800TuftedTitmouse.jpg)|
