@@ -15,3 +15,4 @@
 202512121500|YosemiteWinter|マーセド川, 米国 カリフォルニア州 (© Ron and Patty Thomas/Getty Images)|マーセド川に映る雪景色|![](/ja-JP/2025/12/202512121500YosemiteWinter.jpg)|
 202512131500|TuftedTitmouse|エボシガラ, 米国 マサチューセッツ州 (© Tim Laman/NPL/Minden Pictures)|今日からクリスマス・バード・カウント|![](/ja-JP/2025/12/202512131500TuftedTitmouse.jpg)|
 202512141500|AmsterdamLights|スピーゲルグラハト, オランダ (© Amith Nag Photography/Getty Images)|ライトアップされたアムステルダムの鏡の運河|![](/ja-JP/2025/12/202512141500AmsterdamLights.jpg)|
+202512151500|ChristmasGnomes|手作りのトムテ, クリスマス・マーケット (© Veronika Seppanen/Shutterstock)|クリスマスマーケットに並べられた手作りトムテ|![](/ja-JP/2025/12/202512151500ChristmasGnomes.jpg)|
