@@ -15,3 +15,4 @@
 202512120500|SuspensionLights|Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)|Bridging the gap|![](/en-CA/2025/12/202512120500SuspensionLights.jpg)|
 202512130500|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-CA/2025/12/202512130500YosemiteWinter.jpg)|
 202512140500|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|The great holiday bird-off|![](/en-CA/2025/12/202512140500TuftedTitmouse.jpg)|
+202512150500|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Still waters, bright lights|![](/en-CA/2025/12/202512150500AmsterdamLights.jpg)|
