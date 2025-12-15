@@ -15,3 +15,4 @@
 202512120800|SpeckledPoinsettia|Spotted poinsettia (© DigiPub/Getty Images)|Info|![](/en-AU/2025/12/202512120800SpeckledPoinsettia.jpg)|
 202512130800|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Info|![](/en-AU/2025/12/202512130800YosemiteWinter.jpg)|
 202512140800|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|Info|![](/en-AU/2025/12/202512140800TuftedTitmouse.jpg)|
+202512150800|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2025/12/202512150800AmsterdamLights.jpg)|
