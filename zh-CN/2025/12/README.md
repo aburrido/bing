@@ -15,3 +15,4 @@
 202512121600|YosemiteWinter|默塞德河, 优胜美地国家公园, 加利福尼亚, 美国 (© Ron and Patty Thomas/Getty Images)|冰封的倒影|![](/zh-CN/2025/12/202512121600YosemiteWinter.jpg)|
 202512131600|TuftedTitmouse|簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)|假日鸟类大比拼|![](/zh-CN/2025/12/202512131600TuftedTitmouse.jpg)|
 202512141600|AmsterdamLights|斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)|静谧水波，闪耀灯影|![](/zh-CN/2025/12/202512141600AmsterdamLights.jpg)|
+202512151600|ChristmasGnomes|圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)|小帽子，大能量|![](/zh-CN/2025/12/202512151600ChristmasGnomes.jpg)|
