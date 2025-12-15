@@ -15,3 +15,4 @@
 202512122300|YosemiteWinter|Merced River, Yosemite-Nationalpark, Kalifornien, USA (© Ron and Patty Thomas/Getty Images)|Frostige Schönheit|![](/de-DE/2025/12/202512122300YosemiteWinter.jpg)|
 202512132300|TuftedTitmouse|Grauhäubchenmeise auf einem Kiefernast, Massachusetts, USA (© Tim Laman/NPL/Minden Pictures)|Der kleine Wächter|![](/de-DE/2025/12/202512132300TuftedTitmouse.jpg)|
 202512142300|AmsterdamLights|Lichtdekorationen am Spiegelgracht-Kanal, Amsterdam, Niederlande (© Amith Nag Photography/Getty Images)|Lichterglanz am Spiegelgracht|![](/de-DE/2025/12/202512142300AmsterdamLights.jpg)|
+202512152300|ChristmasGnomes|Handgefertigte Wichtel auf einem Weihnachtsmarkt (© Veronika Seppanen/Shutterstock)|Wichtelzauber liegt in der Luft|![](/de-DE/2025/12/202512152300ChristmasGnomes.jpg)|

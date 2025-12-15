@@ -15,3 +15,4 @@
 202512122300|RacletteDay|Vue sur un village de montagne illuminé, France (© Dario Berardi/500px)|Aujourd'hui, on sort son appareil à raclette !|![](/fr-FR/2025/12/202512122300RacletteDay.jpg)|
 202512132300|TuftedTitmouse|Mésange bicolore perchée sur des branches de pin, Massachusetts, États-Unis (© Tim Laman/NPL/Minden Pictures)|Sous la neige, le chant du vivant|![](/fr-FR/2025/12/202512132300TuftedTitmouse.jpg)|
 202512142300|AmsterdamLights|Décorations lumineuses sur le canal Spiegelgracht, Amsterdam, Pays-Bas (© Amith Nag Photography/Getty Images)|Quand la ville des canaux devient féerie|![](/fr-FR/2025/12/202512142300AmsterdamLights.jpg)|
+202512152300|ChristmasGnomes|Lutins faits main sur un marché de Noël (© Veronika Seppanen/Shutterstock)|Noël en miniature|![](/fr-FR/2025/12/202512152300ChristmasGnomes.jpg)|
