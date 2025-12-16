@@ -16,3 +16,4 @@
 202512130800|YosemiteWinter|Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-US/2025/12/202512130800YosemiteWinter.jpg)|
 202512140800|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)|The great holiday bird-off|![](/en-US/2025/12/202512140800TuftedTitmouse.jpg)|
 202512150800|AmsterdamLights|Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Still waters, bright lights|![](/en-US/2025/12/202512150800AmsterdamLights.jpg)|
+202512160800|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-US/2025/12/202512160800ChristmasGnomes.jpg)|
