@@ -16,3 +16,4 @@
 202512131500|TuftedTitmouse|エボシガラ, 米国 マサチューセッツ州 (© Tim Laman/NPL/Minden Pictures)|今日からクリスマス・バード・カウント|![](/ja-JP/2025/12/202512131500TuftedTitmouse.jpg)|
 202512141500|AmsterdamLights|スピーゲルグラハト, オランダ (© Amith Nag Photography/Getty Images)|ライトアップされたアムステルダムの鏡の運河|![](/ja-JP/2025/12/202512141500AmsterdamLights.jpg)|
 202512151500|ChristmasGnomes|手作りのトムテ, クリスマス・マーケット (© Veronika Seppanen/Shutterstock)|クリスマスマーケットに並べられた手作りトムテ|![](/ja-JP/2025/12/202512151500ChristmasGnomes.jpg)|
+202512161500|FrostySquirrel|キタリス, イングランド (© Michael_Conrad/Getty Images)|雪の積もった松の枝にとまるキタリス|![](/ja-JP/2025/12/202512161500FrostySquirrel.jpg)|
