@@ -16,3 +16,4 @@
 202512130500|YosemiteWinter|Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|L’hiver en majesté|![](/fr-CA/2025/12/202512130500YosemiteWinter.jpg)|
 202512140500|TuftedTitmouse|Mésange bicolore perchée sur des branches de pin, Massachusetts, États-Unis (© Tim Laman/NPL/Minden Pictures)|Sous la neige, le chant du vivant|![](/fr-CA/2025/12/202512140500TuftedTitmouse.jpg)|
 202512150500|AmsterdamLights|Décorations lumineuses sur le canal Spiegelgracht, Amsterdam, Pays-Bas (© Amith Nag Photography/Getty Images)|Quand la ville des canaux devient féerie|![](/fr-CA/2025/12/202512150500AmsterdamLights.jpg)|
+202512160500|ChristmasGnomes|Lutins faits main sur un marché de Noël (© Veronika Seppanen/Shutterstock)|Noël en miniature|![](/fr-CA/2025/12/202512160500ChristmasGnomes.jpg)|
