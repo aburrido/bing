@@ -16,3 +16,4 @@
 202512131830|RBtiger|Royal Bengal tiger (© sourabh/Getty Images)|A silent force in India's wilderness|![](/en-IN/2025/12/202512131830RBtiger.jpg)|
 202512141830|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Still waters, bright lights|![](/en-IN/2025/12/202512141830AmsterdamLights.jpg)|
 202512151830|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-IN/2025/12/202512151830ChristmasGnomes.jpg)|
+202512161830|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Fur, frost and feast|![](/en-IN/2025/12/202512161830FrostySquirrel.jpg)|
