@@ -16,3 +16,4 @@
 202512131600|TuftedTitmouse|簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)|假日鸟类大比拼|![](/zh-CN/2025/12/202512131600TuftedTitmouse.jpg)|
 202512141600|AmsterdamLights|斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)|静谧水波，闪耀灯影|![](/zh-CN/2025/12/202512141600AmsterdamLights.jpg)|
 202512151600|ChristmasGnomes|圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)|小帽子，大能量|![](/zh-CN/2025/12/202512151600ChristmasGnomes.jpg)|
+202512161600|FrostySquirrel|在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)|皮毛、霜冻和盛宴|![](/zh-CN/2025/12/202512161600FrostySquirrel.jpg)|
