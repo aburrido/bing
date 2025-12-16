@@ -15,3 +15,4 @@
 202512130000|YosemiteWinter|Merced River, Yosemite National Park, California, United States (© Ron and Patty Thomas/Getty Images)|Frozen reflections|![](/en-GB/2025/12/202512130000YosemiteWinter.jpg)|
 202512140000|BrightonRoyalPavilion2025|Royal Pavilion, Brighton, England (© by Andrea Pucci/Moment/Getty Images)|A dome-inant architecture|![](/en-GB/2025/12/202512140000BrightonRoyalPavilion2025.jpg)|
 202512150000|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Still waters, bright lights|![](/en-GB/2025/12/202512150000AmsterdamLights.jpg)|
+202512160000|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-GB/2025/12/202512160000ChristmasGnomes.jpg)|
