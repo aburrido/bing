@@ -17,3 +17,4 @@
 202512142300|AmsterdamLights|Lichtdekorationen am Spiegelgracht-Kanal, Amsterdam, Niederlande (© Amith Nag Photography/Getty Images)|Lichterglanz am Spiegelgracht|![](/de-DE/2025/12/202512142300AmsterdamLights.jpg)|
 202512152300|ChristmasGnomes|Handgefertigte Wichtel auf einem Weihnachtsmarkt (© Veronika Seppanen/Shutterstock)|Wichtelzauber liegt in der Luft|![](/de-DE/2025/12/202512152300ChristmasGnomes.jpg)|
 202512162300|FrostySquirrel|Eurasisches Eichhörnchen in Northumberland, England (© Michael_Conrad/Getty Images)|Kleiner Wächter des Waldes|![](/de-DE/2025/12/202512162300FrostySquirrel.jpg)|
+202512172300|OstfrieslandWinter|Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)|Eisige Schönheit|![](/de-DE/2025/12/202512172300OstfrieslandWinter.jpg)|

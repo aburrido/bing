@@ -17,3 +17,4 @@
 202512142300|AmsterdamLights|Décorations lumineuses sur le canal Spiegelgracht, Amsterdam, Pays-Bas (© Amith Nag Photography/Getty Images)|Quand la ville des canaux devient féerie|![](/fr-FR/2025/12/202512142300AmsterdamLights.jpg)|
 202512152300|ChristmasGnomes|Lutins faits main sur un marché de Noël (© Veronika Seppanen/Shutterstock)|Noël en miniature|![](/fr-FR/2025/12/202512152300ChristmasGnomes.jpg)|
 202512162300|FrostySquirrel|Écureuil roux d’Eurasie dans le Northumberland, Angleterre (© Michael_Conrad/Getty Images)|Pause gourmande sous la neige|![](/fr-FR/2025/12/202512162300FrostySquirrel.jpg)|
+202512172300|StarLanterns|Étoiles de Herrnhut, Allemagne (© artas/Getty Images)|Herrnhut, le berceau des étoiles de Noël|![](/fr-FR/2025/12/202512172300StarLanterns.jpg)|
