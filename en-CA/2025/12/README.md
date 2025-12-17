@@ -17,3 +17,4 @@
 202512140500|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|The great holiday bird-off|![](/en-CA/2025/12/202512140500TuftedTitmouse.jpg)|
 202512150500|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Still waters, bright lights|![](/en-CA/2025/12/202512150500AmsterdamLights.jpg)|
 202512160500|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-CA/2025/12/202512160500ChristmasGnomes.jpg)|
+202512170500|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Fur, frost and feast|![](/en-CA/2025/12/202512170500FrostySquirrel.jpg)|
