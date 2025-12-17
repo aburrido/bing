@@ -17,3 +17,4 @@
 202512140800|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|Info|![](/en-AU/2025/12/202512140800TuftedTitmouse.jpg)|
 202512150800|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2025/12/202512150800AmsterdamLights.jpg)|
 202512160800|PerugiaStreet|Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)|Info|![](/en-AU/2025/12/202512160800PerugiaStreet.jpg)|
+202512170800|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Info|![](/en-AU/2025/12/202512170800FrostySquirrel.jpg)|
