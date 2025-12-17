@@ -17,3 +17,4 @@
 202512141600|AmsterdamLights|斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)|静谧水波，闪耀灯影|![](/zh-CN/2025/12/202512141600AmsterdamLights.jpg)|
 202512151600|ChristmasGnomes|圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)|小帽子，大能量|![](/zh-CN/2025/12/202512151600ChristmasGnomes.jpg)|
 202512161600|FrostySquirrel|在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)|皮毛、霜冻和盛宴|![](/zh-CN/2025/12/202512161600FrostySquirrel.jpg)|
+202512171600|CathedralValley|太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)|犹他州的时光层叠|![](/zh-CN/2025/12/202512171600CathedralValley.jpg)|
