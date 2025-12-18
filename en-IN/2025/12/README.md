@@ -18,3 +18,4 @@
 202512151830|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-IN/2025/12/202512151830ChristmasGnomes.jpg)|
 202512161830|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Fur, frost and feast|![](/en-IN/2025/12/202512161830FrostySquirrel.jpg)|
 202512171830|GopuramVirupaksha|Granite rocks and gopuram of the Virupaksha Temple, Hampi, Karnataka (© Skouatroulio/Getty Images)|The temple that stands up to stone|![](/en-IN/2025/12/202512171830GopuramVirupaksha.jpg)|
+202512181830|BormioItaly|Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)|High mountains, deep history|![](/en-IN/2025/12/202512181830BormioItaly.jpg)|
