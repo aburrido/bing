@@ -18,3 +18,4 @@
 202512151600|ChristmasGnomes|圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)|小帽子，大能量|![](/zh-CN/2025/12/202512151600ChristmasGnomes.jpg)|
 202512161600|FrostySquirrel|在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)|皮毛、霜冻和盛宴|![](/zh-CN/2025/12/202512161600FrostySquirrel.jpg)|
 202512171600|CathedralValley|太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)|犹他州的时光层叠|![](/zh-CN/2025/12/202512171600CathedralValley.jpg)|
+202512181600|BormioItaly|博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)|高山的悠久历史|![](/zh-CN/2025/12/202512181600BormioItaly.jpg)|
