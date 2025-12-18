@@ -18,3 +18,4 @@
 202512150500|AmsterdamLights|Décorations lumineuses sur le canal Spiegelgracht, Amsterdam, Pays-Bas (© Amith Nag Photography/Getty Images)|Quand la ville des canaux devient féerie|![](/fr-CA/2025/12/202512150500AmsterdamLights.jpg)|
 202512160500|ChristmasGnomes|Lutins faits main sur un marché de Noël (© Veronika Seppanen/Shutterstock)|Noël en miniature|![](/fr-CA/2025/12/202512160500ChristmasGnomes.jpg)|
 202512170500|FrostySquirrel|Écureuil roux d’Eurasie dans le Northumberland, Angleterre (© Michael_Conrad/Getty Images)|Pause gourmande sous la neige|![](/fr-CA/2025/12/202512170500FrostySquirrel.jpg)|
+202512180500|CathedralValley|Temple du Soleil, parc national de Capitol Reef, Utah, États-Unis (© Austin Cronnelly/TANDEM Stills + Motion)|Capitol Reef, la cathédrale du temps|![](/fr-CA/2025/12/202512180500CathedralValley.jpg)|
