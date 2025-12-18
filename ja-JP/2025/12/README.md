@@ -18,3 +18,4 @@
 202512151500|ChristmasGnomes|手作りのトムテ, クリスマス・マーケット (© Veronika Seppanen/Shutterstock)|クリスマスマーケットに並べられた手作りトムテ|![](/ja-JP/2025/12/202512151500ChristmasGnomes.jpg)|
 202512161500|FrostySquirrel|キタリス, イングランド (© Michael_Conrad/Getty Images)|雪の積もった松の枝にとまるキタリス|![](/ja-JP/2025/12/202512161500FrostySquirrel.jpg)|
 202512171500|CathedralValley|太陽の神殿, 米国 ユタ州 (© Austin Cronnelly/TANDEM Stills + Motion)|今日は米国キャピトル・リーフ国立公園の記念日|![](/ja-JP/2025/12/202512171500CathedralValley.jpg)|
+202512181500|BormioItaly|ボルミオ, イタリア ロンバルディア州 (© Roberto Moiola/Getty Images)|アルプスに抱かれた温泉の町|![](/ja-JP/2025/12/202512181500BormioItaly.jpg)|
