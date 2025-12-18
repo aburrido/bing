@@ -18,3 +18,4 @@
 202512150800|AmsterdamLights|Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Still waters, bright lights|![](/en-US/2025/12/202512150800AmsterdamLights.jpg)|
 202512160800|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-US/2025/12/202512160800ChristmasGnomes.jpg)|
 202512170800|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Fur, frost, and feast|![](/en-US/2025/12/202512170800FrostySquirrel.jpg)|
+202512180800|CathedralValley|Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)|Layers of time in Utah|![](/en-US/2025/12/202512180800CathedralValley.jpg)|

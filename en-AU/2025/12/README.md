@@ -18,3 +18,4 @@
 202512150800|AmsterdamLights|Light decorations on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2025/12/202512150800AmsterdamLights.jpg)|
 202512160800|PerugiaStreet|Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)|Info|![](/en-AU/2025/12/202512160800PerugiaStreet.jpg)|
 202512170800|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Info|![](/en-AU/2025/12/202512170800FrostySquirrel.jpg)|
+202512180800|CathedralValley|Temple of the Sun, Capitol Reef National Park, Utah, United States (© Austin Cronnelly/TANDEM Stills + Motion)|Info|![](/en-AU/2025/12/202512180800CathedralValley.jpg)|
