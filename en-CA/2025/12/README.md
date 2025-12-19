@@ -19,3 +19,4 @@
 202512160500|ChristmasGnomes|Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)|Tiny hats, big spirits|![](/en-CA/2025/12/202512160500ChristmasGnomes.jpg)|
 202512170500|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Fur, frost and feast|![](/en-CA/2025/12/202512170500FrostySquirrel.jpg)|
 202512180500|CathedralValley|Temple of the Sun, Capitol Reef National Park, Utah, United States (© Austin Cronnelly/TANDEM Stills + Motion)|Layers of time in Utah|![](/en-CA/2025/12/202512180500CathedralValley.jpg)|
+202512190500|BormioItaly|Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)|High mountains, deep history|![](/en-CA/2025/12/202512190500BormioItaly.jpg)|

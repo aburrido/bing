@@ -19,3 +19,4 @@
 202512160500|ChristmasGnomes|Lutins faits main sur un marché de Noël (© Veronika Seppanen/Shutterstock)|Noël en miniature|![](/fr-CA/2025/12/202512160500ChristmasGnomes.jpg)|
 202512170500|FrostySquirrel|Écureuil roux d’Eurasie dans le Northumberland, Angleterre (© Michael_Conrad/Getty Images)|Pause gourmande sous la neige|![](/fr-CA/2025/12/202512170500FrostySquirrel.jpg)|
 202512180500|CathedralValley|Temple du Soleil, parc national de Capitol Reef, Utah, États-Unis (© Austin Cronnelly/TANDEM Stills + Motion)|Capitol Reef, la cathédrale du temps|![](/fr-CA/2025/12/202512180500CathedralValley.jpg)|
+202512190500|BormioItaly|Paysage enneigé à Bormio, Lombardie, Italie (© Roberto Moiola/Getty Images)|Un écrin de chaleur au milieu des glaces|![](/fr-CA/2025/12/202512190500BormioItaly.jpg)|
