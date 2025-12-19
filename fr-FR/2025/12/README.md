@@ -19,3 +19,4 @@
 202512162300|FrostySquirrel|Écureuil roux d’Eurasie dans le Northumberland, Angleterre (© Michael_Conrad/Getty Images)|Pause gourmande sous la neige|![](/fr-FR/2025/12/202512162300FrostySquirrel.jpg)|
 202512172300|StarLanterns|Étoiles de Herrnhut, Allemagne (© artas/Getty Images)|Herrnhut, le berceau des étoiles de Noël|![](/fr-FR/2025/12/202512172300StarLanterns.jpg)|
 202512182300|YosemiteWinter|Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)|L’hiver en majesté|![](/fr-FR/2025/12/202512182300YosemiteWinter.jpg)|
+202512192300|FetNav|Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)|L’hiver en majesté|![](/fr-FR/2025/12/202512192300FetNav.jpg)|
