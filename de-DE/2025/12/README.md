@@ -20,3 +20,4 @@
 202512172300|OstfrieslandWinter|Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)|Eisige Schönheit|![](/de-DE/2025/12/202512172300OstfrieslandWinter.jpg)|
 202512182300|BormioItaly|Verschneite Landschaft in Bormio, Lombardei, Italien (© Roberto Moiola/Getty Images)|Hohe Berge, tiefe Geschichte|![](/de-DE/2025/12/202512182300BormioItaly.jpg)|
 202512192300|StarLanterns|Weihnachtsstern-Laternen, Deutschland (© artas/Getty Images)|Wo Tradition erstrahlt|![](/de-DE/2025/12/202512192300StarLanterns.jpg)|
+202512202300|SwedenSolstice|Morgendämmerung durch frostige Bäume, Schweden (© Schon/Getty Images)|Geburt der neuen Sonne|![](/de-DE/2025/12/202512202300SwedenSolstice.jpg)|
