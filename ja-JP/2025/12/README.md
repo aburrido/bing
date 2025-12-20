@@ -20,3 +20,4 @@
 202512171500|CathedralValley|太陽の神殿, 米国 ユタ州 (© Austin Cronnelly/TANDEM Stills + Motion)|今日は米国キャピトル・リーフ国立公園の記念日|![](/ja-JP/2025/12/202512171500CathedralValley.jpg)|
 202512181500|BormioItaly|ボルミオ, イタリア ロンバルディア州 (© Roberto Moiola/Getty Images)|アルプスに抱かれた温泉の町|![](/ja-JP/2025/12/202512181500BormioItaly.jpg)|
 202512191500|StarLanterns|星型のランプ, ドイツ (© artas/Getty Images)|クリスマスのイルミネーション装飾|![](/ja-JP/2025/12/202512191500StarLanterns.jpg)|
+202512201500|WinterSolstice2025|屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)|今日は冬至|![](/ja-JP/2025/12/202512201500WinterSolstice2025.jpg)|
