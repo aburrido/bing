@@ -20,3 +20,4 @@
 202512171830|GopuramVirupaksha|Granite rocks and gopuram of the Virupaksha Temple, Hampi, Karnataka (© Skouatroulio/Getty Images)|The temple that stands up to stone|![](/en-IN/2025/12/202512171830GopuramVirupaksha.jpg)|
 202512181830|BormioItaly|Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)|High mountains, deep history|![](/en-IN/2025/12/202512181830BormioItaly.jpg)|
 202512191830|StarLanterns|Paper Christmas star lanterns, Germany (© artas/Getty Images)|Twinkle, twinkle, paper stars|![](/en-IN/2025/12/202512191830StarLanterns.jpg)|
+202512201830|SwedenSolstice|Dawn light through frosty trees, Sweden (© Schon/Getty Images)|Birth of the new sun|![](/en-IN/2025/12/202512201830SwedenSolstice.jpg)|
