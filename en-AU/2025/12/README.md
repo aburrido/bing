@@ -20,3 +20,4 @@
 202512170800|FrostySquirrel|Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)|Info|![](/en-AU/2025/12/202512170800FrostySquirrel.jpg)|
 202512180800|CathedralValley|Temple of the Sun, Capitol Reef National Park, Utah, United States (© Austin Cronnelly/TANDEM Stills + Motion)|Info|![](/en-AU/2025/12/202512180800CathedralValley.jpg)|
 202512190800|BormioItaly|Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)|Info|![](/en-AU/2025/12/202512190800BormioItaly.jpg)|
+202512200800|RedFoxVulpes|Red fox, Canada (© RT-Images/Getty Images)|Info|![](/en-AU/2025/12/202512200800RedFoxVulpes.jpg)|
