@@ -21,3 +21,4 @@
 202512181830|BormioItaly|Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)|High mountains, deep history|![](/en-IN/2025/12/202512181830BormioItaly.jpg)|
 202512191830|StarLanterns|Paper Christmas star lanterns, Germany (© artas/Getty Images)|Twinkle, twinkle, paper stars|![](/en-IN/2025/12/202512191830StarLanterns.jpg)|
 202512201830|SwedenSolstice|Dawn light through frosty trees, Sweden (© Schon/Getty Images)|Birth of the new sun|![](/en-IN/2025/12/202512201830SwedenSolstice.jpg)|
+202512211830|NutcrackerAnkara|'The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)|From Hoffmann's pages to global stages|![](/en-IN/2025/12/202512211830NutcrackerAnkara.jpg)|
