@@ -21,3 +21,4 @@
 202512180500|CathedralValley|Temple du Soleil, parc national de Capitol Reef, Utah, États-Unis (© Austin Cronnelly/TANDEM Stills + Motion)|Capitol Reef, la cathédrale du temps|![](/fr-CA/2025/12/202512180500CathedralValley.jpg)|
 202512190500|BormioItaly|Paysage enneigé à Bormio, Lombardie, Italie (© Roberto Moiola/Getty Images)|Un écrin de chaleur au milieu des glaces|![](/fr-CA/2025/12/202512190500BormioItaly.jpg)|
 202512200500|StarLanterns|Étoiles de Herrnhut, Allemagne (© artas/Getty Images)|Herrnhut, le berceau des étoiles de Noël|![](/fr-CA/2025/12/202512200500StarLanterns.jpg)|
+202512210500|SwedenSolstice|Lumière de l’aube à travers les arbres givrés, Suède (© Schon/Getty Images)|L’aube du renouveau|![](/fr-CA/2025/12/202512210500SwedenSolstice.jpg)|
