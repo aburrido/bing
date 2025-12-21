@@ -20,3 +20,4 @@
 202512180000|CathedralValley|Temple of the Sun, Capitol Reef National Park, Utah, USA (© Austin Cronnelly/TANDEM Stills + Motion)|Layers of time in Utah|![](/en-GB/2025/12/202512180000CathedralValley.jpg)|
 202512190000|BormioItaly|Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)|High mountains, deep history|![](/en-GB/2025/12/202512190000BormioItaly.jpg)|
 202512200000|StarLanterns|Christmas star lanterns, Germany (© artas/Getty Images)|Twinkle, twinkle, paper stars|![](/en-GB/2025/12/202512200000StarLanterns.jpg)|
+202512210000|SwedenSolstice|Dawn light through frosty trees, Sweden (© Schon/Getty Images)|Birth of the new sun|![](/en-GB/2025/12/202512210000SwedenSolstice.jpg)|
