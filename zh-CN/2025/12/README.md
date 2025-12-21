@@ -21,3 +21,4 @@
 202512181600|BormioItaly|博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)|高山的悠久历史|![](/zh-CN/2025/12/202512181600BormioItaly.jpg)|
 202512191600|StarLanterns|圣诞星形灯笼，德国 (© artas/Getty Images)|闪烁的纸星星|![](/zh-CN/2025/12/202512191600StarLanterns.jpg)|
 202512201600|WintersolsticeY25|美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)|美丽的雾凇景色|![](/zh-CN/2025/12/202512201600WintersolsticeY25.jpg)|
+202512211600|FrankfurtAlteBruecke|法兰克福老桥，德国 (© diegograndi/Getty Images)|历史与现代的交融|![](/zh-CN/2025/12/202512211600FrankfurtAlteBruecke.jpg)|
