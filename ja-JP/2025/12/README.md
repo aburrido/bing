@@ -21,3 +21,4 @@
 202512181500|BormioItaly|ボルミオ, イタリア ロンバルディア州 (© Roberto Moiola/Getty Images)|アルプスに抱かれた温泉の町|![](/ja-JP/2025/12/202512181500BormioItaly.jpg)|
 202512191500|StarLanterns|星型のランプ, ドイツ (© artas/Getty Images)|クリスマスのイルミネーション装飾|![](/ja-JP/2025/12/202512191500StarLanterns.jpg)|
 202512201500|WinterSolstice2025|屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)|今日は冬至|![](/ja-JP/2025/12/202512201500WinterSolstice2025.jpg)|
+202512211500|ReindeerFinland|雪の中を進むトナカイ, フィンランド (© Roberto Moiola/Getty Images)|サンタクロースの相棒|![](/ja-JP/2025/12/202512211500ReindeerFinland.jpg)|
