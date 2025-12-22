@@ -22,3 +22,4 @@
 202512192300|FetNav|Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)|L’hiver en majesté|![](/fr-FR/2025/12/202512192300FetNav.jpg)|
 202512202300|SwedenSolstice|Lumière de l’aube à travers les arbres givrés, Suède (© Schon/Getty Images)|L’aube du renouveau|![](/fr-FR/2025/12/202512202300SwedenSolstice.jpg)|
 202512212300|NutcrackerAnkara|« Casse-Noisette » interprété par l’Opéra et Ballet d’État turc à Ankara, Turquie (© Anadolu/Getty Images)|Quand la neige se met à danser|![](/fr-FR/2025/12/202512212300NutcrackerAnkara.jpg)|
+202512222300|ReindeerFinland|Renne sous la neige, Laponie, Finlande (© Roberto Moiola/Getty Images)|À la recherche du Père Noël !|![](/fr-FR/2025/12/202512222300ReindeerFinland.jpg)|

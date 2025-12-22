@@ -22,3 +22,4 @@
 202512192300|StarLanterns|Weihnachtsstern-Laternen, Deutschland (© artas/Getty Images)|Wo Tradition erstrahlt|![](/de-DE/2025/12/202512192300StarLanterns.jpg)|
 202512202300|SwedenSolstice|Morgendämmerung durch frostige Bäume, Schweden (© Schon/Getty Images)|Geburt der neuen Sonne|![](/de-DE/2025/12/202512202300SwedenSolstice.jpg)|
 202512212300|NutcrackerAnkara|„Der Nussknacker“, aufgeführt vom Türkischen Staatsballett und der Türkischen Staatsoper in Ankara, Türkei (© Anadolu/Getty Images)|Hoffmanns Traum – heute auf den großen Bühnen|![](/de-DE/2025/12/202512212300NutcrackerAnkara.jpg)|
+202512222300|ReindeerFinland|Rentiere während des Schneefalls im Winter, Lappland, Finnland (© Roberto Moiola/Getty Images)|Hüter des Schnees|![](/de-DE/2025/12/202512222300ReindeerFinland.jpg)|
