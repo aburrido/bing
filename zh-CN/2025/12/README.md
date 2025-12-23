@@ -23,3 +23,4 @@
 202512201600|WintersolsticeY25|美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)|美丽的雾凇景色|![](/zh-CN/2025/12/202512201600WintersolsticeY25.jpg)|
 202512211600|FrankfurtAlteBruecke|法兰克福老桥，德国 (© diegograndi/Getty Images)|历史与现代的交融|![](/zh-CN/2025/12/202512211600FrankfurtAlteBruecke.jpg)|
 202512221600|ReindeerFinland|冬雪中的驯鹿，拉普兰德，芬兰 (© Roberto Moiola/Getty Images)|当节日的魔法踩着蹄声而来|![](/zh-CN/2025/12/202512221600ReindeerFinland.jpg)|
+202512231600|ElmauChapel|巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)|流动的传统|![](/zh-CN/2025/12/202512231600ElmauChapel.jpg)|
