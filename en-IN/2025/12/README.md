@@ -23,3 +23,4 @@
 202512201830|SwedenSolstice|Dawn light through frosty trees, Sweden (© Schon/Getty Images)|Birth of the new sun|![](/en-IN/2025/12/202512201830SwedenSolstice.jpg)|
 202512211830|NutcrackerAnkara|'The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)|From Hoffmann's pages to global stages|![](/en-IN/2025/12/202512211830NutcrackerAnkara.jpg)|
 202512221830|ReindeerFinland|Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)|Where holiday magic runs on hooves|![](/en-IN/2025/12/202512221830ReindeerFinland.jpg)|
+202512231830|ElmauChapel|Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)|Traditions that travel|![](/en-IN/2025/12/202512231830ElmauChapel.jpg)|
