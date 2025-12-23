@@ -23,3 +23,4 @@
 202512200800|StarLanterns|Christmas star lanterns, Germany (© artas/Getty Images)|Twinkle, twinkle, paper stars|![](/en-US/2025/12/202512200800StarLanterns.jpg)|
 202512210800|SwedenSolstice|Dawn light through frosty trees, Sweden (© Schon/Getty Images)|Birth of the new sun|![](/en-US/2025/12/202512210800SwedenSolstice.jpg)|
 202512220800|NutcrackerAnkara|'The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)|From Hoffmann's pages to global stages|![](/en-US/2025/12/202512220800NutcrackerAnkara.jpg)|
+202512230800|ReindeerFinland|Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)|Where holiday magic runs on hooves|![](/en-US/2025/12/202512230800ReindeerFinland.jpg)|

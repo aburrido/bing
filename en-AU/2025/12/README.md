@@ -23,3 +23,4 @@
 202512200800|RedFoxVulpes|Red fox, Canada (© RT-Images/Getty Images)|Info|![](/en-AU/2025/12/202512200800RedFoxVulpes.jpg)|
 202512210800|SwedenSolstice|Dawn light through frosty trees, Sweden (© Schon/Getty Images)|Info|![](/en-AU/2025/12/202512210800SwedenSolstice.jpg)|
 202512220800|FrankfurtAlteBruecke|Alte Brücke Bridge, Frankfurt, Germany (© diegograndi/Getty Images)|Info|![](/en-AU/2025/12/202512220800FrankfurtAlteBruecke.jpg)|
+202512230800|LagoLagazuolo|Lagazzuolo Lake, Valmalenco, Lombardy, Italy (© Francesco Bergamaschi/Getty Images)|Info|![](/en-AU/2025/12/202512230800LagoLagazuolo.jpg)|
