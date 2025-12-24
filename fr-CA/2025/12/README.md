@@ -24,3 +24,4 @@
 202512210500|SwedenSolstice|Lumière de l’aube à travers les arbres givrés, Suède (© Schon/Getty Images)|L’aube du renouveau|![](/fr-CA/2025/12/202512210500SwedenSolstice.jpg)|
 202512220500|NutcrackerAnkara|« Casse-Noisette » interprété par l’Opéra et Ballet d’État turc à Ankara, Turquie (© Anadolu/Getty Images)|Quand la neige se met à danser|![](/fr-CA/2025/12/202512220500NutcrackerAnkara.jpg)|
 202512230500|ReindeerFinland|Renne sous la neige, Laponie, Finlande (© Roberto Moiola/Getty Images)|À la recherche du Père Noël !|![](/fr-CA/2025/12/202512230500ReindeerFinland.jpg)|
+202512240500|ElmauChapel|Chapelle avec sapin de Noël dans les Alpes bavaroises, Allemagne (© mauritius images GmbH/Alamy)|Une nuit magique nous attend !|![](/fr-CA/2025/12/202512240500ElmauChapel.jpg)|
