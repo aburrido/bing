@@ -24,3 +24,4 @@
 202512211600|FrankfurtAlteBruecke|法兰克福老桥，德国 (© diegograndi/Getty Images)|历史与现代的交融|![](/zh-CN/2025/12/202512211600FrankfurtAlteBruecke.jpg)|
 202512221600|ReindeerFinland|冬雪中的驯鹿，拉普兰德，芬兰 (© Roberto Moiola/Getty Images)|当节日的魔法踩着蹄声而来|![](/zh-CN/2025/12/202512221600ReindeerFinland.jpg)|
 202512231600|ElmauChapel|巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)|流动的传统|![](/zh-CN/2025/12/202512231600ElmauChapel.jpg)|
+202512241600|SantaGlobe|海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)|微缩世界，无尽奇想|![](/zh-CN/2025/12/202512241600SantaGlobe.jpg)|
