@@ -25,3 +25,4 @@
 202512221500|TokyoTower2025|ライトアップされた夜の東京タワー, 東京 (© Najjsiri Nimyizhune/Getty Images)|今日は東京タワー完工の日|![](/ja-JP/2025/12/202512221500TokyoTower2025.jpg)|
 202512231500|ElmauChapel|クリスマスツリーで飾られた礼拝堂, ドイツ (© mauritius images GmbH/Alamy)|今日はクリスマス・イヴ|![](/ja-JP/2025/12/202512231500ElmauChapel.jpg)|
 202512241500|SantaGlobe|クリスマスマーケットのスノードーム, ドイツ (© George Pachantouris/Getty Images)|今日はクリスマス|![](/ja-JP/2025/12/202512241500SantaGlobe.jpg)|
+202512251500|WiltshireDawn|ソールズベリー大聖堂, イングランド (© Julian Elliott Photography/Getty Images)|冬空にそびえるイギリス最高の尖塔|![](/ja-JP/2025/12/202512251500WiltshireDawn.jpg)|
