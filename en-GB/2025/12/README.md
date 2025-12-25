@@ -24,3 +24,4 @@
 202512220000|NutcrackerAnkara|'The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)|From Hoffmann's pages to global stages|![](/en-GB/2025/12/202512220000NutcrackerAnkara.jpg)|
 202512230000|ReindeerFinland|Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)|Where holiday magic runs on hooves|![](/en-GB/2025/12/202512230000ReindeerFinland.jpg)|
 202512240000|ElmauChapel|Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)|Traditions that travel|![](/en-GB/2025/12/202512240000ElmauChapel.jpg)|
+202512250000|SantaGlobe|Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)|Miniature worlds, infinite wonder|![](/en-GB/2025/12/202512250000SantaGlobe.jpg)|
