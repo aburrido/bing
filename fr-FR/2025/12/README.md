@@ -25,3 +25,4 @@
 202512222300|ReindeerFinland|Renne sous la neige, Laponie, Finlande (© Roberto Moiola/Getty Images)|À la recherche du Père Noël !|![](/fr-FR/2025/12/202512222300ReindeerFinland.jpg)|
 202512232300|ElmauChapel|Chapelle avec sapin de Noël dans les Alpes bavaroises, Allemagne (© mauritius images GmbH/Alamy)|Une nuit magique nous attend !|![](/fr-FR/2025/12/202512232300ElmauChapel.jpg)|
 202512242300|SantaGlobe|Boules à neige sur un marché de Noël à Heidelberg, Allemagne (© George Pachantouris/Getty Images)|L’esprit de Noël, en miniature|![](/fr-FR/2025/12/202512242300SantaGlobe.jpg)|
+202512252300|NuukGreenland|Nuuk, Groenland (© nevereverro/Getty Images)|Cap sur l’Arctique|![](/fr-FR/2025/12/202512252300NuukGreenland.jpg)|
