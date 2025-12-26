@@ -26,3 +26,4 @@
 202512230800|ReindeerFinland|Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)|Where holiday magic runs on hooves|![](/en-US/2025/12/202512230800ReindeerFinland.jpg)|
 202512240800|ElmauChapel|Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)|Traditions that travel|![](/en-US/2025/12/202512240800ElmauChapel.jpg)|
 202512250800|SantaGlobe|Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)|Miniature worlds, infinite wonder|![](/en-US/2025/12/202512250800SantaGlobe.jpg)|
+202512260800|WiltshireDawn|Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)|Unboxed traditions|![](/en-US/2025/12/202512260800WiltshireDawn.jpg)|
