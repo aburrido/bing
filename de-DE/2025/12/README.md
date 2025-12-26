@@ -26,3 +26,4 @@
 202512232300|ElmauSnow|Kapelle und Weihnachtsbaum in winterlicher Landschaft, Elmau, Bayern (© Michael Thaler/Shutterstock)|Stille Nacht, heilige Nacht!|![](/de-DE/2025/12/202512232300ElmauSnow.jpg)|
 202512242300|SantaGlobe|Schneekugeln auf einem Weihnachtsmarkt in Heidelberg, Baden-Württemberg (© George Pachantouris/Getty Images)|Kleine Welten, großer Zauber|![](/de-DE/2025/12/202512242300SantaGlobe.jpg)|
 202512252300|WiltshireDawn|Kathedrale von Salisbury, Wiltshire, England (© Julian Elliott Photography/Getty Images)|Tradition trifft Entspannung|![](/de-DE/2025/12/202512252300WiltshireDawn.jpg)|
+202512262300|SuperiorIceMN|Platteneis entlang des Oberen Sees, Grand Marais, Minnesota, USA (© wanderluster/Getty Images)|Scherben des Winters|![](/de-DE/2025/12/202512262300SuperiorIceMN.jpg)|
