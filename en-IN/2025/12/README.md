@@ -27,3 +27,4 @@
 202512241830|SantaGlobe|Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)|Miniature worlds, infinite wonder|![](/en-IN/2025/12/202512241830SantaGlobe.jpg)|
 202512251830|WiltshireDawn|Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)|Unboxed traditions|![](/en-IN/2025/12/202512251830WiltshireDawn.jpg)|
 202512261830|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)|Shards of winter|![](/en-IN/2025/12/202512261830SuperiorIceMN.jpg)|
+202512271830|MangaloreBeach2025|Aerial view of a sandy beach in Mangaluru, Karnataka (© Amith Nag Photography/Moment/Getty Images)|A shore thing in Mangaluru|![](/en-IN/2025/12/202512271830MangaloreBeach2025.jpg)|
