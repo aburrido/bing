@@ -27,3 +27,4 @@
 202512241500|SantaGlobe|クリスマスマーケットのスノードーム, ドイツ (© George Pachantouris/Getty Images)|今日はクリスマス|![](/ja-JP/2025/12/202512241500SantaGlobe.jpg)|
 202512251500|WiltshireDawn|ソールズベリー大聖堂, イングランド (© Julian Elliott Photography/Getty Images)|冬空にそびえるイギリス最高の尖塔|![](/ja-JP/2025/12/202512251500WiltshireDawn.jpg)|
 202512261500|SuperiorIceMN|凍結するスペリオル湖, 米国 ミネソタ州 (© wanderluster/Getty Images)|湖の岸に押し寄せる割れた氷の山|![](/ja-JP/2025/12/202512261500SuperiorIceMN.jpg)|
+202512271500|MistyPineForest|アルザス地域圏の森, フランス (© alekseystemmer/Getty Images)|霧に包まれた針葉樹林|![](/ja-JP/2025/12/202512271500MistyPineForest.jpg)|
