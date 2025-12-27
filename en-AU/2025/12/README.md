@@ -27,3 +27,4 @@
 202512240800|StarlingBrighton2025|Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)|Info|![](/en-AU/2025/12/202512240800StarlingBrighton2025.jpg)|
 202512250800|ReindeerFinland|Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)|Info|![](/en-AU/2025/12/202512250800ReindeerFinland.jpg)|
 202512260800|WinterCovadonga|Lakes of Covadonga, Asturias, Spain (© emiliozv/Getty Images)|Info|![](/en-AU/2025/12/202512260800WinterCovadonga.jpg)|
+202512270800|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)|Info|![](/en-AU/2025/12/202512270800SuperiorIceMN.jpg)|
