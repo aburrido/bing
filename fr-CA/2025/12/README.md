@@ -27,3 +27,4 @@
 202512240500|ElmauChapel|Chapelle avec sapin de Noël dans les Alpes bavaroises, Allemagne (© mauritius images GmbH/Alamy)|Une nuit magique nous attend !|![](/fr-CA/2025/12/202512240500ElmauChapel.jpg)|
 202512250500|XmasTree|Sapins de Noël dans le Vieux-Québec (© Jean Surprenant/Getty Images)|Traditions de Noël|![](/fr-CA/2025/12/202512250500XmasTree.jpg)|
 202512260500|WiltshireDawn|Cathédrale de Salisbury, Wiltshire, Angleterre (© Julian Elliott Photography/Getty Images)|Le calme après Noël|![](/fr-CA/2025/12/202512260500WiltshireDawn.jpg)|
+202512270500|SuperiorIceMN|Plaques de glace sur le lac Supérieur, Minnesota, États-Unis (© wanderluster/Getty Images)|Une immensité argentée sans pareille|![](/fr-CA/2025/12/202512270500SuperiorIceMN.jpg)|
