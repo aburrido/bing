@@ -27,3 +27,4 @@
 202512241600|SantaGlobe|海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)|微缩世界，无尽奇想|![](/zh-CN/2025/12/202512241600SantaGlobe.jpg)|
 202512251600|WiltshireDawn|索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)|打破盒子的传统|![](/zh-CN/2025/12/202512251600WiltshireDawn.jpg)|
 202512261600|SuperiorIceMN|苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国 (© wanderluster/Getty Images)|冬之碎片|![](/zh-CN/2025/12/202512261600SuperiorIceMN.jpg)|
+202512271600|RuffedLemur|马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)|仍存野性|![](/zh-CN/2025/12/202512271600RuffedLemur.jpg)|
