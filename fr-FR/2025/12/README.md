@@ -27,3 +27,4 @@
 202512242300|SantaGlobe|Boules à neige sur un marché de Noël à Heidelberg, Allemagne (© George Pachantouris/Getty Images)|L’esprit de Noël, en miniature|![](/fr-FR/2025/12/202512242300SantaGlobe.jpg)|
 202512252300|NuukGreenland|Nuuk, Groenland (© nevereverro/Getty Images)|Cap sur l’Arctique|![](/fr-FR/2025/12/202512252300NuukGreenland.jpg)|
 202512262300|SuperiorIceMN|Plaques de glace sur le lac Supérieur, Minnesota, États-Unis (© wanderluster/Getty Images)|Une immensité argentée sans pareille|![](/fr-FR/2025/12/202512262300SuperiorIceMN.jpg)|
+202512272300|RuffedLemur|Lémurien Vari noir et blanc de Madagascar (© Cyrielle Beaubois/Getty Images)|L’adorable et menacé cousin du singe|![](/fr-FR/2025/12/202512272300RuffedLemur.jpg)|
