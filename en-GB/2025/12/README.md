@@ -27,3 +27,4 @@
 202512250000|SantaGlobe|Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)|Miniature worlds, infinite wonder|![](/en-GB/2025/12/202512250000SantaGlobe.jpg)|
 202512260000|WiltshireDawn|Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)|Unboxed traditions|![](/en-GB/2025/12/202512260000WiltshireDawn.jpg)|
 202512270000|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)|Shards of winter|![](/en-GB/2025/12/202512270000SuperiorIceMN.jpg)|
+202512280000|RuffedLemur|Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)|What remains wild|![](/en-GB/2025/12/202512280000RuffedLemur.jpg)|
