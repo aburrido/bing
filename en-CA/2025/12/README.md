@@ -29,3 +29,4 @@
 202512260500|WiltshireDawn|Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)|Unboxed traditions|![](/en-CA/2025/12/202512260500WiltshireDawn.jpg)|
 202512270500|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)|Shards of winter|![](/en-CA/2025/12/202512270500SuperiorIceMN.jpg)|
 202512280500|RuffedLemur|Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)|What remains wild|![](/en-CA/2025/12/202512280500RuffedLemur.jpg)|
+202512290500|AniTurkey|St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)|The church that outlived a city|![](/en-CA/2025/12/202512290500AniTurkey.jpg)|
