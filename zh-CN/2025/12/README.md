@@ -29,3 +29,4 @@
 202512261600|SuperiorIceMN|苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国 (© wanderluster/Getty Images)|冬之碎片|![](/zh-CN/2025/12/202512261600SuperiorIceMN.jpg)|
 202512271600|RuffedLemur|马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)|仍存野性|![](/zh-CN/2025/12/202512271600RuffedLemur.jpg)|
 202512281600|AniTurkey|阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)|一座比城市更悠久的教堂|![](/zh-CN/2025/12/202512281600AniTurkey.jpg)|
+202512291600|SwedenSolstice|晨光透过结霜的树木洒下，瑞典 (© Schon/Getty Images)|新太阳的诞生|![](/zh-CN/2025/12/202512291600SwedenSolstice.jpg)|
