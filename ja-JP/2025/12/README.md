@@ -29,3 +29,4 @@
 202512261500|SuperiorIceMN|凍結するスペリオル湖, 米国 ミネソタ州 (© wanderluster/Getty Images)|湖の岸に押し寄せる割れた氷の山|![](/ja-JP/2025/12/202512261500SuperiorIceMN.jpg)|
 202512271500|MistyPineForest|アルザス地域圏の森, フランス (© alekseystemmer/Getty Images)|霧に包まれた針葉樹林|![](/ja-JP/2025/12/202512271500MistyPineForest.jpg)|
 202512281500|AniTurkey|アブガムレンツ聖グリゴル教会, トルコ (© Kenan Talas/Getty Images)|栄枯盛衰を感じさせる美しい廃墟|![](/ja-JP/2025/12/202512281500AniTurkey.jpg)|
+202512291500|JapanSwans|古徳沼, 茨城県 那珂市 (© Martin Bailey/Shutterstock)|夕陽に染まる空を舞う冬の使者|![](/ja-JP/2025/12/202512291500JapanSwans.jpg)|
