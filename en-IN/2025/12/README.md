@@ -29,3 +29,4 @@
 202512261830|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)|Shards of winter|![](/en-IN/2025/12/202512261830SuperiorIceMN.jpg)|
 202512271830|MangaloreBeach2025|Aerial view of a sandy beach in Mangaluru, Karnataka (© Amith Nag Photography/Moment/Getty Images)|A shore thing in Mangaluru|![](/en-IN/2025/12/202512271830MangaloreBeach2025.jpg)|
 202512281830|AniTurkey|St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)|The church that outlived a city|![](/en-IN/2025/12/202512281830AniTurkey.jpg)|
+202512291830|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Whoop, there they fly|![](/en-IN/2025/12/202512291830JapanSwans.jpg)|
