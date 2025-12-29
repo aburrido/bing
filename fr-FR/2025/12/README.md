@@ -29,3 +29,4 @@
 202512262300|SuperiorIceMN|Plaques de glace sur le lac Supérieur, Minnesota, États-Unis (© wanderluster/Getty Images)|Une immensité argentée sans pareille|![](/fr-FR/2025/12/202512262300SuperiorIceMN.jpg)|
 202512272300|RuffedLemur|Lémurien Vari noir et blanc de Madagascar (© Cyrielle Beaubois/Getty Images)|L’adorable et menacé cousin du singe|![](/fr-FR/2025/12/202512272300RuffedLemur.jpg)|
 202512282300|AniTurkey|Église Saint-Grégoire à Ani, Kars, Turquie (© Kenan Talas/Getty Images)|La ville aux mille et une églises|![](/fr-FR/2025/12/202512282300AniTurkey.jpg)|
+202512292300|JapanSwans|Cygnes chanteurs, Kotoku, Japon (© Martin Bailey/Shutterstock)|Envol mélodieux vers le Japon|![](/fr-FR/2025/12/202512292300JapanSwans.jpg)|

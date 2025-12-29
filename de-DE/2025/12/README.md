@@ -29,3 +29,4 @@
 202512262300|SuperiorIceMN|Platteneis entlang des Oberen Sees, Grand Marais, Minnesota, USA (© wanderluster/Getty Images)|Scherben des Winters|![](/de-DE/2025/12/202512262300SuperiorIceMN.jpg)|
 202512272300|RuffedLemur|Schwarzweißer Vari auf Madagaskar (© Cyrielle Beaubois/Getty Images)|Wächter des Waldes|![](/de-DE/2025/12/202512272300RuffedLemur.jpg)|
 202512282300|SkijumpingEisenbichler|Markus Eisenbichler (GER) beim ersten Sprung am zweiten Tag der Vierschanzentournee, 30. Dezember 2016, Oberstdorf, Bayern (© Adam Pretty/Getty Images)|Lichter, Weite, Adrenalin|![](/de-DE/2025/12/202512282300SkijumpingEisenbichler.jpg)|
+202512292300|JapanSwans|Singschwäne, Kotoku-Teich, Japan (© Martin Bailey/Shutterstock)|Ein Tanz mit dem Wind|![](/de-DE/2025/12/202512292300JapanSwans.jpg)|
