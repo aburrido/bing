@@ -30,3 +30,4 @@
 202512271600|RuffedLemur|马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)|仍存野性|![](/zh-CN/2025/12/202512271600RuffedLemur.jpg)|
 202512281600|AniTurkey|阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)|一座比城市更悠久的教堂|![](/zh-CN/2025/12/202512281600AniTurkey.jpg)|
 202512291600|SwedenSolstice|晨光透过结霜的树木洒下，瑞典 (© Schon/Getty Images)|新太阳的诞生|![](/zh-CN/2025/12/202512291600SwedenSolstice.jpg)|
+202512301600|GermanyNewYear|除夕夜，奥伯鲍姆桥，柏林，德国 (© spreephoto.de/Getty Images)|柏林，新年之桥|![](/zh-CN/2025/12/202512301600GermanyNewYear.jpg)|
