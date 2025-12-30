@@ -30,3 +30,4 @@
 202512271830|MangaloreBeach2025|Aerial view of a sandy beach in Mangaluru, Karnataka (© Amith Nag Photography/Moment/Getty Images)|A shore thing in Mangaluru|![](/en-IN/2025/12/202512271830MangaloreBeach2025.jpg)|
 202512281830|AniTurkey|St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)|The church that outlived a city|![](/en-IN/2025/12/202512281830AniTurkey.jpg)|
 202512291830|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Whoop, there they fly|![](/en-IN/2025/12/202512291830JapanSwans.jpg)|
+202512301830|GermanyNewYear|New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)|Where Berlin bridges the New Year|![](/en-IN/2025/12/202512301830GermanyNewYear.jpg)|
