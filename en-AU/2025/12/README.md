@@ -30,3 +30,4 @@
 202512270800|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota, United States (© wanderluster/Getty Images)|Info|![](/en-AU/2025/12/202512270800SuperiorIceMN.jpg)|
 202512280800|RuffedLemur|Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)|Info|![](/en-AU/2025/12/202512280800RuffedLemur.jpg)|
 202512290800|EtretatBeach|Étretat, Normandy, France (© Luis Henrique Boucault/Getty Images)|Info|![](/en-AU/2025/12/202512290800EtretatBeach.jpg)|
+202512300800|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Info|![](/en-AU/2025/12/202512300800JapanSwans.jpg)|

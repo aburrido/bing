@@ -30,3 +30,4 @@
 202512270800|SuperiorIceMN|Plate ice along Lake Superior, Grand Marais, Minnesota (© wanderluster/Getty Images)|Shards of winter|![](/en-US/2025/12/202512270800SuperiorIceMN.jpg)|
 202512280800|RuffedLemur|Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)|What remains wild|![](/en-US/2025/12/202512280800RuffedLemur.jpg)|
 202512290800|AniTurkey|St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)|The church that outlived a city|![](/en-US/2025/12/202512290800AniTurkey.jpg)|
+202512300800|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Whoop, there they fly|![](/en-US/2025/12/202512300800JapanSwans.jpg)|
