@@ -30,3 +30,4 @@
 202512271500|MistyPineForest|アルザス地域圏の森, フランス (© alekseystemmer/Getty Images)|霧に包まれた針葉樹林|![](/ja-JP/2025/12/202512271500MistyPineForest.jpg)|
 202512281500|AniTurkey|アブガムレンツ聖グリゴル教会, トルコ (© Kenan Talas/Getty Images)|栄枯盛衰を感じさせる美しい廃墟|![](/ja-JP/2025/12/202512281500AniTurkey.jpg)|
 202512291500|JapanSwans|古徳沼, 茨城県 那珂市 (© Martin Bailey/Shutterstock)|夕陽に染まる空を舞う冬の使者|![](/ja-JP/2025/12/202512291500JapanSwans.jpg)|
+202512301500|Omisoka2026|輪王寺の梵鐘, 宮城県 仙台市 (© Grandbrothers/Alamy)|今日は大晦日|![](/ja-JP/2025/12/202512301500Omisoka2026.jpg)|
