@@ -31,3 +31,4 @@
 202512280500|RuffedLemur|Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)|What remains wild|![](/en-CA/2025/12/202512280500RuffedLemur.jpg)|
 202512290500|AniTurkey|St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)|The church that outlived a city|![](/en-CA/2025/12/202512290500AniTurkey.jpg)|
 202512300500|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Whoop, there they fly|![](/en-CA/2025/12/202512300500JapanSwans.jpg)|
+202512310500|NYEToronto|New Year's Eve fireworks in Toronto (© LeoPatrizi/Getty Images)|Stepping into a new year|![](/en-CA/2025/12/202512310500NYEToronto.jpg)|

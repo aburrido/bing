@@ -31,3 +31,4 @@
 202512280500|RuffedLemur|Lémurien Vari noir et blanc de Madagascar (© Cyrielle Beaubois/Getty Images)|L’adorable et menacé cousin du singe|![](/fr-CA/2025/12/202512280500RuffedLemur.jpg)|
 202512290500|AniTurkey|Église Saint-Grégoire à Ani, Kars, Turquie (© Kenan Talas/Getty Images)|La ville aux mille et une églises|![](/fr-CA/2025/12/202512290500AniTurkey.jpg)|
 202512300500|JapanSwans|Cygnes chanteurs, Kotoku, Japon (© Martin Bailey/Shutterstock)|Envol mélodieux vers le Japon|![](/fr-CA/2025/12/202512300500JapanSwans.jpg)|
+202512310500|NYEToronto|Feux d’artifice du nouvel an à Toronto (© LeoPatrizi/Getty Images)|Le début d’une nouvelle année|![](/fr-CA/2025/12/202512310500NYEToronto.jpg)|
