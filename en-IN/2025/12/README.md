@@ -31,3 +31,4 @@
 202512281830|AniTurkey|St. Gregory Church in Ani Ruins, Kars, Türkiye (© Kenan Talas/Getty Images)|The church that outlived a city|![](/en-IN/2025/12/202512281830AniTurkey.jpg)|
 202512291830|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Whoop, there they fly|![](/en-IN/2025/12/202512291830JapanSwans.jpg)|
 202512301830|GermanyNewYear|New Year's Eve, Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)|Where Berlin bridges the New Year|![](/en-IN/2025/12/202512301830GermanyNewYear.jpg)|
+202512311830|NewYearFox|Arctic fox sleeping (© Chansak Joe/Getty Images)|Stretch into the New Year|![](/en-IN/2025/12/202512311830NewYearFox.jpg)|
