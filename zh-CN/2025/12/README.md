@@ -31,3 +31,4 @@
 202512281600|AniTurkey|阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)|一座比城市更悠久的教堂|![](/zh-CN/2025/12/202512281600AniTurkey.jpg)|
 202512291600|SwedenSolstice|晨光透过结霜的树木洒下，瑞典 (© Schon/Getty Images)|新太阳的诞生|![](/zh-CN/2025/12/202512291600SwedenSolstice.jpg)|
 202512301600|GermanyNewYear|除夕夜，奥伯鲍姆桥，柏林，德国 (© spreephoto.de/Getty Images)|柏林，新年之桥|![](/zh-CN/2025/12/202512301600GermanyNewYear.jpg)|
+202512311600|NewYearFox|正在睡觉的北极狐 (© Chansak Joe/Getty Images)|伸个懒腰，迈向新年！|![](/zh-CN/2025/12/202512311600NewYearFox.jpg)|
