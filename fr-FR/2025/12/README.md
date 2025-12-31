@@ -31,3 +31,4 @@
 202512282300|AniTurkey|Église Saint-Grégoire à Ani, Kars, Turquie (© Kenan Talas/Getty Images)|La ville aux mille et une églises|![](/fr-FR/2025/12/202512282300AniTurkey.jpg)|
 202512292300|JapanSwans|Cygnes chanteurs, Kotoku, Japon (© Martin Bailey/Shutterstock)|Envol mélodieux vers le Japon|![](/fr-FR/2025/12/202512292300JapanSwans.jpg)|
 202512302300|FireworksParis|Le nouvel an à Paris, France (© Kiran Ridley/Getty Images)|Bonne année !|![](/fr-FR/2025/12/202512302300FireworksParis.jpg)|
+202512312300|NewYearFox|Un renard polaire endormi (© Chansak Joe/Getty Images)|Étirez-vous doucement dans la nouvelle année|![](/fr-FR/2025/12/202512312300NewYearFox.jpg)|

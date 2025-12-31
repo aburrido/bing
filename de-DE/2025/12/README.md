@@ -31,3 +31,4 @@
 202512282300|SkijumpingEisenbichler|Markus Eisenbichler (GER) beim ersten Sprung am zweiten Tag der Vierschanzentournee, 30. Dezember 2016, Oberstdorf, Bayern (© Adam Pretty/Getty Images)|Lichter, Weite, Adrenalin|![](/de-DE/2025/12/202512282300SkijumpingEisenbichler.jpg)|
 202512292300|JapanSwans|Singschwäne, Kotoku-Teich, Japan (© Martin Bailey/Shutterstock)|Ein Tanz mit dem Wind|![](/de-DE/2025/12/202512292300JapanSwans.jpg)|
 202512302300|GermanyNewYear|Silvester, Oberbaumbrücke, Berlin (© spreephoto.de/Getty Images)|Countdown zum Jahreswechsel|![](/de-DE/2025/12/202512302300GermanyNewYear.jpg)|
+202512312300|LoisachWinter|Frostbedeckte Bäume entlang des Flusses Loisach, Kochelsee, Bayern (© Malorny/Getty Images)|Neues Jahr, neue Chancen|![](/de-DE/2025/12/202512312300LoisachWinter.jpg)|
