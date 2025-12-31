@@ -31,3 +31,4 @@
 202512281500|AniTurkey|アブガムレンツ聖グリゴル教会, トルコ (© Kenan Talas/Getty Images)|栄枯盛衰を感じさせる美しい廃墟|![](/ja-JP/2025/12/202512281500AniTurkey.jpg)|
 202512291500|JapanSwans|古徳沼, 茨城県 那珂市 (© Martin Bailey/Shutterstock)|夕陽に染まる空を舞う冬の使者|![](/ja-JP/2025/12/202512291500JapanSwans.jpg)|
 202512301500|Omisoka2026|輪王寺の梵鐘, 宮城県 仙台市 (© Grandbrothers/Alamy)|今日は大晦日|![](/ja-JP/2025/12/202512301500Omisoka2026.jpg)|
+202512311500|NewYearSunrise2026|えびす岩・大黒岩, 北海道 (© Ambling Images/Alamy)|今日は元日|![](/ja-JP/2025/12/202512311500NewYearSunrise2026.jpg)|
