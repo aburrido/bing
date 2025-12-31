@@ -31,3 +31,4 @@
 202512280800|RuffedLemur|Black-and-white ruffed lemur in Madagascar (© Cyrielle Beaubois/Getty Images)|Info|![](/en-AU/2025/12/202512280800RuffedLemur.jpg)|
 202512290800|EtretatBeach|Étretat, Normandy, France (© Luis Henrique Boucault/Getty Images)|Info|![](/en-AU/2025/12/202512290800EtretatBeach.jpg)|
 202512300800|JapanSwans|Whooper swans, Kotoku Pond, Japan (© Martin Bailey/Shutterstock)|Info|![](/en-AU/2025/12/202512300800JapanSwans.jpg)|
+202512310800|GermanyNewYear|Oberbaum Bridge, Berlin, Germany (© spreephoto.de/Getty Images)|Info|![](/en-AU/2025/12/202512310800GermanyNewYear.jpg)|
