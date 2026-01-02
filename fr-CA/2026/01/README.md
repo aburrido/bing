@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202512310500|NYEToronto|Feux d’artifice du nouvel an à Toronto (© LeoPatrizi/Getty Images)|Le début d’une nouvelle année|![](/fr-CA/2026/01/202512310500NYEToronto.jpg)|
 202601010500|NewYearFox|Un renard polaire endormi (© Chansak Joe/Getty Images)|Étirez-vous doucement dans la nouvelle année|![](/fr-CA/2026/01/202601010500NewYearFox.jpg)|
+202601020500|VeniceView|Vue aérienne de Venise, Italie (© Clement Leonard/Getty Images)|L’âme de Venise|![](/fr-CA/2026/01/202601020500VeniceView.jpg)|
