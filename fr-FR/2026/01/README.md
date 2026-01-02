@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202512312300|NewYearFox|Un renard polaire endormi (© Chansak Joe/Getty Images)|Étirez-vous doucement dans la nouvelle année|![](/fr-FR/2026/01/202512312300NewYearFox.jpg)|
 202601012300|VeniceView|Vue aérienne de Venise, Italie (© Clement Leonard/Getty Images)|L’âme de Venise|![](/fr-FR/2026/01/202601012300VeniceView.jpg)|
+202601022300|LauterbrunnenValley|Chute de Staubbach à Lauterbrunnen, canton de Berne, Suisse (© pongnathee kluaythong/Getty Images)|Quand la Suisse inspira la magie de Tolkien|![](/fr-FR/2026/01/202601022300LauterbrunnenValley.jpg)|
