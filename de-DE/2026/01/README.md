@@ -4,3 +4,4 @@
 202601012300|VeniceView|Luftaufnahme von Venedig, Italien (© Clement Leonard/Getty Images)|Die Seele Venedigs|![](/de-DE/2026/01/202601012300VeniceView.jpg)|
 202601022300|LauterbrunnenValley|Staubbachfälle in Lauterbrunnen, Kanton Bern, Schweiz (© pongnathee kluaythong/Getty Images)|Wo Fantasie erwacht|![](/de-DE/2026/01/202601022300LauterbrunnenValley.jpg)|
 202601032300|KingMountain|Kings Mountain, Chugach Mountains, Alaska, USA (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|Majestätischer Ausblick|![](/de-DE/2026/01/202601032300KingMountain.jpg)|
+202601042300|ImpalaRooibok|Eine Herde Impalas, Londolozi-Wildreservat, Südafrika (© Mint Images/Getty Images)|Immer auf der Hut|![](/de-DE/2026/01/202601042300ImpalaRooibok.jpg)|
