@@ -4,3 +4,4 @@
 202601010500|NewYearFox|Arctic fox sleeping (© Chansak Joe/Getty Images)|Stretch into the New Year|![](/en-CA/2026/01/202601010500NewYearFox.jpg)|
 202601020500|VeniceView|Aerial view of Venice, Italy (© Clement Leonard/Getty Images)|The soul of Venice|![](/en-CA/2026/01/202601020500VeniceView.jpg)|
 202601030500|LauterbrunnenValley|Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)|The steps before the saga|![](/en-CA/2026/01/202601030500LauterbrunnenValley.jpg)|
+202601040500|KingMountain|Kings Mountain, Chugach Mountains, Alaska, United States (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|A royal view|![](/en-CA/2026/01/202601040500KingMountain.jpg)|
