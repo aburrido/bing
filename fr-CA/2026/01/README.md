@@ -5,3 +5,4 @@
 202601020500|VeniceView|Vue aérienne de Venise, Italie (© Clement Leonard/Getty Images)|L’âme de Venise|![](/fr-CA/2026/01/202601020500VeniceView.jpg)|
 202601030500|LauterbrunnenValley|Chute de Staubbach à Lauterbrunnen, canton de Berne, Suisse (© pongnathee kluaythong/Getty Images)|Quand la Suisse inspira la magie de Tolkien|![](/fr-CA/2026/01/202601030500LauterbrunnenValley.jpg)|
 202601040500|KingMountain|Mont Kings, montagnes Chugach, Alaska, États-Unis (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|Une vue royale !|![](/fr-CA/2026/01/202601040500KingMountain.jpg)|
+202601050500|ImpalaRooibok|Troupeau d’impalas, réserve de Londolozi, Afrique du Sud (© Mint Images/Getty Images)|L’histoire silencieuse des impalas|![](/fr-CA/2026/01/202601050500ImpalaRooibok.jpg)|
