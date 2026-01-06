@@ -6,3 +6,4 @@
 202601030800|LauterbrunnenValley|Staubbach Falls at Lauterbrunnen, Canton of Bern, Switzerland (© pongnathee kluaythong/Getty Images)|The steps before the saga|![](/en-US/2026/01/202601030800LauterbrunnenValley.jpg)|
 202601040800|KingMountain|Kings Mountain, Chugach Mountains, Alaska (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|A royal view|![](/en-US/2026/01/202601040800KingMountain.jpg)|
 202601050800|ImpalaRooibok|A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)|Herd on high alert|![](/en-US/2026/01/202601050800ImpalaRooibok.jpg)|
+202601060800|NuukGreenland|Nuuk, Greenland (© nevereverro/Getty Images)|Chillin' in Nuuk|![](/en-US/2026/01/202601060800NuukGreenland.jpg)|
