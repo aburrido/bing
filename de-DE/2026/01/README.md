@@ -6,3 +6,4 @@
 202601032300|KingMountain|Kings Mountain, Chugach Mountains, Alaska, USA (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|Majestätischer Ausblick|![](/de-DE/2026/01/202601032300KingMountain.jpg)|
 202601042300|ImpalaRooibok|Eine Herde Impalas, Londolozi-Wildreservat, Südafrika (© Mint Images/Getty Images)|Immer auf der Hut|![](/de-DE/2026/01/202601042300ImpalaRooibok.jpg)|
 202601052300|NuukGreenland|Nuuk, Grönland (© nevereverro/Getty Images)|Das Leben im hohen Norden|![](/de-DE/2026/01/202601052300NuukGreenland.jpg)|
+202601062300|OldRockArch|Turret Arch, eingerahmt vom North Window im Arches-Nationalpark, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)|Fenster in die Vergangenheit|![](/de-DE/2026/01/202601062300OldRockArch.jpg)|
