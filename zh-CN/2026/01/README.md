@@ -7,3 +7,4 @@
 202601041600|ImpalaRooibok|一群高角羚, 隆多洛齐野生动物保护区, 南非 (© Mint Images/Getty Images)|高角羚群紧急戒备|![](/zh-CN/2026/01/202601041600ImpalaRooibok.jpg)|
 202601051600|NuukGreenland|努克, 格陵兰 (© nevereverro/Getty Images)|努克的慵懒时光|![](/zh-CN/2026/01/202601051600NuukGreenland.jpg)|
 202601061600|OldRockArch|拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国 (© Jim Patterson/TANDEM Stills + Motion)|古老岩石的传奇|![](/zh-CN/2026/01/202601061600OldRockArch.jpg)|
+202601071600|StarlingBrighton2025|椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰 (© Philip Reeve/Photodisc/Getty Images)|废墟之上，椋鸟群舞|![](/zh-CN/2026/01/202601071600StarlingBrighton2025.jpg)|
