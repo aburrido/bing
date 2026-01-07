@@ -6,3 +6,4 @@
 202601040000|KingMountain|Kings Mountain, Chugach Mountains, Alaska, United States (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|A royal view|![](/en-GB/2026/01/202601040000KingMountain.jpg)|
 202601050000|ImpalaRooibok|A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)|Herd on high alert|![](/en-GB/2026/01/202601050000ImpalaRooibok.jpg)|
 202601060000|NuukGreenland|Nuuk, Greenland (© nevereverro/Getty Images)|Chillin' in Nuuk|![](/en-GB/2026/01/202601060000NuukGreenland.jpg)|
+202601070000|OldRockArch|Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)|Rock legends|![](/en-GB/2026/01/202601070000OldRockArch.jpg)|
