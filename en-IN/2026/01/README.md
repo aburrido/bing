@@ -7,3 +7,4 @@
 202601041830|ImpalaRooibok|A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)|Herd on high alert|![](/en-IN/2026/01/202601041830ImpalaRooibok.jpg)|
 202601051830|NuukGreenland|Nuuk, Greenland (© nevereverro/Getty Images)|Chillin' in Nuuk|![](/en-IN/2026/01/202601051830NuukGreenland.jpg)|
 202601061830|OldRockArch|Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)|Rock legends|![](/en-IN/2026/01/202601061830OldRockArch.jpg)|
+202601071830|StarlingBrighton2025|Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)|Rust meets rush|![](/en-IN/2026/01/202601071830StarlingBrighton2025.jpg)|
