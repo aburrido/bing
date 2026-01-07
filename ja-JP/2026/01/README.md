@@ -7,3 +7,4 @@
 202601041500|ImpalaRooibok|ロンドロジ私営動物保護区, 南アフリカ (© Mint Images/Getty Images)|警戒するインパラの群れ|![](/ja-JP/2026/01/202601041500ImpalaRooibok.jpg)|
 202601051500|NuukGreenland|ヌーク, デンマーク (© nevereverro/Getty Images)|グリーンランドの最大の都市|![](/ja-JP/2026/01/202601051500NuukGreenland.jpg)|
 202601061500|OldRockArch|アーチーズ国立公園, 米国 ユタ州 (© Jim Patterson/TANDEM Stills + Motion)|ノース・ウィンドウの開口部から望むタレットアーチ|![](/ja-JP/2026/01/202601061500OldRockArch.jpg)|
+202601071500|StarlingBrighton2025|ウェスト・ピア, イギリス (© Philip Reeve/Photodisc/Getty Images)|廃墟となった桟橋|![](/ja-JP/2026/01/202601071500StarlingBrighton2025.jpg)|
