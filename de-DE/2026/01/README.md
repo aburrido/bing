@@ -7,3 +7,4 @@
 202601042300|ImpalaRooibok|Eine Herde Impalas, Londolozi-Wildreservat, Südafrika (© Mint Images/Getty Images)|Immer auf der Hut|![](/de-DE/2026/01/202601042300ImpalaRooibok.jpg)|
 202601052300|NuukGreenland|Nuuk, Grönland (© nevereverro/Getty Images)|Das Leben im hohen Norden|![](/de-DE/2026/01/202601052300NuukGreenland.jpg)|
 202601062300|OldRockArch|Turret Arch, eingerahmt vom North Window im Arches-Nationalpark, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)|Fenster in die Vergangenheit|![](/de-DE/2026/01/202601062300OldRockArch.jpg)|
+202601072300|StarlingBrighton2025|Starenschwarm über den Ruinen des Westpiers in Brighton, England (© Philip Reeve/Photodisc/Getty Images)|Die Magie der Stare|![](/de-DE/2026/01/202601072300StarlingBrighton2025.jpg)|
