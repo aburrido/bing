@@ -7,3 +7,4 @@
 202601040500|KingMountain|Mont Kings, montagnes Chugach, Alaska, États-Unis (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)|Une vue royale !|![](/fr-CA/2026/01/202601040500KingMountain.jpg)|
 202601050500|ImpalaRooibok|Troupeau d’impalas, réserve de Londolozi, Afrique du Sud (© Mint Images/Getty Images)|L’histoire silencieuse des impalas|![](/fr-CA/2026/01/202601050500ImpalaRooibok.jpg)|
 202601060500|NuukGreenland|Nuuk, Groenland (© nevereverro/Getty Images)|Couleur bleu arctique|![](/fr-CA/2026/01/202601060500NuukGreenland.jpg)|
+202601070500|OldRockArch|Arche encadrée par North Window, parc national des Arches, États-Unis (© Jim Patterson/TANDEM Stills + Motion)|Une fenêtre sur le temps|![](/fr-CA/2026/01/202601070500OldRockArch.jpg)|
