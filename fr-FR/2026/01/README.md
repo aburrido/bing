@@ -8,3 +8,4 @@
 202601052300|EpiphanyDay|Château de Versailles, France (© Mistervlad/Shutterstock)|Qui aura la fève ?|![](/fr-FR/2026/01/202601052300EpiphanyDay.jpg)|
 202601062300|OldRockArch|Arche encadrée par North Window, parc national des Arches, États-Unis (© Jim Patterson/TANDEM Stills + Motion)|Une fenêtre sur le temps|![](/fr-FR/2026/01/202601062300OldRockArch.jpg)|
 202601072300|StarlingBrighton2025|Nuée d’étourneaux au-dessus des ruines de la jetée ouest de Brighton, Angleterre (© Philip Reeve/Photodisc/Getty Images)|La danse des étourneaux|![](/fr-FR/2026/01/202601072300StarlingBrighton2025.jpg)|
+202601082300|CorsicaDay|Coucher de soleil à Bonifacio, Corse, France (© Wirestock/Getty Images)|Un détour par l’Île de Beauté|![](/fr-FR/2026/01/202601082300CorsicaDay.jpg)|
