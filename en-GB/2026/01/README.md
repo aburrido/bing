@@ -7,3 +7,4 @@
 202601050000|ImpalaRooibok|A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)|Herd on high alert|![](/en-GB/2026/01/202601050000ImpalaRooibok.jpg)|
 202601060000|NuukGreenland|Nuuk, Greenland (© nevereverro/Getty Images)|Chillin' in Nuuk|![](/en-GB/2026/01/202601060000NuukGreenland.jpg)|
 202601070000|OldRockArch|Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)|Rock legends|![](/en-GB/2026/01/202601070000OldRockArch.jpg)|
+202601080000|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|Crested and curious|![](/en-GB/2026/01/202601080000TuftedTitmouse.jpg)|
