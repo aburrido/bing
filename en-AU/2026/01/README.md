@@ -8,3 +8,4 @@
 202601050800|ImpalaRooibok|A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)|Info|![](/en-AU/2026/01/202601050800ImpalaRooibok.jpg)|
 202601060800|NuukGreenland|Nuuk, Greenland (© nevereverro/Getty Images)|Info|![](/en-AU/2026/01/202601060800NuukGreenland.jpg)|
 202601070800|OldRockArch|Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)|Info|![](/en-AU/2026/01/202601070800OldRockArch.jpg)|
+202601080800|Chevroned|Yellow-chevroned parakeets in a mango tree, Pantanal, Brazil (© Uwe-Bergwitz/Getty Images)|Info|![](/en-AU/2026/01/202601080800Chevroned.jpg)|
