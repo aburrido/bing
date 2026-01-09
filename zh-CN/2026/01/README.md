@@ -10,3 +10,4 @@
 202601071600|StarlingBrighton2025|椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰 (© Philip Reeve/Photodisc/Getty Images)|废墟之上，椋鸟群舞|![](/zh-CN/2026/01/202601071600StarlingBrighton2025.jpg)|
 202601081600|MuirWoodsMonument|缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国 (© photo by canderson/Getty Images)|时光在此处茁壮成长|![](/zh-CN/2026/01/202601081600MuirWoodsMonument.jpg)|
 ||||![](/zh-CN/2026/01/.jpg)|
+202601091600|MatterhornSunrise|日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士 (© Andy Trowbridge/naturepl.com)|纯粹的瑞士魔力|![](/zh-CN/2026/01/202601091600MatterhornSunrise.jpg)|
