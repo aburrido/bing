@@ -9,3 +9,4 @@
 202601061600|OldRockArch|拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国 (© Jim Patterson/TANDEM Stills + Motion)|古老岩石的传奇|![](/zh-CN/2026/01/202601061600OldRockArch.jpg)|
 202601071600|StarlingBrighton2025|椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰 (© Philip Reeve/Photodisc/Getty Images)|废墟之上，椋鸟群舞|![](/zh-CN/2026/01/202601071600StarlingBrighton2025.jpg)|
 202601081600|MuirWoodsMonument|缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国 (© photo by canderson/Getty Images)|时光在此处茁壮成长|![](/zh-CN/2026/01/202601081600MuirWoodsMonument.jpg)|
+||||![](/zh-CN/2026/01/.jpg)|

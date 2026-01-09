@@ -9,3 +9,4 @@
 202601070000|OldRockArch|Turret Arch framed by North Window in Arches National Park, Utah, United States (© Jim Patterson/TANDEM Stills + Motion)|Rock legends|![](/en-GB/2026/01/202601070000OldRockArch.jpg)|
 202601080000|TuftedTitmouse|Tufted titmouse perched on pine boughs, Massachusetts, United States (© Tim Laman/NPL/Minden Pictures)|Crested and curious|![](/en-GB/2026/01/202601080000TuftedTitmouse.jpg)|
 202601090000|MuirWoodsMonument|Giant redwood trees in Muir Woods National Monument, California, USA (© photo by canderson/Getty Images)|Where time grows tall|![](/en-GB/2026/01/202601090000MuirWoodsMonument.jpg)|
+||||![](/en-GB/2026/01/.jpg)|

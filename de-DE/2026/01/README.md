@@ -9,3 +9,4 @@
 202601062300|OldRockArch|Turret Arch, eingerahmt vom North Window im Arches-Nationalpark, Utah, USA (© Jim Patterson/TANDEM Stills + Motion)|Fenster in die Vergangenheit|![](/de-DE/2026/01/202601062300OldRockArch.jpg)|
 202601072300|StarlingBrighton2025|Starenschwarm über den Ruinen des Westpiers in Brighton, England (© Philip Reeve/Photodisc/Getty Images)|Die Magie der Stare|![](/de-DE/2026/01/202601072300StarlingBrighton2025.jpg)|
 202601082300|LynxBavariaSnow|Eurasische Luchse beim Spielen im Schnee im Wald, Bayern (© imagebroker/david & micha sheldon/Getty Images)|Vergnügen im Schnee|![](/de-DE/2026/01/202601082300LynxBavariaSnow.jpg)|
+||||![](/de-DE/2026/01/.jpg)|
