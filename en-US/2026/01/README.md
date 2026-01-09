@@ -9,3 +9,4 @@
 202601060800|NuukGreenland|Nuuk, Greenland (© nevereverro/Getty Images)|Chillin' in Nuuk|![](/en-US/2026/01/202601060800NuukGreenland.jpg)|
 202601070800|OldRockArch|Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)|Rock legends|![](/en-US/2026/01/202601070800OldRockArch.jpg)|
 202601080800|StarlingBrighton2025|Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)|Rust meets rush|![](/en-US/2026/01/202601080800StarlingBrighton2025.jpg)|
+202601090800|MuirWoodsMonument|Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)|Where time grows tall|![](/en-US/2026/01/202601090800MuirWoodsMonument.jpg)|
