@@ -9,3 +9,4 @@
 202601060500|NuukGreenland|Nuuk, Groenland (© nevereverro/Getty Images)|Couleur bleu arctique|![](/fr-CA/2026/01/202601060500NuukGreenland.jpg)|
 202601070500|OldRockArch|Arche encadrée par North Window, parc national des Arches, États-Unis (© Jim Patterson/TANDEM Stills + Motion)|Une fenêtre sur le temps|![](/fr-CA/2026/01/202601070500OldRockArch.jpg)|
 202601080500|StarlingBrighton2025|Nuée d’étourneaux au-dessus des ruines de la jetée ouest de Brighton, Angleterre (© Philip Reeve/Photodisc/Getty Images)|La danse des étourneaux|![](/fr-CA/2026/01/202601080500StarlingBrighton2025.jpg)|
+202601090500|MuirWoodsMonument|Séquoias géants du Muir Woods National Monument, Californie, États-Unis (© photo by canderson/Getty Images)|Une histoire millénaire suspendue dans les hauteurs|![](/fr-CA/2026/01/202601090500MuirWoodsMonument.jpg)|
