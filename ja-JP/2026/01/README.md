@@ -10,3 +10,4 @@
 202601071500|StarlingBrighton2025|ウェスト・ピア, イギリス (© Philip Reeve/Photodisc/Getty Images)|廃墟となった桟橋|![](/ja-JP/2026/01/202601071500StarlingBrighton2025.jpg)|
 202601081500|MuirWoodsMonument|ミュアウッズ国定公園, 米国 カリフォルニア州 (© photo by canderson/Getty Images)|今日はミュアウッズ国定公園の指定記念日|![](/ja-JP/2026/01/202601081500MuirWoodsMonument.jpg)|
 ||||![](/ja-JP/2026/01/.jpg)|
+202601091500|MatterhornSunrise|マッターホルン, アルプス山脈 (© Andy Trowbridge/naturepl.com)|朝日で黄金色に染まった山頂|![](/ja-JP/2026/01/202601091500MatterhornSunrise.jpg)|
