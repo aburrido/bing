@@ -10,3 +10,4 @@
 202601072300|StarlingBrighton2025|Starenschwarm über den Ruinen des Westpiers in Brighton, England (© Philip Reeve/Photodisc/Getty Images)|Die Magie der Stare|![](/de-DE/2026/01/202601072300StarlingBrighton2025.jpg)|
 202601082300|LynxBavariaSnow|Eurasische Luchse beim Spielen im Schnee im Wald, Bayern (© imagebroker/david & micha sheldon/Getty Images)|Vergnügen im Schnee|![](/de-DE/2026/01/202601082300LynxBavariaSnow.jpg)|
 ||||![](/de-DE/2026/01/.jpg)|
+202601092300|MatterhornSunrise|Das Matterhorn spiegelt sich bei Sonnenaufgang im Stellisee, Zermatt, Schweiz (© Andy Trowbridge/naturepl.com)|Magie ganz nach Schweizer Art|![](/de-DE/2026/01/202601092300MatterhornSunrise.jpg)|
