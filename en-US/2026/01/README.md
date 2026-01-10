@@ -11,3 +11,4 @@
 202601080800|StarlingBrighton2025|Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)|Rust meets rush|![](/en-US/2026/01/202601080800StarlingBrighton2025.jpg)|
 202601090800|MuirWoodsMonument|Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)|Where time grows tall|![](/en-US/2026/01/202601090800MuirWoodsMonument.jpg)|
 ||||![](/en-US/2026/01/.jpg)|
+202601100800|MatterhornSunrise|The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)|Pure Swiss magic|![](/en-US/2026/01/202601100800MatterhornSunrise.jpg)|

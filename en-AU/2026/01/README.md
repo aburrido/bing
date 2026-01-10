@@ -11,3 +11,4 @@
 202601080800|Chevroned|Yellow-chevroned parakeets in a mango tree, Pantanal, Brazil (© Uwe-Bergwitz/Getty Images)|Info|![](/en-AU/2026/01/202601080800Chevroned.jpg)|
 202601090800|MuirWoodsMonument|Giant redwood trees in Muir Woods National Monument, California, United States (© photo by canderson/Getty Images)|Info|![](/en-AU/2026/01/202601090800MuirWoodsMonument.jpg)|
 ||||![](/en-AU/2026/01/.jpg)|
+202601100800|MatterhornSunrise|The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)|Info|![](/en-AU/2026/01/202601100800MatterhornSunrise.jpg)|
