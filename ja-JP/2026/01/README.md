@@ -11,3 +11,4 @@
 202601081500|MuirWoodsMonument|ミュアウッズ国定公園, 米国 カリフォルニア州 (© photo by canderson/Getty Images)|今日はミュアウッズ国定公園の指定記念日|![](/ja-JP/2026/01/202601081500MuirWoodsMonument.jpg)|
 ||||![](/ja-JP/2026/01/.jpg)|
 202601091500|MatterhornSunrise|マッターホルン, アルプス山脈 (© Andy Trowbridge/naturepl.com)|朝日で黄金色に染まった山頂|![](/ja-JP/2026/01/202601091500MatterhornSunrise.jpg)|
+202601101500|BlueMorocco|シャウエン, モロッコ (© AnetteAndersen/Getty Images)|今日はモロッコの独立宣言記念日|![](/ja-JP/2026/01/202601101500BlueMorocco.jpg)|
