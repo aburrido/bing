@@ -11,3 +11,4 @@
 202601081600|MuirWoodsMonument|缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国 (© photo by canderson/Getty Images)|时光在此处茁壮成长|![](/zh-CN/2026/01/202601081600MuirWoodsMonument.jpg)|
 ||||![](/zh-CN/2026/01/.jpg)|
 202601091600|MatterhornSunrise|日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士 (© Andy Trowbridge/naturepl.com)|纯粹的瑞士魔力|![](/zh-CN/2026/01/202601091600MatterhornSunrise.jpg)|
+202601101600|BlueMorocco|舍夫沙万的蓝色墙壁, 摩洛哥 (© AnetteAndersen/Getty Images)|从抗拒到绽放|![](/zh-CN/2026/01/202601101600BlueMorocco.jpg)|
