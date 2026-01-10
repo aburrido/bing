@@ -11,3 +11,4 @@
 202601080500|StarlingBrighton2025|Nuée d’étourneaux au-dessus des ruines de la jetée ouest de Brighton, Angleterre (© Philip Reeve/Photodisc/Getty Images)|La danse des étourneaux|![](/fr-CA/2026/01/202601080500StarlingBrighton2025.jpg)|
 202601090500|MuirWoodsMonument|Séquoias géants du Muir Woods National Monument, Californie, États-Unis (© photo by canderson/Getty Images)|Une histoire millénaire suspendue dans les hauteurs|![](/fr-CA/2026/01/202601090500MuirWoodsMonument.jpg)|
 ||||![](/fr-CA/2026/01/.jpg)|
+202601100500|MatterhornSunrise|Le reflet du Cervin sur le lac Stellisee à l’aube, Zermatt, Suisse (© Andy Trowbridge/naturepl.com)|La magie des Alpes suisses|![](/fr-CA/2026/01/202601100500MatterhornSunrise.jpg)|
