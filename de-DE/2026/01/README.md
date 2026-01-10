@@ -11,3 +11,4 @@
 202601082300|LynxBavariaSnow|Eurasische Luchse beim Spielen im Schnee im Wald, Bayern (© imagebroker/david & micha sheldon/Getty Images)|Vergnügen im Schnee|![](/de-DE/2026/01/202601082300LynxBavariaSnow.jpg)|
 ||||![](/de-DE/2026/01/.jpg)|
 202601092300|MatterhornSunrise|Das Matterhorn spiegelt sich bei Sonnenaufgang im Stellisee, Zermatt, Schweiz (© Andy Trowbridge/naturepl.com)|Magie ganz nach Schweizer Art|![](/de-DE/2026/01/202601092300MatterhornSunrise.jpg)|
+202601102300|BlueMorocco|Blaue Mauern von Chefchaouen, Marokko (© AnetteAndersen/Getty Images)|Die blaue Perle Marokkos|![](/de-DE/2026/01/202601102300BlueMorocco.jpg)|
