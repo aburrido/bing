@@ -12,3 +12,4 @@
 202601090800|MuirWoodsMonument|Giant redwood trees in Muir Woods National Monument, California, United States (© photo by canderson/Getty Images)|Info|![](/en-AU/2026/01/202601090800MuirWoodsMonument.jpg)|
 ||||![](/en-AU/2026/01/.jpg)|
 202601100800|MatterhornSunrise|The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)|Info|![](/en-AU/2026/01/202601100800MatterhornSunrise.jpg)|
+202601110800|BlueMorocco|Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)|Info|![](/en-AU/2026/01/202601110800BlueMorocco.jpg)|
