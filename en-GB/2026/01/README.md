@@ -11,3 +11,4 @@
 202601090000|MuirWoodsMonument|Giant redwood trees in Muir Woods National Monument, California, USA (© photo by canderson/Getty Images)|Where time grows tall|![](/en-GB/2026/01/202601090000MuirWoodsMonument.jpg)|
 ||||![](/en-GB/2026/01/.jpg)|
 202601100000|MatterhornSunrise|The Matterhorn reflected in Lake Stellisee, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)|Pure Swiss magic|![](/en-GB/2026/01/202601100000MatterhornSunrise.jpg)|
+202601110000|BlueMorocco|Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)|From resistance to radiance|![](/en-GB/2026/01/202601110000BlueMorocco.jpg)|
