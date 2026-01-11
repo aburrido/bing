@@ -12,3 +12,4 @@
 202601090500|MuirWoodsMonument|Séquoias géants du Muir Woods National Monument, Californie, États-Unis (© photo by canderson/Getty Images)|Une histoire millénaire suspendue dans les hauteurs|![](/fr-CA/2026/01/202601090500MuirWoodsMonument.jpg)|
 ||||![](/fr-CA/2026/01/.jpg)|
 202601100500|MatterhornSunrise|Le reflet du Cervin sur le lac Stellisee à l’aube, Zermatt, Suisse (© Andy Trowbridge/naturepl.com)|La magie des Alpes suisses|![](/fr-CA/2026/01/202601100500MatterhornSunrise.jpg)|
+202601110500|BlueMorocco|Murs bleus de Chefchaouen, Maroc (© AnetteAndersen/Getty Images)|De la résistance au rayonnement|![](/fr-CA/2026/01/202601110500BlueMorocco.jpg)|
