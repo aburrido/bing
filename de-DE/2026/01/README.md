@@ -12,3 +12,4 @@
 ||||![](/de-DE/2026/01/.jpg)|
 202601092300|MatterhornSunrise|Das Matterhorn spiegelt sich bei Sonnenaufgang im Stellisee, Zermatt, Schweiz (© Andy Trowbridge/naturepl.com)|Magie ganz nach Schweizer Art|![](/de-DE/2026/01/202601092300MatterhornSunrise.jpg)|
 202601102300|BlueMorocco|Blaue Mauern von Chefchaouen, Marokko (© AnetteAndersen/Getty Images)|Die blaue Perle Marokkos|![](/de-DE/2026/01/202601102300BlueMorocco.jpg)|
+202601112300|SnowOtters|Eurasischer Fischotter mit Jungtier, Estland (© Sven Zacek/naturepl.com)|Winterzauber auf Otterart|![](/de-DE/2026/01/202601112300SnowOtters.jpg)|

@@ -12,3 +12,4 @@
 ||||![](/fr-FR/2026/01/.jpg)|
 202601092300|MatterhornSunrise|Le reflet du Cervin sur le lac Stellisee à l’aube, Zermatt, Suisse (© Andy Trowbridge/naturepl.com)|La magie des Alpes suisses|![](/fr-FR/2026/01/202601092300MatterhornSunrise.jpg)|
 202601102300|BlueMorocco|Murs bleus de Chefchaouen, Maroc (© AnetteAndersen/Getty Images)|De la résistance au rayonnement|![](/fr-FR/2026/01/202601102300BlueMorocco.jpg)|
+202601112300|SnowOtters|Une loutre d’Europe et son petit, Estonie (© Sven Zacek/naturepl.com)|L’Estonie, le paradis de nos loutres d’Europe|![](/fr-FR/2026/01/202601112300SnowOtters.jpg)|
