@@ -13,3 +13,4 @@
 ||||![](/en-CA/2026/01/.jpg)|
 202601100500|MatterhornSunrise|The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)|Pure Swiss magic|![](/en-CA/2026/01/202601100500MatterhornSunrise.jpg)|
 202601110500|BlueMorocco|Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)|From resistance to radiance|![](/en-CA/2026/01/202601110500BlueMorocco.jpg)|
+202601120500|SnowOtters|Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)|Otter-ly Estonia|![](/en-CA/2026/01/202601120500SnowOtters.jpg)|
