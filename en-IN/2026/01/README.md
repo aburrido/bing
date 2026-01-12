@@ -13,3 +13,4 @@
 202601091830|MatterhornSunrise|The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)|Pure Swiss magic|![](/en-IN/2026/01/202601091830MatterhornSunrise.jpg)|
 202601101830|BlueMorocco|Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)|From resistance to radiance|![](/en-IN/2026/01/202601101830BlueMorocco.jpg)|
 202601111830|SnowOtters|Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)|Otter-ly Estonia|![](/en-IN/2026/01/202601111830SnowOtters.jpg)|
+202601121830|WalesWinter|Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)|Apple rhymes and old times|![](/en-IN/2026/01/202601121830WalesWinter.jpg)|
