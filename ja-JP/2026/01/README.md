@@ -13,3 +13,4 @@
 202601091500|MatterhornSunrise|マッターホルン, アルプス山脈 (© Andy Trowbridge/naturepl.com)|朝日で黄金色に染まった山頂|![](/ja-JP/2026/01/202601091500MatterhornSunrise.jpg)|
 202601101500|BlueMorocco|シャウエン, モロッコ (© AnetteAndersen/Getty Images)|今日はモロッコの独立宣言記念日|![](/ja-JP/2026/01/202601101500BlueMorocco.jpg)|
 202601111500|SkiDay2026|ガーラ湯沢スキー場, 新潟県 (© Metta Bunkeaw/Alamy)|今日はスキーの日|![](/ja-JP/2026/01/202601111500SkiDay2026.jpg)|
+202601121500|WalesWinter|クレイド渓谷, イギリス ウェールズ (© Valerie Blencowe/Getty Images)|今日はウェールズの旧正月|![](/ja-JP/2026/01/202601121500WalesWinter.jpg)|
