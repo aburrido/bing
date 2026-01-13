@@ -14,3 +14,4 @@
 202601101600|BlueMorocco|舍夫沙万的蓝色墙壁, 摩洛哥 (© AnetteAndersen/Getty Images)|从抗拒到绽放|![](/zh-CN/2026/01/202601101600BlueMorocco.jpg)|
 202601111600|SnowOtters|欧亚水獭和幼崽, 爱沙尼亚 (© Sven Zacek/naturepl.com)|水獭之国爱沙尼亚|![](/zh-CN/2026/01/202601111600SnowOtters.jpg)|
 202601121600|WalesWinter|克卢伊德谷, 威尔士 (© Valerie Blencowe/Getty Images)|苹果韵，旧时光|![](/zh-CN/2026/01/202601121600WalesWinter.jpg)|
+202601131600|PalamidiFortress|帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)|帕拉米蒂的历史之阶|![](/zh-CN/2026/01/202601131600PalamidiFortress.jpg)|
