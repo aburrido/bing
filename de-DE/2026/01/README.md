@@ -14,3 +14,4 @@
 202601102300|BlueMorocco|Blaue Mauern von Chefchaouen, Marokko (© AnetteAndersen/Getty Images)|Die blaue Perle Marokkos|![](/de-DE/2026/01/202601102300BlueMorocco.jpg)|
 202601112300|SnowOtters|Eurasischer Fischotter mit Jungtier, Estland (© Sven Zacek/naturepl.com)|Winterzauber auf Otterart|![](/de-DE/2026/01/202601112300SnowOtters.jpg)|
 202601122300|WalesWinter|Tal von Clwyd, Wales (© Valerie Blencowe/Getty Images)|Wo Zeit anders läuft|![](/de-DE/2026/01/202601122300WalesWinter.jpg)|
+202601132300|PalamidiFortress|Die Treppe der Festung Palamidi, Nafplio, Griechenland (© George Pachantouris/Getty Images)|Geschichte Stufe für Stufe|![](/de-DE/2026/01/202601132300PalamidiFortress.jpg)|
