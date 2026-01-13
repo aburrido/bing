@@ -14,3 +14,4 @@
 202601101830|BlueMorocco|Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)|From resistance to radiance|![](/en-IN/2026/01/202601101830BlueMorocco.jpg)|
 202601111830|SnowOtters|Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)|Otter-ly Estonia|![](/en-IN/2026/01/202601111830SnowOtters.jpg)|
 202601121830|WalesWinter|Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)|Apple rhymes and old times|![](/en-IN/2026/01/202601121830WalesWinter.jpg)|
+202601131830|PalamidiFortress|The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)|Ascending history at Palamidi|![](/en-IN/2026/01/202601131830PalamidiFortress.jpg)|
