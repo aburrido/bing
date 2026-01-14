@@ -15,3 +15,4 @@
 202601111500|SkiDay2026|ガーラ湯沢スキー場, 新潟県 (© Metta Bunkeaw/Alamy)|今日はスキーの日|![](/ja-JP/2026/01/202601111500SkiDay2026.jpg)|
 202601121500|WalesWinter|クレイド渓谷, イギリス ウェールズ (© Valerie Blencowe/Getty Images)|今日はウェールズの旧正月|![](/ja-JP/2026/01/202601121500WalesWinter.jpg)|
 202601131500|PalamidiFortress|パラミディ要塞, ギリシャ (© George Pachantouris/Getty Images)|今日は米国の「階段の日」|![](/ja-JP/2026/01/202601131500PalamidiFortress.jpg)|
+202601141500|ReineSunrise|レーヌ, ノルウェー (© Roberto Moiola/Cavan Images/SuperStock)|ノルウェーで最も美しい漁村|![](/ja-JP/2026/01/202601141500ReineSunrise.jpg)|
