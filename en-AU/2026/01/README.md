@@ -15,3 +15,4 @@
 202601110800|BlueMorocco|Blue walls of Chefchaouen, Morocco (© AnetteAndersen/Getty Images)|Info|![](/en-AU/2026/01/202601110800BlueMorocco.jpg)|
 202601120800|SnowOtters|Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)|Info|![](/en-AU/2026/01/202601120800SnowOtters.jpg)|
 202601130800|WalesWinter|Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)|Info|![](/en-AU/2026/01/202601130800WalesWinter.jpg)|
+202601140800|PalamidiFortress|The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)|Info|![](/en-AU/2026/01/202601140800PalamidiFortress.jpg)|
