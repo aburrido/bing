@@ -16,3 +16,4 @@
 202601122300|WalesWinter|Tal von Clwyd, Wales (© Valerie Blencowe/Getty Images)|Wo Zeit anders läuft|![](/de-DE/2026/01/202601122300WalesWinter.jpg)|
 202601132300|PalamidiFortress|Die Treppe der Festung Palamidi, Nafplio, Griechenland (© George Pachantouris/Getty Images)|Geschichte Stufe für Stufe|![](/de-DE/2026/01/202601132300PalamidiFortress.jpg)|
 202601142300|ReineSunrise|Das Fischerdorf Reine, Norwegen (© Roberto Moiola/Cavan Images/SuperStock)|Kleines Dorf, große Aussichten|![](/de-DE/2026/01/202601142300ReineSunrise.jpg)|
+202601152300|EtoshaLeopard|Leopard im Etosha-Nationalpark, Namibia (© Norbert Achtelik/Cavan Images)|Wachsam und wild|![](/de-DE/2026/01/202601152300EtoshaLeopard.jpg)|
