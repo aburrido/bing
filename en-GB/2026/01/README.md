@@ -15,3 +15,4 @@
 202601120000|SnowOtters|Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)|Otter-ly Estonia|![](/en-GB/2026/01/202601120000SnowOtters.jpg)|
 202601130000|WalesWinter|Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)|Apple rhymes and old times|![](/en-GB/2026/01/202601130000WalesWinter.jpg)|
 202601140000|PalamidiFortress|The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)|Ascending history at Palamidi|![](/en-GB/2026/01/202601140000PalamidiFortress.jpg)|
+202601150000|ReineSunrise|The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)|Tiny village, big views|![](/en-GB/2026/01/202601150000ReineSunrise.jpg)|
