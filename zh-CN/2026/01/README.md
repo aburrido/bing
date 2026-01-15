@@ -16,3 +16,4 @@
 202601121600|WalesWinter|克卢伊德谷, 威尔士 (© Valerie Blencowe/Getty Images)|苹果韵，旧时光|![](/zh-CN/2026/01/202601121600WalesWinter.jpg)|
 202601131600|PalamidiFortress|帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)|帕拉米蒂的历史之阶|![](/zh-CN/2026/01/202601131600PalamidiFortress.jpg)|
 202601141600|ReineSunrise|雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)|小村庄，大视野|![](/zh-CN/2026/01/202601141600ReineSunrise.jpg)|
+202601151600|EtoshaLeopard|埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)|眼神对上了|![](/zh-CN/2026/01/202601151600EtoshaLeopard.jpg)|
