@@ -16,3 +16,4 @@
 202601120500|SnowOtters|Une loutre d’Europe et son petit, Estonie (© Sven Zacek/naturepl.com)|L’Estonie, le paradis de nos loutres d’Europe|![](/fr-CA/2026/01/202601120500SnowOtters.jpg)|
 202601130500|WalesWinter|Vallée de Clwyd, Pays de Galles (© Valerie Blencowe/Getty Images)|Pommes, comptines et Calennig|![](/fr-CA/2026/01/202601130500WalesWinter.jpg)|
 202601140500|PalamidiFortress|Les escaliers de la forteresse de Palamède, Nafplio, Grèce (© George Pachantouris/Getty Images)|Une histoire d’escalier qui remonte loin dans le temps…|![](/fr-CA/2026/01/202601140500PalamidiFortress.jpg)|
+202601150500|ReineSunrise|Le village pêcheur de Reine, Norvège (© Roberto Moiola/Cavan Images/SuperStock)|Un petit village pour une vue géante|![](/fr-CA/2026/01/202601150500ReineSunrise.jpg)|
