@@ -17,3 +17,4 @@
 202601130500|WalesWinter|Vallée de Clwyd, Pays de Galles (© Valerie Blencowe/Getty Images)|Pommes, comptines et Calennig|![](/fr-CA/2026/01/202601130500WalesWinter.jpg)|
 202601140500|PalamidiFortress|Les escaliers de la forteresse de Palamède, Nafplio, Grèce (© George Pachantouris/Getty Images)|Une histoire d’escalier qui remonte loin dans le temps…|![](/fr-CA/2026/01/202601140500PalamidiFortress.jpg)|
 202601150500|ReineSunrise|Le village pêcheur de Reine, Norvège (© Roberto Moiola/Cavan Images/SuperStock)|Un petit village pour une vue géante|![](/fr-CA/2026/01/202601150500ReineSunrise.jpg)|
+202601160500|EtoshaLeopard|Un léopard dans le Parc National d’Etosha, Namibie (© Norbert Achtelik/Cavan Images)|L’élégance du camouflage félin|![](/fr-CA/2026/01/202601160500EtoshaLeopard.jpg)|
