@@ -17,3 +17,4 @@
 202601131830|PalamidiFortress|The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)|Ascending history at Palamidi|![](/en-IN/2026/01/202601131830PalamidiFortress.jpg)|
 202601141830|ReineSunrise|The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)|Tiny village, big views|![](/en-IN/2026/01/202601141830ReineSunrise.jpg)|
 202601151830|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Eye see you|![](/en-IN/2026/01/202601151830EtoshaLeopard.jpg)|
+202601161830|NaplesBasilica|Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)|The dome of Piazza del Plebiscito|![](/en-IN/2026/01/202601161830NaplesBasilica.jpg)|
