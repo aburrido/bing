@@ -17,3 +17,4 @@
 202601130800|WalesWinter|Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)|Apple rhymes and old times|![](/en-US/2026/01/202601130800WalesWinter.jpg)|
 202601140800|PalamidiFortress|The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)|Ascending history at Palamidi|![](/en-US/2026/01/202601140800PalamidiFortress.jpg)|
 202601150800|ReineSunrise|The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)|Tiny village, big views|![](/en-US/2026/01/202601150800ReineSunrise.jpg)|
+202601160800|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Eye see you|![](/en-US/2026/01/202601160800EtoshaLeopard.jpg)|
