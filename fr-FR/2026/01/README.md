@@ -17,3 +17,4 @@
 202601132300|PalamidiFortress|Les escaliers de la forteresse de Palamède, Nafplio, Grèce (© George Pachantouris/Getty Images)|Une histoire d’escalier qui remonte le temps…|![](/fr-FR/2026/01/202601132300PalamidiFortress.jpg)|
 202601142300|ReineSunrise|Le village pêcheur de Reine, Norvège (© Roberto Moiola/Cavan Images/SuperStock)|Un petit village pour une vue géante|![](/fr-FR/2026/01/202601142300ReineSunrise.jpg)|
 202601152300|DeerWinter|Cerf cachés dans la forêt (© AB Photography/Getty images)|Promenons-nous dans les bois…|![](/fr-FR/2026/01/202601152300DeerWinter.jpg)|
+202601162300|NaplesBasilica|Basilique San Francesco di Paola, Naples, Italie (© javarman3/Getty Images)|Le dôme de la Piazza del Plebiscito|![](/fr-FR/2026/01/202601162300NaplesBasilica.jpg)|
