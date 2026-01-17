@@ -18,3 +18,4 @@
 202601141600|ReineSunrise|雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)|小村庄，大视野|![](/zh-CN/2026/01/202601141600ReineSunrise.jpg)|
 202601151600|EtoshaLeopard|埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)|眼神对上了|![](/zh-CN/2026/01/202601151600EtoshaLeopard.jpg)|
 202601161600|NaplesBasilica|保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)|普雷比希托广场上的穹顶|![](/zh-CN/2026/01/202601161600NaplesBasilica.jpg)|
+202601171600|WhiteSandsNM|白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)|伪装成沙漠的奇境|![](/zh-CN/2026/01/202601171600WhiteSandsNM.jpg)|
