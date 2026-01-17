@@ -18,3 +18,4 @@
 202601140500|PalamidiFortress|Les escaliers de la forteresse de Palamède, Nafplio, Grèce (© George Pachantouris/Getty Images)|Une histoire d’escalier qui remonte loin dans le temps…|![](/fr-CA/2026/01/202601140500PalamidiFortress.jpg)|
 202601150500|ReineSunrise|Le village pêcheur de Reine, Norvège (© Roberto Moiola/Cavan Images/SuperStock)|Un petit village pour une vue géante|![](/fr-CA/2026/01/202601150500ReineSunrise.jpg)|
 202601160500|EtoshaLeopard|Un léopard dans le Parc National d’Etosha, Namibie (© Norbert Achtelik/Cavan Images)|L’élégance du camouflage félin|![](/fr-CA/2026/01/202601160500EtoshaLeopard.jpg)|
+202601170500|NaplesBasilica|Basilique San Francesco di Paola, Naples, Italie (© javarman3/Getty Images)|Le dôme de la Piazza del Plebiscito|![](/fr-CA/2026/01/202601170500NaplesBasilica.jpg)|
