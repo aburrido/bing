@@ -18,3 +18,4 @@
 202601140800|PalamidiFortress|The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)|Info|![](/en-AU/2026/01/202601140800PalamidiFortress.jpg)|
 202601150800|ReineSunrise|The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)|Info|![](/en-AU/2026/01/202601150800ReineSunrise.jpg)|
 202601160800|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Info|![](/en-AU/2026/01/202601160800EtoshaLeopard.jpg)|
+202601170800|NoronhaSunset|Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)|Info|![](/en-AU/2026/01/202601170800NoronhaSunset.jpg)|
