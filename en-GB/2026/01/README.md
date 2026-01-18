@@ -18,3 +18,4 @@
 202601150000|ReineSunrise|The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)|Tiny village, big views|![](/en-GB/2026/01/202601150000ReineSunrise.jpg)|
 202601160000|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Eye see you|![](/en-GB/2026/01/202601160000EtoshaLeopard.jpg)|
 202601170000|NaplesBasilica|Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)|The dome of Piazza del Plebiscito|![](/en-GB/2026/01/202601170000NaplesBasilica.jpg)|
+202601180000|PoohDay2026|Scots pine forest, Ashdown Forest, England (© James Warwick/The Image Bank/Getty Images)|Lost in the Hundred Acres|![](/en-GB/2026/01/202601180000PoohDay2026.jpg)|
