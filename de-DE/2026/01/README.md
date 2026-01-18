@@ -19,3 +19,4 @@
 202601152300|EtoshaLeopard|Leopard im Etosha-Nationalpark, Namibia (© Norbert Achtelik/Cavan Images)|Wachsam und wild|![](/de-DE/2026/01/202601152300EtoshaLeopard.jpg)|
 202601162300|NaplesBasilica|Basilika San Francesco di Paola, Neapel, Italien (© javarman3/Getty Images)|Kuppel an der Piazza del Plebiscito|![](/de-DE/2026/01/202601162300NaplesBasilica.jpg)|
 202601172300|WhiteSandsNM|White-Sands-Nationalpark, New Mexico, USA (© Francesco Carucci/Getty Images)|Verborgene weiße Wüste|![](/de-DE/2026/01/202601172300WhiteSandsNM.jpg)|
+202601182300|BubblesAbraham|Gefrorener Abraham Lake, Alberta, Kanada (© Luis F Arevalo/Getty Images)|Eisblasen im Winterlicht|![](/de-DE/2026/01/202601182300BubblesAbraham.jpg)|
