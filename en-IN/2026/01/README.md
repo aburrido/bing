@@ -19,3 +19,4 @@
 202601151830|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Eye see you|![](/en-IN/2026/01/202601151830EtoshaLeopard.jpg)|
 202601161830|NaplesBasilica|Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)|The dome of Piazza del Plebiscito|![](/en-IN/2026/01/202601161830NaplesBasilica.jpg)|
 202601171830|WhiteSandsNM|White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)|A desert in disguise|![](/en-IN/2026/01/202601171830WhiteSandsNM.jpg)|
+202601181830|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Nature's pop art|![](/en-IN/2026/01/202601181830BubblesAbraham.jpg)|
