@@ -19,3 +19,4 @@
 202601151500|SnowOtters|ユーラシアカワウソ, エストニア (© Sven Zacek/naturepl.com)|雪の上にたたずむ可愛い水辺の動物|![](/ja-JP/2026/01/202601151500SnowOtters.jpg)|
 202601161500|NaplesBasilica|サン・フランチェスコ・ディ・パオラ聖堂, イタリア (© javarman3/Getty Images)|巨大な円形ドームを持つ教会|![](/ja-JP/2026/01/202601161500NaplesBasilica.jpg)|
 202601171500|WhiteSandsNM|ホワイトサンズ国立公園, 米国 ニューメキシコ州 (© Francesco Carucci/Getty Images)|雪原のような石膏砂漠|![](/ja-JP/2026/01/202601171500WhiteSandsNM.jpg)|
+202601181500|ExternsteineSunset|エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)|森にそびえる砂岩の奇岩群|![](/ja-JP/2026/01/202601181500ExternsteineSunset.jpg)|
