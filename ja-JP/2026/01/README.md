@@ -20,3 +20,4 @@
 202601161500|NaplesBasilica|サン・フランチェスコ・ディ・パオラ聖堂, イタリア (© javarman3/Getty Images)|巨大な円形ドームを持つ教会|![](/ja-JP/2026/01/202601161500NaplesBasilica.jpg)|
 202601171500|WhiteSandsNM|ホワイトサンズ国立公園, 米国 ニューメキシコ州 (© Francesco Carucci/Getty Images)|雪原のような石膏砂漠|![](/ja-JP/2026/01/202601171500WhiteSandsNM.jpg)|
 202601181500|ExternsteineSunset|エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)|森にそびえる砂岩の奇岩群|![](/ja-JP/2026/01/202601181500ExternsteineSunset.jpg)|
+202601191500|Daikan2026|雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)|今日は「大寒」|![](/ja-JP/2026/01/202601191500Daikan2026.jpg)|
