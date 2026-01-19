@@ -20,3 +20,4 @@
 202601161830|NaplesBasilica|Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)|The dome of Piazza del Plebiscito|![](/en-IN/2026/01/202601161830NaplesBasilica.jpg)|
 202601171830|WhiteSandsNM|White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)|A desert in disguise|![](/en-IN/2026/01/202601171830WhiteSandsNM.jpg)|
 202601181830|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Nature's pop art|![](/en-IN/2026/01/202601181830BubblesAbraham.jpg)|
+202601191830|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-IN/2026/01/202601191830IciclePenguin.jpg)|
