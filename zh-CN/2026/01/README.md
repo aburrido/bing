@@ -20,3 +20,4 @@
 202601161600|NaplesBasilica|保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)|普雷比希托广场上的穹顶|![](/zh-CN/2026/01/202601161600NaplesBasilica.jpg)|
 202601171600|WhiteSandsNM|白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)|伪装成沙漠的奇境|![](/zh-CN/2026/01/202601171600WhiteSandsNM.jpg)|
 202601181600|BubblesAbraham|亚伯拉罕湖冰封景象，艾伯塔省，加拿大 (© Luis F Arevalo/Getty Images)|大自然的波普艺术|![](/zh-CN/2026/01/202601181600BubblesAbraham.jpg)|
+202601191600|TheGreatColdY25|栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)|冬季里的呆萌小可爱|![](/zh-CN/2026/01/202601191600TheGreatColdY25.jpg)|
