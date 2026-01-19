@@ -20,3 +20,4 @@
 202601160500|EtoshaLeopard|Un léopard dans le Parc National d’Etosha, Namibie (© Norbert Achtelik/Cavan Images)|L’élégance du camouflage félin|![](/fr-CA/2026/01/202601160500EtoshaLeopard.jpg)|
 202601170500|NaplesBasilica|Basilique San Francesco di Paola, Naples, Italie (© javarman3/Getty Images)|Le dôme de la Piazza del Plebiscito|![](/fr-CA/2026/01/202601170500NaplesBasilica.jpg)|
 202601180500|WhiteSandsNM|Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)|Le mirage d’un desert|![](/fr-CA/2026/01/202601180500WhiteSandsNM.jpg)|
+202601190500|BubblesAbraham|Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)|Quand la nature fait son pop art|![](/fr-CA/2026/01/202601190500BubblesAbraham.jpg)|
