@@ -20,3 +20,4 @@
 202601160800|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Info|![](/en-AU/2026/01/202601160800EtoshaLeopard.jpg)|
 202601170800|NoronhaSunset|Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)|Info|![](/en-AU/2026/01/202601170800NoronhaSunset.jpg)|
 202601180800|WhiteSandsNM|White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)|Info|![](/en-AU/2026/01/202601180800WhiteSandsNM.jpg)|
+202601190800|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Info|![](/en-AU/2026/01/202601190800BubblesAbraham.jpg)|

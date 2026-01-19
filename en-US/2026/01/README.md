@@ -20,3 +20,4 @@
 202601160800|EtoshaLeopard|Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)|Eye see you|![](/en-US/2026/01/202601160800EtoshaLeopard.jpg)|
 202601170800|NaplesBasilica|Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)|The dome of Piazza del Plebiscito|![](/en-US/2026/01/202601170800NaplesBasilica.jpg)|
 202601180800|WhiteSandsNM|White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)|A desert in disguise|![](/en-US/2026/01/202601180800WhiteSandsNM.jpg)|
+202601190800|MLKSunrise|Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)|Standing where hope rose|![](/en-US/2026/01/202601190800MLKSunrise.jpg)|
