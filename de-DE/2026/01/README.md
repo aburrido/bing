@@ -21,3 +21,4 @@
 202601172300|WhiteSandsNM|White-Sands-Nationalpark, New Mexico, USA (© Francesco Carucci/Getty Images)|Verborgene weiße Wüste|![](/de-DE/2026/01/202601172300WhiteSandsNM.jpg)|
 202601182300|BubblesAbraham|Gefrorener Abraham Lake, Alberta, Kanada (© Luis F Arevalo/Getty Images)|Eisblasen im Winterlicht|![](/de-DE/2026/01/202601182300BubblesAbraham.jpg)|
 202601192300|IciclePenguin|Eselspinguin, Petermann-Insel, Antarktis (© Paul Souders/DanitaDelimont.com/Alamy)|Am Puls des Eises|![](/de-DE/2026/01/202601192300IciclePenguin.jpg)|
+202601202300|BerrySquirrel|Eurasisches Eichhörnchen (© Galina Jacyna/Getty Images)|Ein roter Blitz im Winterweiß|![](/de-DE/2026/01/202601202300BerrySquirrel.jpg)|
