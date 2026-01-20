@@ -21,3 +21,4 @@
 202601171500|WhiteSandsNM|ホワイトサンズ国立公園, 米国 ニューメキシコ州 (© Francesco Carucci/Getty Images)|雪原のような石膏砂漠|![](/ja-JP/2026/01/202601171500WhiteSandsNM.jpg)|
 202601181500|ExternsteineSunset|エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)|森にそびえる砂岩の奇岩群|![](/ja-JP/2026/01/202601181500ExternsteineSunset.jpg)|
 202601191500|Daikan2026|雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)|今日は「大寒」|![](/ja-JP/2026/01/202601191500Daikan2026.jpg)|
+202601201500|BerrySquirrel|赤褐色の毛並みが美しいキタリス (© Galina Jacyna/Getty Images)|今日はリスの日|![](/ja-JP/2026/01/202601201500BerrySquirrel.jpg)|
