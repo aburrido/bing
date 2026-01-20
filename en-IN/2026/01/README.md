@@ -21,3 +21,4 @@
 202601171830|WhiteSandsNM|White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)|A desert in disguise|![](/en-IN/2026/01/202601171830WhiteSandsNM.jpg)|
 202601181830|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Nature's pop art|![](/en-IN/2026/01/202601181830BubblesAbraham.jpg)|
 202601191830|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-IN/2026/01/202601191830IciclePenguin.jpg)|
+202601201830|RajasthanSandDunes2025|Sand dunes in the Thar Desert, Rajasthan (© f9photos/iStock/Getty Images)|Sands of time in the Thar|![](/en-IN/2026/01/202601201830RajasthanSandDunes2025.jpg)|
