@@ -21,3 +21,4 @@
 202601180000|PoohDay2026|Scots pine forest, Ashdown Forest, England (© James Warwick/The Image Bank/Getty Images)|Lost in the Hundred Acres|![](/en-GB/2026/01/202601180000PoohDay2026.jpg)|
 202601190000|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Nature's pop art|![](/en-GB/2026/01/202601190000BubblesAbraham.jpg)|
 202601200000|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-GB/2026/01/202601200000IciclePenguin.jpg)|
+202601210000|BerrySquirrel|Eurasian red squirrel (© Galina Jacyna/Getty Images)|A flash of red in the winter white|![](/en-GB/2026/01/202601210000BerrySquirrel.jpg)|
