@@ -22,3 +22,4 @@
 202601181600|BubblesAbraham|亚伯拉罕湖冰封景象，艾伯塔省，加拿大 (© Luis F Arevalo/Getty Images)|大自然的波普艺术|![](/zh-CN/2026/01/202601181600BubblesAbraham.jpg)|
 202601191600|TheGreatColdY25|栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)|冬季里的呆萌小可爱|![](/zh-CN/2026/01/202601191600TheGreatColdY25.jpg)|
 202601201600|BerrySquirrel|欧亚红松鼠 (© Galina Jacyna/Getty Images)|冬日白雪中的一抹红|![](/zh-CN/2026/01/202601201600BerrySquirrel.jpg)|
+202601211600|KarlovyVary|卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)|波西米亚温泉故事|![](/zh-CN/2026/01/202601211600KarlovyVary.jpg)|
