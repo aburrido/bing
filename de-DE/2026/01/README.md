@@ -22,3 +22,4 @@
 202601182300|BubblesAbraham|Gefrorener Abraham Lake, Alberta, Kanada (© Luis F Arevalo/Getty Images)|Eisblasen im Winterlicht|![](/de-DE/2026/01/202601182300BubblesAbraham.jpg)|
 202601192300|IciclePenguin|Eselspinguin, Petermann-Insel, Antarktis (© Paul Souders/DanitaDelimont.com/Alamy)|Am Puls des Eises|![](/de-DE/2026/01/202601192300IciclePenguin.jpg)|
 202601202300|BerrySquirrel|Eurasisches Eichhörnchen (© Galina Jacyna/Getty Images)|Ein roter Blitz im Winterweiß|![](/de-DE/2026/01/202601202300BerrySquirrel.jpg)|
+202601212300|Mimramfootbridge|Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)|Grenzenlos verbunden|![](/de-DE/2026/01/202601212300Mimramfootbridge.jpg)|
