@@ -22,3 +22,4 @@
 202601181830|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Nature's pop art|![](/en-IN/2026/01/202601181830BubblesAbraham.jpg)|
 202601191830|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-IN/2026/01/202601191830IciclePenguin.jpg)|
 202601201830|RajasthanSandDunes2025|Sand dunes in the Thar Desert, Rajasthan (© f9photos/iStock/Getty Images)|Sands of time in the Thar|![](/en-IN/2026/01/202601201830RajasthanSandDunes2025.jpg)|
+202601211830|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-IN/2026/01/202601211830KarlovyVary.jpg)|
