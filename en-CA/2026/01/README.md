@@ -22,3 +22,4 @@
 202601180500|WhiteSandsNM|White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)|A desert in disguise|![](/en-CA/2026/01/202601180500WhiteSandsNM.jpg)|
 202601190500|BubblesAbraham|Frozen Abraham Lake, Alberta (© Luis F Arevalo/Getty Images)|Nature's pop art|![](/en-CA/2026/01/202601190500BubblesAbraham.jpg)|
 202601200500|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-CA/2026/01/202601200500IciclePenguin.jpg)|
+202601210500|BerrySquirrel|Eurasian red squirrel (© Galina Jacyna/Getty Images)|A flash of red in the winter white|![](/en-CA/2026/01/202601210500BerrySquirrel.jpg)|
