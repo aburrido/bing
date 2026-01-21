@@ -22,3 +22,4 @@
 202601180800|WhiteSandsNM|White Sands National Park, New Mexico, United States (© Francesco Carucci/Getty Images)|Info|![](/en-AU/2026/01/202601180800WhiteSandsNM.jpg)|
 202601190800|BubblesAbraham|Frozen Abraham Lake, Alberta, Canada (© Luis F Arevalo/Getty Images)|Info|![](/en-AU/2026/01/202601190800BubblesAbraham.jpg)|
 202601200800|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Info|![](/en-AU/2026/01/202601200800IciclePenguin.jpg)|
+202601210800|BerrySquirrel|Eurasian red squirrel (© Galina Jacyna/Getty Images)|Info|![](/en-AU/2026/01/202601210800BerrySquirrel.jpg)|

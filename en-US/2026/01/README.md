@@ -22,3 +22,4 @@
 202601180800|WhiteSandsNM|White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)|A desert in disguise|![](/en-US/2026/01/202601180800WhiteSandsNM.jpg)|
 202601190800|MLKSunrise|Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)|Standing where hope rose|![](/en-US/2026/01/202601190800MLKSunrise.jpg)|
 202601200800|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-US/2026/01/202601200800IciclePenguin.jpg)|
+202601210800|BerrySquirrel|Eurasian red squirrel (© Galina Jacyna/Getty Images)|A flash of red in the winter white|![](/en-US/2026/01/202601210800BerrySquirrel.jpg)|
