@@ -23,3 +23,4 @@
 202601190500|BubblesAbraham|Parc National des White Sands, Nouveau-Mexique, États-Unis (© Francesco Carucci/Getty Images)|Quand la nature fait son pop art|![](/fr-CA/2026/01/202601190500BubblesAbraham.jpg)|
 202601200500|IciclePenguin|Un manchot papou, Île Petermann, Antarctique (© Paul Souders/DanitaDelimont.com/Alamy)|Un bien drôle d’oiseau!|![](/fr-CA/2026/01/202601200500IciclePenguin.jpg)|
 202601210500|BerrySquirrel|Écureuil roux d’Eurasie (© Galina Jacyna/Getty Images)|Une touche de caramel dans la neige|![](/fr-CA/2026/01/202601210500BerrySquirrel.jpg)|
+202601220500|KarlovyVary|Karlovy Vary, Bohème, Tchéquie (© Henryk Sadura/Getty Images)|Bohème et thermale|![](/fr-CA/2026/01/202601220500KarlovyVary.jpg)|
