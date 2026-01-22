@@ -23,3 +23,4 @@
 202601191500|Daikan2026|雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)|今日は「大寒」|![](/ja-JP/2026/01/202601191500Daikan2026.jpg)|
 202601201500|BerrySquirrel|赤褐色の毛並みが美しいキタリス (© Galina Jacyna/Getty Images)|今日はリスの日|![](/ja-JP/2026/01/202601201500BerrySquirrel.jpg)|
 202601211500|KarlovyVary|カルロヴィ・ヴァリ, チェコ (© Henryk Sadura/Getty Images)|雪に覆われた温泉の街|![](/ja-JP/2026/01/202601211500KarlovyVary.jpg)|
+202601221500|IcelandSheep|雪に覆われた地で草を食む羊たち, アイスランド (© Christophe Lehenaff/Getty Images)|今日からアイスランドの真冬の祝宴|![](/ja-JP/2026/01/202601221500IcelandSheep.jpg)|
