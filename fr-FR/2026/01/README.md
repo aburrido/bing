@@ -23,3 +23,4 @@
 202601192300|IciclePenguin|Un manchot papou, Île Petermann, Antarctique (© Paul Souders/DanitaDelimont.com/Alamy)|Un bien drôle d’oiseau !|![](/fr-FR/2026/01/202601192300IciclePenguin.jpg)|
 202601202300|BerrySquirrel|Écureuil roux d’Eurasie (© Galina Jacyna/Getty Images)|Une touche de caramel dans la neige|![](/fr-FR/2026/01/202601202300BerrySquirrel.jpg)|
 202601212300|KarlovyVary|Karlovy Vary, Bohême, Tchéquie (© Henryk Sadura/Getty Images)|Bohème et thermale|![](/fr-FR/2026/01/202601212300KarlovyVary.jpg)|
+202601222300|IcelandSheep|Des moutons dans la neige, Islande (© Christophe Lehenaff/Getty Images)|Quand la tradition viking s’invite à table|![](/fr-FR/2026/01/202601222300IcelandSheep.jpg)|
