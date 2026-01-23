@@ -23,3 +23,4 @@
 202601200000|IciclePenguin|Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)|Life on the edge of the ice|![](/en-GB/2026/01/202601200000IciclePenguin.jpg)|
 202601210000|BerrySquirrel|Eurasian red squirrel (© Galina Jacyna/Getty Images)|A flash of red in the winter white|![](/en-GB/2026/01/202601210000BerrySquirrel.jpg)|
 202601220000|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-GB/2026/01/202601220000KarlovyVary.jpg)|
+202601230000|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-GB/2026/01/202601230000IcelandSheep.jpg)|
