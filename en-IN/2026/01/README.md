@@ -24,3 +24,4 @@
 202601201830|RajasthanSandDunes2025|Sand dunes in the Thar Desert, Rajasthan (© f9photos/iStock/Getty Images)|Sands of time in the Thar|![](/en-IN/2026/01/202601201830RajasthanSandDunes2025.jpg)|
 202601211830|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-IN/2026/01/202601211830KarlovyVary.jpg)|
 202601221830|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-IN/2026/01/202601221830IcelandSheep.jpg)|
+202601231830|AndermattSwiss|Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)|A Swiss escape|![](/en-IN/2026/01/202601231830AndermattSwiss.jpg)|
