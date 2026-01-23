@@ -24,3 +24,4 @@
 202601201500|BerrySquirrel|赤褐色の毛並みが美しいキタリス (© Galina Jacyna/Getty Images)|今日はリスの日|![](/ja-JP/2026/01/202601201500BerrySquirrel.jpg)|
 202601211500|KarlovyVary|カルロヴィ・ヴァリ, チェコ (© Henryk Sadura/Getty Images)|雪に覆われた温泉の街|![](/ja-JP/2026/01/202601211500KarlovyVary.jpg)|
 202601221500|IcelandSheep|雪に覆われた地で草を食む羊たち, アイスランド (© Christophe Lehenaff/Getty Images)|今日からアイスランドの真冬の祝宴|![](/ja-JP/2026/01/202601221500IcelandSheep.jpg)|
+202601231500|AndermattSwiss|アンデルマット, スイス (© Xantana/Getty Images)|雪に包まれた山村が輝く夜|![](/ja-JP/2026/01/202601231500AndermattSwiss.jpg)|
