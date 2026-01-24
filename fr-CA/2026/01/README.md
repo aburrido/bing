@@ -25,3 +25,4 @@
 202601210500|BerrySquirrel|Écureuil roux d’Eurasie (© Galina Jacyna/Getty Images)|Une touche de caramel dans la neige|![](/fr-CA/2026/01/202601210500BerrySquirrel.jpg)|
 202601220500|KarlovyVary|Karlovy Vary, Bohème, Tchéquie (© Henryk Sadura/Getty Images)|Bohème et thermale|![](/fr-CA/2026/01/202601220500KarlovyVary.jpg)|
 202601230500|IcelandSheep|Des moutons dans la neige, Islande (© Christophe Lehenaff/Getty Images)|Quand la tradition viking s’invite à table|![](/fr-CA/2026/01/202601230500IcelandSheep.jpg)|
+202601240500|AndermattSwiss|Le village d’Andermatt, Suisse (© Xantana/Getty Images)|Rendez-vous sur les pistes !|![](/fr-CA/2026/01/202601240500AndermattSwiss.jpg)|
