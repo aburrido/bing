@@ -25,3 +25,4 @@
 202601212300|KarlovyVary|Karlovy Vary, Bohême, Tchéquie (© Henryk Sadura/Getty Images)|Bohème et thermale|![](/fr-FR/2026/01/202601212300KarlovyVary.jpg)|
 202601222300|IcelandSheep|Des moutons dans la neige, Islande (© Christophe Lehenaff/Getty Images)|Quand la tradition viking s’invite à table|![](/fr-FR/2026/01/202601222300IcelandSheep.jpg)|
 202601232300|AndermattSwiss|Le village d’Andermatt, Suisse (© Xantana/Getty Images)|Rendez-vous sur les pistes !|![](/fr-FR/2026/01/202601232300AndermattSwiss.jpg)|
+202601242300|BurnsPark|Burns National Heritage Park, Ayr, Écosse, Royaume-Uni (© Alister Firth/Alamy)|Une fête tout en poésie|![](/fr-FR/2026/01/202601242300BurnsPark.jpg)|
