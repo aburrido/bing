@@ -25,3 +25,4 @@
 202601211600|KarlovyVary|卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)|波西米亚温泉故事|![](/zh-CN/2026/01/202601211600KarlovyVary.jpg)|
 202601221600|IcelandSheep|绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)|霜雪中的盛宴|![](/zh-CN/2026/01/202601221600IcelandSheep.jpg)|
 202601231600|AndermattSwiss|阿尔卑斯山脉的安德马特小镇，瑞士 (© Xantana/Getty Images)|瑞士山间的短逃离|![](/zh-CN/2026/01/202601231600AndermattSwiss.jpg)|
+202601241600|BurnsPark|伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰 (© Alister Firth/Alamy)|传统熠熠生辉|![](/zh-CN/2026/01/202601241600BurnsPark.jpg)|
