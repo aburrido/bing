@@ -25,3 +25,4 @@
 202601210800|BerrySquirrel|Eurasian red squirrel (© Galina Jacyna/Getty Images)|A flash of red in the winter white|![](/en-US/2026/01/202601210800BerrySquirrel.jpg)|
 202601220800|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-US/2026/01/202601220800KarlovyVary.jpg)|
 202601230800|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-US/2026/01/202601230800IcelandSheep.jpg)|
+202601240800|AndermattSwiss|Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)|A Swiss escape|![](/en-US/2026/01/202601240800AndermattSwiss.jpg)|
