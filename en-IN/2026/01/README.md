@@ -25,3 +25,4 @@
 202601211830|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-IN/2026/01/202601211830KarlovyVary.jpg)|
 202601221830|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-IN/2026/01/202601221830IcelandSheep.jpg)|
 202601231830|AndermattSwiss|Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)|A Swiss escape|![](/en-IN/2026/01/202601231830AndermattSwiss.jpg)|
+202601241830|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Tradition burns bright|![](/en-IN/2026/01/202601241830BurnsPark.jpg)|
