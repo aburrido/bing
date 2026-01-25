@@ -26,3 +26,4 @@
 202601222300|IcelandSheep|Weidende Schafe im Schnee, Island (© Christophe Lehenaff/Getty Images)|Festmahl trotz Frost|![](/de-DE/2026/01/202601222300IcelandSheep.jpg)|
 202601232300|AndermattSwiss|Andermatt in den Schweizer Alpen (© Xantana/Getty Images)|Auszeit in der Schweiz|![](/de-DE/2026/01/202601232300AndermattSwiss.jpg)|
 202601242300|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Schottland (© Alister Firth/Alamy)|Ein Abend voller Geschichte|![](/de-DE/2026/01/202601242300BurnsPark.jpg)|
+202601252300|NeuschwansteinWinter|Schneebedecktes Schloss Neuschwanstein bei Hohenschwangau, Bayern (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Wie aus dem Märchen entsprungen|![](/de-DE/2026/01/202601252300NeuschwansteinWinter.jpg)|
