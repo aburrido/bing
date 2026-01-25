@@ -25,3 +25,4 @@
 202601220000|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-GB/2026/01/202601220000KarlovyVary.jpg)|
 202601230000|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-GB/2026/01/202601230000IcelandSheep.jpg)|
 202601240000|BigGardenBirdwatch2026|Red kite in snow (© Carl Mckie/500px/Getty Images)|A window seat to wildlife|![](/en-GB/2026/01/202601240000BigGardenBirdwatch2026.jpg)|
+202601250000|Northumberland2025|Northumberland, England (© Design Pics/John Short/Getty Images)|Tradition burns bright|![](/en-GB/2026/01/202601250000Northumberland2025.jpg)|
