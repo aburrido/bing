@@ -26,3 +26,4 @@
 202601221500|IcelandSheep|雪に覆われた地で草を食む羊たち, アイスランド (© Christophe Lehenaff/Getty Images)|今日からアイスランドの真冬の祝宴|![](/ja-JP/2026/01/202601221500IcelandSheep.jpg)|
 202601231500|AndermattSwiss|アンデルマット, スイス (© Xantana/Getty Images)|雪に包まれた山村が輝く夜|![](/ja-JP/2026/01/202601231500AndermattSwiss.jpg)|
 202601241500|BurnsPark|バーンズ国立遺産公園, スコットランド (© Alister Firth/Alamy)|今日はスコットランドの「バーンズ・ナイト」|![](/ja-JP/2026/01/202601241500BurnsPark.jpg)|
+202601251500|BubblesAbraham|アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)|色鮮やかな空の下に広がる凍った湖|![](/ja-JP/2026/01/202601251500BubblesAbraham.jpg)|
