@@ -26,3 +26,4 @@
 202601220500|KarlovyVary|Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)|A Bohemian spa story|![](/en-CA/2026/01/202601220500KarlovyVary.jpg)|
 202601230500|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-CA/2026/01/202601230500IcelandSheep.jpg)|
 202601240500|AndermattSwiss|Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)|A Swiss escape|![](/en-CA/2026/01/202601240500AndermattSwiss.jpg)|
+202601250500|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Tradition burns bright|![](/en-CA/2026/01/202601250500BurnsPark.jpg)|
