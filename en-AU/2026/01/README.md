@@ -27,3 +27,4 @@
 202601230800|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Info|![](/en-AU/2026/01/202601230800IcelandSheep.jpg)|
 202601240800|AndermattSwiss|Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)|Info|![](/en-AU/2026/01/202601240800AndermattSwiss.jpg)|
 202601250800|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Info|![](/en-AU/2026/01/202601250800BurnsPark.jpg)|
+202601260800|FITUR|Retiro Park, Madrid, Spain (© All rights reserved-Copyright/Getty Images)|Info|![](/en-AU/2026/01/202601260800FITUR.jpg)|
