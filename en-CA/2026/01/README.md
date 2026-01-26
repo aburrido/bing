@@ -27,3 +27,4 @@
 202601230500|IcelandSheep|Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)|Feasting through frost|![](/en-CA/2026/01/202601230500IcelandSheep.jpg)|
 202601240500|AndermattSwiss|Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)|A Swiss escape|![](/en-CA/2026/01/202601240500AndermattSwiss.jpg)|
 202601250500|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Tradition burns bright|![](/en-CA/2026/01/202601250500BurnsPark.jpg)|
+202601260500|NeuschwansteinWinter|Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Bavaria's gem|![](/en-CA/2026/01/202601260500NeuschwansteinWinter.jpg)|
