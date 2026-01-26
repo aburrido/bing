@@ -27,3 +27,4 @@
 202601232300|AndermattSwiss|Le village d’Andermatt, Suisse (© Xantana/Getty Images)|Rendez-vous sur les pistes !|![](/fr-FR/2026/01/202601232300AndermattSwiss.jpg)|
 202601242300|BurnsPark|Burns National Heritage Park, Ayr, Écosse, Royaume-Uni (© Alister Firth/Alamy)|Une fête tout en poésie|![](/fr-FR/2026/01/202601242300BurnsPark.jpg)|
 202601252300|BluetitWinter|Une mésange bleue en hiver (© Marc Andreu/Getty Images)|Une touche de couleurs qui ravive l’hiver|![](/fr-FR/2026/01/202601252300BluetitWinter.jpg)|
+202601262300|DalmationPelicans|Des pélicans frisés sur le Lac Kerkini, Grèce (© Guy Edwardes/naturepl.com)|Pélicans en vue !|![](/fr-FR/2026/01/202601262300DalmationPelicans.jpg)|
