@@ -27,3 +27,4 @@
 202601231600|AndermattSwiss|阿尔卑斯山脉的安德马特小镇，瑞士 (© Xantana/Getty Images)|瑞士山间的短逃离|![](/zh-CN/2026/01/202601231600AndermattSwiss.jpg)|
 202601241600|BurnsPark|伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰 (© Alister Firth/Alamy)|传统熠熠生辉|![](/zh-CN/2026/01/202601241600BurnsPark.jpg)|
 202601251600|NeuschwansteinWinter|新天鹅堡，巴伐利亚州，德国 (© www.fredconcha.com @ All Rights Reserved/Getty Images)|巴伐利亚的瑰宝|![](/zh-CN/2026/01/202601251600NeuschwansteinWinter.jpg)|
+202601261600|DalmationPelicans|卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)|羽翼预告：前方有鹈鹕|![](/zh-CN/2026/01/202601261600DalmationPelicans.jpg)|
