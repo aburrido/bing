@@ -27,3 +27,4 @@
 202601231500|AndermattSwiss|アンデルマット, スイス (© Xantana/Getty Images)|雪に包まれた山村が輝く夜|![](/ja-JP/2026/01/202601231500AndermattSwiss.jpg)|
 202601241500|BurnsPark|バーンズ国立遺産公園, スコットランド (© Alister Firth/Alamy)|今日はスコットランドの「バーンズ・ナイト」|![](/ja-JP/2026/01/202601241500BurnsPark.jpg)|
 202601251500|BubblesAbraham|アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)|色鮮やかな空の下に広がる凍った湖|![](/ja-JP/2026/01/202601251500BubblesAbraham.jpg)|
+202601261500|DalmationPelicans|ニシハイイロペリカン, ギリシャ (© Guy Edwardes/naturepl.com)|静かな湖を並んで泳ぐ白い鳥|![](/ja-JP/2026/01/202601261500DalmationPelicans.jpg)|
