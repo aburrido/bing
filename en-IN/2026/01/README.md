@@ -28,3 +28,4 @@
 202601241830|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Tradition burns bright|![](/en-IN/2026/01/202601241830BurnsPark.jpg)|
 202601251830|RepublicDay2026|Balloons released during the 2021 Republic Day parade in New Delhi (© T. Narayan/Bloomberg/Getty Images)|From history to celebration|![](/en-IN/2026/01/202601251830RepublicDay2026.jpg)|
 202601261830|DalmationPelicans|Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)|Feather forecast: pelicans ahead|![](/en-IN/2026/01/202601261830DalmationPelicans.jpg)|
+202601271830|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Flow with it|![](/en-IN/2026/01/202601271830WhanganuiPark.jpg)|
