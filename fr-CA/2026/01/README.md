@@ -28,3 +28,4 @@
 202601240500|AndermattSwiss|Le village d’Andermatt, Suisse (© Xantana/Getty Images)|Rendez-vous sur les pistes !|![](/fr-CA/2026/01/202601240500AndermattSwiss.jpg)|
 202601250500|BurnsPark|Burns National Heritage Park, Ayr, Écosse, Royaume-Uni (© Alister Firth/Alamy)|Une fête tout en poésie|![](/fr-CA/2026/01/202601250500BurnsPark.jpg)|
 202601260500|NeuschwansteinWinter|Château de Neuschwanstein, Bavière, Allemagne (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Un conte de fée en Bavière|![](/fr-CA/2026/01/202601260500NeuschwansteinWinter.jpg)|
+202601270500|DalmationPelicans|Des pélicans frisés sur le Lac Kerkini, Grèce (© Guy Edwardes/naturepl.com)|Pélicans en vue !|![](/fr-CA/2026/01/202601270500DalmationPelicans.jpg)|
