@@ -28,3 +28,4 @@
 202601241600|BurnsPark|伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰 (© Alister Firth/Alamy)|传统熠熠生辉|![](/zh-CN/2026/01/202601241600BurnsPark.jpg)|
 202601251600|NeuschwansteinWinter|新天鹅堡，巴伐利亚州，德国 (© www.fredconcha.com @ All Rights Reserved/Getty Images)|巴伐利亚的瑰宝|![](/zh-CN/2026/01/202601251600NeuschwansteinWinter.jpg)|
 202601261600|DalmationPelicans|卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)|羽翼预告：前方有鹈鹕|![](/zh-CN/2026/01/202601261600DalmationPelicans.jpg)|
+202601271600|WhanganuiPark|旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)|随河而行|![](/zh-CN/2026/01/202601271600WhanganuiPark.jpg)|
