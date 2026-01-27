@@ -27,3 +27,4 @@
 202601240000|BigGardenBirdwatch2026|Red kite in snow (© Carl Mckie/500px/Getty Images)|A window seat to wildlife|![](/en-GB/2026/01/202601240000BigGardenBirdwatch2026.jpg)|
 202601250000|Northumberland2025|Northumberland, England (© Design Pics/John Short/Getty Images)|Tradition burns bright|![](/en-GB/2026/01/202601250000Northumberland2025.jpg)|
 202601260000|NeuschwansteinWinter|Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Bavaria's gem|![](/en-GB/2026/01/202601260000NeuschwansteinWinter.jpg)|
+202601270000|DalmationPelicans|Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)|Feather forecast: pelicans ahead|![](/en-GB/2026/01/202601270000DalmationPelicans.jpg)|
