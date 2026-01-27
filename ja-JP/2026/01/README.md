@@ -28,3 +28,4 @@
 202601241500|BurnsPark|バーンズ国立遺産公園, スコットランド (© Alister Firth/Alamy)|今日はスコットランドの「バーンズ・ナイト」|![](/ja-JP/2026/01/202601241500BurnsPark.jpg)|
 202601251500|BubblesAbraham|アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)|色鮮やかな空の下に広がる凍った湖|![](/ja-JP/2026/01/202601251500BubblesAbraham.jpg)|
 202601261500|DalmationPelicans|ニシハイイロペリカン, ギリシャ (© Guy Edwardes/naturepl.com)|静かな湖を並んで泳ぐ白い鳥|![](/ja-JP/2026/01/202601261500DalmationPelicans.jpg)|
+202601271500|WhanganuiPark|ワンガヌイ国立公園, ニュージーランド (© Matthew Micah Wright/Getty Images)|森林に抱かれた川が描く大きなカーブ|![](/ja-JP/2026/01/202601271500WhanganuiPark.jpg)|
