@@ -28,3 +28,4 @@
 202601242300|BurnsPark|Burns National Heritage Park, Ayr, Écosse, Royaume-Uni (© Alister Firth/Alamy)|Une fête tout en poésie|![](/fr-FR/2026/01/202601242300BurnsPark.jpg)|
 202601252300|BluetitWinter|Une mésange bleue en hiver (© Marc Andreu/Getty Images)|Une touche de couleurs qui ravive l’hiver|![](/fr-FR/2026/01/202601252300BluetitWinter.jpg)|
 202601262300|DalmationPelicans|Des pélicans frisés sur le Lac Kerkini, Grèce (© Guy Edwardes/naturepl.com)|Pélicans en vue !|![](/fr-FR/2026/01/202601262300DalmationPelicans.jpg)|
+202601272300|WhanganuiPark|Parc National de Whanganui, Retaruke, Nouvelle-Zélande (© Matthew Micah Wright/Getty Images)|Suivez le courant de Whanganui|![](/fr-FR/2026/01/202601272300WhanganuiPark.jpg)|
