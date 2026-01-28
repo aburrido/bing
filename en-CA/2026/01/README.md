@@ -29,3 +29,4 @@
 202601250500|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Tradition burns bright|![](/en-CA/2026/01/202601250500BurnsPark.jpg)|
 202601260500|NeuschwansteinWinter|Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Bavaria's gem|![](/en-CA/2026/01/202601260500NeuschwansteinWinter.jpg)|
 202601270500|DalmationPelicans|Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)|Feather forecast: pelicans ahead|![](/en-CA/2026/01/202601270500DalmationPelicans.jpg)|
+202601280500|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Flow with it|![](/en-CA/2026/01/202601280500WhanganuiPark.jpg)|
