@@ -29,3 +29,4 @@
 202601252300|NeuschwansteinWinter|Schneebedecktes Schloss Neuschwanstein bei Hohenschwangau, Bayern (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Wie aus dem Märchen entsprungen|![](/de-DE/2026/01/202601252300NeuschwansteinWinter.jpg)|
 202601262300|DalmationPelicans|Krauskopfpelikane, Kerkini-See, Griechenland (© Guy Edwardes/naturepl.com)|Eleganz über stillem Wasser|![](/de-DE/2026/01/202601262300DalmationPelicans.jpg)|
 202601272300|WhanganuiPark|Whanganui-Nationalpark, Retaruke, Neuseeland (© Matthew Micah Wright/Getty Images)|Einfach treiben lassen|![](/de-DE/2026/01/202601272300WhanganuiPark.jpg)|
+202601282300|MilwaukeeHall|Achtstöckiges offenes Atrium im Rathaus von Milwaukee, Wisconsin, USA (© lavin photography/Getty Images)|Wo Geschichte nach oben führt|![](/de-DE/2026/01/202601282300MilwaukeeHall.jpg)|
