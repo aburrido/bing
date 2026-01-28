@@ -29,3 +29,4 @@
 202601250800|BurnsPark|Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)|Info|![](/en-AU/2026/01/202601250800BurnsPark.jpg)|
 202601260800|FITUR|Retiro Park, Madrid, Spain (© All rights reserved-Copyright/Getty Images)|Info|![](/en-AU/2026/01/202601260800FITUR.jpg)|
 202601270800|DalmationPelicans|Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)|Info|![](/en-AU/2026/01/202601270800DalmationPelicans.jpg)|
+202601280800|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Info|![](/en-AU/2026/01/202601280800WhanganuiPark.jpg)|
