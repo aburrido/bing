@@ -29,3 +29,4 @@
 202601251500|BubblesAbraham|アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)|色鮮やかな空の下に広がる凍った湖|![](/ja-JP/2026/01/202601251500BubblesAbraham.jpg)|
 202601261500|DalmationPelicans|ニシハイイロペリカン, ギリシャ (© Guy Edwardes/naturepl.com)|静かな湖を並んで泳ぐ白い鳥|![](/ja-JP/2026/01/202601261500DalmationPelicans.jpg)|
 202601271500|WhanganuiPark|ワンガヌイ国立公園, ニュージーランド (© Matthew Micah Wright/Getty Images)|森林に抱かれた川が描く大きなカーブ|![](/ja-JP/2026/01/202601271500WhanganuiPark.jpg)|
+202601281500|MilwaukeeHall|ミルウォーキー市庁舎, 米国 ウィスコンシン州 (© lavin photography/Getty Images)|高く伸びる歴史的建築のアトリウム|![](/ja-JP/2026/01/202601281500MilwaukeeHall.jpg)|
