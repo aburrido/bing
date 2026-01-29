@@ -29,3 +29,4 @@
 202601260000|NeuschwansteinWinter|Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Bavaria's gem|![](/en-GB/2026/01/202601260000NeuschwansteinWinter.jpg)|
 202601270000|DalmationPelicans|Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)|Feather forecast: pelicans ahead|![](/en-GB/2026/01/202601270000DalmationPelicans.jpg)|
 202601280000|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Flow with it|![](/en-GB/2026/01/202601280000WhanganuiPark.jpg)|
+202601290000|MilwaukeeHall|The eight-story open atrium of Milwaukee City Hall, Wisconsin, USA (© lavin photography/Getty Images)|A tall story of Milwaukee|![](/en-GB/2026/01/202601290000MilwaukeeHall.jpg)|
