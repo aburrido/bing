@@ -30,3 +30,4 @@
 202601260500|NeuschwansteinWinter|Château de Neuschwanstein, Bavière, Allemagne (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Un conte de fée en Bavière|![](/fr-CA/2026/01/202601260500NeuschwansteinWinter.jpg)|
 202601270500|DalmationPelicans|Des pélicans frisés sur le Lac Kerkini, Grèce (© Guy Edwardes/naturepl.com)|Pélicans en vue !|![](/fr-CA/2026/01/202601270500DalmationPelicans.jpg)|
 202601280500|WhanganuiPark|Parc National de Whanganui, Retaruke, Nouvelle-Zélande (© Matthew Micah Wright/Getty Images)|Suivez le courant de Whanganui|![](/fr-CA/2026/01/202601280500WhanganuiPark.jpg)|
+202601290500|MilwaukeeHall|L'atrium ouvert de huit étages du Milwaukee City Hall, Wisconsin, États-Unis (© lavin photography/Getty Images)|Un incontournable de Milwaukee|![](/fr-CA/2026/01/202601290500MilwaukeeHall.jpg)|
