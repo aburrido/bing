@@ -31,3 +31,4 @@
 202601271500|WhanganuiPark|ワンガヌイ国立公園, ニュージーランド (© Matthew Micah Wright/Getty Images)|森林に抱かれた川が描く大きなカーブ|![](/ja-JP/2026/01/202601271500WhanganuiPark.jpg)|
 202601281500|MilwaukeeHall|ミルウォーキー市庁舎, 米国 ウィスコンシン州 (© lavin photography/Getty Images)|高く伸びる歴史的建築のアトリウム|![](/ja-JP/2026/01/202601281500MilwaukeeHall.jpg)|
 202601291500|StMichaelsCornwall|セント・マイケルズ・マウント, イングランド (© Baxter Bradford/robertharding/Getty Images)|歩いて渡れる神秘の島|![](/ja-JP/2026/01/202601291500StMichaelsCornwall.jpg)|
+202601301500|IceFestival2026|ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)|今日から千歳・支笏湖氷濤まつり|![](/ja-JP/2026/01/202601301500IceFestival2026.jpg)|
