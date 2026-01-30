@@ -31,3 +31,4 @@
 202601272300|WhanganuiPark|Parc National de Whanganui, Retaruke, Nouvelle-Zélande (© Matthew Micah Wright/Getty Images)|Suivez le courant de Whanganui|![](/fr-FR/2026/01/202601272300WhanganuiPark.jpg)|
 202601282300|MilwaukeeHall|L'atrium ouvert de huit étages du Milwaukee City Hall, Wisconsin, États-Unis (© lavin photography/Getty Images)|Un incontournable de Milwaukee|![](/fr-FR/2026/01/202601282300MilwaukeeHall.jpg)|
 202601292300|StMichaelsCornwall|St. Michael's Mount à Marazion, Cornouailles, Angleterre, Royaume-Uni (© Baxter Bradford/robertharding/Getty Images)|Comme un air de déjà-vu…|![](/fr-FR/2026/01/202601292300StMichaelsCornwall.jpg)|
+202601302300|EtoshaZebra|Des zèbres des plaines, Parc National d’Etosha, Namibie (© Mogens Trolle/Shutterstock)|Un mirage noir et blanc dans la savane|![](/fr-FR/2026/01/202601302300EtoshaZebra.jpg)|
