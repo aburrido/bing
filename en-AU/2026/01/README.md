@@ -31,3 +31,4 @@
 202601270800|DalmationPelicans|Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)|Info|![](/en-AU/2026/01/202601270800DalmationPelicans.jpg)|
 202601280800|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Info|![](/en-AU/2026/01/202601280800WhanganuiPark.jpg)|
 202601290800|MilwaukeeHall|The eight-story open atrium of Milwaukee City Hall, Wisconsin, United States (© lavin photography/Getty Images)|Info|![](/en-AU/2026/01/202601290800MilwaukeeHall.jpg)|
+202601300800|StMichaelsCornwall|St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)|Info|![](/en-AU/2026/01/202601300800StMichaelsCornwall.jpg)|
