@@ -31,3 +31,4 @@
 202601271830|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Flow with it|![](/en-IN/2026/01/202601271830WhanganuiPark.jpg)|
 202601281830|MilwaukeeHall|The eight-story open atrium of Milwaukee City Hall, Wisconsin, United States (© lavin photography/Getty Images)|A tall story of Milwaukee|![](/en-IN/2026/01/202601281830MilwaukeeHall.jpg)|
 202601291830|StMichaelsCornwall|St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)|Where the sea makes way|![](/en-IN/2026/01/202601291830StMichaelsCornwall.jpg)|
+202601301830|EtoshaZebra|Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)|Love at first stripe|![](/en-IN/2026/01/202601301830EtoshaZebra.jpg)|
