@@ -31,3 +31,4 @@
 202601271600|WhanganuiPark|旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)|随河而行|![](/zh-CN/2026/01/202601271600WhanganuiPark.jpg)|
 202601281600|MilwaukeeHall|密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)|密尔沃基的传奇故事|![](/zh-CN/2026/01/202601281600MilwaukeeHall.jpg)|
 202601291600|StMichaelsCornwall|马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)|海潮退却之处|![](/zh-CN/2026/01/202601291600StMichaelsCornwall.jpg)|
+202601301600|EtoshaZebra|平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)|一见钟情|![](/zh-CN/2026/01/202601301600EtoshaZebra.jpg)|
