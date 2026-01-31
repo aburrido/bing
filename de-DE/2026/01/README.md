@@ -32,3 +32,4 @@
 202601282300|MilwaukeeHall|Achtstöckiges offenes Atrium im Rathaus von Milwaukee, Wisconsin, USA (© lavin photography/Getty Images)|Wo Geschichte nach oben führt|![](/de-DE/2026/01/202601282300MilwaukeeHall.jpg)|
 202601292300|StMichaelsCornwall|St. Michael’s Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)|Wo das Meer den Weg freigibt|![](/de-DE/2026/01/202601292300StMichaelsCornwall.jpg)|
 202601302300|EtoshaZebra|Steppenzebras, Etosha-Nationalpark, Namibia (© Mogens Trolle/Shutterstock)|Liebe auf den ersten Streifen|![](/de-DE/2026/01/202601302300EtoshaZebra.jpg)|
+202601312300|Olinda|Buntes Haus in Olinda, Brasilien (© Robert Pekar/Alamy)|Wände voller Wunder|![](/de-DE/2026/01/202601312300Olinda.jpg)|
