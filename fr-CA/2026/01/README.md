@@ -32,3 +32,4 @@
 202601280500|WhanganuiPark|Parc National de Whanganui, Retaruke, Nouvelle-Zélande (© Matthew Micah Wright/Getty Images)|Suivez le courant de Whanganui|![](/fr-CA/2026/01/202601280500WhanganuiPark.jpg)|
 202601290500|MilwaukeeHall|L'atrium ouvert de huit étages du Milwaukee City Hall, Wisconsin, États-Unis (© lavin photography/Getty Images)|Un incontournable de Milwaukee|![](/fr-CA/2026/01/202601290500MilwaukeeHall.jpg)|
 202601300500|WinterludeKimono|« Kimono » sculpté par Hiroaki Kimura et Masaki Takahashi du Japon, Bal de Neige 2010, Ottawa, Gatineau, Canada (© PensiveDragon/Shutterstock)|La glace est à l’honneur|![](/fr-CA/2026/01/202601300500WinterludeKimono.jpg)|
+202601310500|EtoshaZebra|Des zèbres des plaines, Parc National d’Etosha, Namibie (© Mogens Trolle/Shutterstock)|Un mirage noir et blanc dans la savane|![](/fr-CA/2026/01/202601310500EtoshaZebra.jpg)|

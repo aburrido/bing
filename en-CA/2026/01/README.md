@@ -32,3 +32,4 @@
 202601280500|WhanganuiPark|Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)|Flow with it|![](/en-CA/2026/01/202601280500WhanganuiPark.jpg)|
 202601290500|MilwaukeeHall|The eight-story open atrium of Milwaukee City Hall, Wisconsin, United States (© lavin photography/Getty Images)|A tall story of Milwaukee|![](/en-CA/2026/01/202601290500MilwaukeeHall.jpg)|
 202601300500|WinterludeKimono|'Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)|Carved for the cold|![](/en-CA/2026/01/202601300500WinterludeKimono.jpg)|
+202601310500|EtoshaZebra|Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)|Love at first stripe|![](/en-CA/2026/01/202601310500EtoshaZebra.jpg)|
