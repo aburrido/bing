@@ -32,3 +32,4 @@
 202601281830|MilwaukeeHall|The eight-story open atrium of Milwaukee City Hall, Wisconsin, United States (© lavin photography/Getty Images)|A tall story of Milwaukee|![](/en-IN/2026/01/202601281830MilwaukeeHall.jpg)|
 202601291830|StMichaelsCornwall|St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)|Where the sea makes way|![](/en-IN/2026/01/202601291830StMichaelsCornwall.jpg)|
 202601301830|EtoshaZebra|Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)|Love at first stripe|![](/en-IN/2026/01/202601301830EtoshaZebra.jpg)|
+202601311830|Olinda|Colourful house in Olinda, Brazil (© Robert Pekar/Alamy)|Walls of wonder|![](/en-IN/2026/01/202601311830Olinda.jpg)|
