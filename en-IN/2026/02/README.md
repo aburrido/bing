@@ -4,3 +4,4 @@
 202602011830|NeuschwansteinWinter|Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)|Bavaria's gem|![](/en-IN/2026/02/202602011830NeuschwansteinWinter.jpg)|
 202602021830|FanetteIsland|Emerald Bay and Fannette Island, Lake Tahoe, California, United States (© Bill Stevenson/Cavan Images)|Tahoe serving views|![](/en-IN/2026/02/202602021830FanetteIsland.jpg)|
 202602031830|BigGardenBirdwatch2026|Red kite in snow (© Carl Mckie/500px/Getty Images)|Grace on the wing|![](/en-IN/2026/02/202602031830BigGardenBirdwatch2026.jpg)|
+202602041830|MaltaSalt|Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)|Stuck in a grid|![](/en-IN/2026/02/202602041830MaltaSalt.jpg)|
