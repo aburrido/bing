@@ -5,3 +5,4 @@
 202602020500|AlpineMarmots|Des marmottes des Alpes, Parc National des Hohe Tauern, Autriche (© Raimund Linke/Getty Images)|L’ombre d’une promesse|![](/fr-CA/2026/02/202602020500AlpineMarmots.jpg)|
 202602030500|FanetteIsland|Emerald Bay et Fanette Island, Lac Tahoe, Californie, États-Unis (© Bill Stevenson/Cavan Images)|Un lac d’une profondeur à couper le souffle|![](/fr-CA/2026/02/202602030500FanetteIsland.jpg)|
 202602040500|BigGardenBirdwatch2026|Le milan royal sous la neige (© Carl Mckie/500px/Getty Images)|La grâce incarnée|![](/fr-CA/2026/02/202602040500BigGardenBirdwatch2026.jpg)|
+202602050500|MaltaSalt|Les marais salants de Gozo, Malte (© Marius Roman/Getty Images)|L’art sans égal des vagues|![](/fr-CA/2026/02/202602050500MaltaSalt.jpg)|
