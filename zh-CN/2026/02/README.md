@@ -5,3 +5,4 @@
 202602021600|FanetteIsland|翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)|太浩湖视觉盛宴|![](/zh-CN/2026/02/202602021600FanetteIsland.jpg)|
 202602031600|BigGardenBirdwatch2026|雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)|优雅掠过天际|![](/zh-CN/2026/02/202602031600BigGardenBirdwatch2026.jpg)|
 202602041600|MaltaSalt|戈佐岛上的盐田, 马耳他 (© Marius Roman/Getty Images)|困在网格里|![](/zh-CN/2026/02/202602041600MaltaSalt.jpg)|
+202602051600|GiauPass|贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)|拉古塞拉——奥运赛季的巅峰|![](/zh-CN/2026/02/202602051600GiauPass.jpg)|
