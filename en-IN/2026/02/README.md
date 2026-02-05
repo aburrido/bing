@@ -5,3 +5,4 @@
 202602021830|FanetteIsland|Emerald Bay and Fannette Island, Lake Tahoe, California, United States (© Bill Stevenson/Cavan Images)|Tahoe serving views|![](/en-IN/2026/02/202602021830FanetteIsland.jpg)|
 202602031830|BigGardenBirdwatch2026|Red kite in snow (© Carl Mckie/500px/Getty Images)|Grace on the wing|![](/en-IN/2026/02/202602031830BigGardenBirdwatch2026.jpg)|
 202602041830|MaltaSalt|Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)|Stuck in a grid|![](/en-IN/2026/02/202602041830MaltaSalt.jpg)|
+202602051830|GiauPass|Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)|Ra Gusela—peak of the Olympic season|![](/en-IN/2026/02/202602051830GiauPass.jpg)|
