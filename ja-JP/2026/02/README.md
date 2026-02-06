@@ -6,3 +6,4 @@
 202602031500|Risshun2026|梅の枝に止まるメジロ (© naotoshinkai/Getty Images)|今日は立春|![](/ja-JP/2026/02/202602031500Risshun2026.jpg)|
 202602041500|MaltaSalt|ゴゾ島, マルタ共和国 (© Marius Roman/Getty Images)|海岸沿いに広がる伝統的な塩田|![](/ja-JP/2026/02/202602041500MaltaSalt.jpg)|
 202602051500|GiauPass|ラ・グセラ峰, イタリア (© Tomasz Podolski/Getty Images)|今日から 2026 冬季五輪|![](/ja-JP/2026/02/202602051500GiauPass.jpg)|
+202602061500|SapporoSnowFestival2026|大通公園, 札幌市 (© Reuters/Kimimasa Mayama)|さっぽろ雪まつり開催中|![](/ja-JP/2026/02/202602061500SapporoSnowFestival2026.jpg)|
