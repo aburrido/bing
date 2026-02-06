@@ -6,3 +6,4 @@
 202602030500|FanetteIsland|Emerald Bay et Fanette Island, Lac Tahoe, Californie, États-Unis (© Bill Stevenson/Cavan Images)|Un lac d’une profondeur à couper le souffle|![](/fr-CA/2026/02/202602030500FanetteIsland.jpg)|
 202602040500|BigGardenBirdwatch2026|Le milan royal sous la neige (© Carl Mckie/500px/Getty Images)|La grâce incarnée|![](/fr-CA/2026/02/202602040500BigGardenBirdwatch2026.jpg)|
 202602050500|MaltaSalt|Les marais salants de Gozo, Malte (© Marius Roman/Getty Images)|L’art sans égal des vagues|![](/fr-CA/2026/02/202602050500MaltaSalt.jpg)|
+202602060500|GiauPass|Le Ra Gusela, col de Giau Pass, près de Cortina d'Ampezzo, Italie (© Tomasz Podolski/Getty Images)|Un sommet qui tombe à pic pour les JO d’hiver|![](/fr-CA/2026/02/202602060500GiauPass.jpg)|
