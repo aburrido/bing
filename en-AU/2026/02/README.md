@@ -7,3 +7,4 @@
 202602040800|BigGardenBirdwatch2026|Red kite in snow (© Carl Mckie/500px/Getty Images)|Info|![](/en-AU/2026/02/202602040800BigGardenBirdwatch2026.jpg)|
 202602050800|MaltaSalt|Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)|Info|![](/en-AU/2026/02/202602050800MaltaSalt.jpg)|
 202602060800|GiauPass|Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)|Info|![](/en-AU/2026/02/202602060800GiauPass.jpg)|
+202602070800|SalarUyuni|Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2026/02/202602070800SalarUyuni.jpg)|
