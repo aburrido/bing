@@ -7,3 +7,4 @@
 202602041830|MaltaSalt|Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)|Stuck in a grid|![](/en-IN/2026/02/202602041830MaltaSalt.jpg)|
 202602051830|GiauPass|Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)|Ra Gusela—peak of the Olympic season|![](/en-IN/2026/02/202602051830GiauPass.jpg)|
 202602061830|SalarUyuni|Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)|Salt, sky and the stillness between|![](/en-IN/2026/02/202602061830SalarUyuni.jpg)|
+202602071830|CorfuGreece|Corfu at night, Greece (© whitewizzard/Getty Images)|From quiet nights to adventurous days|![](/en-IN/2026/02/202602071830CorfuGreece.jpg)|
