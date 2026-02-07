@@ -7,3 +7,4 @@
 202602042300|MaltaSalt|Les marais salants de Gozo, Malte (© Marius Roman/Getty Images)|L’art sans égal des vagues|![](/fr-FR/2026/02/202602042300MaltaSalt.jpg)|
 202602052300|GiauPass|Le Ra Gusela, col de Giau Pass, près de Cortina d'Ampezzo, Italie (© Tomasz Podolski/Getty Images)|Un sommet qui tombe à pic pour les JO d’hiver|![](/fr-FR/2026/02/202602052300GiauPass.jpg)|
 202602062300|SalarUyuni|Salar d'Uyuni, Bolivie  (© Abstract Aerial Art/Getty Images)|Le désert de sel le plus vaste au monde|![](/fr-FR/2026/02/202602062300SalarUyuni.jpg)|
+202602072300|CorfuGreece|Corfou de nuit, Grèce (© whitewizzard/Getty Images)|Éblouissante de jour comme de nuit|![](/fr-FR/2026/02/202602072300CorfuGreece.jpg)|

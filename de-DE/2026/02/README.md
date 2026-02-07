@@ -7,3 +7,4 @@
 202602042300|MaltaSalt|Salzpfannen auf der Insel Gozo, Malta (© Marius Roman/Getty Images)|Natur im Quadrat|![](/de-DE/2026/02/202602042300MaltaSalt.jpg)|
 202602052300|GiauPass|Gipfel Ra Gusela am Giau-Pass nahe Cortina d’Ampezzo, Italien (© Tomasz Podolski/Getty Images)|Die Dolomiten im Olympiafieber|![](/de-DE/2026/02/202602052300GiauPass.jpg)|
 202602062300|SalarUyuni|Salzebene Salar de Uyuni, Bolivien (© Abstract Aerial Art/Getty Images)|Stille zwischen Salz und Himmel|![](/de-DE/2026/02/202602062300SalarUyuni.jpg)|
+202602072300|CorfuGreece|Korfu bei Nacht, Griechenland (© whitewizzard/Getty Images)|Zwischen Stille und Meer|![](/de-DE/2026/02/202602072300CorfuGreece.jpg)|
