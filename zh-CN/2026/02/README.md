@@ -7,3 +7,4 @@
 202602041600|MaltaSalt|戈佐岛上的盐田, 马耳他 (© Marius Roman/Getty Images)|困在网格里|![](/zh-CN/2026/02/202602041600MaltaSalt.jpg)|
 202602051600|GiauPass|贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)|拉古塞拉——奥运赛季的巅峰|![](/zh-CN/2026/02/202602051600GiauPass.jpg)|
 202602061600|SalarUyuni|玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)|在盐沼与天空之间，万物静谧|![](/zh-CN/2026/02/202602061600SalarUyuni.jpg)|
+202602071600|CorfuGreece|科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)|从宁静的夜晚到充满冒险的白天|![](/zh-CN/2026/02/202602071600CorfuGreece.jpg)|
