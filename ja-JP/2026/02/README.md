@@ -8,3 +8,4 @@
 202602051500|GiauPass|ラ・グセラ峰, イタリア (© Tomasz Podolski/Getty Images)|今日から 2026 冬季五輪|![](/ja-JP/2026/02/202602051500GiauPass.jpg)|
 202602061500|SapporoSnowFestival2026|大通公園, 札幌市 (© Reuters/Kimimasa Mayama)|さっぽろ雪まつり開催中|![](/ja-JP/2026/02/202602061500SapporoSnowFestival2026.jpg)|
 202602071500|CorfuGreece|ケルキラ島, ギリシャ (© whitewizzard/Getty Images)|紺碧の夜空に映える美しい街並み|![](/ja-JP/2026/02/202602071500CorfuGreece.jpg)|
+202602081500|LeopardCat|アムールヤマネコ, ロシア (© Valeriy Maleev/naturepl.com)|冬の森を静かに歩む慎重なハンター|![](/ja-JP/2026/02/202602081500LeopardCat.jpg)|
