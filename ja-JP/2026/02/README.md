@@ -9,3 +9,4 @@
 202602061500|SapporoSnowFestival2026|大通公園, 札幌市 (© Reuters/Kimimasa Mayama)|さっぽろ雪まつり開催中|![](/ja-JP/2026/02/202602061500SapporoSnowFestival2026.jpg)|
 202602071500|CorfuGreece|ケルキラ島, ギリシャ (© whitewizzard/Getty Images)|紺碧の夜空に映える美しい街並み|![](/ja-JP/2026/02/202602071500CorfuGreece.jpg)|
 202602081500|LeopardCat|アムールヤマネコ, ロシア (© Valeriy Maleev/naturepl.com)|冬の森を静かに歩む慎重なハンター|![](/ja-JP/2026/02/202602081500LeopardCat.jpg)|
+202602091500|IbizaIslets|エス・ヴェドラ島, スペイン (© L. Apolli/Getty Images)|穏やかな海に佇む神秘的な島|![](/ja-JP/2026/02/202602091500IbizaIslets.jpg)|
