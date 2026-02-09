@@ -9,3 +9,4 @@
 202602060500|GiauPass|Le Ra Gusela, col de Giau Pass, près de Cortina d'Ampezzo, Italie (© Tomasz Podolski/Getty Images)|Un sommet qui tombe à pic pour les JO d’hiver|![](/fr-CA/2026/02/202602060500GiauPass.jpg)|
 202602070500|SalarUyuni|Salar d'Uyuni, Bolivie (© Abstract Aerial Art/Getty Images)|Le désert de sel le plus vaste au monde|![](/fr-CA/2026/02/202602070500SalarUyuni.jpg)|
 202602080500|CorfuGreece|Corfou de nuit, Grèce (© whitewizzard/Getty Images)|Éblouissante de jour comme de nuit|![](/fr-CA/2026/02/202602080500CorfuGreece.jpg)|
+202602090500|LeopardCat|Chat-léopard de l’Amour, Russie (© Valeriy Maleev/naturepl.com)|Ni léopard ni chat|![](/fr-CA/2026/02/202602090500LeopardCat.jpg)|
