@@ -9,3 +9,4 @@
 202602062300|SalarUyuni|Salzebene Salar de Uyuni, Bolivien (© Abstract Aerial Art/Getty Images)|Stille zwischen Salz und Himmel|![](/de-DE/2026/02/202602062300SalarUyuni.jpg)|
 202602072300|CorfuGreece|Korfu bei Nacht, Griechenland (© whitewizzard/Getty Images)|Zwischen Stille und Meer|![](/de-DE/2026/02/202602072300CorfuGreece.jpg)|
 202602082300|LeopardCat|Amur‑Leopardkatze, Russland (© Valeriy Maleev/naturepl.com)|Muster in Bewegung|![](/de-DE/2026/02/202602082300LeopardCat.jpg)|
+202602092300|IbizaIslets|Felsinseln Es Vedrà und Es Vedranell, Ibiza, Spanien (© L. Apolli/Getty Images)|Wo die Sirenen singen|![](/de-DE/2026/02/202602092300IbizaIslets.jpg)|

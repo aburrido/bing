@@ -9,3 +9,4 @@
 202602062300|SalarUyuni|Salar d'Uyuni, Bolivie  (© Abstract Aerial Art/Getty Images)|Le désert de sel le plus vaste au monde|![](/fr-FR/2026/02/202602062300SalarUyuni.jpg)|
 202602072300|CorfuGreece|Corfou de nuit, Grèce (© whitewizzard/Getty Images)|Éblouissante de jour comme de nuit|![](/fr-FR/2026/02/202602072300CorfuGreece.jpg)|
 202602082300|LeopardCat|Chat-léopard de l’Amour, Russie (© Valeriy Maleev/naturepl.com)|Ni léopard ni chat|![](/fr-FR/2026/02/202602082300LeopardCat.jpg)|
+202602092300|IbizaIslets|Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)|Lorsque les sirènes chantent|![](/fr-FR/2026/02/202602092300IbizaIslets.jpg)|
