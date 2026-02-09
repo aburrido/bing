@@ -9,3 +9,4 @@
 202602061600|SalarUyuni|玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)|在盐沼与天空之间，万物静谧|![](/zh-CN/2026/02/202602061600SalarUyuni.jpg)|
 202602071600|CorfuGreece|科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)|从宁静的夜晚到充满冒险的白天|![](/zh-CN/2026/02/202602071600CorfuGreece.jpg)|
 202602081600|LeopardCat|阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)|斑纹流转|![](/zh-CN/2026/02/202602081600LeopardCat.jpg)|
+202602091600|IbizaIslets|埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙 (© L. Apolli/Getty Images)|海妖歌唱之处|![](/zh-CN/2026/02/202602091600IbizaIslets.jpg)|
