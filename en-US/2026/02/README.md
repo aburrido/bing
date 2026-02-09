@@ -9,3 +9,4 @@
 202602060800|GiauPass|Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)|Ra Gusela—peak of the Olympic season|![](/en-US/2026/02/202602060800GiauPass.jpg)|
 202602070800|SalarUyuni|Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)|Salt, sky, and the stillness between|![](/en-US/2026/02/202602070800SalarUyuni.jpg)|
 202602080800|CorfuGreece|Corfu at night, Greece (© whitewizzard/Getty Images)|From quiet nights to adventurous days|![](/en-US/2026/02/202602080800CorfuGreece.jpg)|
+202602090800|LeopardCat|Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)|Patterns in motion|![](/en-US/2026/02/202602090800LeopardCat.jpg)|
