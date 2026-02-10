@@ -10,3 +10,4 @@
 202602071500|CorfuGreece|ケルキラ島, ギリシャ (© whitewizzard/Getty Images)|紺碧の夜空に映える美しい街並み|![](/ja-JP/2026/02/202602071500CorfuGreece.jpg)|
 202602081500|LeopardCat|アムールヤマネコ, ロシア (© Valeriy Maleev/naturepl.com)|冬の森を静かに歩む慎重なハンター|![](/ja-JP/2026/02/202602081500LeopardCat.jpg)|
 202602091500|IbizaIslets|エス・ヴェドラ島, スペイン (© L. Apolli/Getty Images)|穏やかな海に佇む神秘的な島|![](/ja-JP/2026/02/202602091500IbizaIslets.jpg)|
+202602101500|MitoPlumFestival2026|白梅の花 (© EarthScapeImageGraphy/Getty Images)|今日から水戸の梅まつり|![](/ja-JP/2026/02/202602101500MitoPlumFestival2026.jpg)|
