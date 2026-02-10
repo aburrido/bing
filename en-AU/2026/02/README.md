@@ -10,3 +10,4 @@
 202602070800|SalarUyuni|Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2026/02/202602070800SalarUyuni.jpg)|
 202602080800|CorfuGreece|Corfu, Greece (© whitewizzard/Getty Images)|Info|![](/en-AU/2026/02/202602080800CorfuGreece.jpg)|
 202602090800|LeopardCat|Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)|Info|![](/en-AU/2026/02/202602090800LeopardCat.jpg)|
+202602100800|IbizaIslets|Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)|Info|![](/en-AU/2026/02/202602100800IbizaIslets.jpg)|

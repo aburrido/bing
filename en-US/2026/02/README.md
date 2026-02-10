@@ -10,3 +10,4 @@
 202602070800|SalarUyuni|Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)|Salt, sky, and the stillness between|![](/en-US/2026/02/202602070800SalarUyuni.jpg)|
 202602080800|CorfuGreece|Corfu at night, Greece (© whitewizzard/Getty Images)|From quiet nights to adventurous days|![](/en-US/2026/02/202602080800CorfuGreece.jpg)|
 202602090800|LeopardCat|Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)|Patterns in motion|![](/en-US/2026/02/202602090800LeopardCat.jpg)|
+202602100800|IbizaIslets|Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)|Where the Sirens sing|![](/en-US/2026/02/202602100800IbizaIslets.jpg)|
