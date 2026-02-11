@@ -11,3 +11,4 @@
 202602080800|CorfuGreece|Corfu, Greece (© whitewizzard/Getty Images)|Info|![](/en-AU/2026/02/202602080800CorfuGreece.jpg)|
 202602090800|LeopardCat|Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)|Info|![](/en-AU/2026/02/202602090800LeopardCat.jpg)|
 202602100800|IbizaIslets|Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)|Info|![](/en-AU/2026/02/202602100800IbizaIslets.jpg)|
+202602110800|BadwaterFlats|Salt flats in Badwater Basin, Death Valley National Park, California, USA (© Jim Patterson/TANDEM Stills + Motion)|Info|![](/en-AU/2026/02/202602110800BadwaterFlats.jpg)|
