@@ -10,3 +10,4 @@
 202602080000|CorfuGreece|Corfu, Greece (© whitewizzard/Getty Images)|From quiet nights to adventurous days|![](/en-GB/2026/02/202602080000CorfuGreece.jpg)|
 202602090000|LeopardCat|Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)|Patterns in motion|![](/en-GB/2026/02/202602090000LeopardCat.jpg)|
 202602100000|IbizaIslets|Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)|Where the Sirens sing|![](/en-GB/2026/02/202602100000IbizaIslets.jpg)|
+202602110000|BadwaterFlats|Salt flats in Badwater Basin, Death Valley National Park, California, USA (© Jim Patterson/TANDEM Stills + Motion)|The valley of contrasts|![](/en-GB/2026/02/202602110000BadwaterFlats.jpg)|
