@@ -11,3 +11,4 @@
 202602080500|CorfuGreece|Corfou de nuit, Grèce (© whitewizzard/Getty Images)|Éblouissante de jour comme de nuit|![](/fr-CA/2026/02/202602080500CorfuGreece.jpg)|
 202602090500|LeopardCat|Chat-léopard de l’Amour, Russie (© Valeriy Maleev/naturepl.com)|Ni léopard ni chat|![](/fr-CA/2026/02/202602090500LeopardCat.jpg)|
 202602100500|IbizaIslets|Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)|Lorsque les sirènes chantent|![](/fr-CA/2026/02/202602100500IbizaIslets.jpg)|
+202602110500|BadwaterFlats|Salines de Badwater, Parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/TANDEM Stills + Motion)|Une vallée de contrastes|![](/fr-CA/2026/02/202602110500BadwaterFlats.jpg)|
