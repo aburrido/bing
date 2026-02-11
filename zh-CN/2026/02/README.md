@@ -11,3 +11,4 @@
 202602081600|LeopardCat|阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)|斑纹流转|![](/zh-CN/2026/02/202602081600LeopardCat.jpg)|
 202602091600|IbizaIslets|埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙 (© L. Apolli/Getty Images)|海妖歌唱之处|![](/zh-CN/2026/02/202602091600IbizaIslets.jpg)|
 202602101600|BadwaterFlats|死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国 (© Jim Patterson/TANDEM Stills + Motion)|对比之谷|![](/zh-CN/2026/02/202602101600BadwaterFlats.jpg)|
+202602111600|DarwinBooby|蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)|聚焦进化|![](/zh-CN/2026/02/202602111600DarwinBooby.jpg)|
