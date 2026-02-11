@@ -11,3 +11,4 @@
 202602082300|LeopardCat|Amur‑Leopardkatze, Russland (© Valeriy Maleev/naturepl.com)|Muster in Bewegung|![](/de-DE/2026/02/202602082300LeopardCat.jpg)|
 202602092300|IbizaIslets|Felsinseln Es Vedrà und Es Vedranell, Ibiza, Spanien (© L. Apolli/Getty Images)|Wo die Sirenen singen|![](/de-DE/2026/02/202602092300IbizaIslets.jpg)|
 202602102300|BadwaterFlats|Salzpfannen im Badwater Basin, Death‑Valley‑Nationalpark, Kalifornien, USA (© Jim Patterson/TANDEM Stills + Motion)|Tal der Gegensätze|![](/de-DE/2026/02/202602102300BadwaterFlats.jpg)|
+202602112300|BerlinaleHall|Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)|Filmkunst, Vielfalt und Tradition|![](/de-DE/2026/02/202602112300BerlinaleHall.jpg)|
