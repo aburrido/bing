@@ -12,3 +12,4 @@
 202602091600|IbizaIslets|埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙 (© L. Apolli/Getty Images)|海妖歌唱之处|![](/zh-CN/2026/02/202602091600IbizaIslets.jpg)|
 202602101600|BadwaterFlats|死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国 (© Jim Patterson/TANDEM Stills + Motion)|对比之谷|![](/zh-CN/2026/02/202602101600BadwaterFlats.jpg)|
 202602111600|DarwinBooby|蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)|聚焦进化|![](/zh-CN/2026/02/202602111600DarwinBooby.jpg)|
+202602121600|FriendshipBridge|连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)|为拉近距离而建|![](/zh-CN/2026/02/202602121600FriendshipBridge.jpg)|
