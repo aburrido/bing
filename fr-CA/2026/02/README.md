@@ -12,3 +12,4 @@
 202602090500|LeopardCat|Chat-léopard de l’Amour, Russie (© Valeriy Maleev/naturepl.com)|Ni léopard ni chat|![](/fr-CA/2026/02/202602090500LeopardCat.jpg)|
 202602100500|IbizaIslets|Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)|Lorsque les sirènes chantent|![](/fr-CA/2026/02/202602100500IbizaIslets.jpg)|
 202602110500|BadwaterFlats|Salines de Badwater, Parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/TANDEM Stills + Motion)|Une vallée de contrastes|![](/fr-CA/2026/02/202602110500BadwaterFlats.jpg)|
+202602120500|DarwinBooby|Fou à pieds bleus, Îles Galapagos, Équateur (© Karine Aigner/TANDEM Stills + Motion)|L’évolution en ligne de mire|![](/fr-CA/2026/02/202602120500DarwinBooby.jpg)|
