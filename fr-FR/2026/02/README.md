@@ -12,3 +12,4 @@
 202602092300|IbizaIslets|Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)|Lorsque les sirènes chantent|![](/fr-FR/2026/02/202602092300IbizaIslets.jpg)|
 202602102300|NiceFestival|Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)|Quand les tambours font battre le cœur de Nice|![](/fr-FR/2026/02/202602102300NiceFestival.jpg)|
 202602112300|DarwinBooby|Fou à pieds bleus, Îles Galapagos, Équateur (© Karine Aigner/TANDEM Stills + Motion)|L’évolution en ligne de mire|![](/fr-FR/2026/02/202602112300DarwinBooby.jpg)|
+202602122300|FriendshipBridge|Troisième pont de l’amitié lao-thaïlandaise reliant le Laos et la Thaïlande (© chaiyut samsuk/Getty Images)|Construit pour rapprocher|![](/fr-FR/2026/02/202602122300FriendshipBridge.jpg)|
