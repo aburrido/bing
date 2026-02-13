@@ -13,3 +13,4 @@
 202602100800|IbizaIslets|Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)|Where the Sirens sing|![](/en-US/2026/02/202602100800IbizaIslets.jpg)|
 202602110800|BadwaterFlats|Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)|The valley of contrasts|![](/en-US/2026/02/202602110800BadwaterFlats.jpg)|
 202602120800|DarwinBooby|Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)|Evolution in focus|![](/en-US/2026/02/202602120800DarwinBooby.jpg)|
+202602130800|FriendshipBridge|Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)|Built to bring closer|![](/en-US/2026/02/202602130800FriendshipBridge.jpg)|
