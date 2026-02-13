@@ -13,3 +13,4 @@
 202602100500|IbizaIslets|Es Vedrà et Es Vedranell, Ibiza, Espagne (© L. Apolli/Getty Images)|Lorsque les sirènes chantent|![](/fr-CA/2026/02/202602100500IbizaIslets.jpg)|
 202602110500|BadwaterFlats|Salines de Badwater, Parc national de la Vallée de la Mort, Californie, États-Unis (© Jim Patterson/TANDEM Stills + Motion)|Une vallée de contrastes|![](/fr-CA/2026/02/202602110500BadwaterFlats.jpg)|
 202602120500|DarwinBooby|Fou à pieds bleus, Îles Galapagos, Équateur (© Karine Aigner/TANDEM Stills + Motion)|L’évolution en ligne de mire|![](/fr-CA/2026/02/202602120500DarwinBooby.jpg)|
+202602130500|FriendshipBridge|Troisième pont de l’amitié lao-thaïlandaise reliant le Laos et la Thaïlande (© chaiyut samsuk/Getty Images)|Construit pour rapprocher|![](/fr-CA/2026/02/202602130500FriendshipBridge.jpg)|
