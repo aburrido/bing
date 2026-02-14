@@ -14,3 +14,4 @@
 202602112300|BerlinaleHall|Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)|Filmkunst, Vielfalt und Tradition|![](/de-DE/2026/02/202602112300BerlinaleHall.jpg)|
 202602122300|FriendshipBridge|Dritte Thailändisch‑Laotische Freundschaftsbrücke, die Laos und Thailand verbindet (© chaiyut samsuk/Getty Images)|Brücken, die Nähe schaffen|![](/de-DE/2026/02/202602122300FriendshipBridge.jpg)|
 202602132300|ValentineHearts|Tränendes Herz (© Dorene Hookey/Cavan Images)|Liebe in voller Blüte|![](/de-DE/2026/02/202602132300ValentineHearts.jpg)|
+202602142300|MontereyHumpbacks|Buckelwale in der Monterey Bay, Kalifornien, USA (© Kiliii Fish/Cavan Images)|Die Taktgeber der Meere|![](/de-DE/2026/02/202602142300MontereyHumpbacks.jpg)|
