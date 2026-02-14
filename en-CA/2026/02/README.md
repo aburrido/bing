@@ -14,3 +14,4 @@
 202602110500|BadwaterFlats|Salt flats in Badwater Basin, Death Valley National Park, California, United States (© Jim Patterson/TANDEM Stills + Motion)|The valley of contrasts|![](/en-CA/2026/02/202602110500BadwaterFlats.jpg)|
 202602120500|DarwinBooby|Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)|Evolution in focus|![](/en-CA/2026/02/202602120500DarwinBooby.jpg)|
 202602130500|FriendshipBridge|Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)|Built to bring closer|![](/en-CA/2026/02/202602130500FriendshipBridge.jpg)|
+202602140500|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Love in bloom|![](/en-CA/2026/02/202602140500ValentineHearts.jpg)|
