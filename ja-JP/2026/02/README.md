@@ -14,3 +14,4 @@
 202602111500|Olinda|オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)|鮮やかな色で飾られた家|![](/ja-JP/2026/02/202602111500Olinda.jpg)|
 202602121500|FriendshipBridge|第3タイ・ラオス友好橋 (© chaiyut samsuk/Getty Images)|夕陽に染まる二国を結ぶ橋|![](/ja-JP/2026/02/202602121500FriendshipBridge.jpg)|
 202602131500|ValentineHearts|ハート型のケマンソウ, カナダ オンタリオ州 (© Dorene Hookey/Cavan Images)|今日はバレンタインデー|![](/ja-JP/2026/02/202602131500ValentineHearts.jpg)|
+202602141500|MontereyHumpbacks|海面から飛び出すザトウクジラ, 米国 カリフォルニア州 (© Kiliii Fish/Cavan Images)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2026/02/202602141500MontereyHumpbacks.jpg)|
