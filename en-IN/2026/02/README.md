@@ -14,3 +14,4 @@
 202602111830|DarwinBooby|Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)|Evolution in focus|![](/en-IN/2026/02/202602111830DarwinBooby.jpg)|
 202602121830|FriendshipBridge|Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)|Built to bring closer|![](/en-IN/2026/02/202602121830FriendshipBridge.jpg)|
 202602131830|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Love in bloom|![](/en-IN/2026/02/202602131830ValentineHearts.jpg)|
+202602141830|MahaShivaratri2026|Statue of Shiva at Murudeshwara Temple, Uttara Kannada, Karnataka (© Amith Nag Photography/Moment/Getty Image)|Under Shiva's gaze|![](/en-IN/2026/02/202602141830MahaShivaratri2026.jpg)|
