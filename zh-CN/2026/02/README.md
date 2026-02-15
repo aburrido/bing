@@ -15,3 +15,4 @@
 202602121600|FriendshipBridge|连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)|为拉近距离而建|![](/zh-CN/2026/02/202602121600FriendshipBridge.jpg)|
 202602131600|ValentineHearts|荷包牡丹 (© Dorene Hookey/Cavan Images)|爱意绽放|![](/zh-CN/2026/02/202602131600ValentineHearts.jpg)|
 202602141600|MontereyHumpbacks|蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)|浪涛下的歌谣|![](/zh-CN/2026/02/202602141600MontereyHumpbacks.jpg)|
+202602151600|ChineseNewYearEveY26|庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)|祝除夕团圆，新年顺遂！|![](/zh-CN/2026/02/202602151600ChineseNewYearEveY26.jpg)|
