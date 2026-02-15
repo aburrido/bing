@@ -15,3 +15,4 @@
 202602120800|DarwinBooby|Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)|Info|![](/en-AU/2026/02/202602120800DarwinBooby.jpg)|
 202602130800|FriendshipBridge|Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)|Info|![](/en-AU/2026/02/202602130800FriendshipBridge.jpg)|
 202602140800|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Info|![](/en-AU/2026/02/202602140800ValentineHearts.jpg)|
+202602150800|MontereyHumpbacks|Humpback whales in Monterey Bay, California, USA (© Kiliii Fish/Cavan Images)|Info|![](/en-AU/2026/02/202602150800MontereyHumpbacks.jpg)|
