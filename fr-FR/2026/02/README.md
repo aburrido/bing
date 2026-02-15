@@ -15,3 +15,4 @@
 202602122300|FriendshipBridge|Troisième pont de l’amitié lao-thaïlandaise reliant le Laos et la Thaïlande (© chaiyut samsuk/Getty Images)|Construit pour rapprocher|![](/fr-FR/2026/02/202602122300FriendshipBridge.jpg)|
 202602132300|ValentineHearts|Cœurs de Marie (© Dorene Hookey/Cavan Images)|L’amour fleurissant|![](/fr-FR/2026/02/202602132300ValentineHearts.jpg)|
 202602142300|MontereyHumpbacks|Baleines à bosse à Monterey, Californie, États-Unis (© Kiliii Fish/Cavan Images)|Un chant sous les vagues|![](/fr-FR/2026/02/202602142300MontereyHumpbacks.jpg)|
+202602152300|Bornand|Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)|Parfait pour un grand bol d’air|![](/fr-FR/2026/02/202602152300Bornand.jpg)|
