@@ -16,3 +16,4 @@
 202602130500|FriendshipBridge|Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)|Built to bring closer|![](/en-CA/2026/02/202602130500FriendshipBridge.jpg)|
 202602140500|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Love in bloom|![](/en-CA/2026/02/202602140500ValentineHearts.jpg)|
 202602150500|MontereyHumpbacks|Humpback whales in Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)|Songs beneath the waves|![](/en-CA/2026/02/202602150500MontereyHumpbacks.jpg)|
+202602160500|BanffWinter|Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)|When Banff slows down|![](/en-CA/2026/02/202602160500BanffWinter.jpg)|
