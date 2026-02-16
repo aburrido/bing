@@ -15,3 +15,4 @@
 202602130000|FriendshipBridge|Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)|Built to bring closer|![](/en-GB/2026/02/202602130000FriendshipBridge.jpg)|
 202602140000|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Love in bloom|![](/en-GB/2026/02/202602140000ValentineHearts.jpg)|
 202602150000|MontereyHumpbacks|Humpback whales, Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)|Songs beneath the waves|![](/en-GB/2026/02/202602150000MontereyHumpbacks.jpg)|
+202602160000|JorvikVikingFestival2026|York, England (© CHUNYIP WONG/iStock/Getty Images)|York goes Norse (again)|![](/en-GB/2026/02/202602160000JorvikVikingFestival2026.jpg)|
