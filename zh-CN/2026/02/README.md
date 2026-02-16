@@ -16,3 +16,4 @@
 202602131600|ValentineHearts|荷包牡丹 (© Dorene Hookey/Cavan Images)|爱意绽放|![](/zh-CN/2026/02/202602131600ValentineHearts.jpg)|
 202602141600|MontereyHumpbacks|蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)|浪涛下的歌谣|![](/zh-CN/2026/02/202602141600MontereyHumpbacks.jpg)|
 202602151600|ChineseNewYearEveY26|庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)|祝除夕团圆，新年顺遂！|![](/zh-CN/2026/02/202602151600ChineseNewYearEveY26.jpg)|
+202602161600|SpringFestivalY26|中国春节传统汉字“福” (© DuKai摄影师/Getty Images)|福气满满，马年大吉|![](/zh-CN/2026/02/202602161600SpringFestivalY26.jpg)|
