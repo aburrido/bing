@@ -17,3 +17,4 @@
 202602141500|MontereyHumpbacks|海面から飛び出すザトウクジラ, 米国 カリフォルニア州 (© Kiliii Fish/Cavan Images)|今日は「ワールド・ホエール・デイ」|![](/ja-JP/2026/02/202602141500MontereyHumpbacks.jpg)|
 202602151500|BigGardenBirdwatch2026|アカトビ (© Carl Mckie/500px/Getty Images)|雪の中を飛ぶハンター|![](/ja-JP/2026/02/202602151500BigGardenBirdwatch2026.jpg)|
 202602161500|NewYearLantern|春節の赤い提灯, 中国 (© Gins Wang/Getty Images)|今日は中国の旧正月|![](/ja-JP/2026/02/202602161500NewYearLantern.jpg)|
+202602171500|PrzewalskisHorse|モウコノウマ (© Nemyrivskyi Viacheslav/Getty Images)|現存する唯一の野生馬|![](/ja-JP/2026/02/202602171500PrzewalskisHorse.jpg)|
