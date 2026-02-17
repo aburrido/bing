@@ -17,3 +17,4 @@
 202602140500|ValentineHearts|Cœurs saignants (© Dorene Hookey/Cavan Images)|L’amour fleurissant|![](/fr-CA/2026/02/202602140500ValentineHearts.jpg)|
 202602150500|MontereyHumpbacks|Baleines à bosse à Monterey, Californie, États-Unis (© Kiliii Fish/Cavan Images)|Un chant sous les vagues|![](/fr-CA/2026/02/202602150500MontereyHumpbacks.jpg)|
 202602160500|BanffWinter|Lac et montagnes enneigées à Banff, Alberta (© Herbert Rong/Getty Images)|Banff au ralenti…|![](/fr-CA/2026/02/202602160500BanffWinter.jpg)|
+202602170500|NewYearLantern|Des lanternes rouges pour fêter le Nouvel An chinois (© Gins Wang/Getty Images)|Quinze jours de lumière|![](/fr-CA/2026/02/202602170500NewYearLantern.jpg)|
