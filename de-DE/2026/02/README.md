@@ -17,3 +17,4 @@
 202602142300|MontereyHumpbacks|Buckelwale in der Monterey Bay, Kalifornien, USA (© Kiliii Fish/Cavan Images)|Die Taktgeber der Meere|![](/de-DE/2026/02/202602142300MontereyHumpbacks.jpg)|
 202602152300|RoseMondayCologne|Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)|Kölle Alaaf!|![](/de-DE/2026/02/202602152300RoseMondayCologne.jpg)|
 202602162300|NewYearLantern|Rote Laternen zum chinesischen Neujahr (© Gins Wang/Getty Images)|Fünfzehn Tage voller Licht|![](/de-DE/2026/02/202602162300NewYearLantern.jpg)|
+202602172300|PrzewalskisHorse|Przewalski-Pferde (© Nemyrivskyi Viacheslav/Getty Images)|Letzte Spur der Wildheit|![](/de-DE/2026/02/202602172300PrzewalskisHorse.jpg)|

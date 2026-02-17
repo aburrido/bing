@@ -17,3 +17,4 @@
 202602142300|MontereyHumpbacks|Baleines à bosse à Monterey, Californie, États-Unis (© Kiliii Fish/Cavan Images)|Un chant sous les vagues|![](/fr-FR/2026/02/202602142300MontereyHumpbacks.jpg)|
 202602152300|Bornand|Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)|Parfait pour un grand bol d’air|![](/fr-FR/2026/02/202602152300Bornand.jpg)|
 202602162300|NewYearLantern|Des lanternes rouges pour fêter le Nouvel An chinois (© Gins Wang/Getty Images)|Quinze jours de lumière|![](/fr-FR/2026/02/202602162300NewYearLantern.jpg)|
+202602172300|PrzewalskisHorse|Chevaux de Przewalski (© Nemyrivskyi Viacheslav/Getty Images)|Nés pour rester sauvages|![](/fr-FR/2026/02/202602172300PrzewalskisHorse.jpg)|
