@@ -17,3 +17,4 @@
 202602140800|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Love in bloom|![](/en-US/2026/02/202602140800ValentineHearts.jpg)|
 202602150800|MontereyHumpbacks|Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)|Songs beneath the waves|![](/en-US/2026/02/202602150800MontereyHumpbacks.jpg)|
 202602160800|PresidentsDay|Lincoln Memorial, Washington, DC (© Westend61/Getty Images)|Legacies in view|![](/en-US/2026/02/202602160800PresidentsDay.jpg)|
+202602170800|NewYearLantern|Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)|Fifteen days of light|![](/en-US/2026/02/202602170800NewYearLantern.jpg)|

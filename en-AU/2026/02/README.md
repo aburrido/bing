@@ -17,3 +17,4 @@
 202602140800|ValentineHearts|Bleeding hearts (© Dorene Hookey/Cavan Images)|Info|![](/en-AU/2026/02/202602140800ValentineHearts.jpg)|
 202602150800|MontereyHumpbacks|Humpback whales in Monterey Bay, California, USA (© Kiliii Fish/Cavan Images)|Info|![](/en-AU/2026/02/202602150800MontereyHumpbacks.jpg)|
 202602160800|BanffWinter|Banff, Alberta, Canada (© Herbert Rong/Getty Images)|Info|![](/en-AU/2026/02/202602160800BanffWinter.jpg)|
+202602170800|Navarra|Ochagavía, Navarre, Spain (© PhotosTime/Getty Images)|Info|![](/en-AU/2026/02/202602170800Navarra.jpg)|
