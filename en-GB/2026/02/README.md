@@ -17,3 +17,4 @@
 202602150000|MontereyHumpbacks|Humpback whales, Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)|Songs beneath the waves|![](/en-GB/2026/02/202602150000MontereyHumpbacks.jpg)|
 202602160000|JorvikVikingFestival2026|York, England (© CHUNYIP WONG/iStock/Getty Images)|York goes Norse (again)|![](/en-GB/2026/02/202602160000JorvikVikingFestival2026.jpg)|
 202602170000|NewYearLantern|Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)|Fifteen days of light|![](/en-GB/2026/02/202602170000NewYearLantern.jpg)|
+202602180000|PrzewalskisHorse|Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)|Born to stay wild|![](/en-GB/2026/02/202602180000PrzewalskisHorse.jpg)|
