@@ -18,3 +18,4 @@
 202602152300|RoseMondayCologne|Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)|Kölle Alaaf!|![](/de-DE/2026/02/202602152300RoseMondayCologne.jpg)|
 202602162300|NewYearLantern|Rote Laternen zum chinesischen Neujahr (© Gins Wang/Getty Images)|Fünfzehn Tage voller Licht|![](/de-DE/2026/02/202602162300NewYearLantern.jpg)|
 202602172300|PrzewalskisHorse|Przewalski-Pferde (© Nemyrivskyi Viacheslav/Getty Images)|Letzte Spur der Wildheit|![](/de-DE/2026/02/202602172300PrzewalskisHorse.jpg)|
+202602182300|DragonsEyeRock|Die Felsformation Dragon’s Eye am Strand von Uttakleiv, Norwegen (© reisegraf/Getty Images)|Im Blick des Drachen|![](/de-DE/2026/02/202602182300DragonsEyeRock.jpg)|

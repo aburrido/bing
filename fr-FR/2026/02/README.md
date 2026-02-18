@@ -18,3 +18,4 @@
 202602152300|Bornand|Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)|Parfait pour un grand bol d’air|![](/fr-FR/2026/02/202602152300Bornand.jpg)|
 202602162300|NewYearLantern|Des lanternes rouges pour fêter le Nouvel An chinois (© Gins Wang/Getty Images)|Quinze jours de lumière|![](/fr-FR/2026/02/202602162300NewYearLantern.jpg)|
 202602172300|PrzewalskisHorse|Chevaux de Przewalski (© Nemyrivskyi Viacheslav/Getty Images)|Nés pour rester sauvages|![](/fr-FR/2026/02/202602172300PrzewalskisHorse.jpg)|
+202602182300|DragonsEyeRock|Dragon's Eye, formation rocheuse sur la plage d’Uttakleiv, Norvège (© reisegraf/Getty Images)|Un regard hypnotisant|![](/fr-FR/2026/02/202602182300DragonsEyeRock.jpg)|
