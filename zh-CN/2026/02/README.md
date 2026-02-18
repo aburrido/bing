@@ -18,3 +18,4 @@
 202602151600|ChineseNewYearEveY26|庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)|祝除夕团圆，新年顺遂！|![](/zh-CN/2026/02/202602151600ChineseNewYearEveY26.jpg)|
 202602161600|SpringFestivalY26|中国春节传统汉字“福” (© DuKai摄影师/Getty Images)|福气满满，马年大吉|![](/zh-CN/2026/02/202602161600SpringFestivalY26.jpg)|
 202602171600|PrzewalskisHorse|普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)|生而自由，永不驯服|![](/zh-CN/2026/02/202602171600PrzewalskisHorse.jpg)|
+202602181600|DragonsEyeRock|乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)|大地凝视着我们|![](/zh-CN/2026/02/202602181600DragonsEyeRock.jpg)|
