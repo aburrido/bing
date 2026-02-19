@@ -19,3 +19,4 @@
 202602160500|BanffWinter|Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)|When Banff slows down|![](/en-CA/2026/02/202602160500BanffWinter.jpg)|
 202602170500|NewYearLantern|Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)|Fifteen days of light|![](/en-CA/2026/02/202602170500NewYearLantern.jpg)|
 202602180500|PrzewalskisHorse|Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)|Born to stay wild|![](/en-CA/2026/02/202602180500PrzewalskisHorse.jpg)|
+202602190500|DragonsEyeRock|The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)|Where the land stares back|![](/en-CA/2026/02/202602190500DragonsEyeRock.jpg)|

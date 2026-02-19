@@ -19,3 +19,4 @@
 202602160500|BanffWinter|Lac et montagnes enneigées à Banff, Alberta (© Herbert Rong/Getty Images)|Banff au ralenti…|![](/fr-CA/2026/02/202602160500BanffWinter.jpg)|
 202602170500|NewYearLantern|Des lanternes rouges pour fêter le Nouvel An chinois (© Gins Wang/Getty Images)|Quinze jours de lumière|![](/fr-CA/2026/02/202602170500NewYearLantern.jpg)|
 202602180500|PrzewalskisHorse|Chevaux de Przewalski (© Nemyrivskyi Viacheslav/Getty Images)|Nés pour rester sauvages|![](/fr-CA/2026/02/202602180500PrzewalskisHorse.jpg)|
+202602190500|DragonsEyeRock|Dragon's Eye, formation rocheuse sur la plage d’Uttakleiv, Norvège (© reisegraf/Getty Images)|Un regard hypnotisant|![](/fr-CA/2026/02/202602190500DragonsEyeRock.jpg)|
