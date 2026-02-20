@@ -21,3 +21,4 @@
 202602180800|PrzewalskisHorse|Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)|Info|![](/en-AU/2026/02/202602180800PrzewalskisHorse.jpg)|
 202602190800|DragonsEyeRock|The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)|Info|![](/en-AU/2026/02/202602190800DragonsEyeRock.jpg)|
 ||||![](/en-AU/2026/02/.jpg)|
+202602200800|AdamsFirefall|Horsetail Fall in Yosemite National Park, California, United States (© Jorge Villalba/Getty Images)|Info|![](/en-AU/2026/02/202602200800AdamsFirefall.jpg)|

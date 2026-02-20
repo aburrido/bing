@@ -21,3 +21,4 @@
 202602180800|PrzewalskisHorse|Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)|Born to stay wild|![](/en-US/2026/02/202602180800PrzewalskisHorse.jpg)|
 202602190800|DragonsEyeRock|The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)|Where the land stares back|![](/en-US/2026/02/202602190800DragonsEyeRock.jpg)|
 ||||![](/en-US/2026/02/.jpg)|
+202602200800|AdamsFirefall|Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)|Where light falls|![](/en-US/2026/02/202602200800AdamsFirefall.jpg)|
