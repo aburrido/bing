@@ -21,3 +21,4 @@
 202602181500|DragonsEyeRock|ウッタクレイヴ海岸, ノルウェー (© reisegraf/Getty Images)|龍の眼のような潮溜まり|![](/ja-JP/2026/02/202602181500DragonsEyeRock.jpg)|
 202602191500|AdamsFirefall|ホーステール滝, 米国 カリフォルニア州 (© Jorge Villalba/Getty Images)|炎の滝が一瞬だけ現れる夕刻|![](/ja-JP/2026/02/202602191500AdamsFirefall.jpg)|
 ||||![](/ja-JP/2026/02/.jpg)|
+202602201500|TetonFox|アカギツネ, 米国 ワイオミング州 (© Radomir Jakubowski/naturepl.com)|降り積もる雪の中に生きる凛とした気配|![](/ja-JP/2026/02/202602201500TetonFox.jpg)|
