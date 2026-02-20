@@ -20,3 +20,4 @@
 202602171500|PrzewalskisHorse|モウコノウマ (© Nemyrivskyi Viacheslav/Getty Images)|現存する唯一の野生馬|![](/ja-JP/2026/02/202602171500PrzewalskisHorse.jpg)|
 202602181500|DragonsEyeRock|ウッタクレイヴ海岸, ノルウェー (© reisegraf/Getty Images)|龍の眼のような潮溜まり|![](/ja-JP/2026/02/202602181500DragonsEyeRock.jpg)|
 202602191500|AdamsFirefall|ホーステール滝, 米国 カリフォルニア州 (© Jorge Villalba/Getty Images)|炎の滝が一瞬だけ現れる夕刻|![](/ja-JP/2026/02/202602191500AdamsFirefall.jpg)|
+||||![](/ja-JP/2026/02/.jpg)|

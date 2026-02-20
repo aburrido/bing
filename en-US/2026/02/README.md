@@ -20,3 +20,4 @@
 202602170800|NewYearLantern|Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)|Fifteen days of light|![](/en-US/2026/02/202602170800NewYearLantern.jpg)|
 202602180800|PrzewalskisHorse|Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)|Born to stay wild|![](/en-US/2026/02/202602180800PrzewalskisHorse.jpg)|
 202602190800|DragonsEyeRock|The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)|Where the land stares back|![](/en-US/2026/02/202602190800DragonsEyeRock.jpg)|
+||||![](/en-US/2026/02/.jpg)|

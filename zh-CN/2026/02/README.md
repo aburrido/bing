@@ -20,3 +20,4 @@
 202602171600|PrzewalskisHorse|普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)|生而自由，永不驯服|![](/zh-CN/2026/02/202602171600PrzewalskisHorse.jpg)|
 202602181600|DragonsEyeRock|乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)|大地凝视着我们|![](/zh-CN/2026/02/202602181600DragonsEyeRock.jpg)|
 202602191600|AdamsFirefall|约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)|光照之处|![](/zh-CN/2026/02/202602191600AdamsFirefall.jpg)|
+||||![](/zh-CN/2026/02/.jpg)|
