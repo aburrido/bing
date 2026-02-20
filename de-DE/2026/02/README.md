@@ -21,3 +21,4 @@
 202602182300|DragonsEyeRock|Die Felsformation Dragon’s Eye am Strand von Uttakleiv, Norwegen (© reisegraf/Getty Images)|Im Blick des Drachen|![](/de-DE/2026/02/202602182300DragonsEyeRock.jpg)|
 202602192300|SwanHesse|Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)|Geborgenheit auf dem Wasser|![](/de-DE/2026/02/202602192300SwanHesse.jpg)|
 ||||![](/de-DE/2026/02/.jpg)|
+202602202300|TetonFox|Rotfuchs im Schneefall, Grand‑Teton‑Nationalpark, Wyoming, USA (© Radomir Jakubowski/naturepl.com)|Die Stille des Winters|![](/de-DE/2026/02/202602202300TetonFox.jpg)|

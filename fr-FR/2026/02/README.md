@@ -21,3 +21,4 @@
 202602182300|DragonsEyeRock|Dragon's Eye, formation rocheuse sur la plage d’Uttakleiv, Norvège (© reisegraf/Getty Images)|Un regard hypnotisant|![](/fr-FR/2026/02/202602182300DragonsEyeRock.jpg)|
 202602192300|LemonFestival|Fête du citron de Menton (© tanazura/Shutterstock)|Des citrons par milliers|![](/fr-FR/2026/02/202602192300LemonFestival.jpg)|
 ||||![](/fr-FR/2026/02/.jpg)|
+202602202300|CapraIbex|Le bouquetin des Alpes (© AUSLOOS Henry/hemis.fr/Alamy)|Majesté alpine|![](/fr-FR/2026/02/202602202300CapraIbex.jpg)|
