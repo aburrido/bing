@@ -22,3 +22,4 @@
 202602191830|AdamsFirefall|Horsetail Fall in Yosemite National Park, California, United States (© Jorge Villalba/Getty Images)|Where light falls|![](/en-IN/2026/02/202602191830AdamsFirefall.jpg)|
 ||||![](/en-IN/2026/02/.jpg)|
 202602201830|TetonFox|Red fox standing in snowfall, Grand Teton National Park, Wyoming, United States (© Radomir Jakubowski/naturepl.com)|Whispers of winter|![](/en-IN/2026/02/202602201830TetonFox.jpg)|
+202602211830|MamTorSunrise|The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)|The mother of hills|![](/en-IN/2026/02/202602211830MamTorSunrise.jpg)|
