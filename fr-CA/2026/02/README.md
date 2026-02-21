@@ -22,3 +22,4 @@
 202602190500|DragonsEyeRock|Dragon's Eye, formation rocheuse sur la plage d’Uttakleiv, Norvège (© reisegraf/Getty Images)|Un regard hypnotisant|![](/fr-CA/2026/02/202602190500DragonsEyeRock.jpg)|
 ||||![](/fr-CA/2026/02/.jpg)|
 202602200500|AdamsFirefall|La chute d’Horsetail, Parc national de Yosemite, Californie, États-Unis (© Jorge Villalba/Getty Images)|Quand la neige fond en lave|![](/fr-CA/2026/02/202602200500AdamsFirefall.jpg)|
+202602210500|TetonFox|Un renard sous la neige, Parc national de Grand Teton, Wyoming, États-Unis (© Radomir Jakubowski/naturepl.com)|Empreintes feutrées et pas rusés|![](/fr-CA/2026/02/202602210500TetonFox.jpg)|

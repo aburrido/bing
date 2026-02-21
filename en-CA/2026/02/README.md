@@ -22,3 +22,4 @@
 202602190500|DragonsEyeRock|The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)|Where the land stares back|![](/en-CA/2026/02/202602190500DragonsEyeRock.jpg)|
 ||||![](/en-CA/2026/02/.jpg)|
 202602200500|AdamsFirefall|Horsetail Fall in Yosemite National Park, California, United States (© Jorge Villalba/Getty Images)|Where light falls|![](/en-CA/2026/02/202602200500AdamsFirefall.jpg)|
+202602210500|TetonFox|Red fox standing in snowfall, Grand Teton National Park, Wyoming, United States (© Radomir Jakubowski/naturepl.com)|Whispers of winter|![](/en-CA/2026/02/202602210500TetonFox.jpg)|
