@@ -22,3 +22,4 @@
 202602192300|SwanHesse|Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)|Geborgenheit auf dem Wasser|![](/de-DE/2026/02/202602192300SwanHesse.jpg)|
 ||||![](/de-DE/2026/02/.jpg)|
 202602202300|TetonFox|Rotfuchs im Schneefall, Grand‑Teton‑Nationalpark, Wyoming, USA (© Radomir Jakubowski/naturepl.com)|Die Stille des Winters|![](/de-DE/2026/02/202602202300TetonFox.jpg)|
+202602212300|MamTorSunrise|Mam Tor, Derbyshire, England (© john finney photography/Getty Images)|Die Mutter der Hügel|![](/de-DE/2026/02/202602212300MamTorSunrise.jpg)|
