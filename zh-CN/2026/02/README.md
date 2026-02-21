@@ -22,3 +22,4 @@
 202602191600|AdamsFirefall|约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)|光照之处|![](/zh-CN/2026/02/202602191600AdamsFirefall.jpg)|
 ||||![](/zh-CN/2026/02/.jpg)|
 202602201600|TetonFox|一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)|冬日的低语|![](/zh-CN/2026/02/202602201600TetonFox.jpg)|
+202602211600|MamTorSunrise|马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)|群山的母亲|![](/zh-CN/2026/02/202602211600MamTorSunrise.jpg)|
