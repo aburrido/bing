@@ -23,3 +23,4 @@
 ||||![](/ja-JP/2026/02/.jpg)|
 202602201500|TetonFox|アカギツネ, 米国 ワイオミング州 (© Radomir Jakubowski/naturepl.com)|降り積もる雪の中に生きる凛とした気配|![](/ja-JP/2026/02/202602201500TetonFox.jpg)|
 202602211500|MamTorSunrise|マム・トーの丘, イングランド (© john finney photography/Getty Images)|雪原に広がるなだらかな丘陵|![](/ja-JP/2026/02/202602211500MamTorSunrise.jpg)|
+202602221500|MountFuji2026|富士山, 静岡県 (© Cravetiger/Getty Images)|今日は「富士山の日」|![](/ja-JP/2026/02/202602221500MountFuji2026.jpg)|
