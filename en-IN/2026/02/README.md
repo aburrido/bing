@@ -23,3 +23,4 @@
 ||||![](/en-IN/2026/02/.jpg)|
 202602201830|TetonFox|Red fox standing in snowfall, Grand Teton National Park, Wyoming, United States (© Radomir Jakubowski/naturepl.com)|Whispers of winter|![](/en-IN/2026/02/202602201830TetonFox.jpg)|
 202602211830|MamTorSunrise|The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)|The mother of hills|![](/en-IN/2026/02/202602211830MamTorSunrise.jpg)|
+202602221830|BavariaEgret|Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)|Snowfield monarch|![](/en-IN/2026/02/202602221830BavariaEgret.jpg)|
