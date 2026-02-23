@@ -24,3 +24,4 @@
 202602201600|TetonFox|一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)|冬日的低语|![](/zh-CN/2026/02/202602201600TetonFox.jpg)|
 202602211600|MamTorSunrise|马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)|群山的母亲|![](/zh-CN/2026/02/202602211600MamTorSunrise.jpg)|
 202602221600|BavariaEgret|大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)|雪原之王|![](/zh-CN/2026/02/202602221600BavariaEgret.jpg)|
+202602231600|TulumLilies|大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)|池底的生命律动|![](/zh-CN/2026/02/202602231600TulumLilies.jpg)|
