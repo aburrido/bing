@@ -24,3 +24,4 @@
 202602202300|TetonFox|Rotfuchs im Schneefall, Grand‑Teton‑Nationalpark, Wyoming, USA (© Radomir Jakubowski/naturepl.com)|Die Stille des Winters|![](/de-DE/2026/02/202602202300TetonFox.jpg)|
 202602212300|MamTorSunrise|Mam Tor, Derbyshire, England (© john finney photography/Getty Images)|Die Mutter der Hügel|![](/de-DE/2026/02/202602212300MamTorSunrise.jpg)|
 202602222300|BavariaEgret|Silberreiher, Oberbayern, Deutschland (© Konrad Wothe/naturepl.com)|Winterlicher Wächter|![](/de-DE/2026/02/202602222300BavariaEgret.jpg)|
+202602232300|TulumLilies|Seerosen im Gran Cenote, Tulum, Mexiko (© Christian Vizl/Tandem Stills + Motion)|Der Puls unter der Wasseroberfläche|![](/de-DE/2026/02/202602232300TulumLilies.jpg)|
