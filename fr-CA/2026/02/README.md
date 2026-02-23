@@ -24,3 +24,4 @@
 202602200500|AdamsFirefall|La chute d’Horsetail, Parc national de Yosemite, Californie, États-Unis (© Jorge Villalba/Getty Images)|Quand la neige fond en lave|![](/fr-CA/2026/02/202602200500AdamsFirefall.jpg)|
 202602210500|TetonFox|Un renard sous la neige, Parc national de Grand Teton, Wyoming, États-Unis (© Radomir Jakubowski/naturepl.com)|Empreintes feutrées et pas rusés|![](/fr-CA/2026/02/202602210500TetonFox.jpg)|
 202602220500|MamTorSunrise|Mam Tor, Derbyshire, Angleterre (© john finney photography/Getty Images)|La colline mère|![](/fr-CA/2026/02/202602220500MamTorSunrise.jpg)|
+202602230500|BavariaEgret|La grande aigrette, Haute-Bavière, Allemagne (© Konrad Wothe/naturepl.com)|L’élégance immaculée|![](/fr-CA/2026/02/202602230500BavariaEgret.jpg)|
