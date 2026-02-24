@@ -25,3 +25,4 @@
 202602210800|TetonFox|Red fox standing in snowfall, Grand Teton National Park, Wyoming, United States (© Radomir Jakubowski/naturepl.com)|Info|![](/en-AU/2026/02/202602210800TetonFox.jpg)|
 202602220800|MamTorSunrise|The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)|Info|![](/en-AU/2026/02/202602220800MamTorSunrise.jpg)|
 202602230800|BavariaEgret|Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)|Info|![](/en-AU/2026/02/202602230800BavariaEgret.jpg)|
+202602240800|TulumLilies|Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)|Info|![](/en-AU/2026/02/202602240800TulumLilies.jpg)|
