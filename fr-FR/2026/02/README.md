@@ -25,3 +25,4 @@
 202602212300|MamTorSunrise|Mam Tor, Derbyshire, Angleterre (© john finney photography/Getty Images)|La colline mère|![](/fr-FR/2026/02/202602212300MamTorSunrise.jpg)|
 202602222300|BavariaEgret|La grande aigrette, Haute-Bavière, Allemagne (© Konrad Wothe/naturepl.com)|L’élégance immaculée|![](/fr-FR/2026/02/202602222300BavariaEgret.jpg)|
 202602232300|TulumLilies|Des nénuphars au Gran Cenote, Tulum, Mexique (© Christian Vizl/Tandem Stills + Motion)|Un souffle de vie sous la surface|![](/fr-FR/2026/02/202602232300TulumLilies.jpg)|
+202602242300|MendenhallCave|Grotte de glace du Glacier Mendenhall, Alaska, États-Unis (© Designpics/Adobe Stock)|Au cœur de la glace|![](/fr-FR/2026/02/202602242300MendenhallCave.jpg)|
