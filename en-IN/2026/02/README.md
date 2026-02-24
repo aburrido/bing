@@ -25,3 +25,4 @@
 202602211830|MamTorSunrise|The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)|The mother of hills|![](/en-IN/2026/02/202602211830MamTorSunrise.jpg)|
 202602221830|BavariaEgret|Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)|Snowfield monarch|![](/en-IN/2026/02/202602221830BavariaEgret.jpg)|
 202602231830|TulumLilies|Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)|The pulse beneath the pond|![](/en-IN/2026/02/202602231830TulumLilies.jpg)|
+202602241830|MendenhallCave|Ice cave in the Mendenhall Glacier, Alaska, United States (© Designpics/Adobe Stock)|Ice, lit from within|![](/en-IN/2026/02/202602241830MendenhallCave.jpg)|
