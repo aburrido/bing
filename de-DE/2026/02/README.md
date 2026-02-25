@@ -26,3 +26,4 @@
 202602222300|BavariaEgret|Silberreiher, Oberbayern, Deutschland (© Konrad Wothe/naturepl.com)|Winterlicher Wächter|![](/de-DE/2026/02/202602222300BavariaEgret.jpg)|
 202602232300|TulumLilies|Seerosen im Gran Cenote, Tulum, Mexiko (© Christian Vizl/Tandem Stills + Motion)|Der Puls unter der Wasseroberfläche|![](/de-DE/2026/02/202602232300TulumLilies.jpg)|
 202602242300|MendenhallCave|Eishöhle im Mendenhall‑Gletscher, Alaska, USA (© Designpics/Adobe Stock)|Wenn das Eis leuchtet|![](/de-DE/2026/02/202602242300MendenhallCave.jpg)|
+202602252300|BrockenSunrise|Sonnenaufgang auf dem Brocken, Nationalpark Harz, Sachsen‑Anhalt (© imageBROKER/AVTG/Getty Images)|Wo der Tag erwacht|![](/de-DE/2026/02/202602252300BrockenSunrise.jpg)|
