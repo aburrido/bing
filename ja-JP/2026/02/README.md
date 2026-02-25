@@ -26,3 +26,4 @@
 202602221500|MountFuji2026|富士山, 静岡県 (© Cravetiger/Getty Images)|今日は「富士山の日」|![](/ja-JP/2026/02/202602221500MountFuji2026.jpg)|
 202602231500|TulumLilies|スイレン, メキシコ (© Christian Vizl/Tandem Stills + Motion)|自然の鏡に映る色とりどりの葉|![](/ja-JP/2026/02/202602231500TulumLilies.jpg)|
 202602241500|MendenhallCave|メンデンホール氷河の氷の洞窟, 米国 アラスカ州 (© Designpics/Adobe Stock)|泡のような天井が広がるアイスケーブ|![](/ja-JP/2026/02/202602241500MendenhallCave.jpg)|
+202602251500|GrandSunset|グランドキャニオン国立公園, 米国 アリゾナ州 (© Matt Anderson Photography/Getty Images)|今日は米国グランドキャニオン国立公園の記念日|![](/ja-JP/2026/02/202602251500GrandSunset.jpg)|
