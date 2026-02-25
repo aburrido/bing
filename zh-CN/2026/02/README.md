@@ -26,3 +26,4 @@
 202602221600|BavariaEgret|大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)|雪原之王|![](/zh-CN/2026/02/202602221600BavariaEgret.jpg)|
 202602231600|TulumLilies|大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)|池底的生命律动|![](/zh-CN/2026/02/202602231600TulumLilies.jpg)|
 202602241600|MendenhallCave|门登霍尔冰川的冰洞，阿拉斯加州，美国 (© Designpics/Adobe Stock)|冰，由内而外透出光芒|![](/zh-CN/2026/02/202602241600MendenhallCave.jpg)|
+202602251600|GrandSunset|大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)|一幅壮丽的景象|![](/zh-CN/2026/02/202602251600GrandSunset.jpg)|
