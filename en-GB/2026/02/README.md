@@ -26,3 +26,4 @@
 202602230000|BavariaEgret|Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)|Snowfield monarch|![](/en-GB/2026/02/202602230000BavariaEgret.jpg)|
 202602240000|TulumLilies|Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)|The pulse beneath the pond|![](/en-GB/2026/02/202602240000TulumLilies.jpg)|
 202602250000|MendenhallCave|Ice cave in the Mendenhall Glacier, Alaska, United States (© Designpics/Adobe Stock)|Ice, lit from within|![](/en-GB/2026/02/202602250000MendenhallCave.jpg)|
+202602260000|GrandSunset|Grand Canyon and the Colorado River, Arizona, United States (© Matt Anderson Photography/Getty Images)|One grand view|![](/en-GB/2026/02/202602260000GrandSunset.jpg)|
