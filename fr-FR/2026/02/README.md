@@ -28,3 +28,4 @@
 202602242300|MendenhallCave|Grotte de glace du Glacier Mendenhall, Alaska, États-Unis (© Designpics/Adobe Stock)|Au cœur de la glace|![](/fr-FR/2026/02/202602242300MendenhallCave.jpg)|
 202602252300|GrandSunset|Le Grand Canyon et le fleuve Colorado, Arizona, États-Unis (© Matt Anderson Photography/Getty Images)|Une vue dont on ne se lasse pas|![](/fr-FR/2026/02/202602252300GrandSunset.jpg)|
 202602262300|ArcitcCub|Ours polaire sur la banquise, Refuge Faunique National de l’Arctique, Alaska, États-Unis (© Steven Kazlowski/naturepl.com)|La vie sur une banquise toujours plus fine|![](/fr-FR/2026/02/202602262300ArcitcCub.jpg)|
+202602272300|OloupenaFalls|Les chutes d’Olo'upena, Île de Moloka'i, Hawaï, États-Unis (© Andrew Aylett/Getty Images)|L’union entre nature et communauté|![](/fr-FR/2026/02/202602272300OloupenaFalls.jpg)|
