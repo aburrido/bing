@@ -28,3 +28,4 @@
 202602240800|TulumLilies|Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)|Info|![](/en-AU/2026/02/202602240800TulumLilies.jpg)|
 202602250800|MendenhallCave|Ice cave in the Mendenhall Glacier, Alaska, United States (© Designpics/Adobe Stock)|Info|![](/en-AU/2026/02/202602250800MendenhallCave.jpg)|
 202602260800|GrandSunset|Grand Canyon and the Colorado River, Arizona, United States (© Matt Anderson Photography/Getty Images)|Info|![](/en-AU/2026/02/202602260800GrandSunset.jpg)|
+202602270800|ArcitcCub|Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska, United States (© Steven Kazlowski/naturepl.com)|Info|![](/en-AU/2026/02/202602270800ArcitcCub.jpg)|
