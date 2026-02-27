@@ -28,3 +28,4 @@
 202602241600|MendenhallCave|门登霍尔冰川的冰洞，阿拉斯加州，美国 (© Designpics/Adobe Stock)|冰，由内而外透出光芒|![](/zh-CN/2026/02/202602241600MendenhallCave.jpg)|
 202602251600|GrandSunset|大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)|一幅壮丽的景象|![](/zh-CN/2026/02/202602251600GrandSunset.jpg)|
 202602261600|ArcitcCub|北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国 (© Steven Kazlowski/naturepl.com)|薄冰上的生活|![](/zh-CN/2026/02/202602261600ArcitcCub.jpg)|
+202602271600|OloupenaFalls|奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国 (© Andrew Aylett/Getty Images)|洋溢着社区氛围|![](/zh-CN/2026/02/202602271600OloupenaFalls.jpg)|
