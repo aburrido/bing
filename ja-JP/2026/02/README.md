@@ -28,3 +28,4 @@
 202602241500|MendenhallCave|メンデンホール氷河の氷の洞窟, 米国 アラスカ州 (© Designpics/Adobe Stock)|泡のような天井が広がるアイスケーブ|![](/ja-JP/2026/02/202602241500MendenhallCave.jpg)|
 202602251500|GrandSunset|グランドキャニオン国立公園, 米国 アリゾナ州 (© Matt Anderson Photography/Getty Images)|今日は米国グランドキャニオン国立公園の記念日|![](/ja-JP/2026/02/202602251500GrandSunset.jpg)|
 202602261500|ArcitcCub|ホッキョクグマの子, 米国 アラスカ州 (© Steven Kazlowski/naturepl.com)|今日は国際ホッキョクグマの日|![](/ja-JP/2026/02/202602261500ArcitcCub.jpg)|
+202602271500|OloupenaFalls|オロウペナ滝, 米国 ハワイ州 (© Andrew Aylett/Getty Images)|緑の断崖絶壁から流れ落ちる白糸|![](/ja-JP/2026/02/202602271500OloupenaFalls.jpg)|
