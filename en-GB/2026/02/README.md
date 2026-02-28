@@ -28,3 +28,4 @@
 202602250000|MendenhallCave|Ice cave in the Mendenhall Glacier, Alaska, United States (© Designpics/Adobe Stock)|Ice, lit from within|![](/en-GB/2026/02/202602250000MendenhallCave.jpg)|
 202602260000|GrandSunset|Grand Canyon and the Colorado River, Arizona, United States (© Matt Anderson Photography/Getty Images)|One grand view|![](/en-GB/2026/02/202602260000GrandSunset.jpg)|
 202602270000|ArcitcCub|Polar bear cub, Arctic National Wildlife Refuge, Alaska, United States (© Steven Kazlowski/naturepl.com)|Life on thinning ice|![](/en-GB/2026/02/202602270000ArcitcCub.jpg)|
+202602280000|OloupenaFalls|Olo'upena Falls, island of Moloka'i, Hawaii, United States (© Andrew Aylett/Getty Images)|Overflowing with community|![](/en-GB/2026/02/202602280000OloupenaFalls.jpg)|
