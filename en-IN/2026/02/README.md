@@ -29,3 +29,4 @@
 202602251830|GrandSunset|Grand Canyon and the Colorado River, Arizona, United States (© Matt Anderson Photography/Getty Images)|One grand view|![](/en-IN/2026/02/202602251830GrandSunset.jpg)|
 202602261830|ArcitcCub|Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska, United States (© Steven Kazlowski/naturepl.com)|Life on thinning ice|![](/en-IN/2026/02/202602261830ArcitcCub.jpg)|
 202602271830|OloupenaFalls|Olo'upena Falls, island of Moloka'i, Hawaii, United States (© Andrew Aylett/Getty Images)|Overflowing with community|![](/en-IN/2026/02/202602271830OloupenaFalls.jpg)|
+202602281830|BabyElephant|African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)|Ambassadors of cuteness|![](/en-IN/2026/02/202602281830BabyElephant.jpg)|
