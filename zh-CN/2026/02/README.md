@@ -29,3 +29,4 @@
 202602251600|GrandSunset|大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)|一幅壮丽的景象|![](/zh-CN/2026/02/202602251600GrandSunset.jpg)|
 202602261600|ArcitcCub|北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国 (© Steven Kazlowski/naturepl.com)|薄冰上的生活|![](/zh-CN/2026/02/202602261600ArcitcCub.jpg)|
 202602271600|OloupenaFalls|奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国 (© Andrew Aylett/Getty Images)|洋溢着社区氛围|![](/zh-CN/2026/02/202602271600OloupenaFalls.jpg)|
+202602281600|BalearesDay|伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)|每一步，都是传承|![](/zh-CN/2026/02/202602281600BalearesDay.jpg)|
