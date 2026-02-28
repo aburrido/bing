@@ -29,3 +29,4 @@
 202602252300|BrockenSunrise|Sonnenaufgang auf dem Brocken, Nationalpark Harz, Sachsen‑Anhalt (© imageBROKER/AVTG/Getty Images)|Wo der Tag erwacht|![](/de-DE/2026/02/202602252300BrockenSunrise.jpg)|
 202602262300|ArcitcCub|Eisbärenjunges läuft über Packeis im Arctic National Wildlife Refuge, Alaska, USA (© Steven Kazlowski/naturepl.com)|Leben auf schwindendem Eis|![](/de-DE/2026/02/202602262300ArcitcCub.jpg)|
 202602272300|OloupenaFalls|Oloʻupena‑Wasserfälle an der Nordküste der Insel Molokaʻi, Hawaii, USA (© Andrew Aylett/Getty Images)|Höhen über dem Pazifik|![](/de-DE/2026/02/202602272300OloupenaFalls.jpg)|
+202602282300|BalearesDay|Ibiza, Balearische Inseln, Spanien (© tokar/Shutterstock)|Im Licht der Balearen|![](/de-DE/2026/02/202602282300BalearesDay.jpg)|
