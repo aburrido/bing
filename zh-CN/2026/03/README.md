@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202602281600|BalearesDay|伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)|每一步，都是传承|![](/zh-CN/2026/03/202602281600BalearesDay.jpg)|
 202603011600|SamuiThailand|苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)|漂浮的传承|![](/zh-CN/2026/03/202603011600SamuiThailand.jpg)|
+202603021600|LanternFestivalY26|元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国 (© Grisha Bruev/Shutterstock)|花灯映月，团圆吉祥|![](/zh-CN/2026/03/202603021600LanternFestivalY26.jpg)|
