@@ -4,3 +4,4 @@
 202603011830|SamuiThailand|Harbour and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)|Floating legacies|![](/en-IN/2026/03/202603011830SamuiThailand.jpg)|
 202603021830|RJINHoli|Group of people playing Holi in Rajasthan (© Bartosz Hadyniak/Getty Images)|Powered by Gulal|![](/en-IN/2026/03/202603021830RJINHoli.jpg)|
 202603031830|RilaCrocuses|Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)|Crocuses in the spotlight|![](/en-IN/2026/03/202603031830RilaCrocuses.jpg)|
+202603041830|GoremeTwilight|Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)|Ancient rocks, modern lights|![](/en-IN/2026/03/202603041830GoremeTwilight.jpg)|
