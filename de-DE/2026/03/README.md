@@ -5,3 +5,4 @@
 202603022300|BabyElephant|Afrikanisches Elefantenkalb mit Mutter im Masai‑Mara‑Nationalreservat, Kenia (© Denis-Huot/naturepl.com)|Hüter der Wildnis|![](/de-DE/2026/03/202603022300BabyElephant.jpg)|
 202603032300|RilaCrocuses|Violette Krokusse an den Sieben Rila‑Seen, Bulgarien (© Maya Karkalicheva/Getty Images)|Krokusse im Rampenlicht|![](/de-DE/2026/03/202603032300RilaCrocuses.jpg)|
 202603042300|GoremeTwilight|Abendstimmung über Göreme, Kappadokien, Türkei (© ONNAJA/Getty Images)|Wo Felsen Geschichten erzählen|![](/de-DE/2026/03/202603042300GoremeTwilight.jpg)|
+202603052300|WaveDenmark|Das Wohngebäude Bølgen „The Wave“ in Vejle, Dänemark (© Frank Bach/Alamy)|Wellen aus Beton|![](/de-DE/2026/03/202603052300WaveDenmark.jpg)|
