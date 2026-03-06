@@ -6,3 +6,4 @@
 202603031600|RilaCrocuses|紫番红花, 里拉七湖, 保加利亚 (© Maya Karkalicheva/Getty Images)|聚光灯下的番红花|![](/zh-CN/2026/03/202603031600RilaCrocuses.jpg)|
 202603041600|GoremeTwilight|格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)|古老岩石，现代灯光|![](/zh-CN/2026/03/202603041600GoremeTwilight.jpg)|
 202603051600|WaveDenmark|波浪住宅楼, 瓦埃勒, 丹麦 (© Frank Bach/Alamy)|混凝土中铸造的波浪|![](/zh-CN/2026/03/202603051600WaveDenmark.jpg)|
+202603061600|BrockenSunrise|布罗肯峰的日出, 哈尔茨国家公园, 德国 (© imageBROKER/AVTG/Getty Images)|治愈、宁静且充满希望|![](/zh-CN/2026/03/202603061600BrockenSunrise.jpg)|
