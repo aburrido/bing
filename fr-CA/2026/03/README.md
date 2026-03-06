@@ -6,3 +6,4 @@
 202603030500|BabyElephant|Bébé éléphant jouant avec sa mère, Réserve nationale du Masai Mara, Kenya (© Denis-Huot/naturepl.com)|Gardiens de la faune sauvage|![](/fr-CA/2026/03/202603030500BabyElephant.jpg)|
 202603040500|RilaCrocuses|Crocus en fleur, Sept Lacs de Rila, Bulgarie (© Maya Karkalicheva/Getty Images)|Lumière sur les crocus|![](/fr-CA/2026/03/202603040500RilaCrocuses.jpg)|
 202603050500|GoremeTwilight|Göreme le soir, Cappadoce, Turquie (© ONNAJA/Getty Images)|Roche antique et lumières modernes|![](/fr-CA/2026/03/202603050500GoremeTwilight.jpg)|
+202603060500|WaveDenmark|Projet résidentiel The Wave, Vejle, Danemark (© Frank Bach/Alamy)|Des vagues en béton|![](/fr-CA/2026/03/202603060500WaveDenmark.jpg)|

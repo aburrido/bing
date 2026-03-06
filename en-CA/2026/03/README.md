@@ -6,3 +6,4 @@
 202603030500|BabyElephant|African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)|Guardians of the wild|![](/en-CA/2026/03/202603030500BabyElephant.jpg)|
 202603040500|RilaCrocuses|Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)|Crocuses in the spotlight|![](/en-CA/2026/03/202603040500RilaCrocuses.jpg)|
 202603050500|GoremeTwilight|Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)|Ancient rocks, modern lights|![](/en-CA/2026/03/202603050500GoremeTwilight.jpg)|
+202603060500|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Waves cast in concrete|![](/en-CA/2026/03/202603060500WaveDenmark.jpg)|
