@@ -6,3 +6,4 @@
 202603031500|RilaCrocuses|紫クロッカス, ブルガリア (© Maya Karkalicheva/Getty Images)|残雪の山に咲く紫の小さな花|![](/ja-JP/2026/03/202603031500RilaCrocuses.jpg)|
 202603041500|GoremeTwilight|ギョレメ国立公園, トルコ (© ONNAJA/Getty Images)|奇岩の谷に広がる幻想的な夜景|![](/ja-JP/2026/03/202603041500GoremeTwilight.jpg)|
 202603051500|WaveDenmark|集合住宅「ザ・ウェイブ」, デンマーク (© Frank Bach/Alamy)|水辺に波打つ集合住宅|![](/ja-JP/2026/03/202603051500WaveDenmark.jpg)|
+202603061500|BrockenSunrise|ブロッケン山, ドイツ (© imageBROKER/AVTG/Getty Images)|日の出の霧に包まれる岩場|![](/ja-JP/2026/03/202603061500BrockenSunrise.jpg)|
