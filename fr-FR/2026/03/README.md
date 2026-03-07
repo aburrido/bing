@@ -7,3 +7,4 @@
 202603042300|GoremeTwilight|Göreme le soir, Cappadoce, Turquie (© ONNAJA/Getty Images)|Roche antique et lumières modernes|![](/fr-FR/2026/03/202603042300GoremeTwilight.jpg)|
 202603052300|WaveDenmark|Projet résidentiel The Wave, Vejle, Danemark (© Frank Bach/Alamy)|Des vagues en béton|![](/fr-FR/2026/03/202603052300WaveDenmark.jpg)|
 202603062300|LacGentau|Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)|Une journée pour déconnecter|![](/fr-FR/2026/03/202603062300LacGentau.jpg)|
+202603072300|BirdCormorant|Jeune cormoran (© GiovanniCaruso/GettyImages)|Un plongeur habile|![](/fr-FR/2026/03/202603072300BirdCormorant.jpg)|

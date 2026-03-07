@@ -7,3 +7,4 @@
 202603042300|GoremeTwilight|Abendstimmung über Göreme, Kappadokien, Türkei (© ONNAJA/Getty Images)|Wo Felsen Geschichten erzählen|![](/de-DE/2026/03/202603042300GoremeTwilight.jpg)|
 202603052300|WaveDenmark|Das Wohngebäude Bølgen „The Wave“ in Vejle, Dänemark (© Frank Bach/Alamy)|Wellen aus Beton|![](/de-DE/2026/03/202603052300WaveDenmark.jpg)|
 202603062300|PacificRimNP|Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)|Zwischen Wald und Wellen|![](/de-DE/2026/03/202603062300PacificRimNP.jpg)|
+202603072300|StuttgartSchlossplatz|Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)|Ein Platz mit Geschichte|![](/de-DE/2026/03/202603072300StuttgartSchlossplatz.jpg)|
