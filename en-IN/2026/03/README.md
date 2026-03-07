@@ -7,3 +7,4 @@
 202603041830|GoremeTwilight|Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)|Ancient rocks, modern lights|![](/en-IN/2026/03/202603041830GoremeTwilight.jpg)|
 202603051830|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Waves cast in concrete|![](/en-IN/2026/03/202603051830WaveDenmark.jpg)|
 202603061830|MontereyHumpbacks|Humpback whales, Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)|Songs beneath the waves|![](/en-IN/2026/03/202603061830MontereyHumpbacks.jpg)|
+202603071830|AkbarAgra|Akbar's tomb, Agra, Uttar Pradesh (© zeelichsheng/Shutterstock)|Geometry of glory|![](/en-IN/2026/03/202603071830AkbarAgra.jpg)|
