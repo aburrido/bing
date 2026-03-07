@@ -7,3 +7,4 @@
 202603040500|RilaCrocuses|Crocus en fleur, Sept Lacs de Rila, Bulgarie (© Maya Karkalicheva/Getty Images)|Lumière sur les crocus|![](/fr-CA/2026/03/202603040500RilaCrocuses.jpg)|
 202603050500|GoremeTwilight|Göreme le soir, Cappadoce, Turquie (© ONNAJA/Getty Images)|Roche antique et lumières modernes|![](/fr-CA/2026/03/202603050500GoremeTwilight.jpg)|
 202603060500|WaveDenmark|Projet résidentiel The Wave, Vejle, Danemark (© Frank Bach/Alamy)|Des vagues en béton|![](/fr-CA/2026/03/202603060500WaveDenmark.jpg)|
+202603070500|BrockenSunrise|Lever du soleil sur le Brocken, Parc national du Harz, Allemagne (© imageBROKER/AVTG/Getty Images)|Un halo légendaire|![](/fr-CA/2026/03/202603070500BrockenSunrise.jpg)|

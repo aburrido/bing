@@ -7,3 +7,4 @@
 202603040500|RilaCrocuses|Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)|Crocuses in the spotlight|![](/en-CA/2026/03/202603040500RilaCrocuses.jpg)|
 202603050500|GoremeTwilight|Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)|Ancient rocks, modern lights|![](/en-CA/2026/03/202603050500GoremeTwilight.jpg)|
 202603060500|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Waves cast in concrete|![](/en-CA/2026/03/202603060500WaveDenmark.jpg)|
+202603070500|BrockenSunrise|Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)|A legendary sunrise|![](/en-CA/2026/03/202603070500BrockenSunrise.jpg)|
