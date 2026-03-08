@@ -8,3 +8,4 @@
 202603050500|GoremeTwilight|Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)|Ancient rocks, modern lights|![](/en-CA/2026/03/202603050500GoremeTwilight.jpg)|
 202603060500|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Waves cast in concrete|![](/en-CA/2026/03/202603060500WaveDenmark.jpg)|
 202603070500|BrockenSunrise|Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)|A legendary sunrise|![](/en-CA/2026/03/202603070500BrockenSunrise.jpg)|
+202603080500|UlmClock|Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)|The art of saving daylight|![](/en-CA/2026/03/202603080500UlmClock.jpg)|
