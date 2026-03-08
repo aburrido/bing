@@ -8,3 +8,4 @@
 202603050800|GoremeTwilight|Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)|Info|![](/en-AU/2026/03/202603050800GoremeTwilight.jpg)|
 202603060800|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Info|![](/en-AU/2026/03/202603060800WaveDenmark.jpg)|
 202603070800|OwlonGuard|Snowy owl near the Canadian Rockies, Canada (© www.harshadventure.com/Getty Images)|Info|![](/en-AU/2026/03/202603070800OwlonGuard.jpg)|
+202603080800|BrockenSunrise|Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)|Info|![](/en-AU/2026/03/202603080800BrockenSunrise.jpg)|
