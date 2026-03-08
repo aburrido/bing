@@ -8,3 +8,4 @@
 202603051830|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Waves cast in concrete|![](/en-IN/2026/03/202603051830WaveDenmark.jpg)|
 202603061830|MontereyHumpbacks|Humpback whales, Monterey Bay, California, United States (© Kiliii Fish/Cavan Images)|Songs beneath the waves|![](/en-IN/2026/03/202603061830MontereyHumpbacks.jpg)|
 202603071830|AkbarAgra|Akbar's tomb, Agra, Uttar Pradesh (© zeelichsheng/Shutterstock)|Geometry of glory|![](/en-IN/2026/03/202603071830AkbarAgra.jpg)|
+202603081830|NappingSeal|Grey seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)|A perfectly timed nap|![](/en-IN/2026/03/202603081830NappingSeal.jpg)|
