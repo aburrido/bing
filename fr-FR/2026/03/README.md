@@ -9,3 +9,4 @@
 202603062300|LacGentau|Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)|Une journée pour déconnecter|![](/fr-FR/2026/03/202603062300LacGentau.jpg)|
 202603072300|BirdCormorant|Jeune cormoran (© GiovanniCaruso/GettyImages)|Un plongeur habile|![](/fr-FR/2026/03/202603072300BirdCormorant.jpg)|
 202603082300|NappingSeal|Phoque gris endormi sur la plage, Îles Orcades, Écosse (© Andrew Mason/Minden Pictures)|Une petite sieste et ça repart !|![](/fr-FR/2026/03/202603082300NappingSeal.jpg)|
+202603092300|SpringIceland|Source chaude de Bláhver, Hveravellir, Islande (© Juan Maria Coy Vergara/Getty Images)|Le feu sous la glace|![](/fr-FR/2026/03/202603092300SpringIceland.jpg)|
