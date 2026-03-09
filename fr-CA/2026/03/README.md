@@ -9,3 +9,4 @@
 202603060500|WaveDenmark|Projet résidentiel The Wave, Vejle, Danemark (© Frank Bach/Alamy)|Des vagues en béton|![](/fr-CA/2026/03/202603060500WaveDenmark.jpg)|
 202603070500|BrockenSunrise|Lever du soleil sur le Brocken, Parc national du Harz, Allemagne (© imageBROKER/AVTG/Getty Images)|Un halo légendaire|![](/fr-CA/2026/03/202603070500BrockenSunrise.jpg)|
 202603080500|UlmClock|Horloge astronomique, Mairie d’Ulm, Allemagne (© Tomekbudujedomek/Getty Images)|L’art de changer d’heure|![](/fr-CA/2026/03/202603080500UlmClock.jpg)|
+202603090400|NappingSeal|Phoque gris endormi sur la plage, Îles Orcades, Écosse (© Andrew Mason/Minden Pictures)|Une petite sieste et ça repart !|![](/fr-CA/2026/03/202603090400NappingSeal.jpg)|
