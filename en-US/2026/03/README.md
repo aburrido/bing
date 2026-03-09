@@ -9,3 +9,4 @@
 202603060800|WaveDenmark|The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)|Waves cast in concrete|![](/en-US/2026/03/202603060800WaveDenmark.jpg)|
 202603070800|BrockenSunrise|Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)|A legendary sunrise|![](/en-US/2026/03/202603070800BrockenSunrise.jpg)|
 202603080700|UlmClock|Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)|The art of saving daylight|![](/en-US/2026/03/202603080700UlmClock.jpg)|
+202603090700|NappingSeal|Gray seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)|A perfectly timed nap|![](/en-US/2026/03/202603090700NappingSeal.jpg)|
