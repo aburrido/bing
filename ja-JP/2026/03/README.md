@@ -9,3 +9,4 @@
 202603061500|BrockenSunrise|ブロッケン山, ドイツ (© imageBROKER/AVTG/Getty Images)|日の出の霧に包まれる岩場|![](/ja-JP/2026/03/202603061500BrockenSunrise.jpg)|
 202603071500|UlmClock|ウルム市庁舎の天文時計, ドイツ (© Tomekbudujedomek/Getty Images)|米国は今日から夏時間|![](/ja-JP/2026/03/202603071500UlmClock.jpg)|
 202603081500|NappingSeal|アザラシ, スコットランド (© Andrew Mason/Minden Pictures)|今日は米国の全国昼寝の日|![](/ja-JP/2026/03/202603081500NappingSeal.jpg)|
+202603091500|SpringIceland|クヴェラヴェトリル地熱地帯の地熱プール, アイスランド (© Juan Maria Coy Vergara/Getty Images)|神秘的な青を湛える地熱のプール|![](/ja-JP/2026/03/202603091500SpringIceland.jpg)|
