@@ -10,3 +10,4 @@
 202603070500|BrockenSunrise|Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)|A legendary sunrise|![](/en-CA/2026/03/202603070500BrockenSunrise.jpg)|
 202603080500|UlmClock|Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)|The art of saving daylight|![](/en-CA/2026/03/202603080500UlmClock.jpg)|
 202603090400|NappingSeal|Grey seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)|A perfectly timed nap|![](/en-CA/2026/03/202603090400NappingSeal.jpg)|
+202603100400|SpringIceland|Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)|Fire under frost|![](/en-CA/2026/03/202603100400SpringIceland.jpg)|
