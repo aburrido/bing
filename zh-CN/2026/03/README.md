@@ -10,3 +10,4 @@
 202603071600|UlmClock|乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)|节约日光的艺术|![](/zh-CN/2026/03/202603071600UlmClock.jpg)|
 202603081600|NappingSeal|在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰 (© Andrew Mason/Minden Pictures)|一次恰到好处的午睡|![](/zh-CN/2026/03/202603081600NappingSeal.jpg)|
 202603091600|SpringIceland|赫韦拉韦利尔的布拉赫维尔地热池, 冰岛 (© Juan Maria Coy Vergara/Getty Images)|霜下之火|![](/zh-CN/2026/03/202603091600SpringIceland.jpg)|
+202603101600|PeachBloom|盛开的桃树, 谢萨, 穆尔西亚, 西班牙 (© Juan Maria Coy Vergara/Getty Images)|一个美好的春天|![](/zh-CN/2026/03/202603101600PeachBloom.jpg)|
