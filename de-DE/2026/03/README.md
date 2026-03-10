@@ -10,3 +10,4 @@
 202603072300|StuttgartSchlossplatz|Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)|Ein Platz mit Geschichte|![](/de-DE/2026/03/202603072300StuttgartSchlossplatz.jpg)|
 202603082300|NappingSeal|Schlafende Kegelrobbe am Strand, Orkneyinseln, Schottland (© Andrew Mason/Minden Pictures)|Ein Moment der Ruhe|![](/de-DE/2026/03/202603082300NappingSeal.jpg)|
 202603092300|SpringIceland|Geothermisches Becken Bláhver in Hveravellir, Island (© Juan Maria Coy Vergara/Getty Images)|Wärme unter Eis|![](/de-DE/2026/03/202603092300SpringIceland.jpg)|
+202603102300|PeachBloom|Pfirsichblüte in Cieza, Murcia, Spanien (© Juan Maria Coy Vergara/Getty Images)|Frühlingsgruß in Rosa|![](/de-DE/2026/03/202603102300PeachBloom.jpg)|
