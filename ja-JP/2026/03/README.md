@@ -11,3 +11,4 @@
 202603081500|NappingSeal|アザラシ, スコットランド (© Andrew Mason/Minden Pictures)|今日は米国の全国昼寝の日|![](/ja-JP/2026/03/202603081500NappingSeal.jpg)|
 202603091500|SpringIceland|クヴェラヴェトリル地熱地帯の地熱プール, アイスランド (© Juan Maria Coy Vergara/Getty Images)|神秘的な青を湛える地熱のプール|![](/ja-JP/2026/03/202603091500SpringIceland.jpg)|
 202603101500|TohokuEarthquakeMemorial2026|復興の願いが書かれた灯籠, 宮城県 名取市 (© NurPhoto/Getty Images)|東日本大震災から15年|![](/ja-JP/2026/03/202603101500TohokuEarthquakeMemorial2026.jpg)|
+202603111500|TodaijiTempleOmizutori2026|東大寺, 奈良県 奈良市 (© Sean Pavone/Alamy)|今日は東大寺のお水取り|![](/ja-JP/2026/03/202603111500TodaijiTempleOmizutori2026.jpg)|
