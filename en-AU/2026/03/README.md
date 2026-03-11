@@ -11,3 +11,4 @@
 202603080800|BrockenSunrise|Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)|Info|![](/en-AU/2026/03/202603080800BrockenSunrise.jpg)|
 202603090700|NappingSeal|Grey seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)|Info|![](/en-AU/2026/03/202603090700NappingSeal.jpg)|
 202603100700|SpringIceland|Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)|Info|![](/en-AU/2026/03/202603100700SpringIceland.jpg)|
+202603110700|PeachBloom|Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)|Info|![](/en-AU/2026/03/202603110700PeachBloom.jpg)|
