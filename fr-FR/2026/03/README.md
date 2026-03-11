@@ -11,3 +11,4 @@
 202603082300|NappingSeal|Phoque gris endormi sur la plage, Îles Orcades, Écosse (© Andrew Mason/Minden Pictures)|Une petite sieste et ça repart !|![](/fr-FR/2026/03/202603082300NappingSeal.jpg)|
 202603092300|SpringIceland|Source chaude de Bláhver, Hveravellir, Islande (© Juan Maria Coy Vergara/Getty Images)|Le feu sous la glace|![](/fr-FR/2026/03/202603092300SpringIceland.jpg)|
 202603102300|PeachBloom|Pêchers en fleur, Cieza, Murcie, Espagne (© Juan Maria Coy Vergara/Getty Images)|Un printemps de rose vêtu|![](/fr-FR/2026/03/202603102300PeachBloom.jpg)|
+202603112300|SunbitternEcuador|Caurale soleil faisant sa parade nuptiale, Équateur (© Andy Rouse/naturepl.com)|Une parade haute en couleurs|![](/fr-FR/2026/03/202603112300SunbitternEcuador.jpg)|
