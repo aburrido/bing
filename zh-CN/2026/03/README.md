@@ -11,3 +11,4 @@
 202603081600|NappingSeal|在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰 (© Andrew Mason/Minden Pictures)|一次恰到好处的午睡|![](/zh-CN/2026/03/202603081600NappingSeal.jpg)|
 202603091600|SpringIceland|赫韦拉韦利尔的布拉赫维尔地热池, 冰岛 (© Juan Maria Coy Vergara/Getty Images)|霜下之火|![](/zh-CN/2026/03/202603091600SpringIceland.jpg)|
 202603101600|PeachBloom|盛开的桃树, 谢萨, 穆尔西亚, 西班牙 (© Juan Maria Coy Vergara/Getty Images)|一个美好的春天|![](/zh-CN/2026/03/202603101600PeachBloom.jpg)|
+202603111600|SunbitternEcuador|幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔 (© Andy Rouse/naturepl.com)|排练中的翅膀|![](/zh-CN/2026/03/202603111600SunbitternEcuador.jpg)|
