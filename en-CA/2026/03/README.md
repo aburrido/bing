@@ -12,3 +12,4 @@
 202603090400|NappingSeal|Grey seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)|A perfectly timed nap|![](/en-CA/2026/03/202603090400NappingSeal.jpg)|
 202603100400|SpringIceland|Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)|Fire under frost|![](/en-CA/2026/03/202603100400SpringIceland.jpg)|
 202603110400|PeachBloom|Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)|A peachy keen spring|![](/en-CA/2026/03/202603110400PeachBloom.jpg)|
+202603120400|SunbitternEcuador|Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)|Wings in rehearsal|![](/en-CA/2026/03/202603120400SunbitternEcuador.jpg)|
