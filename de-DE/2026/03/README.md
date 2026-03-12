@@ -12,3 +12,4 @@
 202603092300|SpringIceland|Geothermisches Becken Bláhver in Hveravellir, Island (© Juan Maria Coy Vergara/Getty Images)|Wärme unter Eis|![](/de-DE/2026/03/202603092300SpringIceland.jpg)|
 202603102300|PeachBloom|Pfirsichblüte in Cieza, Murcia, Spanien (© Juan Maria Coy Vergara/Getty Images)|Frühlingsgruß in Rosa|![](/de-DE/2026/03/202603102300PeachBloom.jpg)|
 202603112300|SunbitternEcuador|Junger Sonnenralle beim Flügelspreizen am Nest, Ecuador (© Andy Rouse/naturepl.com)|Farbsignal im Wald|![](/de-DE/2026/03/202603112300SunbitternEcuador.jpg)|
+202603122300|VendeeVaults|Gewölbe der Kirche Notre‑Dame‑de‑Bon‑Port, Les Sables‑d’Olonne, Frankreich (© Helmut Meyer zur Capellen/Alamy)|Ein stilles Meisterwerk aus Stein|![](/de-DE/2026/03/202603122300VendeeVaults.jpg)|
