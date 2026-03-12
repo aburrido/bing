@@ -12,3 +12,4 @@
 202603091830|SpringIceland|Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)|Fire under frost|![](/en-IN/2026/03/202603091830SpringIceland.jpg)|
 202603101830|PeachBloom|Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)|A peachy keen spring|![](/en-IN/2026/03/202603101830PeachBloom.jpg)|
 202603111830|SunbitternEcuador|Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)|Wings in rehearsal|![](/en-IN/2026/03/202603111830SunbitternEcuador.jpg)|
+202603121830|VendeeVaults|Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)|A quiet masterpiece in stone|![](/en-IN/2026/03/202603121830VendeeVaults.jpg)|
