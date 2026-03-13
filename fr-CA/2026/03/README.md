@@ -13,3 +13,4 @@
 202603100400|SpringIceland|Source chaude de Bláhver, Hveravellir, Islande (© Juan Maria Coy Vergara/Getty Images)|Le feu sous la glace|![](/fr-CA/2026/03/202603100400SpringIceland.jpg)|
 202603110400|PeachBloom|Pêchers en fleur, Cieza, Murcie, Espagne (© Juan Maria Coy Vergara/Getty Images)|Un printemps de rose vêtu|![](/fr-CA/2026/03/202603110400PeachBloom.jpg)|
 202603120400|SunbitternEcuador|Caurale soleil faisant sa parade nuptiale, Équateur (© Andy Rouse/naturepl.com)|Une parade haute en couleurs|![](/fr-CA/2026/03/202603120400SunbitternEcuador.jpg)|
+202603130400|VendeeVaults|Voûtes de Notre-Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)|Une œuvre d’art en pierre|![](/fr-CA/2026/03/202603130400VendeeVaults.jpg)|
