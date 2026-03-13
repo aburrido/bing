@@ -13,3 +13,4 @@
 202603101830|PeachBloom|Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)|A peachy keen spring|![](/en-IN/2026/03/202603101830PeachBloom.jpg)|
 202603111830|SunbitternEcuador|Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)|Wings in rehearsal|![](/en-IN/2026/03/202603111830SunbitternEcuador.jpg)|
 202603121830|VendeeVaults|Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)|A quiet masterpiece in stone|![](/en-IN/2026/03/202603121830VendeeVaults.jpg)|
+202603131830|CornwallDolmen|Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)|An ancient angle on Pi|![](/en-IN/2026/03/202603131830CornwallDolmen.jpg)|
