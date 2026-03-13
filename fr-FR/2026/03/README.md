@@ -13,3 +13,4 @@
 202603102300|PeachBloom|Pêchers en fleur, Cieza, Murcie, Espagne (© Juan Maria Coy Vergara/Getty Images)|Un printemps de rose vêtu|![](/fr-FR/2026/03/202603102300PeachBloom.jpg)|
 202603112300|SunbitternEcuador|Caurale soleil faisant sa parade nuptiale, Équateur (© Andy Rouse/naturepl.com)|Une parade haute en couleurs|![](/fr-FR/2026/03/202603112300SunbitternEcuador.jpg)|
 202603122300|VendeeVaults|Voûtes de Notre-Dame de Bon-Port, Les Sables-d'Olonne (© Helmut Meyer zur Capellen/Alamy)|Une œuvre d’art en pierre|![](/fr-FR/2026/03/202603122300VendeeVaults.jpg)|
+202603132300|CornwallDolmen|Lanyon Quoit, dolmen néolithique à Cornwall, Angleterre (© Helen Hotson/Alamy)|Pi sous un angle néolithique|![](/fr-FR/2026/03/202603132300CornwallDolmen.jpg)|
