@@ -13,3 +13,4 @@
 202603101600|PeachBloom|盛开的桃树, 谢萨, 穆尔西亚, 西班牙 (© Juan Maria Coy Vergara/Getty Images)|一个美好的春天|![](/zh-CN/2026/03/202603101600PeachBloom.jpg)|
 202603111600|SunbitternEcuador|幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔 (© Andy Rouse/naturepl.com)|排练中的翅膀|![](/zh-CN/2026/03/202603111600SunbitternEcuador.jpg)|
 202603121600|VendeeVaults|邦港圣母教堂拱顶，莱萨布勒多洛讷，法国 (© Helmut Meyer zur Capellen/Alamy)|静谧的石之杰作|![](/zh-CN/2026/03/202603121600VendeeVaults.jpg)|
+202603131600|CornwallDolmen|兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国 (© Helen Hotson/Alamy)|圆周率的古老启示|![](/zh-CN/2026/03/202603131600CornwallDolmen.jpg)|
