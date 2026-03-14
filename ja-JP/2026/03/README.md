@@ -14,3 +14,4 @@
 202603111500|TodaijiTempleOmizutori2026|東大寺, 奈良県 奈良市 (© Sean Pavone/Alamy)|今日は東大寺のお水取り|![](/ja-JP/2026/03/202603111500TodaijiTempleOmizutori2026.jpg)|
 202603121500|VendeeVaults|ノートルダム・ド・ボン＝ポルト教会, フランス (© Helmut Meyer zur Capellen/Alamy)|歴史ある聖堂のアーチ|![](/ja-JP/2026/03/202603121500VendeeVaults.jpg)|
 202603131500|CornwallDolmen|ラニョン・クォイト, イングランド (© Helen Hotson/Alamy)|今日は円周率の日|![](/ja-JP/2026/03/202603131500CornwallDolmen.jpg)|
+202603141500|PacificRimNP|パシフィック・リム国立公園, カナダ (© EmilyNorton/Getty Images)|パシフィック・リム・ホエール・フェスティバルが開催中|![](/ja-JP/2026/03/202603141500PacificRimNP.jpg)|
