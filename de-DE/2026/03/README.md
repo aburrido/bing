@@ -14,3 +14,4 @@
 202603112300|SunbitternEcuador|Junger Sonnenralle beim Flügelspreizen am Nest, Ecuador (© Andy Rouse/naturepl.com)|Farbsignal im Wald|![](/de-DE/2026/03/202603112300SunbitternEcuador.jpg)|
 202603122300|VendeeVaults|Gewölbe der Kirche Notre‑Dame‑de‑Bon‑Port, Les Sables‑d’Olonne, Frankreich (© Helmut Meyer zur Capellen/Alamy)|Ein stilles Meisterwerk aus Stein|![](/de-DE/2026/03/202603122300VendeeVaults.jpg)|
 202603132300|CornwallDolmen|Lanyon Quoit, neolithischer Dolmen in Cornwall, England (© Helen Hotson/Alamy)|Ein uralter Blick auf π|![](/de-DE/2026/03/202603132300CornwallDolmen.jpg)|
+202603142300|KoenigsseeFog|Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)|Idyllische Stille am Wasser|![](/de-DE/2026/03/202603142300KoenigsseeFog.jpg)|
