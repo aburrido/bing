@@ -15,3 +15,4 @@
 202603120400|SunbitternEcuador|Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)|Wings in rehearsal|![](/en-CA/2026/03/202603120400SunbitternEcuador.jpg)|
 202603130400|VendeeVaults|Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)|A quiet masterpiece in stone|![](/en-CA/2026/03/202603130400VendeeVaults.jpg)|
 202603140400|CornwallDolmen|Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)|An ancient angle on Pi|![](/en-CA/2026/03/202603140400CornwallDolmen.jpg)|
+202603150400|PacificRimNP|Pacific Rim National Park Reserve, Vancouver Island (© EmilyNorton/Getty Images)|Passing through, making waves|![](/en-CA/2026/03/202603150400PacificRimNP.jpg)|
