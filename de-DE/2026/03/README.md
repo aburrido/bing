@@ -15,3 +15,4 @@
 202603122300|VendeeVaults|Gewölbe der Kirche Notre‑Dame‑de‑Bon‑Port, Les Sables‑d’Olonne, Frankreich (© Helmut Meyer zur Capellen/Alamy)|Ein stilles Meisterwerk aus Stein|![](/de-DE/2026/03/202603122300VendeeVaults.jpg)|
 202603132300|CornwallDolmen|Lanyon Quoit, neolithischer Dolmen in Cornwall, England (© Helen Hotson/Alamy)|Ein uralter Blick auf π|![](/de-DE/2026/03/202603132300CornwallDolmen.jpg)|
 202603142300|KoenigsseeFog|Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)|Idyllische Stille am Wasser|![](/de-DE/2026/03/202603142300KoenigsseeFog.jpg)|
+202603152300|PandaForest|Großer Panda beim Bambusfressen, China (© Entwicklungsknecht/Getty Images)|Ein Symbol des Naturschutzes|![](/de-DE/2026/03/202603152300PandaForest.jpg)|
