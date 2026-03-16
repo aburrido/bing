@@ -16,3 +16,4 @@
 202603130400|VendeeVaults|Voûtes de Notre-Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)|Une œuvre d’art en pierre|![](/fr-CA/2026/03/202603130400VendeeVaults.jpg)|
 202603140400|CornwallDolmen|Lanyon Quoit, dolmen néolithique à Cornwall, Angleterre (© Helen Hotson/Alamy)|Pi sous un angle néolithique|![](/fr-CA/2026/03/202603140400CornwallDolmen.jpg)|
 202603150400|PacificRimNP|Réserve de parc national Pacific Rim, Île de Vancouver, Canada (© EmilyNorton/Getty Images)|Une silhouette entre les vagues|![](/fr-CA/2026/03/202603150400PacificRimNP.jpg)|
+202603160400|AuroraIsland|Aurores boréales sur Spirit Island, Lac Maligne, Parc national de Jasper, Alberta (© Mumemories/istock/Getty Images)|Un spectacle inoubliable|![](/fr-CA/2026/03/202603160400AuroraIsland.jpg)|
