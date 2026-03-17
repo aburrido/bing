@@ -17,3 +17,4 @@
 202603142300|KoenigsseeFog|Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)|Idyllische Stille am Wasser|![](/de-DE/2026/03/202603142300KoenigsseeFog.jpg)|
 202603152300|PandaForest|Großer Panda beim Bambusfressen, China (© Entwicklungsknecht/Getty Images)|Ein Symbol des Naturschutzes|![](/de-DE/2026/03/202603152300PandaForest.jpg)|
 202603162300|DonegalFort|Ringfort Grianán von Aileach, County Donegal, Irland (© aluxum/Getty Images)|Grün mit Geschichte|![](/de-DE/2026/03/202603162300DonegalFort.jpg)|
+202603172300|PortlandBlossoms|Kirschblüten im Tom McCall Waterfront Park, Portland, Oregon, USA (© Eric Vogt/Tandem Stills + Motion)|Frühling am Fluss|![](/de-DE/2026/03/202603172300PortlandBlossoms.jpg)|
