@@ -18,3 +18,4 @@
 202603150400|PacificRimNP|Pacific Rim National Park Reserve, Vancouver Island (© EmilyNorton/Getty Images)|Passing through, making waves|![](/en-CA/2026/03/202603150400PacificRimNP.jpg)|
 202603160400|AuroraIsland|Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta (© Mumemories/istock/Getty Images)|Where stillness steals the show|![](/en-CA/2026/03/202603160400AuroraIsland.jpg)|
 202603170400|DonegalFort|Grianan of Aileach ring fort, Donegal, Ireland (© Lukassek/Getty Images)|Ireland's spiritual crossroads|![](/en-CA/2026/03/202603170400DonegalFort.jpg)|
+202603180400|PortlandBlossoms|Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon, United States (© Eric Vogt/Tandem Stills + Motion)|Urban blooms|![](/en-CA/2026/03/202603180400PortlandBlossoms.jpg)|

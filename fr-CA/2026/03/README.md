@@ -18,3 +18,4 @@
 202603150400|PacificRimNP|Réserve de parc national Pacific Rim, Île de Vancouver, Canada (© EmilyNorton/Getty Images)|Une silhouette entre les vagues|![](/fr-CA/2026/03/202603150400PacificRimNP.jpg)|
 202603160400|AuroraIsland|Aurores boréales sur Spirit Island, Lac Maligne, Parc national de Jasper, Alberta (© Mumemories/istock/Getty Images)|Un spectacle inoubliable|![](/fr-CA/2026/03/202603160400AuroraIsland.jpg)|
 202603170400|DonegalFort|Grianan d’Aileach, fort circulaire, Donegal, Irlande (© Lukassek/Getty Images)|Le carrefour spirituel de l’Irlande|![](/fr-CA/2026/03/202603170400DonegalFort.jpg)|
+202603180400|PortlandBlossoms|Cerisiers en fleur à Tom McCall Waterfront Park, Portland, États-Unis (© Eric Vogt/Tandem Stills + Motion)|Quand la ville éclot|![](/fr-CA/2026/03/202603180400PortlandBlossoms.jpg)|
