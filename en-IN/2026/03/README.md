@@ -19,3 +19,4 @@
 202603161830|DonegalFort|Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)|Ireland's spiritual crossroads|![](/en-IN/2026/03/202603161830DonegalFort.jpg)|
 ||||![](/en-IN/2026/03/.jpg)|
 202603171830|PortlandBlossoms|Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon, United States (© Eric Vogt/Tandem Stills + Motion)|Urban blooms|![](/en-IN/2026/03/202603171830PortlandBlossoms.jpg)|
+202603181830|EchidnaAustralia|Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)|Spike your curiosity|![](/en-IN/2026/03/202603181830EchidnaAustralia.jpg)|
