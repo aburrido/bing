@@ -19,3 +19,4 @@
 202603160400|AuroraIsland|Aurores boréales sur Spirit Island, Lac Maligne, Parc national de Jasper, Alberta (© Mumemories/istock/Getty Images)|Un spectacle inoubliable|![](/fr-CA/2026/03/202603160400AuroraIsland.jpg)|
 202603170400|DonegalFort|Grianan d’Aileach, fort circulaire, Donegal, Irlande (© Lukassek/Getty Images)|Le carrefour spirituel de l’Irlande|![](/fr-CA/2026/03/202603170400DonegalFort.jpg)|
 202603180400|PortlandBlossoms|Cerisiers en fleur à Tom McCall Waterfront Park, Portland, États-Unis (© Eric Vogt/Tandem Stills + Motion)|Quand la ville éclot|![](/fr-CA/2026/03/202603180400PortlandBlossoms.jpg)|
+202603190400|EchidnaAustralia|L’échidné à nez court, Adelaide Hills, Australie (© Etienne Littlefair/naturepl.com)|Piquez votre curiosité|![](/fr-CA/2026/03/202603190400EchidnaAustralia.jpg)|
