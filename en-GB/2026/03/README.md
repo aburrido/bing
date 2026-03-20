@@ -19,3 +19,4 @@
 202603170000|DonegalFort|Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)|Ireland's spiritual crossroads|![](/en-GB/2026/03/202603170000DonegalFort.jpg)|
 202603180000|PacificRimNP|Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)|Passing through, making waves|![](/en-GB/2026/03/202603180000PacificRimNP.jpg)|
 202603190000|EchidnaAustralia|Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)|Spike your curiosity|![](/en-GB/2026/03/202603190000EchidnaAustralia.jpg)|
+202603200000|SpringSnowdrops|Snowdrops in spring (© klagyivik/Getty Images)|The quiet bloom of change|![](/en-GB/2026/03/202603200000SpringSnowdrops.jpg)|
