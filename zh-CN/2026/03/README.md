@@ -20,3 +20,4 @@
 202603171600|PortlandBlossoms|汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)|城市花开|![](/zh-CN/2026/03/202603171600PortlandBlossoms.jpg)|
 202603181600|EchidnaAustralia|澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)|激发你的好奇心|![](/zh-CN/2026/03/202603181600EchidnaAustralia.jpg)|
 202603191600|SpringEquinoxY26|春日樱花，上海，中国 (© junyyeung/Getty Images)|春日绯梦|![](/zh-CN/2026/03/202603191600SpringEquinoxY26.jpg)|
+202603201600|LeteaForest|莱泰亚森林，多瑙河三角洲，罗马尼亚 (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|根系自由生长的地方|![](/zh-CN/2026/03/202603201600LeteaForest.jpg)|
