@@ -22,3 +22,4 @@
 202603181830|EchidnaAustralia|Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)|Spike your curiosity|![](/en-IN/2026/03/202603181830EchidnaAustralia.jpg)|
 202603191830|SpringSnowdrops|Snowdrops in spring (© klagyivik/Getty Images)|The quiet bloom of change|![](/en-IN/2026/03/202603191830SpringSnowdrops.jpg)|
 202603201830|LeteaForest|Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Where roots run wild|![](/en-IN/2026/03/202603201830LeteaForest.jpg)|
+202603211830|TanganyikaWater|Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)|When water draws the line|![](/en-IN/2026/03/202603211830TanganyikaWater.jpg)|
