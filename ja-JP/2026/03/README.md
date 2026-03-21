@@ -21,3 +21,4 @@
 202603181500|EchidnaAustralia|ハリモグラ, オーストラリア (© Etienne Littlefair/naturepl.com)|卵を産む哺乳類|![](/ja-JP/2026/03/202603181500EchidnaAustralia.jpg)|
 202603191500|SpringSnowdrops|スノードロップ花 (© klagyivik/Getty Images)|今日は春分の日|![](/ja-JP/2026/03/202603191500SpringSnowdrops.jpg)|
 202603201500|LeteaForest|レテア森林, ルーマニア (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|今日は国際森林デー|![](/ja-JP/2026/03/202603201500LeteaForest.jpg)|
+202603211500|TanganyikaWater|タンガニーカ湖, タンザニア (© BEST-BACKGROUNDS/NASA/Shutterstock)|今日は世界水の日|![](/ja-JP/2026/03/202603211500TanganyikaWater.jpg)|
