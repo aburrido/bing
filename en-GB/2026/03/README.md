@@ -20,3 +20,4 @@
 202603180000|PacificRimNP|Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)|Passing through, making waves|![](/en-GB/2026/03/202603180000PacificRimNP.jpg)|
 202603190000|EchidnaAustralia|Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)|Spike your curiosity|![](/en-GB/2026/03/202603190000EchidnaAustralia.jpg)|
 202603200000|SpringSnowdrops|Snowdrops in spring (© klagyivik/Getty Images)|The quiet bloom of change|![](/en-GB/2026/03/202603200000SpringSnowdrops.jpg)|
+202603210000|LeteaForest|Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Where roots run wild|![](/en-GB/2026/03/202603210000LeteaForest.jpg)|
