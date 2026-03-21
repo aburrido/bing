@@ -21,3 +21,4 @@
 202603182300|EchidnaAustralia|Kurzschnabel-Ameisenigel, Adelaide Hills, Australien (© Etienne Littlefair/naturepl.com)|Wo Gegensätze zusammenfinden|![](/de-DE/2026/03/202603182300EchidnaAustralia.jpg)|
 202603192300|SpringSnowdrops|Schneeglöckchen im Frühling (© klagyivik/Getty Images)|Der erste Hauch von Frühling|![](/de-DE/2026/03/202603192300SpringSnowdrops.jpg)|
 202603202300|LeteaForest|Letea-Wald, Donaudelta, Rumänien (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Wo Natur tief verwurzelt ist|![](/de-DE/2026/03/202603202300LeteaForest.jpg)|
+202603212300|TanganyikaWater|Tanganjikasee, Afrika (© BEST-BACKGROUNDS/NASA/Shutterstock)|Wo Wasser Grenzen zieht|![](/de-DE/2026/03/202603212300TanganyikaWater.jpg)|
