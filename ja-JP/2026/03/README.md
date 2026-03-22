@@ -22,3 +22,4 @@
 202603191500|SpringSnowdrops|スノードロップ花 (© klagyivik/Getty Images)|今日は春分の日|![](/ja-JP/2026/03/202603191500SpringSnowdrops.jpg)|
 202603201500|LeteaForest|レテア森林, ルーマニア (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|今日は国際森林デー|![](/ja-JP/2026/03/202603201500LeteaForest.jpg)|
 202603211500|TanganyikaWater|タンガニーカ湖, タンザニア (© BEST-BACKGROUNDS/NASA/Shutterstock)|今日は世界水の日|![](/ja-JP/2026/03/202603211500TanganyikaWater.jpg)|
+202603221500|SonoranStorm|ベンケイチュウ, 米国 アリゾナ州 (© Jack Dykinga/Nature Picture Library)|今日は世界気象デー|![](/ja-JP/2026/03/202603221500SonoranStorm.jpg)|
