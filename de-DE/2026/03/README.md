@@ -22,3 +22,4 @@
 202603192300|SpringSnowdrops|Schneeglöckchen im Frühling (© klagyivik/Getty Images)|Der erste Hauch von Frühling|![](/de-DE/2026/03/202603192300SpringSnowdrops.jpg)|
 202603202300|LeteaForest|Letea-Wald, Donaudelta, Rumänien (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Wo Natur tief verwurzelt ist|![](/de-DE/2026/03/202603202300LeteaForest.jpg)|
 202603212300|TanganyikaWater|Tanganjikasee, Afrika (© BEST-BACKGROUNDS/NASA/Shutterstock)|Wo Wasser Grenzen zieht|![](/de-DE/2026/03/202603212300TanganyikaWater.jpg)|
+202603222300|SonoranStorm|Gewitter über Saguaro-Kakteen, Sonora-Wüste, Arizona, USA (© Jack Dykinga/Nature Picture Library)|Wenn das Wetter den Weg weist|![](/de-DE/2026/03/202603222300SonoranStorm.jpg)|

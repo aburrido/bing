@@ -22,3 +22,4 @@
 202603192300|FrancophonieIf|Vue sur le quartier d’Endoume, les Îles du Frioul et le Château d'If, Marseille (© RIEGER Bertrand/hemis.fr/Alamy)|La diversité à l’unisson|![](/fr-FR/2026/03/202603192300FrancophonieIf.jpg)|
 202603202300|LeteaForest|Forêt de Letea, Delta du Danube, Roumanie (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Les racines, nos piliers|![](/fr-FR/2026/03/202603202300LeteaForest.jpg)|
 202603212300|TanganyikaWater|Lac Tanganyika, Afrique (© BEST-BACKGROUNDS/NASA/Shutterstock)|Quand l’eau façonne le paysage|![](/fr-FR/2026/03/202603212300TanganyikaWater.jpg)|
+202603222300|SonoranStorm|Orage sur des cactus saguaro, désert de Sonora, Arizona, États-Unis (© Jack Dykinga/Nature Picture Library)|Guidés par la météo|![](/fr-FR/2026/03/202603222300SonoranStorm.jpg)|
