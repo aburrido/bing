@@ -22,3 +22,4 @@
 202603190400|EchidnaAustralia|L’échidné à nez court, Adelaide Hills, Australie (© Etienne Littlefair/naturepl.com)|Piquez votre curiosité|![](/fr-CA/2026/03/202603190400EchidnaAustralia.jpg)|
 202603200400|SpringSnowdrops|Perce-neiges au printemps (© klagyivik/Getty Images)|C’est le printemps!|![](/fr-CA/2026/03/202603200400SpringSnowdrops.jpg)|
 202603210400|LeteaForest|Forêt de Letea, Delta du Danube, Roumanie (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Les racines, nos piliers|![](/fr-CA/2026/03/202603210400LeteaForest.jpg)|
+202603220400|TanganyikaWater|Lac Tanganyika, Afrique (© BEST-BACKGROUNDS/NASA/Shutterstock)|Quand l’eau façonne le paysage|![](/fr-CA/2026/03/202603220400TanganyikaWater.jpg)|
