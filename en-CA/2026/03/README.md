@@ -23,3 +23,4 @@
 202603200400|SpringSnowdrops|Snowdrops in spring (© klagyivik/Getty Images)|The quiet bloom of change|![](/en-CA/2026/03/202603200400SpringSnowdrops.jpg)|
 202603210400|LeteaForest|Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Where roots run wild|![](/en-CA/2026/03/202603210400LeteaForest.jpg)|
 202603220400|TanganyikaWater|Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)|When water draws the line|![](/en-CA/2026/03/202603220400TanganyikaWater.jpg)|
+202603230400|SonoranStorm|Lightning storm over saguaro cacti, Sonoran Desert, Arizona, United States (© Jack Dykinga/Nature Picture Library)|Guided by the weather|![](/en-CA/2026/03/202603230400SonoranStorm.jpg)|

@@ -23,3 +23,4 @@
 202603200400|SpringSnowdrops|Perce-neiges au printemps (© klagyivik/Getty Images)|C’est le printemps!|![](/fr-CA/2026/03/202603200400SpringSnowdrops.jpg)|
 202603210400|LeteaForest|Forêt de Letea, Delta du Danube, Roumanie (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Les racines, nos piliers|![](/fr-CA/2026/03/202603210400LeteaForest.jpg)|
 202603220400|TanganyikaWater|Lac Tanganyika, Afrique (© BEST-BACKGROUNDS/NASA/Shutterstock)|Quand l’eau façonne le paysage|![](/fr-CA/2026/03/202603220400TanganyikaWater.jpg)|
+202603230400|SonoranStorm|Orage sur des cactus saguaro, désert de Sonora, Arizona, États-Unis (© Jack Dykinga/Nature Picture Library)|Guidés par la météo|![](/fr-CA/2026/03/202603230400SonoranStorm.jpg)|
