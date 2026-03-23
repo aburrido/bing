@@ -23,3 +23,4 @@
 202603201600|LeteaForest|莱泰亚森林，多瑙河三角洲，罗马尼亚 (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|根系自由生长的地方|![](/zh-CN/2026/03/202603201600LeteaForest.jpg)|
 202603211600|TanganyikaWater|坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)|当水划出界线|![](/zh-CN/2026/03/202603211600TanganyikaWater.jpg)|
 202603221600|SonoranStorm|坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)|当水划出界线|![](/zh-CN/2026/03/202603221600SonoranStorm.jpg)|
+202603231600|WuhanCherryBlossom|东湖樱花园的樱花，武汉，中国 (© Zhang Qiao/VCG/Getty Images)|春天的形状|![](/zh-CN/2026/03/202603231600WuhanCherryBlossom.jpg)|
