@@ -23,3 +23,4 @@
 202603201500|LeteaForest|レテア森林, ルーマニア (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|今日は国際森林デー|![](/ja-JP/2026/03/202603201500LeteaForest.jpg)|
 202603211500|TanganyikaWater|タンガニーカ湖, タンザニア (© BEST-BACKGROUNDS/NASA/Shutterstock)|今日は世界水の日|![](/ja-JP/2026/03/202603211500TanganyikaWater.jpg)|
 202603221500|SonoranStorm|ベンケイチュウ, 米国 アリゾナ州 (© Jack Dykinga/Nature Picture Library)|今日は世界気象デー|![](/ja-JP/2026/03/202603221500SonoranStorm.jpg)|
+202603231500|WuhanCherryBlossom|東湖桜花園, 中国 (© Zhang Qiao/VCG/Getty Images)|桜に包まれた五重塔|![](/ja-JP/2026/03/202603231500WuhanCherryBlossom.jpg)|
