@@ -24,3 +24,4 @@
 202603210400|LeteaForest|Forêt de Letea, Delta du Danube, Roumanie (© Wild Wonders of Europe/Widstrand/Nature Picture Library)|Les racines, nos piliers|![](/fr-CA/2026/03/202603210400LeteaForest.jpg)|
 202603220400|TanganyikaWater|Lac Tanganyika, Afrique (© BEST-BACKGROUNDS/NASA/Shutterstock)|Quand l’eau façonne le paysage|![](/fr-CA/2026/03/202603220400TanganyikaWater.jpg)|
 202603230400|SonoranStorm|Orage sur des cactus saguaro, désert de Sonora, Arizona, États-Unis (© Jack Dykinga/Nature Picture Library)|Guidés par la météo|![](/fr-CA/2026/03/202603230400SonoranStorm.jpg)|
+202603240400|WuhanCherryBlossom|Cerisiers en fleurs au jardin des cerisiers du Lac de l’Est, Wuhan, Chine (© Zhang Qiao/VCG/Getty Images)|Ça sent le printemps!|![](/fr-CA/2026/03/202603240400WuhanCherryBlossom.jpg)|
