@@ -24,3 +24,4 @@
 202603212300|TanganyikaWater|Tanganjikasee, Afrika (© BEST-BACKGROUNDS/NASA/Shutterstock)|Wo Wasser Grenzen zieht|![](/de-DE/2026/03/202603212300TanganyikaWater.jpg)|
 202603222300|SonoranStorm|Gewitter über Saguaro-Kakteen, Sonora-Wüste, Arizona, USA (© Jack Dykinga/Nature Picture Library)|Wenn das Wetter den Weg weist|![](/de-DE/2026/03/202603222300SonoranStorm.jpg)|
 202603232300|KapArkonaRuegen|Drohnenaufnahme des Peilturms am Kap Arkona, Rügen, Mecklenburg‑Vorpommern (© Stefan Dinse/Getty Images)|Stille an der Küste|![](/de-DE/2026/03/202603232300KapArkonaRuegen.jpg)|
+202603242300|ManateeSpring|Junge Seekühe in einer Süßwasserquelle am Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sanfte Meister des Wassers|![](/de-DE/2026/03/202603242300ManateeSpring.jpg)|
