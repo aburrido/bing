@@ -24,3 +24,4 @@
 202603220000|TanganyikaWater|Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)|When water draws the line|![](/en-GB/2026/03/202603220000TanganyikaWater.jpg)|
 202603230000|SonoranStorm|Lightning storm over saguaro cacti, Sonoran Desert, Arizona, United States (© Jack Dykinga/Nature Picture Library)|Guided by the weather|![](/en-GB/2026/03/202603230000SonoranStorm.jpg)|
 202603240000|WuhanCherryBlossom|Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)|The shape of spring|![](/en-GB/2026/03/202603240000WuhanCherryBlossom.jpg)|
+202603250000|ManateeSpring|Juvenile manatees in a freshwater spring, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|The secret life of manatees|![](/en-GB/2026/03/202603250000ManateeSpring.jpg)|
