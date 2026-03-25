@@ -26,3 +26,4 @@
 202603221830|SonoranStorm|Lightning storm over saguaro cacti, Sonoran Desert, Arizona, United States (© Jack Dykinga/Nature Picture Library)|Guided by the weather|![](/en-IN/2026/03/202603221830SonoranStorm.jpg)|
 202603231830|WuhanCherryBlossom|Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)|The shape of spring|![](/en-IN/2026/03/202603231830WuhanCherryBlossom.jpg)|
 202603241830|ManateeSpring|Juvenile manatees in a freshwater spring, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|The secret life of manatees|![](/en-IN/2026/03/202603241830ManateeSpring.jpg)|
+202603251830|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)|A step above the wild|![](/en-IN/2026/03/202603251830LoganCreek.jpg)|
