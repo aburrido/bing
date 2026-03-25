@@ -25,3 +25,4 @@
 202603222300|SonoranStorm|Gewitter über Saguaro-Kakteen, Sonora-Wüste, Arizona, USA (© Jack Dykinga/Nature Picture Library)|Wenn das Wetter den Weg weist|![](/de-DE/2026/03/202603222300SonoranStorm.jpg)|
 202603232300|KapArkonaRuegen|Drohnenaufnahme des Peilturms am Kap Arkona, Rügen, Mecklenburg‑Vorpommern (© Stefan Dinse/Getty Images)|Stille an der Küste|![](/de-DE/2026/03/202603232300KapArkonaRuegen.jpg)|
 202603242300|ManateeSpring|Junge Seekühe in einer Süßwasserquelle am Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sanfte Meister des Wassers|![](/de-DE/2026/03/202603242300ManateeSpring.jpg)|
+202603252300|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, Kanada (© Tandem Stock/Adobe Stock)|In luftigen Höhen|![](/de-DE/2026/03/202603252300LoganCreek.jpg)|
