@@ -25,3 +25,4 @@
 202603220700|TanganyikaWater|Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)|Info|![](/en-AU/2026/03/202603220700TanganyikaWater.jpg)|
 202603230700|SonoranStorm|Lightning storm over saguaro cacti, Sonoran Desert, Arizona, United States (© Jack Dykinga/Nature Picture Library)|Info|![](/en-AU/2026/03/202603230700SonoranStorm.jpg)|
 202603240700|KoenigsseeFog|Königssee Lake, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)|Info|![](/en-AU/2026/03/202603240700KoenigsseeFog.jpg)|
+202603250700|ManateeSpring|Juvenile manatees in a freshwater spring, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|Info|![](/en-AU/2026/03/202603250700ManateeSpring.jpg)|
