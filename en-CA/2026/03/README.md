@@ -25,3 +25,4 @@
 202603220400|TanganyikaWater|Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)|When water draws the line|![](/en-CA/2026/03/202603220400TanganyikaWater.jpg)|
 202603230400|SonoranStorm|Lightning storm over saguaro cacti, Sonoran Desert, Arizona, United States (© Jack Dykinga/Nature Picture Library)|Guided by the weather|![](/en-CA/2026/03/202603230400SonoranStorm.jpg)|
 202603240400|WuhanCherryBlossom|Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)|The shape of spring|![](/en-CA/2026/03/202603240400WuhanCherryBlossom.jpg)|
+202603250400|AlbertaSnowMts|Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)|Staying grounded|![](/en-CA/2026/03/202603250400AlbertaSnowMts.jpg)|
