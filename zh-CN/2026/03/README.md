@@ -27,3 +27,4 @@
 202603241600|ManateeSpring|淡水泉中的幼年海牛，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)|海牛的秘密生活|![](/zh-CN/2026/03/202603241600ManateeSpring.jpg)|
 202603251600|LoganCreek|洛根溪吊桥，西海岸步道，加拿大 (© Tandem Stock/Adobe Stock)|凌驾荒野之上|![](/zh-CN/2026/03/202603251600LoganCreek.jpg)|
 202603261600|RadioCityHall|纽约市的无线电城音乐厅, 美国 (© Clarence Holmes Photography/Alamy)|依然明亮地燃烧着|![](/zh-CN/2026/03/202603261600RadioCityHall.jpg)|
+202603271600|CapeBuffalo|非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)|未驯服的精神|![](/zh-CN/2026/03/202603271600CapeBuffalo.jpg)|
