@@ -27,3 +27,4 @@
 202603240400|WuhanCherryBlossom|Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)|The shape of spring|![](/en-CA/2026/03/202603240400WuhanCherryBlossom.jpg)|
 202603250400|AlbertaSnowMts|Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)|Staying grounded|![](/en-CA/2026/03/202603250400AlbertaSnowMts.jpg)|
 202603260400|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, British Columbia (© Tandem Stock/Adobe Stock)|A step above the wild|![](/en-CA/2026/03/202603260400LoganCreek.jpg)|
+202603270400|RadioCityHall|Radio City Music Hall in New York City, United States (© Clarence Holmes Photography/Alamy)|Still burning bright|![](/en-CA/2026/03/202603270400RadioCityHall.jpg)|
