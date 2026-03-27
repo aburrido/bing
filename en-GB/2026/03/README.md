@@ -26,3 +26,4 @@
 202603240000|WuhanCherryBlossom|Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)|The shape of spring|![](/en-GB/2026/03/202603240000WuhanCherryBlossom.jpg)|
 202603250000|ManateeSpring|Juvenile manatees in a freshwater spring, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|The secret life of manatees|![](/en-GB/2026/03/202603250000ManateeSpring.jpg)|
 202603260000|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)|A step above the wild|![](/en-GB/2026/03/202603260000LoganCreek.jpg)|
+202603270000|RadioCityHall|Radio City Music Hall in New York City, United States (© Clarence Holmes Photography/Alamy)|Still burning bright|![](/en-GB/2026/03/202603270000RadioCityHall.jpg)|
