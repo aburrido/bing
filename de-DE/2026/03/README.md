@@ -27,3 +27,4 @@
 202603242300|ManateeSpring|Junge Seekühe in einer Süßwasserquelle am Crystal River, Florida, USA (© Gregory Sweeney/Getty Images)|Sanfte Meister des Wassers|![](/de-DE/2026/03/202603242300ManateeSpring.jpg)|
 202603252300|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, Kanada (© Tandem Stock/Adobe Stock)|In luftigen Höhen|![](/de-DE/2026/03/202603252300LoganCreek.jpg)|
 202603262300|RadioCityHall|Radio City Music Hall in New York City, USA (© Clarence Holmes Photography/Alamy)|Glanz, der weiterstrahlt|![](/de-DE/2026/03/202603262300RadioCityHall.jpg)|
+202603272300|CapeBuffalo|Afrikanischer Büffel, Ngorongoro-Krater, Tansania (© jesuss8/500px/Getty Images)|Wächter des Kraters|![](/de-DE/2026/03/202603272300CapeBuffalo.jpg)|
