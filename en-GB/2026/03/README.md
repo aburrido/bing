@@ -27,3 +27,4 @@
 202603250000|ManateeSpring|Juvenile manatees in a freshwater spring, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|The secret life of manatees|![](/en-GB/2026/03/202603250000ManateeSpring.jpg)|
 202603260000|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)|A step above the wild|![](/en-GB/2026/03/202603260000LoganCreek.jpg)|
 202603270000|RadioCityHall|Radio City Music Hall in New York City, United States (© Clarence Holmes Photography/Alamy)|Still burning bright|![](/en-GB/2026/03/202603270000RadioCityHall.jpg)|
+202603280000|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|The untamed spirit|![](/en-GB/2026/03/202603280000CapeBuffalo.jpg)|
