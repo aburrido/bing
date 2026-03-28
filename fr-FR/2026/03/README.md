@@ -28,3 +28,4 @@
 202603252300|LoganCreek|Pont suspendu de Logan Creek, Sentier de la Côte-Ouest, Canada (© Tandem Stock/Adobe Stock)|Immersion au cœur de la nature sauvage|![](/fr-FR/2026/03/202603252300LoganCreek.jpg)|
 202603262300|RadioCityHall|Radio City Music Hall, New York, États-Unis (© Clarence Holmes Photography/Alamy)|Toujours éclatant|![](/fr-FR/2026/03/202603262300RadioCityHall.jpg)|
 202603272300|CapeBuffalo|Bufle d’Afrique, Cratère du Ngorongoro, Tanzanie (© jesuss8/500px/Getty Images)|Un esprit indomptable|![](/fr-FR/2026/03/202603272300CapeBuffalo.jpg)|
+202603282300|PeggysLighthouse|Phare de Peggy’s Cove, Nouvelle-Écosse, Canada (© Prashanth Bala/Shutterstock)|Le calme en bord de mer|![](/fr-FR/2026/03/202603282300PeggysLighthouse.jpg)|
