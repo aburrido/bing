@@ -28,3 +28,4 @@
 202603250400|AlbertaSnowMts|Pins se reflétant sur l’étang Forgetmenot, Kananaskis Country, Alberta (© chinaface/Getty images)|Une vue inspirant la sérénité|![](/fr-CA/2026/03/202603250400AlbertaSnowMts.jpg)|
 202603260400|LoganCreek|Pont suspendu de Logan Creek, Sentier de la Côte-Ouest (© Tandem Stock/Adobe Stock)|Immersion au cœur de la nature sauvage|![](/fr-CA/2026/03/202603260400LoganCreek.jpg)|
 202603270400|RadioCityHall|Radio City Music Hall, New York, États-Unis (© Clarence Holmes Photography/Alamy)|Toujours éclatant|![](/fr-CA/2026/03/202603270400RadioCityHall.jpg)|
+202603280400|CapeBuffalo|Bufle d’Afrique, Cratère du Ngorongoro, Tanzanie (© jesuss8/500px/Getty Images)|Un esprit indomptable|![](/fr-CA/2026/03/202603280400CapeBuffalo.jpg)|

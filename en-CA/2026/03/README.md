@@ -28,3 +28,4 @@
 202603250400|AlbertaSnowMts|Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)|Staying grounded|![](/en-CA/2026/03/202603250400AlbertaSnowMts.jpg)|
 202603260400|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, British Columbia (© Tandem Stock/Adobe Stock)|A step above the wild|![](/en-CA/2026/03/202603260400LoganCreek.jpg)|
 202603270400|RadioCityHall|Radio City Music Hall in New York City, United States (© Clarence Holmes Photography/Alamy)|Still burning bright|![](/en-CA/2026/03/202603270400RadioCityHall.jpg)|
+202603280400|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|The untamed spirit|![](/en-CA/2026/03/202603280400CapeBuffalo.jpg)|
