@@ -28,3 +28,4 @@
 202603250700|ManateeSpring|Juvenile manatees in a freshwater spring, Crystal River, Florida, United States (© Gregory Sweeney/Getty Images)|Info|![](/en-AU/2026/03/202603250700ManateeSpring.jpg)|
 202603260700|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, British Columbia, Canada (© Tandem Stock/Adobe Stock)|Info|![](/en-AU/2026/03/202603260700LoganCreek.jpg)|
 202603270700|AuroraIsland|Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)|Info|![](/en-AU/2026/03/202603270700AuroraIsland.jpg)|
+202603280700|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|Info|![](/en-AU/2026/03/202603280700CapeBuffalo.jpg)|
