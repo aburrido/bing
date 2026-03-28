@@ -28,3 +28,4 @@
 202603251500|LoganCreek|ローガン・クリーク吊り橋, カナダ (© Tandem Stock/Adobe Stock)|森に溶け込む吊り橋|![](/ja-JP/2026/03/202603251500LoganCreek.jpg)|
 202603261500|SakuraDay2026|日本一早い桜、沖縄 (© @hapidayss/Getty Images)|今日はさくらの日|![](/ja-JP/2026/03/202603261500SakuraDay2026.jpg)|
 202603271500|CapeBuffalo|アフリカスイギュウ, タンザニア (© jesuss8/500px/Getty Images)|口ひげのように見える角を持つ動物|![](/ja-JP/2026/03/202603271500CapeBuffalo.jpg)|
+202603281500|PeggysLighthouse|ペギーズ・ポイント灯台, カナダ (© Prashanth Bala/Shutterstock)|夕焼けの空と海に佇む灯台|![](/ja-JP/2026/03/202603281500PeggysLighthouse.jpg)|
