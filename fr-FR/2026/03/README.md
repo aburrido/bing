@@ -29,3 +29,4 @@
 202603262300|RadioCityHall|Radio City Music Hall, New York, États-Unis (© Clarence Holmes Photography/Alamy)|Toujours éclatant|![](/fr-FR/2026/03/202603262300RadioCityHall.jpg)|
 202603272300|CapeBuffalo|Bufle d’Afrique, Cratère du Ngorongoro, Tanzanie (© jesuss8/500px/Getty Images)|Un esprit indomptable|![](/fr-FR/2026/03/202603272300CapeBuffalo.jpg)|
 202603282300|PeggysLighthouse|Phare de Peggy’s Cove, Nouvelle-Écosse, Canada (© Prashanth Bala/Shutterstock)|Le calme en bord de mer|![](/fr-FR/2026/03/202603282300PeggysLighthouse.jpg)|
+202603292200|IndiaCranes|Grues demoiselles, Inde (© Axel Gomille/Nature Picture Library)|Quel est ce drôle d’oiseau ?|![](/fr-FR/2026/03/202603292200IndiaCranes.jpg)|

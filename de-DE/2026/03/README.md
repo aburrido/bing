@@ -29,3 +29,4 @@
 202603262300|RadioCityHall|Radio City Music Hall in New York City, USA (© Clarence Holmes Photography/Alamy)|Glanz, der weiterstrahlt|![](/de-DE/2026/03/202603262300RadioCityHall.jpg)|
 202603272300|CapeBuffalo|Afrikanischer Büffel, Ngorongoro-Krater, Tansania (© jesuss8/500px/Getty Images)|Wächter des Kraters|![](/de-DE/2026/03/202603272300CapeBuffalo.jpg)|
 202603282300|UlmClock|Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)|Vorwärts in den Frühling|![](/de-DE/2026/03/202603282300UlmClock.jpg)|
+202603292200|IndiaCranes|Jungfernkraniche, Indien (© Axel Gomille/Nature Picture Library)|Eleganz in Bewegung|![](/de-DE/2026/03/202603292200IndiaCranes.jpg)|
