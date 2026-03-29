@@ -29,3 +29,4 @@
 202603261600|RadioCityHall|纽约市的无线电城音乐厅, 美国 (© Clarence Holmes Photography/Alamy)|依然明亮地燃烧着|![](/zh-CN/2026/03/202603261600RadioCityHall.jpg)|
 202603271600|CapeBuffalo|非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)|未驯服的精神|![](/zh-CN/2026/03/202603271600CapeBuffalo.jpg)|
 202603281600|PeggysLighthouse|佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)|海边的宁静|![](/zh-CN/2026/03/202603281600PeggysLighthouse.jpg)|
+202603291600|IndiaCranes|蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)|优雅的动态|![](/zh-CN/2026/03/202603291600IndiaCranes.jpg)|
