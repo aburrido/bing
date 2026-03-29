@@ -29,3 +29,4 @@
 202603260700|LoganCreek|Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)|A step above the wild|![](/en-US/2026/03/202603260700LoganCreek.jpg)|
 202603270700|RadioCityHall|Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)|Still burning bright|![](/en-US/2026/03/202603270700RadioCityHall.jpg)|
 202603280700|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|The untamed spirit|![](/en-US/2026/03/202603280700CapeBuffalo.jpg)|
+202603290700|PeggysLighthouse|Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)|Serenity by the sea|![](/en-US/2026/03/202603290700PeggysLighthouse.jpg)|
