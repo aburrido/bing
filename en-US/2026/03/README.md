@@ -30,3 +30,4 @@
 202603270700|RadioCityHall|Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)|Still burning bright|![](/en-US/2026/03/202603270700RadioCityHall.jpg)|
 202603280700|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|The untamed spirit|![](/en-US/2026/03/202603280700CapeBuffalo.jpg)|
 202603290700|PeggysLighthouse|Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)|Serenity by the sea|![](/en-US/2026/03/202603290700PeggysLighthouse.jpg)|
+202603300700|IndiaCranes|Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)|Elegance in motion|![](/en-US/2026/03/202603300700IndiaCranes.jpg)|

@@ -30,3 +30,4 @@
 202603270700|AuroraIsland|Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)|Info|![](/en-AU/2026/03/202603270700AuroraIsland.jpg)|
 202603280700|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|Info|![](/en-AU/2026/03/202603280700CapeBuffalo.jpg)|
 202603290700|PeggysLighthouse|Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)|Info|![](/en-AU/2026/03/202603290700PeggysLighthouse.jpg)|
+202603300700|IndiaCranes|Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)|Info|![](/en-AU/2026/03/202603300700IndiaCranes.jpg)|
