@@ -30,3 +30,4 @@
 202603272300|CapeBuffalo|Afrikanischer Büffel, Ngorongoro-Krater, Tansania (© jesuss8/500px/Getty Images)|Wächter des Kraters|![](/de-DE/2026/03/202603272300CapeBuffalo.jpg)|
 202603282300|UlmClock|Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)|Vorwärts in den Frühling|![](/de-DE/2026/03/202603282300UlmClock.jpg)|
 202603292200|IndiaCranes|Jungfernkraniche, Indien (© Axel Gomille/Nature Picture Library)|Eleganz in Bewegung|![](/de-DE/2026/03/202603292200IndiaCranes.jpg)|
+202603302200|ParadiseCave|Paradise Cave, Nationalpark Phong Nha‑Ke Bang, Vietnam (© Pakawat Thongcharoen/Getty Images)|Unterirdisches Paradies|![](/de-DE/2026/03/202603302200ParadiseCave.jpg)|
