@@ -30,3 +30,4 @@
 202603271500|CapeBuffalo|アフリカスイギュウ, タンザニア (© jesuss8/500px/Getty Images)|口ひげのように見える角を持つ動物|![](/ja-JP/2026/03/202603271500CapeBuffalo.jpg)|
 202603281500|PeggysLighthouse|ペギーズ・ポイント灯台, カナダ (© Prashanth Bala/Shutterstock)|夕焼けの空と海に佇む灯台|![](/ja-JP/2026/03/202603281500PeggysLighthouse.jpg)|
 202603291500|IndiaCranes|アネハヅル, インド (© Axel Gomille/Nature Picture Library)|求愛ダンスが得意な鳥|![](/ja-JP/2026/03/202603291500IndiaCranes.jpg)|
+202603301500|ParadiseCave|天国の洞, ベトナム (© Pakawat Thongcharoen/Getty Images)|光に照らされた幻想的な洞|![](/ja-JP/2026/03/202603301500ParadiseCave.jpg)|
