@@ -31,3 +31,4 @@
 202603281500|PeggysLighthouse|ペギーズ・ポイント灯台, カナダ (© Prashanth Bala/Shutterstock)|夕焼けの空と海に佇む灯台|![](/ja-JP/2026/03/202603281500PeggysLighthouse.jpg)|
 202603291500|IndiaCranes|アネハヅル, インド (© Axel Gomille/Nature Picture Library)|求愛ダンスが得意な鳥|![](/ja-JP/2026/03/202603291500IndiaCranes.jpg)|
 202603301500|ParadiseCave|天国の洞, ベトナム (© Pakawat Thongcharoen/Getty Images)|光に照らされた幻想的な洞|![](/ja-JP/2026/03/202603301500ParadiseCave.jpg)|
+202603311500|WildflowerValley|セントラル・バレー, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)|丘陵を染める一面の野生花|![](/ja-JP/2026/03/202603311500WildflowerValley.jpg)|
