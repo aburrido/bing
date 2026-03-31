@@ -31,3 +31,4 @@
 202603280400|CapeBuffalo|African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)|The untamed spirit|![](/en-CA/2026/03/202603280400CapeBuffalo.jpg)|
 202603290400|PeggysLighthouse|Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia (© Prashanth Bala/Shutterstock)|Serenity by the sea|![](/en-CA/2026/03/202603290400PeggysLighthouse.jpg)|
 202603300400|IndiaCranes|Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)|Elegance in motion|![](/en-CA/2026/03/202603300400IndiaCranes.jpg)|
+202603310400|ParadiseCave|Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)|Underground paradise|![](/en-CA/2026/03/202603310400ParadiseCave.jpg)|
