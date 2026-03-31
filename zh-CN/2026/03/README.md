@@ -31,3 +31,4 @@
 202603281600|PeggysLighthouse|佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)|海边的宁静|![](/zh-CN/2026/03/202603281600PeggysLighthouse.jpg)|
 202603291600|IndiaCranes|蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)|优雅的动态|![](/zh-CN/2026/03/202603291600IndiaCranes.jpg)|
 202603301600|ParadiseCave|天堂洞, 峰牙-格邦国家公园, 越南 (© Pakawat Thongcharoen/Getty Images)|地下天堂|![](/zh-CN/2026/03/202603301600ParadiseCave.jpg)|
+202603311600|JapaneseTreeFrog|粉色牵牛花里的日本树蛙 (© Tetsuya Tanooka/Getty Images)|跃入四月|![](/zh-CN/2026/03/202603311600JapaneseTreeFrog.jpg)|
