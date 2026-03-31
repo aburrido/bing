@@ -31,3 +31,4 @@
 202603290000|BSTStarts2026|Liberty Clock, London, England (© Dukas/Universal Images Group/Getty Images)|Tick tock, light o'clock|![](/en-GB/2026/03/202603290000BSTStarts2026.jpg)|
 202603292300|IndiaCranes|Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)|Elegance in motion|![](/en-GB/2026/03/202603292300IndiaCranes.jpg)|
 202603302300|ParadiseCave|Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)|Underground paradise|![](/en-GB/2026/03/202603302300ParadiseCave.jpg)|
+202603312300|PeggysLighthouse|Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)|Serenity by the sea|![](/en-GB/2026/03/202603312300PeggysLighthouse.jpg)|
