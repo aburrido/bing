@@ -4,3 +4,4 @@
 202604010700|JapaneseTreeFrog|Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)|Hopping into April|![](/en-US/2026/04/202604010700JapaneseTreeFrog.jpg)|
 202604020700|WildflowerValley|Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)|Patterns of spring|![](/en-US/2026/04/202604020700WildflowerValley.jpg)|
 202604030700|ArmbrugBridge|Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)|Bridging the gap, one arm at a time|![](/en-US/2026/04/202604030700ArmbrugBridge.jpg)|
+202604040700|GrouseGuff|Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)|The lek side story|![](/en-US/2026/04/202604040700GrouseGuff.jpg)|
