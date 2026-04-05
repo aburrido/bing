@@ -5,3 +5,4 @@
 202604022300|ArmbrugBridge|Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)|Bridging the gap, one arm at a time|![](/en-GB/2026/04/202604022300ArmbrugBridge.jpg)|
 202604032300|NPFortnight2026|Dolbadarn Castle, Llanberis, Snowdonia National Park, Wales (© Allan Hartley/Alamy)|Towering tales|![](/en-GB/2026/04/202604032300NPFortnight2026.jpg)|
 202604042300|LithuaniaEggs|Colourful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)|Hello, Easter Sunday|![](/en-GB/2026/04/202604042300LithuaniaEggs.jpg)|
+202604052300|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Where power resides|![](/en-GB/2026/04/202604052300CastleBlossoms.jpg)|
