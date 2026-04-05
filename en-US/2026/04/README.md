@@ -5,3 +5,4 @@
 202604020700|WildflowerValley|Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)|Patterns of spring|![](/en-US/2026/04/202604020700WildflowerValley.jpg)|
 202604030700|ArmbrugBridge|Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)|Bridging the gap, one arm at a time|![](/en-US/2026/04/202604030700ArmbrugBridge.jpg)|
 202604040700|GrouseGuff|Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)|The lek side story|![](/en-US/2026/04/202604040700GrouseGuff.jpg)|
+202604050700|LithuaniaEggs|Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)|Hello, Easter Sunday|![](/en-US/2026/04/202604050700LithuaniaEggs.jpg)|
