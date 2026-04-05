@@ -4,3 +4,4 @@
 202604020400|WildflowerValley|Fleurs sauvages, Vallée Centrale, Californie, États-Unis (© Jeff Lewis/Tandem Stills + Motion)|Les tons pastel du printemps|![](/fr-CA/2026/04/202604020400WildflowerValley.jpg)|
 202604030400|ArmbrugBridge|Armbrug, Amsterdam, Pays-Bas (© Alexander Spatari/Getty Images)|Bien plus qu’un pont sur le canal|![](/fr-CA/2026/04/202604030400ArmbrugBridge.jpg)|
 202604040400|GrouseGuff|Tétras lyres mâles lors d’une parade nuptiale, Estonie (© Sven Zacek/Nature Picture Library)|Les leks, arènes de séduction|![](/fr-CA/2026/04/202604040400GrouseGuff.jpg)|
+202604050400|CastleBlossoms|Château d’Hirosaki et cerisiers en fleur, Japon (© Glenn Waters/Getty Images)|L’équilibre fragile entre force et beauté|![](/fr-CA/2026/04/202604050400CastleBlossoms.jpg)|
