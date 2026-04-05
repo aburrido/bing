@@ -5,3 +5,4 @@
 202604021500|ArmbrugBridge|アルムブルグ橋, オランダ (© Alexander Spatari/Getty Images)|静かな運河に映る街並み|![](/ja-JP/2026/04/202604021500ArmbrugBridge.jpg)|
 202604031500|QingmingFestival2026|首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)|今日は清明|![](/ja-JP/2026/04/202604031500QingmingFestival2026.jpg)|
 202604041500|LithuaniaEggs|カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)|今日は復活祭|![](/ja-JP/2026/04/202604041500LithuaniaEggs.jpg)|
+202604051500|CastleBlossoms|弘前城, 青森県 弘前市 (© Glenn Waters/Getty Images)|今日は城の日|![](/ja-JP/2026/04/202604051500CastleBlossoms.jpg)|
