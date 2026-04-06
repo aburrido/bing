@@ -6,3 +6,4 @@
 202604032200|GrouseGuff|Tétras lyres mâles lors d’une parade nuptiale, Estonie (© Sven Zacek/Nature Picture Library)|Les leks, arènes de séduction|![](/fr-FR/2026/04/202604032200GrouseGuff.jpg)|
 202604042200|PontArdeche|Pont d’Arc, Ardèche (© Gael Fontaine/Getty Images)|Le murmure de la rivière|![](/fr-FR/2026/04/202604042200PontArdeche.jpg)|
 202604052200|LithuaniaEggs|Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)|C’est parti pour la chasse aux œufs !|![](/fr-FR/2026/04/202604052200LithuaniaEggs.jpg)|
+202604062200|BeaverPortrait|Castor, Allemagne (© Andyworks/Getty Images)|Une branche à la fois|![](/fr-FR/2026/04/202604062200BeaverPortrait.jpg)|
