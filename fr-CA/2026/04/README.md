@@ -5,3 +5,4 @@
 202604030400|ArmbrugBridge|Armbrug, Amsterdam, Pays-Bas (© Alexander Spatari/Getty Images)|Bien plus qu’un pont sur le canal|![](/fr-CA/2026/04/202604030400ArmbrugBridge.jpg)|
 202604040400|GrouseGuff|Tétras lyres mâles lors d’une parade nuptiale, Estonie (© Sven Zacek/Nature Picture Library)|Les leks, arènes de séduction|![](/fr-CA/2026/04/202604040400GrouseGuff.jpg)|
 202604050400|CastleBlossoms|Château d’Hirosaki et cerisiers en fleur, Japon (© Glenn Waters/Getty Images)|L’équilibre fragile entre force et beauté|![](/fr-CA/2026/04/202604050400CastleBlossoms.jpg)|
+202604060400|LithuaniaEggs|Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)|C’est parti pour la chasse aux œufs!|![](/fr-CA/2026/04/202604060400LithuaniaEggs.jpg)|

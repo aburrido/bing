@@ -5,3 +5,4 @@
 202604030400|ArmbrugBridge|Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)|Bridging the gap, one arm at a time|![](/en-CA/2026/04/202604030400ArmbrugBridge.jpg)|
 202604040400|GrouseGuff|Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)|The lek side story|![](/en-CA/2026/04/202604040400GrouseGuff.jpg)|
 202604050400|LithuaniaEggs|Colourful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)|Hello, Easter Sunday|![](/en-CA/2026/04/202604050400LithuaniaEggs.jpg)|
+202604060400|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Where power resides|![](/en-CA/2026/04/202604060400CastleBlossoms.jpg)|
