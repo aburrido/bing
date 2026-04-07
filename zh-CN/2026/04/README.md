@@ -7,3 +7,4 @@
 202604041600|SpringSnowdrops|春天的雪钟花 (© klagyivik/Getty Images)|静静绽放的变化|![](/zh-CN/2026/04/202604041600SpringSnowdrops.jpg)|
 202604051600|CastleBlossoms|樱花盛开的弘前城，弘前，日本 (© Glenn Waters/Getty Images)|芬芳四月|![](/zh-CN/2026/04/202604051600CastleBlossoms.jpg)|
 202604061600|BeaverPortrait|河狸，德国 (© Andyworks/Getty Images)|一根树枝，一点工程|![](/zh-CN/2026/04/202604061600BeaverPortrait.jpg)|
+202604071600|SeattleSunrise|西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)|翡翠之城|![](/zh-CN/2026/04/202604071600SeattleSunrise.jpg)|
