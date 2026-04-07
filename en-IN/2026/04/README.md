@@ -7,3 +7,4 @@
 202604041830|LithuaniaEggs|Colourful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)|Hello, Easter Sunday|![](/en-IN/2026/04/202604041830LithuaniaEggs.jpg)|
 202604051830|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Where power resides|![](/en-IN/2026/04/202604051830CastleBlossoms.jpg)|
 202604061830|OcellarisClownfish|Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)|Reefside roommates|![](/en-IN/2026/04/202604061830OcellarisClownfish.jpg)|
+202604071830|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|The Emerald City|![](/en-IN/2026/04/202604071830SeattleSunrise.jpg)|
