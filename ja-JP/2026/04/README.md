@@ -7,3 +7,4 @@
 202604041500|LithuaniaEggs|カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)|今日は復活祭|![](/ja-JP/2026/04/202604041500LithuaniaEggs.jpg)|
 202604051500|CastleBlossoms|弘前城, 青森県 弘前市 (© Glenn Waters/Getty Images)|今日は城の日|![](/ja-JP/2026/04/202604051500CastleBlossoms.jpg)|
 202604061500|BeaverPortrait|ビーバー, ドイツ (© Andyworks/Getty Images)|今日は国際ビーバーデー|![](/ja-JP/2026/04/202604061500BeaverPortrait.jpg)|
+202604071500|SeattleSunrise|シアトル市のウォーターフロント, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)|夕焼けに染まる港と街の景色|![](/ja-JP/2026/04/202604071500SeattleSunrise.jpg)|
