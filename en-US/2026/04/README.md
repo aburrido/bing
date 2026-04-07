@@ -7,3 +7,4 @@
 202604040700|GrouseGuff|Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)|The lek side story|![](/en-US/2026/04/202604040700GrouseGuff.jpg)|
 202604050700|LithuaniaEggs|Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)|Hello, Easter Sunday|![](/en-US/2026/04/202604050700LithuaniaEggs.jpg)|
 202604060700|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Where power resides|![](/en-US/2026/04/202604060700CastleBlossoms.jpg)|
+202604070700|BeaverPortrait|Beaver, Germany (© Andyworks/Getty Images)|One stick at a time|![](/en-US/2026/04/202604070700BeaverPortrait.jpg)|
