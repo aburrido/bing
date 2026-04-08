@@ -8,3 +8,4 @@
 202604050700|LacGentau|Lake Gentau in the French Pyrenees, Pyrénées-Atlantiques, France (© MICHAUX Stéphane/Hemis.fr/Alamy)|Info|![](/en-AU/2026/04/202604050700LacGentau.jpg)|
 202604060700|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Info|![](/en-AU/2026/04/202604060700CastleBlossoms.jpg)|
 202604070700|BeaverPortrait|Beaver, Germany (© Andyworks/Getty Images)|Info|![](/en-AU/2026/04/202604070700BeaverPortrait.jpg)|
+202604080700|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|Info|![](/en-AU/2026/04/202604080700SeattleSunrise.jpg)|
