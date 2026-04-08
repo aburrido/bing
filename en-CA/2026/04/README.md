@@ -7,3 +7,4 @@
 202604050400|LithuaniaEggs|Colourful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)|Hello, Easter Sunday|![](/en-CA/2026/04/202604050400LithuaniaEggs.jpg)|
 202604060400|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Where power resides|![](/en-CA/2026/04/202604060400CastleBlossoms.jpg)|
 202604070400|BeaverPortrait|Beaver, Germany (© Andyworks/Getty Images)|One stick at a time|![](/en-CA/2026/04/202604070400BeaverPortrait.jpg)|
+202604080400|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|The Emerald City|![](/en-CA/2026/04/202604080400SeattleSunrise.jpg)|

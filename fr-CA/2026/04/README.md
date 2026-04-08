@@ -7,3 +7,4 @@
 202604050400|CastleBlossoms|Château d’Hirosaki et cerisiers en fleur, Japon (© Glenn Waters/Getty Images)|L’équilibre fragile entre force et beauté|![](/fr-CA/2026/04/202604050400CastleBlossoms.jpg)|
 202604060400|LithuaniaEggs|Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)|C’est parti pour la chasse aux œufs!|![](/fr-CA/2026/04/202604060400LithuaniaEggs.jpg)|
 202604070400|BeaverPortrait|Castor, Allemagne (© Andyworks/Getty Images)|Une branche à la fois|![](/fr-CA/2026/04/202604070400BeaverPortrait.jpg)|
+202604080400|SeattleSunrise|Seattle, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)|La Cité Émeraude|![](/fr-CA/2026/04/202604080400SeattleSunrise.jpg)|
