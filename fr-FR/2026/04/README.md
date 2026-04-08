@@ -8,3 +8,4 @@
 202604052200|LithuaniaEggs|Œufs de Pâques décorés à la main, Vilnius, Lituanie (© maximkabb/Getty Images)|C’est parti pour la chasse aux œufs !|![](/fr-FR/2026/04/202604052200LithuaniaEggs.jpg)|
 202604062200|BeaverPortrait|Castor, Allemagne (© Andyworks/Getty Images)|Une branche à la fois|![](/fr-FR/2026/04/202604062200BeaverPortrait.jpg)|
 202604072200|SeattleSunrise|Seattle, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)|La Cité Émeraude|![](/fr-FR/2026/04/202604072200SeattleSunrise.jpg)|
+202604082200|WalesWaterfall|Cascade de Sgwd yr Eira, Parc national des Bannau Brycheiniog, Pays de Galles (© Guy Edwardes/Nature Picture Library)|Voile de lumière|![](/fr-FR/2026/04/202604082200WalesWaterfall.jpg)|
