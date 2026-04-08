@@ -8,3 +8,4 @@
 202604051600|CastleBlossoms|樱花盛开的弘前城，弘前，日本 (© Glenn Waters/Getty Images)|芬芳四月|![](/zh-CN/2026/04/202604051600CastleBlossoms.jpg)|
 202604061600|BeaverPortrait|河狸，德国 (© Andyworks/Getty Images)|一根树枝，一点工程|![](/zh-CN/2026/04/202604061600BeaverPortrait.jpg)|
 202604071600|SeattleSunrise|西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)|翡翠之城|![](/zh-CN/2026/04/202604071600SeattleSunrise.jpg)|
+202604081600|WalesWaterfall|雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)|光之水帘|![](/zh-CN/2026/04/202604081600WalesWaterfall.jpg)|
