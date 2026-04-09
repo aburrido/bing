@@ -8,3 +8,4 @@
 202604060400|CastleBlossoms|Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)|Where power resides|![](/en-CA/2026/04/202604060400CastleBlossoms.jpg)|
 202604070400|BeaverPortrait|Beaver, Germany (© Andyworks/Getty Images)|One stick at a time|![](/en-CA/2026/04/202604070400BeaverPortrait.jpg)|
 202604080400|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|The Emerald City|![](/en-CA/2026/04/202604080400SeattleSunrise.jpg)|
+202604090400|WalesWaterfall|Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)|Veil of light|![](/en-CA/2026/04/202604090400WalesWaterfall.jpg)|
