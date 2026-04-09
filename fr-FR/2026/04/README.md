@@ -9,3 +9,4 @@
 202604062200|BeaverPortrait|Castor, Allemagne (© Andyworks/Getty Images)|Une branche à la fois|![](/fr-FR/2026/04/202604062200BeaverPortrait.jpg)|
 202604072200|SeattleSunrise|Seattle, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)|La Cité Émeraude|![](/fr-FR/2026/04/202604072200SeattleSunrise.jpg)|
 202604082200|WalesWaterfall|Cascade de Sgwd yr Eira, Parc national des Bannau Brycheiniog, Pays de Galles (© Guy Edwardes/Nature Picture Library)|Voile de lumière|![](/fr-FR/2026/04/202604082200WalesWaterfall.jpg)|
+202604092200|FoxSiblings|Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)|Le regard pétillant de ruse|![](/fr-FR/2026/04/202604092200FoxSiblings.jpg)|

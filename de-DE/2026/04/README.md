@@ -9,3 +9,4 @@
 202604062200|BeaverPortrait|Biber, Deutschland (© Andyworks/Getty Images)|Biberkraft am Werk|![](/de-DE/2026/04/202604062200BeaverPortrait.jpg)|
 202604072200|SeattleSunrise|Seattle, Washington, USA (© Jim Patterson/Tandem Stills + Motion)|Die Smaragdstadt|![](/de-DE/2026/04/202604072200SeattleSunrise.jpg)|
 202604082200|WalesWaterfall|Wasserfall Sgwd yr Eira, Bannau-Brycheiniog-Nationalpark, Wales (© Guy Edwardes/Nature Picture Library)|Schleier aus Licht|![](/de-DE/2026/04/202604082200WalesWaterfall.jpg)|
+202604092200|FoxSiblings|Zwei junge Rotfüchse im Nationalpark Karula, Estland (© Sven Zacek/Nature Picture Library)|Kleine Pfoten, große Ideen|![](/de-DE/2026/04/202604092200FoxSiblings.jpg)|
