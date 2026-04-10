@@ -10,3 +10,4 @@
 202604071830|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|The Emerald City|![](/en-IN/2026/04/202604071830SeattleSunrise.jpg)|
 202604081830|WalesWaterfall|Sgwd yr Eira waterfall, Brecon Beacons National Park, Wales (© Guy Edwardes/Nature Picture Library)|Veil of light|![](/en-IN/2026/04/202604081830WalesWaterfall.jpg)|
 202604091830|FoxSiblings|Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)|Plotting paws|![](/en-IN/2026/04/202604091830FoxSiblings.jpg)|
+202604101830|PlayaPapagayo|Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Volcanic veneer|![](/en-IN/2026/04/202604101830PlayaPapagayo.jpg)|
