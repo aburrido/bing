@@ -10,3 +10,4 @@
 202604072300|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|The Emerald City|![](/en-GB/2026/04/202604072300SeattleSunrise.jpg)|
 202604082300|WalesWaterfall|Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)|Veil of light|![](/en-GB/2026/04/202604082300WalesWaterfall.jpg)|
 202604092300|GrouseGuff|Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)|The lek side story|![](/en-GB/2026/04/202604092300GrouseGuff.jpg)|
+202604102300|PlayaPapagayo|Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Volcanic veneer|![](/en-GB/2026/04/202604102300PlayaPapagayo.jpg)|
