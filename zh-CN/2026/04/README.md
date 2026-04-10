@@ -10,3 +10,4 @@
 202604071600|SeattleSunrise|西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)|翡翠之城|![](/zh-CN/2026/04/202604071600SeattleSunrise.jpg)|
 202604081600|WalesWaterfall|雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)|光之水帘|![](/zh-CN/2026/04/202604081600WalesWaterfall.jpg)|
 202604091600|FoxSiblings|卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚 (© Sven Zacek/Nature Picture Library)|算计的小爪子|![](/zh-CN/2026/04/202604091600FoxSiblings.jpg)|
+202604101600|PlayaPapagayo|帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)|火山外衣|![](/zh-CN/2026/04/202604101600PlayaPapagayo.jpg)|
