@@ -10,3 +10,4 @@
 202604071500|SeattleSunrise|シアトル市のウォーターフロント, 米国 ワシントン州 (© Jim Patterson/Tandem Stills + Motion)|夕焼けに染まる港と街の景色|![](/ja-JP/2026/04/202604071500SeattleSunrise.jpg)|
 202604081500|WalesWaterfall|スグド・イル・エイル滝, ウェールズ (© Guy Edwardes/Nature Picture Library)|森の中に流れ落ちる滝|![](/ja-JP/2026/04/202604081500WalesWaterfall.jpg)|
 202604091500|FoxSiblings|アカギツネ, エストニア (© Sven Zacek/Nature Picture Library)|今日はきょうだいの日|![](/ja-JP/2026/04/202604091500FoxSiblings.jpg)|
+202604101500|PlayaPapagayo|パパガヨビーチ, スペイン (© Gavin Hellier/Getty Images)|乾いた大地に囲まれた青い海|![](/ja-JP/2026/04/202604101500PlayaPapagayo.jpg)|
