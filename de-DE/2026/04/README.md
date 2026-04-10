@@ -10,3 +10,4 @@
 202604072200|SeattleSunrise|Seattle, Washington, USA (© Jim Patterson/Tandem Stills + Motion)|Die Smaragdstadt|![](/de-DE/2026/04/202604072200SeattleSunrise.jpg)|
 202604082200|WalesWaterfall|Wasserfall Sgwd yr Eira, Bannau-Brycheiniog-Nationalpark, Wales (© Guy Edwardes/Nature Picture Library)|Schleier aus Licht|![](/de-DE/2026/04/202604082200WalesWaterfall.jpg)|
 202604092200|FoxSiblings|Zwei junge Rotfüchse im Nationalpark Karula, Estland (© Sven Zacek/Nature Picture Library)|Kleine Pfoten, große Ideen|![](/de-DE/2026/04/202604092200FoxSiblings.jpg)|
+202604102200|PlayaPapagayo|Playa del Papagayo, Lanzarote, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)|Wo Lava auf Meer trifft|![](/de-DE/2026/04/202604102200PlayaPapagayo.jpg)|

@@ -10,3 +10,4 @@
 202604072200|SeattleSunrise|Seattle, Washington, États-Unis (© Jim Patterson/Tandem Stills + Motion)|La Cité Émeraude|![](/fr-FR/2026/04/202604072200SeattleSunrise.jpg)|
 202604082200|WalesWaterfall|Cascade de Sgwd yr Eira, Parc national des Bannau Brycheiniog, Pays de Galles (© Guy Edwardes/Nature Picture Library)|Voile de lumière|![](/fr-FR/2026/04/202604082200WalesWaterfall.jpg)|
 202604092200|FoxSiblings|Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)|Le regard pétillant de ruse|![](/fr-FR/2026/04/202604092200FoxSiblings.jpg)|
+202604102200|TrocaderoParisRoubaix|Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)|3, 2, 1… À vos pédales !|![](/fr-FR/2026/04/202604102200TrocaderoParisRoubaix.jpg)|
