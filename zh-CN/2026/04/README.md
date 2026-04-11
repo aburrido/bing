@@ -11,3 +11,4 @@
 202604081600|WalesWaterfall|雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)|光之水帘|![](/zh-CN/2026/04/202604081600WalesWaterfall.jpg)|
 202604091600|FoxSiblings|卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚 (© Sven Zacek/Nature Picture Library)|算计的小爪子|![](/zh-CN/2026/04/202604091600FoxSiblings.jpg)|
 202604101600|PlayaPapagayo|帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)|火山外衣|![](/zh-CN/2026/04/202604101600PlayaPapagayo.jpg)|
+202604111600|SpaceTrails|城市灯光在下方划过, 拍摄于国际空间站 (© NASA)|离开地球的第一步|![](/zh-CN/2026/04/202604111600SpaceTrails.jpg)|
