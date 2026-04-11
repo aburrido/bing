@@ -10,3 +10,4 @@
 202604080400|SeattleSunrise|Seattle, Washington, United States (© Jim Patterson/Tandem Stills + Motion)|The Emerald City|![](/en-CA/2026/04/202604080400SeattleSunrise.jpg)|
 202604090400|WalesWaterfall|Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)|Veil of light|![](/en-CA/2026/04/202604090400WalesWaterfall.jpg)|
 202604100400|FoxSiblings|Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)|Plotting paws|![](/en-CA/2026/04/202604100400FoxSiblings.jpg)|
+202604110400|StanleySakura|A canopy of cherry blossoms in Stanley Park, Vancouver (© WendyNordvikCarr/Getty Images)|Follow the blossom map|![](/en-CA/2026/04/202604110400StanleySakura.jpg)|
