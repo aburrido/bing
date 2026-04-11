@@ -11,3 +11,4 @@
 202604082200|WalesWaterfall|Wasserfall Sgwd yr Eira, Bannau-Brycheiniog-Nationalpark, Wales (© Guy Edwardes/Nature Picture Library)|Schleier aus Licht|![](/de-DE/2026/04/202604082200WalesWaterfall.jpg)|
 202604092200|FoxSiblings|Zwei junge Rotfüchse im Nationalpark Karula, Estland (© Sven Zacek/Nature Picture Library)|Kleine Pfoten, große Ideen|![](/de-DE/2026/04/202604092200FoxSiblings.jpg)|
 202604102200|PlayaPapagayo|Playa del Papagayo, Lanzarote, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)|Wo Lava auf Meer trifft|![](/de-DE/2026/04/202604102200PlayaPapagayo.jpg)|
+202604112200|SpaceTrails|Lichterspuren der Erde, aufgenommen von der Internationalen Raumstation (© NASA)|Der erste Schritt ins All|![](/de-DE/2026/04/202604112200SpaceTrails.jpg)|
