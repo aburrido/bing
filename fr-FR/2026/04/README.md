@@ -12,3 +12,4 @@
 202604092200|FoxSiblings|Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)|Le regard pétillant de ruse|![](/fr-FR/2026/04/202604092200FoxSiblings.jpg)|
 202604102200|TrocaderoParisRoubaix|Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)|3, 2, 1… À vos pédales !|![](/fr-FR/2026/04/202604102200TrocaderoParisRoubaix.jpg)|
 202604112200|SpaceTrails|Lumières de villes vues depuis la Station Spatiale Internationale (© NASA)|Le premier pas hors Terre|![](/fr-FR/2026/04/202604112200SpaceTrails.jpg)|
+202604122200|BorregoStars|La Voie lactée au-dessus du parc d’État du désert d’Anza-Borrego, Californie, États-Unis (© Kevin Key/Slworking/Getty Images)|Moins éclairer pour mieux observer|![](/fr-FR/2026/04/202604122200BorregoStars.jpg)|

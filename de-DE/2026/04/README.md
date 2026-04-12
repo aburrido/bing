@@ -12,3 +12,4 @@
 202604092200|FoxSiblings|Zwei junge Rotfüchse im Nationalpark Karula, Estland (© Sven Zacek/Nature Picture Library)|Kleine Pfoten, große Ideen|![](/de-DE/2026/04/202604092200FoxSiblings.jpg)|
 202604102200|PlayaPapagayo|Playa del Papagayo, Lanzarote, Kanarische Inseln, Spanien (© Gavin Hellier/Getty Images)|Wo Lava auf Meer trifft|![](/de-DE/2026/04/202604102200PlayaPapagayo.jpg)|
 202604112200|SpaceTrails|Lichterspuren der Erde, aufgenommen von der Internationalen Raumstation (© NASA)|Der erste Schritt ins All|![](/de-DE/2026/04/202604112200SpaceTrails.jpg)|
+202604122200|ChiffchaffSpring|Zilpzalp, Deutschland (© Andyworks/Getty Images)|Ein Vogel mit gutem Ruf|![](/de-DE/2026/04/202604122200ChiffchaffSpring.jpg)|
