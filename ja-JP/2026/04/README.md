@@ -12,3 +12,4 @@
 202604091500|FoxSiblings|アカギツネ, エストニア (© Sven Zacek/Nature Picture Library)|今日はきょうだいの日|![](/ja-JP/2026/04/202604091500FoxSiblings.jpg)|
 202604101500|PlayaPapagayo|パパガヨビーチ, スペイン (© Gavin Hellier/Getty Images)|乾いた大地に囲まれた青い海|![](/ja-JP/2026/04/202604101500PlayaPapagayo.jpg)|
 202604111500|SpaceTrails|光の筋となる都市の夜景, 国際宇宙ステーション (© NASA)|今日は世界宇宙飛行の日|![](/ja-JP/2026/04/202604111500SpaceTrails.jpg)|
+202604121500|BorregoStars|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Kevin Key/Slworking)|今日から国際ダークスカイ・ウィーク|![](/ja-JP/2026/04/202604121500BorregoStars.jpg)|
