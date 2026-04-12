@@ -12,3 +12,4 @@
 202604090700|WalesWaterfall|Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)|Info|![](/en-AU/2026/04/202604090700WalesWaterfall.jpg)|
 202604100700|FoxSiblings|Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)|Info|![](/en-AU/2026/04/202604100700FoxSiblings.jpg)|
 202604110700|PlayaPapagayo|Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2026/04/202604110700PlayaPapagayo.jpg)|
+202604120700|SpaceTrails|City lights streak below, taken from the International Space Station (© NASA)|Info|![](/en-AU/2026/04/202604120700SpaceTrails.jpg)|
