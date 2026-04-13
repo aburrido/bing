@@ -13,3 +13,4 @@
 202604100700|FoxSiblings|Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)|Plotting paws|![](/en-US/2026/04/202604100700FoxSiblings.jpg)|
 202604110700|PlayaPapagayo|Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Volcanic veneer|![](/en-US/2026/04/202604110700PlayaPapagayo.jpg)|
 202604120700|SpaceTrails|City lights streak below, taken from the International Space Station (© NASA)|The first step off Earth|![](/en-US/2026/04/202604120700SpaceTrails.jpg)|
+202604130700|BorregoStars|Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)|After the lights go down|![](/en-US/2026/04/202604130700BorregoStars.jpg)|
