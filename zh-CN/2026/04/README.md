@@ -13,3 +13,4 @@
 202604101600|PlayaPapagayo|帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)|火山外衣|![](/zh-CN/2026/04/202604101600PlayaPapagayo.jpg)|
 202604111600|SpaceTrails|城市灯光在下方划过, 拍摄于国际空间站 (© NASA)|离开地球的第一步|![](/zh-CN/2026/04/202604111600SpaceTrails.jpg)|
 202604121600|BorregoStars|安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)|当灯光熄灭之后|![](/zh-CN/2026/04/202604121600BorregoStars.jpg)|
+202604131600|OcellarisClownfish|海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚 (© Magnus Lundgren/Nature Picture Library)|珊瑚礁邻居|![](/zh-CN/2026/04/202604131600OcellarisClownfish.jpg)|
