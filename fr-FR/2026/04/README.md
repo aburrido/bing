@@ -13,3 +13,4 @@
 202604102200|TrocaderoParisRoubaix|Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)|3, 2, 1… À vos pédales !|![](/fr-FR/2026/04/202604102200TrocaderoParisRoubaix.jpg)|
 202604112200|SpaceTrails|Lumières de villes vues depuis la Station Spatiale Internationale (© NASA)|Le premier pas hors Terre|![](/fr-FR/2026/04/202604112200SpaceTrails.jpg)|
 202604122200|BorregoStars|La Voie lactée au-dessus du parc d’État du désert d’Anza-Borrego, Californie, États-Unis (© Kevin Key/Slworking/Getty Images)|Moins éclairer pour mieux observer|![](/fr-FR/2026/04/202604122200BorregoStars.jpg)|
+202604132200|OcellarisClownfish|Poisson-clown dans une anémone de mer, Îles Raja Ampat, Indonésie (© Magnus Lundgren/Nature Picture Library)|Colocataires des récifs|![](/fr-FR/2026/04/202604132200OcellarisClownfish.jpg)|
