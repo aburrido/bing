@@ -12,3 +12,4 @@
 202604100400|FoxSiblings|Deux renardeaux dans le parc national de Karula, Estonie (© Sven Zacek/Nature Picture Library)|Le regard pétillant de ruse|![](/fr-CA/2026/04/202604100400FoxSiblings.jpg)|
 202604110400|StanleySakura|Une voûte de fleurs de cerisier dans le parc Stanley, Vancouver (© WendyNordvikCarr/Getty Images)|Un ciel de pétales|![](/fr-CA/2026/04/202604110400StanleySakura.jpg)|
 202604120400|SpaceTrails|Lumières de villes vues depuis la Station Spatiale Internationale (© NASA)|Le premier pas hors Terre|![](/fr-CA/2026/04/202604120400SpaceTrails.jpg)|
+202604130400|BorregoStars|La Voie lactée au-dessus du parc d’État du désert d’Anza‑Borrego, Californie, États-Unis (© Kevin Key/Slworking)/Getty Images)|Moins éclairer pour mieux observer|![](/fr-CA/2026/04/202604130400BorregoStars.jpg)|

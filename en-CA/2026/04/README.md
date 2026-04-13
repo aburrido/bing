@@ -12,3 +12,4 @@
 202604100400|FoxSiblings|Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)|Plotting paws|![](/en-CA/2026/04/202604100400FoxSiblings.jpg)|
 202604110400|StanleySakura|A canopy of cherry blossoms in Stanley Park, Vancouver (© WendyNordvikCarr/Getty Images)|Follow the blossom map|![](/en-CA/2026/04/202604110400StanleySakura.jpg)|
 202604120400|SpaceTrails|City lights streak below, taken from the International Space Station (© NASA)|The first step off Earth|![](/en-CA/2026/04/202604120400SpaceTrails.jpg)|
+202604130400|BorregoStars|Milky Way over Anza-Borrego Desert State Park, California, United States (© Kevin Key/Slworking)/Getty Images)|After the lights go down|![](/en-CA/2026/04/202604130400BorregoStars.jpg)|
