@@ -14,3 +14,4 @@
 202604111830|SpaceTrails|City lights streak below, taken from the International Space Station (© NASA)|The first step off Earth|![](/en-IN/2026/04/202604111830SpaceTrails.jpg)|
 202604121830|BorregoStars|Milky Way over Anza-Borrego Desert State Park, California, United States (© Kevin Key/Slworking)/Getty Images)|After the lights go down|![](/en-IN/2026/04/202604121830BorregoStars.jpg)|
 202604131830|AmbedkarJayanti2026|Ambedkar Memorial Park, Lucknow, Uttar Pradesh (© Varun Kumar Tiwari/iStock/Getty Images)|Not just a birthday, a revolution|![](/en-IN/2026/04/202604131830AmbedkarJayanti2026.jpg)|
+202604141830|VanGoghFields|The Carrières des Lumières exhibit of Vincent van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Stepping inside the living canvas|![](/en-IN/2026/04/202604141830VanGoghFields.jpg)|
