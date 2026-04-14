@@ -14,3 +14,4 @@
 202604110700|PlayaPapagayo|Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)|Info|![](/en-AU/2026/04/202604110700PlayaPapagayo.jpg)|
 202604120700|SpaceTrails|City lights streak below, taken from the International Space Station (© NASA)|Info|![](/en-AU/2026/04/202604120700SpaceTrails.jpg)|
 202604130700|BorregoStars|Milky Way over Anza-Borrego Desert State Park, California, United States (© Kevin Key/Slworking)/Getty Images)|Info|![](/en-AU/2026/04/202604130700BorregoStars.jpg)|
+202604140700|OcellarisClownfish|Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)|Info|![](/en-AU/2026/04/202604140700OcellarisClownfish.jpg)|
