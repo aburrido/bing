@@ -14,3 +14,4 @@
 202604112200|SpaceTrails|Lichterspuren der Erde, aufgenommen von der Internationalen Raumstation (© NASA)|Der erste Schritt ins All|![](/de-DE/2026/04/202604112200SpaceTrails.jpg)|
 202604122200|ChiffchaffSpring|Zilpzalp, Deutschland (© Andyworks/Getty Images)|Ein Vogel mit gutem Ruf|![](/de-DE/2026/04/202604122200ChiffchaffSpring.jpg)|
 202604132200|OcellarisClownfish|Gewöhnlicher Clownfisch in einer Seeanemone, Raja-Ampat-Inseln, Indonesien (© Magnus Lundgren/Nature Picture Library)|Nachbarn im Riff|![](/de-DE/2026/04/202604132200OcellarisClownfish.jpg)|
+202604142200|VanGoghFields|Van-Gogh-Ausstellung in den Carrières des Lumières, Les Baux‑de‑Provence, Frankreich (© Patrick Aventurier/Getty Images)|Eintauchen in eine lebendige Leinwand|![](/de-DE/2026/04/202604142200VanGoghFields.jpg)|
