@@ -14,3 +14,4 @@
 202604111500|SpaceTrails|光の筋となる都市の夜景, 国際宇宙ステーション (© NASA)|今日は世界宇宙飛行の日|![](/ja-JP/2026/04/202604111500SpaceTrails.jpg)|
 202604121500|BorregoStars|アンザ・ボレゴ砂漠州立公園, 米国 カリフォルニア州 (© Kevin Key/Slworking)|今日から国際ダークスカイ・ウィーク|![](/ja-JP/2026/04/202604121500BorregoStars.jpg)|
 202604131500|OcellarisClownfish|クマノミ, インドネシア (© Magnus Lundgren/Nature Picture Library)|イソギンチャクの中で身を寄せる小魚|![](/ja-JP/2026/04/202604131500OcellarisClownfish.jpg)|
+202604141500|Shibazakura2026|芝桜, 山梨県 (© DoctorEgg/Getty images)|富士芝桜まつりが開催中|![](/ja-JP/2026/04/202604141500Shibazakura2026.jpg)|
