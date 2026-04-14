@@ -14,3 +14,4 @@
 202604111600|SpaceTrails|城市灯光在下方划过, 拍摄于国际空间站 (© NASA)|离开地球的第一步|![](/zh-CN/2026/04/202604111600SpaceTrails.jpg)|
 202604121600|BorregoStars|安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)|当灯光熄灭之后|![](/zh-CN/2026/04/202604121600BorregoStars.jpg)|
 202604131600|OcellarisClownfish|海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚 (© Magnus Lundgren/Nature Picture Library)|珊瑚礁邻居|![](/zh-CN/2026/04/202604131600OcellarisClownfish.jpg)|
+202604141600|VanGoghFields|光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)|走进这幅鲜活的画布|![](/zh-CN/2026/04/202604141600VanGoghFields.jpg)|
