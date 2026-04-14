@@ -13,3 +13,4 @@
 202604110400|StanleySakura|Une voûte de fleurs de cerisier dans le parc Stanley, Vancouver (© WendyNordvikCarr/Getty Images)|Un ciel de pétales|![](/fr-CA/2026/04/202604110400StanleySakura.jpg)|
 202604120400|SpaceTrails|Lumières de villes vues depuis la Station Spatiale Internationale (© NASA)|Le premier pas hors Terre|![](/fr-CA/2026/04/202604120400SpaceTrails.jpg)|
 202604130400|BorregoStars|La Voie lactée au-dessus du parc d’État du désert d’Anza‑Borrego, Californie, États-Unis (© Kevin Key/Slworking)/Getty Images)|Moins éclairer pour mieux observer|![](/fr-CA/2026/04/202604130400BorregoStars.jpg)|
+202604140400|OcellarisClownfish|Poisson-clown dans une anémone de mer, Îles Raja Ampat, Indonésie (© Magnus Lundgren/Nature Picture Library)|Colocataires des récifs|![](/fr-CA/2026/04/202604140400OcellarisClownfish.jpg)|
