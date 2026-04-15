@@ -15,3 +15,4 @@
 202604122200|BorregoStars|La Voie lactée au-dessus du parc d’État du désert d’Anza-Borrego, Californie, États-Unis (© Kevin Key/Slworking/Getty Images)|Moins éclairer pour mieux observer|![](/fr-FR/2026/04/202604122200BorregoStars.jpg)|
 202604132200|OcellarisClownfish|Poisson-clown dans une anémone de mer, Îles Raja Ampat, Indonésie (© Magnus Lundgren/Nature Picture Library)|Colocataires des récifs|![](/fr-FR/2026/04/202604132200OcellarisClownfish.jpg)|
 202604142200|VanGoghFields|Exposition immersive Van Gogh aux Carrières des Lumières, Les Baux-de-Provence (© Patrick Aventurier/Getty Images)|Immersion au cœur de chefs-d’œuvre|![](/fr-FR/2026/04/202604142200VanGoghFields.jpg)|
+202604152200|SkagitTulips|Champ de tulipes de Skagit Valley, Washington, États-Unis (© Alan Majchrowicz/Getty Images)|La parade des tulipes|![](/fr-FR/2026/04/202604152200SkagitTulips.jpg)|

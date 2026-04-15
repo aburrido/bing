@@ -15,3 +15,4 @@
 202604122200|ChiffchaffSpring|Zilpzalp, Deutschland (© Andyworks/Getty Images)|Ein Vogel mit gutem Ruf|![](/de-DE/2026/04/202604122200ChiffchaffSpring.jpg)|
 202604132200|OcellarisClownfish|Gewöhnlicher Clownfisch in einer Seeanemone, Raja-Ampat-Inseln, Indonesien (© Magnus Lundgren/Nature Picture Library)|Nachbarn im Riff|![](/de-DE/2026/04/202604132200OcellarisClownfish.jpg)|
 202604142200|VanGoghFields|Van-Gogh-Ausstellung in den Carrières des Lumières, Les Baux‑de‑Provence, Frankreich (© Patrick Aventurier/Getty Images)|Eintauchen in eine lebendige Leinwand|![](/de-DE/2026/04/202604142200VanGoghFields.jpg)|
+202604152200|SkagitTulips|Tulpenfelder im Skagit Valley, Washington, USA (© Alan Majchrowicz/Getty Images)|Ein Meer aus Tulpen|![](/de-DE/2026/04/202604152200SkagitTulips.jpg)|
