@@ -15,3 +15,4 @@
 202604120700|SpaceTrails|City lights streak below, taken from the International Space Station (© NASA)|The first step off Earth|![](/en-US/2026/04/202604120700SpaceTrails.jpg)|
 202604130700|BorregoStars|Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)|After the lights go down|![](/en-US/2026/04/202604130700BorregoStars.jpg)|
 202604140700|OcellarisClownfish|Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)|Reefside roommates|![](/en-US/2026/04/202604140700OcellarisClownfish.jpg)|
+202604150700|VanGoghFields|The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Stepping inside the living canvas|![](/en-US/2026/04/202604150700VanGoghFields.jpg)|
