@@ -16,3 +16,4 @@
 202604130700|BorregoStars|Milky Way over Anza-Borrego Desert State Park, California, United States (© Kevin Key/Slworking)/Getty Images)|Info|![](/en-AU/2026/04/202604130700BorregoStars.jpg)|
 202604140700|OcellarisClownfish|Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)|Info|![](/en-AU/2026/04/202604140700OcellarisClownfish.jpg)|
 202604150700|AlbertaSnowMts|Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta, Canada (© chinaface/Getty images)|Info|![](/en-AU/2026/04/202604150700AlbertaSnowMts.jpg)|
+202604160700|SkagitTulips|Skagit Valley Tulip Fields, Washington, United States (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2026/04/202604160700SkagitTulips.jpg)|
