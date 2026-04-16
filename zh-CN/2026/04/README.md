@@ -16,3 +16,4 @@
 202604131600|OcellarisClownfish|海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚 (© Magnus Lundgren/Nature Picture Library)|珊瑚礁邻居|![](/zh-CN/2026/04/202604131600OcellarisClownfish.jpg)|
 202604141600|VanGoghFields|光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)|走进这幅鲜活的画布|![](/zh-CN/2026/04/202604141600VanGoghFields.jpg)|
 202604151600|SkagitTulips|斯卡吉特谷地郁金香花田, 华盛顿, 美国 (© Alan Majchrowicz/Getty Images)|花瓣巡游|![](/zh-CN/2026/04/202604151600SkagitTulips.jpg)|
+202604161600|FlyingFoxMom|灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚 (© Doug Gimesy/Nature Picture Library)|蝙蝠信号：开启|![](/zh-CN/2026/04/202604161600FlyingFoxMom.jpg)|
