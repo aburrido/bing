@@ -16,3 +16,4 @@
 202604132300|OcellarisClownfish|Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)|Reefside roommates|![](/en-GB/2026/04/202604132300OcellarisClownfish.jpg)|
 202604142300|VanGoghFields|The Carrières des Lumières exhibit of Vincent van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Stepping inside the living canvas|![](/en-GB/2026/04/202604142300VanGoghFields.jpg)|
 202604152300|SkagitTulips|Skagit Valley Tulip Fields, Washington, United States (© Alan Majchrowicz/Getty Images)|Petal parade|![](/en-GB/2026/04/202604152300SkagitTulips.jpg)|
+202604162300|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-GB/2026/04/202604162300FlyingFoxMom.jpg)|
