@@ -16,3 +16,4 @@
 202604132200|OcellarisClownfish|Poisson-clown dans une anémone de mer, Îles Raja Ampat, Indonésie (© Magnus Lundgren/Nature Picture Library)|Colocataires des récifs|![](/fr-FR/2026/04/202604132200OcellarisClownfish.jpg)|
 202604142200|VanGoghFields|Exposition immersive Van Gogh aux Carrières des Lumières, Les Baux-de-Provence (© Patrick Aventurier/Getty Images)|Immersion au cœur de chefs-d’œuvre|![](/fr-FR/2026/04/202604142200VanGoghFields.jpg)|
 202604152200|SkagitTulips|Champ de tulipes de Skagit Valley, Washington, États-Unis (© Alan Majchrowicz/Getty Images)|La parade des tulipes|![](/fr-FR/2026/04/202604152200SkagitTulips.jpg)|
+202604162200|FlyingFoxMom|Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)|« Chauve » qui peut !|![](/fr-FR/2026/04/202604162200FlyingFoxMom.jpg)|

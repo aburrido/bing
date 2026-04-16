@@ -16,3 +16,4 @@
 202604132200|OcellarisClownfish|Gewöhnlicher Clownfisch in einer Seeanemone, Raja-Ampat-Inseln, Indonesien (© Magnus Lundgren/Nature Picture Library)|Nachbarn im Riff|![](/de-DE/2026/04/202604132200OcellarisClownfish.jpg)|
 202604142200|VanGoghFields|Van-Gogh-Ausstellung in den Carrières des Lumières, Les Baux‑de‑Provence, Frankreich (© Patrick Aventurier/Getty Images)|Eintauchen in eine lebendige Leinwand|![](/de-DE/2026/04/202604142200VanGoghFields.jpg)|
 202604152200|SkagitTulips|Tulpenfelder im Skagit Valley, Washington, USA (© Alan Majchrowicz/Getty Images)|Ein Meer aus Tulpen|![](/de-DE/2026/04/202604152200SkagitTulips.jpg)|
+202604162200|FlyingFoxMom|Graukopf‑Flughund mit Jungtier, Yarra Bend Park, Melbourne, Australien (© Doug Gimesy/Nature Picture Library)|Fest an Mamas Seite|![](/de-DE/2026/04/202604162200FlyingFoxMom.jpg)|
