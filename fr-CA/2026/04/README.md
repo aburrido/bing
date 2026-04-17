@@ -16,3 +16,4 @@
 202604140400|OcellarisClownfish|Poisson-clown dans une anémone de mer, Îles Raja Ampat, Indonésie (© Magnus Lundgren/Nature Picture Library)|Colocataires des récifs|![](/fr-CA/2026/04/202604140400OcellarisClownfish.jpg)|
 202604150400|VanGoghFields|Exposition immersive Van Gogh aux Carrières des Lumières, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Immersion au cœur de chefs-d’œuvre|![](/fr-CA/2026/04/202604150400VanGoghFields.jpg)|
 202604160400|Wildflowerbloom|Lupins en fleur à Terre-Neuve (© Nature, Parks/Outdoor/Shutterstock)|Bienvenue « Into the Wild »|![](/fr-CA/2026/04/202604160400Wildflowerbloom.jpg)|
+202604170400|FlyingFoxMom|Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)|« Chauve » qui peut!|![](/fr-CA/2026/04/202604170400FlyingFoxMom.jpg)|

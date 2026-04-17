@@ -16,3 +16,4 @@
 202604140400|OcellarisClownfish|Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)|Reefside roommates|![](/en-CA/2026/04/202604140400OcellarisClownfish.jpg)|
 202604150400|VanGoghFields|The Carrières des Lumières exhibit of Vincent van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Stepping inside the living canvas|![](/en-CA/2026/04/202604150400VanGoghFields.jpg)|
 202604160400|Wildflowerbloom|Blooming lupines in Newfoundland (© Nature, Parks/Outdoor/Shutterstock)|Be a wildflower|![](/en-CA/2026/04/202604160400Wildflowerbloom.jpg)|
+202604170400|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-CA/2026/04/202604170400FlyingFoxMom.jpg)|
