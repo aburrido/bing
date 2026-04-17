@@ -17,3 +17,4 @@
 202604141600|VanGoghFields|光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)|走进这幅鲜活的画布|![](/zh-CN/2026/04/202604141600VanGoghFields.jpg)|
 202604151600|SkagitTulips|斯卡吉特谷地郁金香花田, 华盛顿, 美国 (© Alan Majchrowicz/Getty Images)|花瓣巡游|![](/zh-CN/2026/04/202604151600SkagitTulips.jpg)|
 202604161600|FlyingFoxMom|灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚 (© Doug Gimesy/Nature Picture Library)|蝙蝠信号：开启|![](/zh-CN/2026/04/202604161600FlyingFoxMom.jpg)|
+202604171600|MaoiStatues|摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)|未完成巨像的静默|![](/zh-CN/2026/04/202604171600MaoiStatues.jpg)|
