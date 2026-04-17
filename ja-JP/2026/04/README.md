@@ -17,3 +17,4 @@
 202604141500|Shibazakura2026|芝桜, 山梨県 (© DoctorEgg/Getty images)|富士芝桜まつりが開催中|![](/ja-JP/2026/04/202604141500Shibazakura2026.jpg)|
 202604151500|SkagitTulips|スカジットバレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)|一面に咲き誇るピンクの花畑|![](/ja-JP/2026/04/202604151500SkagitTulips.jpg)|
 202604161500|FlyingFoxMom|ハイイロオオコウモリ, オーストラリア (© Doug Gimesy/Nature Picture Library)|今日は国際コウモリ感謝の日|![](/ja-JP/2026/04/202604161500FlyingFoxMom.jpg)|
+202604171500|MaoiStatues|モアイ像, チリ (© Gavin Hellier/Alamy)|今日は世界遺産の日|![](/ja-JP/2026/04/202604171500MaoiStatues.jpg)|
