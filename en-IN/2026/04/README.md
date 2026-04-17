@@ -17,3 +17,4 @@
 202604141830|VanGoghFields|The Carrières des Lumières exhibit of Vincent van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Stepping inside the living canvas|![](/en-IN/2026/04/202604141830VanGoghFields.jpg)|
 202604151830|SkagitTulips|Skagit Valley Tulip Fields, Washington, United States (© Alan Majchrowicz/Getty Images)|Petal parade|![](/en-IN/2026/04/202604151830SkagitTulips.jpg)|
 202604161830|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-IN/2026/04/202604161830FlyingFoxMom.jpg)|
+202604171830|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-IN/2026/04/202604171830MaoiStatues.jpg)|
