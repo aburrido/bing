@@ -18,3 +18,4 @@
 202604151500|SkagitTulips|スカジットバレー, 米国 ワシントン州 (© Alan Majchrowicz/Getty Images)|一面に咲き誇るピンクの花畑|![](/ja-JP/2026/04/202604151500SkagitTulips.jpg)|
 202604161500|FlyingFoxMom|ハイイロオオコウモリ, オーストラリア (© Doug Gimesy/Nature Picture Library)|今日は国際コウモリ感謝の日|![](/ja-JP/2026/04/202604161500FlyingFoxMom.jpg)|
 202604171500|MaoiStatues|モアイ像, チリ (© Gavin Hellier/Alamy)|今日は世界遺産の日|![](/ja-JP/2026/04/202604171500MaoiStatues.jpg)|
+202604181500|BelemTowerBank|ベレンの塔, ポルトガル (© f9photos/Getty Images)|水辺にたたずむ歴史的な塔|![](/ja-JP/2026/04/202604181500BelemTowerBank.jpg)|
