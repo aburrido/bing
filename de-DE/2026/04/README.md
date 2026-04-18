@@ -18,3 +18,4 @@
 202604152200|SkagitTulips|Tulpenfelder im Skagit Valley, Washington, USA (© Alan Majchrowicz/Getty Images)|Ein Meer aus Tulpen|![](/de-DE/2026/04/202604152200SkagitTulips.jpg)|
 202604162200|FlyingFoxMom|Graukopf‑Flughund mit Jungtier, Yarra Bend Park, Melbourne, Australien (© Doug Gimesy/Nature Picture Library)|Fest an Mamas Seite|![](/de-DE/2026/04/202604162200FlyingFoxMom.jpg)|
 202604172200|CathedralCologne|Eingangsbereich des Kölner Doms, Nordrhein‑Westfalen (© ALFSnaiper/Getty Images)|Ein Tor zur Geschichte|![](/de-DE/2026/04/202604172200CathedralCologne.jpg)|
+202604182200|TranBA|Praia do Espelho, Porto Seguro, Bahia, Brasilien (© Marcelo Nacinovic/Getty Images)|Die Handschrift der Gezeiten|![](/de-DE/2026/04/202604182200TranBA.jpg)|
