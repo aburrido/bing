@@ -18,3 +18,4 @@
 202604152300|SkagitTulips|Skagit Valley Tulip Fields, Washington, United States (© Alan Majchrowicz/Getty Images)|Petal parade|![](/en-GB/2026/04/202604152300SkagitTulips.jpg)|
 202604162300|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-GB/2026/04/202604162300FlyingFoxMom.jpg)|
 202604172300|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-GB/2026/04/202604172300MaoiStatues.jpg)|
+202604182300|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-GB/2026/04/202604182300HathawayCottage.jpg)|
