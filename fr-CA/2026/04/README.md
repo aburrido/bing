@@ -17,3 +17,4 @@
 202604150400|VanGoghFields|Exposition immersive Van Gogh aux Carrières des Lumières, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)|Immersion au cœur de chefs-d’œuvre|![](/fr-CA/2026/04/202604150400VanGoghFields.jpg)|
 202604160400|Wildflowerbloom|Lupins en fleur à Terre-Neuve (© Nature, Parks/Outdoor/Shutterstock)|Bienvenue « Into the Wild »|![](/fr-CA/2026/04/202604160400Wildflowerbloom.jpg)|
 202604170400|FlyingFoxMom|Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)|« Chauve » qui peut!|![](/fr-CA/2026/04/202604170400FlyingFoxMom.jpg)|
+202604180400|MaoiStatues|Carrières de moaïs, Rano Raraku, Île de Pâques, Chili (© Gavin Hellier/Alamy)|Figés dans le temps et dans la pierre|![](/fr-CA/2026/04/202604180400MaoiStatues.jpg)|
