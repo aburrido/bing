@@ -18,3 +18,4 @@
 202604160400|Wildflowerbloom|Blooming lupines in Newfoundland (© Nature, Parks/Outdoor/Shutterstock)|Be a wildflower|![](/en-CA/2026/04/202604160400Wildflowerbloom.jpg)|
 202604170400|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-CA/2026/04/202604170400FlyingFoxMom.jpg)|
 202604180400|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-CA/2026/04/202604180400MaoiStatues.jpg)|
+202604190400|TranBA|Mirror Beach, Porto Seguro, Bahia, Brazil (© Marcelo Nacinovic/Getty Images)|The tide's passing signature|![](/en-CA/2026/04/202604190400TranBA.jpg)|
