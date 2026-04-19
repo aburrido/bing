@@ -19,3 +19,4 @@
 202604161830|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-IN/2026/04/202604161830FlyingFoxMom.jpg)|
 202604171830|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-IN/2026/04/202604171830MaoiStatues.jpg)|
 202604181830|SpitiValley2026|Spiti Valley, Himachal Pradesh (© Rahul Wedpathak/500px/Getty Images)|A little thin on air, big on impact|![](/en-IN/2026/04/202604181830SpitiValley2026.jpg)|
+202604191830|SunsetKiva|Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)|The adventure doesn't end at sundown|![](/en-IN/2026/04/202604191830SunsetKiva.jpg)|
