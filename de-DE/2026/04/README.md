@@ -19,3 +19,4 @@
 202604162200|FlyingFoxMom|Graukopf‑Flughund mit Jungtier, Yarra Bend Park, Melbourne, Australien (© Doug Gimesy/Nature Picture Library)|Fest an Mamas Seite|![](/de-DE/2026/04/202604162200FlyingFoxMom.jpg)|
 202604172200|CathedralCologne|Eingangsbereich des Kölner Doms, Nordrhein‑Westfalen (© ALFSnaiper/Getty Images)|Ein Tor zur Geschichte|![](/de-DE/2026/04/202604172200CathedralCologne.jpg)|
 202604182200|TranBA|Praia do Espelho, Porto Seguro, Bahia, Brasilien (© Marcelo Nacinovic/Getty Images)|Die Handschrift der Gezeiten|![](/de-DE/2026/04/202604182200TranBA.jpg)|
+202604192200|SaarbrueckenRathaus|Rathaus St. Johann, Saarbrücken, Saarland (© frantic00/Getty Images)|Ein Rathaus mit Geschichte|![](/de-DE/2026/04/202604192200SaarbrueckenRathaus.jpg)|

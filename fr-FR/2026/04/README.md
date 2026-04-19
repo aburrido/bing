@@ -19,3 +19,4 @@
 202604162200|FlyingFoxMom|Femelle renard volant à tête grise portant son petit, Yarra Bend Park, Australie (© Doug Gimesy/Nature Picture Library)|« Chauve » qui peut !|![](/fr-FR/2026/04/202604162200FlyingFoxMom.jpg)|
 202604172200|MillauViaductFrance|Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)|Si près du ciel|![](/fr-FR/2026/04/202604172200MillauViaductFrance.jpg)|
 202604182200|TranBA|Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)|Une aquarelle iodée|![](/fr-FR/2026/04/202604182200TranBA.jpg)|
+202604192200|SunsetKiva|Coucher de soleil sur le parc national des Canyonlands, Moab, Utah, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|Le spectacle continue au crépuscule|![](/fr-FR/2026/04/202604192200SunsetKiva.jpg)|
