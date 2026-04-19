@@ -19,3 +19,4 @@
 202604160700|SkagitTulips|Skagit Valley Tulip Fields, Washington, United States (© Alan Majchrowicz/Getty Images)|Info|![](/en-AU/2026/04/202604160700SkagitTulips.jpg)|
 202604170700|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Info|![](/en-AU/2026/04/202604170700FlyingFoxMom.jpg)|
 202604180700|ToscanaSpring|Rolling hills of Tuscany, Italy (© Andyworks/Getty Images)|Info|![](/en-AU/2026/04/202604180700ToscanaSpring.jpg)|
+202604190700|TranBA|Mirror Beach, Porto Seguro, Bahia, Brazil (© Marcelo Nacinovic/Getty Images)|Info|![](/en-AU/2026/04/202604190700TranBA.jpg)|
