@@ -20,3 +20,4 @@
 202604170700|FlyingFoxMom|Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)|Bat signal: ON|![](/en-US/2026/04/202604170700FlyingFoxMom.jpg)|
 202604180700|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-US/2026/04/202604180700MaoiStatues.jpg)|
 202604190700|LibraryWeek|Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)|Stories start here|![](/en-US/2026/04/202604190700LibraryWeek.jpg)|
+202604200700|SunsetKiva|Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)|The adventure doesn't end at sundown|![](/en-US/2026/04/202604200700SunsetKiva.jpg)|
