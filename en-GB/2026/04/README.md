@@ -21,3 +21,4 @@
 202604182300|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-GB/2026/04/202604182300HathawayCottage.jpg)|
 202604192300|SunsetKiva|Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)|The adventure doesn't end at sundown|![](/en-GB/2026/04/202604192300SunsetKiva.jpg)|
 202604202300|SpringHedgehog|European hedgehog, France (© Klein & Hubert/Nature Picture Library)|Spring's prickly patrol|![](/en-GB/2026/04/202604202300SpringHedgehog.jpg)|
+202604212300|TartuEstonia|Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)|The power of protest|![](/en-GB/2026/04/202604212300TartuEstonia.jpg)|
