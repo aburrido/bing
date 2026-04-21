@@ -21,3 +21,4 @@
 202604181500|BelemTowerBank|ベレンの塔, ポルトガル (© f9photos/Getty Images)|水辺にたたずむ歴史的な塔|![](/ja-JP/2026/04/202604181500BelemTowerBank.jpg)|
 202604191500|SunsetKiva|キャニオンランズ国立公園, 米国 ユタ州 (© Jason Hatfield/Tandem Stills + Motion)|今週は米国の国立公園週間|![](/ja-JP/2026/04/202604191500SunsetKiva.jpg)|
 202604201500|SpringHedgehog|ハリネズミ, フランス (© Klein & Hubert/Nature Picture Library)|緑の中にたたずむ小動物|![](/ja-JP/2026/04/202604201500SpringHedgehog.jpg)|
+202604211500|TartuEstonia|アラムペジャ自然保護区, エストニア (© Sven Zacek/Nature Picture Library)|今日は地球の日|![](/ja-JP/2026/04/202604211500TartuEstonia.jpg)|
