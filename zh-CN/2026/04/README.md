@@ -21,3 +21,4 @@
 202604181600|TranBA|镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)|潮汐留下的印记|![](/zh-CN/2026/04/202604181600TranBA.jpg)|
 202604191600|SunsetKiva|夕阳下的峡谷地国家公园，莫阿布，犹他州，美国 (© Jason Hatfield/Tandem Stills + Motion)|日落之后，探索仍在继续|![](/zh-CN/2026/04/202604191600SunsetKiva.jpg)|
 202604201600|SpringHedgehog|西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)|春季的“带刺巡逻兵”|![](/zh-CN/2026/04/202604201600SpringHedgehog.jpg)|
+202604211600|TartuEstonia|阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚 (© Sven Zacek/Nature Picture Library)|行动的力量|![](/zh-CN/2026/04/202604211600TartuEstonia.jpg)|
