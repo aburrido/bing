@@ -21,3 +21,4 @@
 202604182200|TranBA|Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)|Une aquarelle iodée|![](/fr-FR/2026/04/202604182200TranBA.jpg)|
 202604192200|SunsetKiva|Coucher de soleil sur le parc national des Canyonlands, Moab, Utah, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|Le spectacle continue au crépuscule|![](/fr-FR/2026/04/202604192200SunsetKiva.jpg)|
 202604202200|SpringHedgehog|Hérisson d’Europe (© Klein & Hubert/Nature Picture Library)|La patrouille piquante du printemps|![](/fr-FR/2026/04/202604202200SpringHedgehog.jpg)|
+202604212200|TartuEstonia|Réserve naturelle d’Alam-Pedja, Tartu, Estonie (© Sven Zacek/Nature Picture Library)|Le pouvoir de la revendication|![](/fr-FR/2026/04/202604212200TartuEstonia.jpg)|

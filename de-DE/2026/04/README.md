@@ -21,3 +21,4 @@
 202604182200|TranBA|Praia do Espelho, Porto Seguro, Bahia, Brasilien (© Marcelo Nacinovic/Getty Images)|Die Handschrift der Gezeiten|![](/de-DE/2026/04/202604182200TranBA.jpg)|
 202604192200|SaarbrueckenRathaus|Rathaus St. Johann, Saarbrücken, Saarland (© frantic00/Getty Images)|Ein Rathaus mit Geschichte|![](/de-DE/2026/04/202604192200SaarbrueckenRathaus.jpg)|
 202604202200|SpringHedgehog|Europäischer Igel, Frankreich (© Klein & Hubert/Nature Picture Library)|Stachelige Frühlingspatrouille|![](/de-DE/2026/04/202604202200SpringHedgehog.jpg)|
+202604212200|TartuEstonia|Naturschutzgebiet Alam‑Pedja, Landkreis Tartu, Estland (© Sven Zacek/Nature Picture Library)|Die Stimme der Erde|![](/de-DE/2026/04/202604212200TartuEstonia.jpg)|
