@@ -21,3 +21,4 @@
 202604180700|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-US/2026/04/202604180700MaoiStatues.jpg)|
 202604190700|LibraryWeek|Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)|Stories start here|![](/en-US/2026/04/202604190700LibraryWeek.jpg)|
 202604200700|SunsetKiva|Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)|The adventure doesn't end at sundown|![](/en-US/2026/04/202604200700SunsetKiva.jpg)|
+202604210700|SpringHedgehog|European hedgehog, France (© Klein & Hubert/Nature Picture Library)|Spring's prickly patrol|![](/en-US/2026/04/202604210700SpringHedgehog.jpg)|
