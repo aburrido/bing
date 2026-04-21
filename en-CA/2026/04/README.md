@@ -20,3 +20,4 @@
 202604180400|MaoiStatues|Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)|The silence of unfinished giants|![](/en-CA/2026/04/202604180400MaoiStatues.jpg)|
 202604190400|TranBA|Mirror Beach, Porto Seguro, Bahia, Brazil (© Marcelo Nacinovic/Getty Images)|The tide's passing signature|![](/en-CA/2026/04/202604190400TranBA.jpg)|
 202604200400|MapleExtraction|Buckets on maple trees collecting sap for maple syrup (© capecodphoto/Getty Images)|Canada's liquid gold|![](/en-CA/2026/04/202604200400MapleExtraction.jpg)|
+202604210400|SpringHedgehog|European hedgehog, France (© Klein & Hubert/Nature Picture Library)|Spring's prickly patrol|![](/en-CA/2026/04/202604210400SpringHedgehog.jpg)|

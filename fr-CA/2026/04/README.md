@@ -20,3 +20,4 @@
 202604180400|MaoiStatues|Carrières de moaïs, Rano Raraku, Île de Pâques, Chili (© Gavin Hellier/Alamy)|Figés dans le temps et dans la pierre|![](/fr-CA/2026/04/202604180400MaoiStatues.jpg)|
 202604190400|TranBA|Plage du Miroir, Trancoso, Bahia, Brésil (© Marcelo Nacinovic/Getty Images)|Une aquarelle iodée|![](/fr-CA/2026/04/202604190400TranBA.jpg)|
 202604200400|MapleExtraction|Seaux à sève suspendus aux érables, utilisés pour la fabrication de sirop d’érable (© capecodphoto/Getty Images)|L’or liquide canadien|![](/fr-CA/2026/04/202604200400MapleExtraction.jpg)|
+202604210400|SpringHedgehog|Hérisson d’Europe, France (© Klein & Hubert/Nature Picture Library)|La patrouille piquante du printemps|![](/fr-CA/2026/04/202604210400SpringHedgehog.jpg)|
