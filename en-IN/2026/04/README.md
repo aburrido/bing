@@ -22,3 +22,4 @@
 202604191830|SunsetKiva|Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)|The adventure doesn't end at sundown|![](/en-IN/2026/04/202604191830SunsetKiva.jpg)|
 202604201830|SpringHedgehog|European hedgehog, France (© Klein & Hubert/Nature Picture Library)|Spring's prickly patrol|![](/en-IN/2026/04/202604201830SpringHedgehog.jpg)|
 202604211830|TartuEstonia|Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)|The power of protest|![](/en-IN/2026/04/202604211830TartuEstonia.jpg)|
+202604221830|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-IN/2026/04/202604221830HathawayCottage.jpg)|
