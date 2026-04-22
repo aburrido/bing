@@ -22,3 +22,4 @@
 202604192200|SunsetKiva|Coucher de soleil sur le parc national des Canyonlands, Moab, Utah, États-Unis (© Jason Hatfield/Tandem Stills + Motion)|Le spectacle continue au crépuscule|![](/fr-FR/2026/04/202604192200SunsetKiva.jpg)|
 202604202200|SpringHedgehog|Hérisson d’Europe (© Klein & Hubert/Nature Picture Library)|La patrouille piquante du printemps|![](/fr-FR/2026/04/202604202200SpringHedgehog.jpg)|
 202604212200|TartuEstonia|Réserve naturelle d’Alam-Pedja, Tartu, Estonie (© Sven Zacek/Nature Picture Library)|Le pouvoir de la revendication|![](/fr-FR/2026/04/202604212200TartuEstonia.jpg)|
+202604222200|HathawayCottage|Cottage d’Anne Hathaway, Stratford-upon-Avon, Angleterre (© David Steele/Shutterstock)|Un cottage plein d’histoires|![](/fr-FR/2026/04/202604222200HathawayCottage.jpg)|
