@@ -23,3 +23,4 @@
 202604200700|SunsetKiva|Sunset in Canyonlands National Park, Moab, Utah, United States (© Jason Hatfield/Tandem Stills + Motion)|Info|![](/en-AU/2026/04/202604200700SunsetKiva.jpg)|
 202604210700|SpringHedgehog|European hedgehog, France (© Klein & Hubert/Nature Picture Library)|Info|![](/en-AU/2026/04/202604210700SpringHedgehog.jpg)|
 202604220700|TartuEstonia|Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)|Info|![](/en-AU/2026/04/202604220700TartuEstonia.jpg)|
+202604230700|ChiffchaffSpring|Common chiffchaff, Germany (© Andyworks/Getty Images)|Info|![](/en-AU/2026/04/202604230700ChiffchaffSpring.jpg)|
