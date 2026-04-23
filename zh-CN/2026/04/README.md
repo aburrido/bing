@@ -23,3 +23,4 @@
 202604201600|SpringHedgehog|西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)|春季的“带刺巡逻兵”|![](/zh-CN/2026/04/202604201600SpringHedgehog.jpg)|
 202604211600|TartuEstonia|阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚 (© Sven Zacek/Nature Picture Library)|行动的力量|![](/zh-CN/2026/04/202604211600TartuEstonia.jpg)|
 202604221600|HathawayCottage|安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰 (© David Steele/Shutterstock)|一座充满故事的小屋|![](/zh-CN/2026/04/202604221600HathawayCottage.jpg)|
+202604231600|SlashPine|湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国 (© Mary Liz Austin/Alamy)|向树木致敬|![](/zh-CN/2026/04/202604231600SlashPine.jpg)|
