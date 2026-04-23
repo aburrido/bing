@@ -23,3 +23,4 @@
 202604202200|SpringHedgehog|Europäischer Igel, Frankreich (© Klein & Hubert/Nature Picture Library)|Stachelige Frühlingspatrouille|![](/de-DE/2026/04/202604202200SpringHedgehog.jpg)|
 202604212200|TartuEstonia|Naturschutzgebiet Alam‑Pedja, Landkreis Tartu, Estland (© Sven Zacek/Nature Picture Library)|Die Stimme der Erde|![](/de-DE/2026/04/202604212200TartuEstonia.jpg)|
 202604222200|HathawayCottage|Anne Hathaway’s Cottage, Stratford‑upon‑Avon, England (© David Steele/Shutterstock)|Ein Cottage voller Geschichten|![](/de-DE/2026/04/202604222200HathawayCottage.jpg)|
+202604232200|GalapagosPenguins|Galápagos‑Pinguine beim Schwimmen, Galapagosinseln, Ecuador (© Henley Spiers/Nature Picture Library)|Wenn Pinguine aus der Reihe tanzen|![](/de-DE/2026/04/202604232200GalapagosPenguins.jpg)|
