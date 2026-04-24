@@ -23,3 +23,4 @@
 202604210400|SpringHedgehog|Hérisson d’Europe, France (© Klein & Hubert/Nature Picture Library)|La patrouille piquante du printemps|![](/fr-CA/2026/04/202604210400SpringHedgehog.jpg)|
 202604220400|TartuEstonia|Réserve naturelle d’Alam-Pedja, Tartu, Estonie (© Sven Zacek/Nature Picture Library)|Le pouvoir de la revendication|![](/fr-CA/2026/04/202604220400TartuEstonia.jpg)|
 202604230400|HathawayCottage|Cottage d’Anne Hathaway, Stratford-upon-Avon, Angleterre (© David Steele/Shutterstock)|Un cottage plein d’histoires|![](/fr-CA/2026/04/202604230400HathawayCottage.jpg)|
+202604240400|SlashPine|Pins à encens et palmiers de Floride, Parc national des Everglades, Floride, États-Unis (© Mary Liz Austin/Alamy)|Nos gardiens les plus chers|![](/fr-CA/2026/04/202604240400SlashPine.jpg)|

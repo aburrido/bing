@@ -23,3 +23,4 @@
 202604210400|SpringHedgehog|European hedgehog, France (© Klein & Hubert/Nature Picture Library)|Spring's prickly patrol|![](/en-CA/2026/04/202604210400SpringHedgehog.jpg)|
 202604220400|TartuEstonia|Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)|The power of protest|![](/en-CA/2026/04/202604220400TartuEstonia.jpg)|
 202604230400|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-CA/2026/04/202604230400HathawayCottage.jpg)|
+202604240400|SlashPine|Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)|A tribute to trees|![](/en-CA/2026/04/202604240400SlashPine.jpg)|
