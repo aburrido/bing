@@ -24,3 +24,4 @@
 202604212300|TartuEstonia|Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)|The power of protest|![](/en-GB/2026/04/202604212300TartuEstonia.jpg)|
 202604222300|StGeorgeDay2026|Windsor Castle, Berkshire, England (© Mistervlad/Shutterstock)|Faith, fire and folklore|![](/en-GB/2026/04/202604222300StGeorgeDay2026.jpg)|
 202604232300|SlashPine|Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)|The power of taking it slow|![](/en-GB/2026/04/202604232300SlashPine.jpg)|
+202604242300|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Breaking the penguin rules|![](/en-GB/2026/04/202604242300GalapagosPenguins.jpg)|
