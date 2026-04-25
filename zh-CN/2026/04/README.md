@@ -25,3 +25,4 @@
 202604221600|HathawayCottage|安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰 (© David Steele/Shutterstock)|一座充满故事的小屋|![](/zh-CN/2026/04/202604221600HathawayCottage.jpg)|
 202604231600|SlashPine|湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国 (© Mary Liz Austin/Alamy)|向树木致敬|![](/zh-CN/2026/04/202604231600SlashPine.jpg)|
 202604241600|GalapagosPenguins|加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔 (© Henley Spiers/Nature Picture Library)|打破企鹅规则|![](/zh-CN/2026/04/202604241600GalapagosPenguins.jpg)|
+202604251600|AppleBlossoms|粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)|繁花盛放|![](/zh-CN/2026/04/202604251600AppleBlossoms.jpg)|
