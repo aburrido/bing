@@ -24,3 +24,4 @@
 202604220400|TartuEstonia|Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)|The power of protest|![](/en-CA/2026/04/202604220400TartuEstonia.jpg)|
 202604230400|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-CA/2026/04/202604230400HathawayCottage.jpg)|
 202604240400|SlashPine|Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)|A tribute to trees|![](/en-CA/2026/04/202604240400SlashPine.jpg)|
+202604250400|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Breaking the penguin rules|![](/en-CA/2026/04/202604250400GalapagosPenguins.jpg)|
