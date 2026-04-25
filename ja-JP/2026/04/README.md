@@ -25,3 +25,4 @@
 202604221500|HathawayCottage|アン・ハサウェイのコテージ, イングランド (© David Steele/Shutterstock)|今日はシェイクスピアの命日|![](/ja-JP/2026/04/202604221500HathawayCottage.jpg)|
 202604231500|SlashPine|エバーグレーズ国立公園, 米国 フロリダ州 (© Mary Liz Austin/Alamy)|今日はアーバーデイ|![](/ja-JP/2026/04/202604231500SlashPine.jpg)|
 202604241500|GalapagosPenguins|ガラパゴスペンギン, エクアドル (© Henley Spiers/Nature Picture Library)|今日は世界ペンギンの日|![](/ja-JP/2026/04/202604241500GalapagosPenguins.jpg)|
+202604251500|AppleBlossoms|リンゴの花, 米国 カリフォルニア州 (© Mimi Ditchie Photography/Getty Images)|やさしく咲く淡いピンクの花|![](/ja-JP/2026/04/202604251500AppleBlossoms.jpg)|
