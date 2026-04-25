@@ -25,3 +25,4 @@
 202604221830|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-IN/2026/04/202604221830HathawayCottage.jpg)|
 202604231830|SlashPine|Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)|The power of taking it slow|![](/en-IN/2026/04/202604231830SlashPine.jpg)|
 202604241830|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Breaking the penguin rules|![](/en-IN/2026/04/202604241830GalapagosPenguins.jpg)|
+202604251830|AppleBlossoms|Pink apple blossoms, Avila Beach, California, United States (© Mimi Ditchie Photography/Getty Images)|Bloom boom|![](/en-IN/2026/04/202604251830AppleBlossoms.jpg)|
