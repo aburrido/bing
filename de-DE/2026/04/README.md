@@ -25,3 +25,4 @@
 202604222200|HathawayCottage|Anne Hathaway’s Cottage, Stratford‑upon‑Avon, England (© David Steele/Shutterstock)|Ein Cottage voller Geschichten|![](/de-DE/2026/04/202604222200HathawayCottage.jpg)|
 202604232200|GalapagosPenguins|Galápagos‑Pinguine beim Schwimmen, Galapagosinseln, Ecuador (© Henley Spiers/Nature Picture Library)|Wenn Pinguine aus der Reihe tanzen|![](/de-DE/2026/04/202604232200GalapagosPenguins.jpg)|
 202604242200|SlashPine|Waldinsel mit Sumpfkiefern und Sägepalmen, Everglades-Nationalpark, Florida, USA (© Mary Liz Austin/Alamy)|Eine Hommage an die Bäume|![](/de-DE/2026/04/202604242200SlashPine.jpg)|
+202604252200|AppleBlossoms|Rosafarbene Apfelblüten, Avila Beach, Kalifornien, USA (© Mimi Ditchie Photography/Getty Images)|In voller Blüte|![](/de-DE/2026/04/202604252200AppleBlossoms.jpg)|
