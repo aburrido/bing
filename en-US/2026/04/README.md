@@ -26,3 +26,4 @@
 202604230700|HathawayCottage|Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)|A cottage full of stories|![](/en-US/2026/04/202604230700HathawayCottage.jpg)|
 202604240700|SlashPine|Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)|A tribute to trees|![](/en-US/2026/04/202604240700SlashPine.jpg)|
 202604250700|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Breaking the penguin rules|![](/en-US/2026/04/202604250700GalapagosPenguins.jpg)|
+202604260700|AppleBlossoms|Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)|Bloom boom|![](/en-US/2026/04/202604260700AppleBlossoms.jpg)|
