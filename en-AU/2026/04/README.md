@@ -27,3 +27,4 @@
 202604240700|SlashPine|Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida, United States (© Mary Liz Austin/Alamy)|Info|![](/en-AU/2026/04/202604240700SlashPine.jpg)|
 202604250700|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Info|![](/en-AU/2026/04/202604250700GalapagosPenguins.jpg)|
 202604260700|AppleBlossoms|Pink apple blossoms, Avila Beach, California, United States (© Mimi Ditchie Photography/Getty Images)|Info|![](/en-AU/2026/04/202604260700AppleBlossoms.jpg)|
+202604270700|MilanGalleria|The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)|Info|![](/en-AU/2026/04/202604270700MilanGalleria.jpg)|
