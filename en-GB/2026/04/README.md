@@ -27,3 +27,4 @@
 202604242300|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Breaking the penguin rules|![](/en-GB/2026/04/202604242300GalapagosPenguins.jpg)|
 202604252300|AppleBlossoms|Pink apple blossoms, Avila Beach, California, United States (© Mimi Ditchie Photography/Getty Images)|Bloom boom|![](/en-GB/2026/04/202604252300AppleBlossoms.jpg)|
 202604262300|MilanGalleria|The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)|Glass with class|![](/en-GB/2026/04/202604262300MilanGalleria.jpg)|
+202604272300|AndeanBear|Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)|Spectacles in the wild|![](/en-GB/2026/04/202604272300AndeanBear.jpg)|
