@@ -28,3 +28,4 @@
 202604251500|AppleBlossoms|リンゴの花, 米国 カリフォルニア州 (© Mimi Ditchie Photography/Getty Images)|やさしく咲く淡いピンクの花|![](/ja-JP/2026/04/202604251500AppleBlossoms.jpg)|
 202604261500|MilanGalleria|ヴィットーリオ・エマヌエーレ 2 世のガッレリア, イタリア (© PhillipMinnis/Getty Images)|壮麗なガラスドーム|![](/ja-JP/2026/04/202604261500MilanGalleria.jpg)|
 202604271500|AndeanBear|メガネグマ, エクアドル (© Andy Rouse/Nature Picture Library)|木の上でくつろぐ野生動物|![](/ja-JP/2026/04/202604271500AndeanBear.jpg)|
+202604281500|ShowaEraDay2026|国会議事堂, 東京都 (© Hiroshi Watanabe/Getty images)|今日は昭和の日|![](/ja-JP/2026/04/202604281500ShowaEraDay2026.jpg)|
