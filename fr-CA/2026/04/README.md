@@ -27,3 +27,4 @@
 202604250400|GalapagosPenguins|Manchots des Galápagos, Îles Galápagos, Équateur (© Henley Spiers/Nature Picture Library)|Comme un manchot dans l’eau|![](/fr-CA/2026/04/202604250400GalapagosPenguins.jpg)|
 202604260400|AppleBlossoms|Pommier en fleur, Avila Beach, Californie, États-Unis (© Mimi Ditchie Photography/Getty Images)|Folie fleurie|![](/fr-CA/2026/04/202604260400AppleBlossoms.jpg)|
 202604270400|MilanGalleria|Dôme en verre de la Galleria Vittorio Emanuele II, Milan, Italie (© PhillipMinnis/Getty Images)|Un dôme qui épate la galerie|![](/fr-CA/2026/04/202604270400MilanGalleria.jpg)|
+202604280400|AndeanBear|Ours à lunettes se reposant dans un arbre, Équateur (© Andy Rouse/Nature Picture Library)|Les lunettes des Andes|![](/fr-CA/2026/04/202604280400AndeanBear.jpg)|
