@@ -28,3 +28,4 @@
 202604252200|AppleBlossoms|Rosafarbene Apfelblüten, Avila Beach, Kalifornien, USA (© Mimi Ditchie Photography/Getty Images)|In voller Blüte|![](/de-DE/2026/04/202604252200AppleBlossoms.jpg)|
 202604262200|MilanGalleria|Glaskuppel der Galleria Vittorio Emanuele II, Mailand, Italien (© PhillipMinnis/Getty Images)|Eleganz unter Glas|![](/de-DE/2026/04/202604262200MilanGalleria.jpg)|
 202604272200|AndeanBear|Brillenbär ruht auf einem Baum, Ecuador (© Andy Rouse/Nature Picture Library)|Ein Blick hinter die Brille|![](/de-DE/2026/04/202604272200AndeanBear.jpg)|
+202604282200|BelemTowerBank|Turm von Belém am Ufer des Tejo, Lissabon, Portugal (© f9photos/Getty Images)|Geschichte aus Stein|![](/de-DE/2026/04/202604282200BelemTowerBank.jpg)|
