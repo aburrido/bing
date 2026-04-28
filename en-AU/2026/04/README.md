@@ -28,3 +28,4 @@
 202604250700|GalapagosPenguins|Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)|Info|![](/en-AU/2026/04/202604250700GalapagosPenguins.jpg)|
 202604260700|AppleBlossoms|Pink apple blossoms, Avila Beach, California, United States (© Mimi Ditchie Photography/Getty Images)|Info|![](/en-AU/2026/04/202604260700AppleBlossoms.jpg)|
 202604270700|MilanGalleria|The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)|Info|![](/en-AU/2026/04/202604270700MilanGalleria.jpg)|
+202604280700|AndeanBear|Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)|Info|![](/en-AU/2026/04/202604280700AndeanBear.jpg)|
