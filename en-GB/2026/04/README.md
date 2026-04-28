@@ -28,3 +28,4 @@
 202604252300|AppleBlossoms|Pink apple blossoms, Avila Beach, California, United States (© Mimi Ditchie Photography/Getty Images)|Bloom boom|![](/en-GB/2026/04/202604252300AppleBlossoms.jpg)|
 202604262300|MilanGalleria|The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)|Glass with class|![](/en-GB/2026/04/202604262300MilanGalleria.jpg)|
 202604272300|AndeanBear|Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)|Spectacles in the wild|![](/en-GB/2026/04/202604272300AndeanBear.jpg)|
+202604282300|BelemTowerBank|Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)|History anchored in stone|![](/en-GB/2026/04/202604282300BelemTowerBank.jpg)|
