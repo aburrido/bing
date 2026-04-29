@@ -29,3 +29,4 @@
 202604261830|MilanGalleria|The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)|Glass with class|![](/en-IN/2026/04/202604261830MilanGalleria.jpg)|
 202604271830|AndeanBear|Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)|Spectacles in the wild|![](/en-IN/2026/04/202604271830AndeanBear.jpg)|
 202604281830|BelemTowerBank|Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)|History anchored in stone|![](/en-IN/2026/04/202604281830BelemTowerBank.jpg)|
+202604291830|DutchTulips|Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)|Tulips run the show|![](/en-IN/2026/04/202604291830DutchTulips.jpg)|
