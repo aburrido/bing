@@ -29,3 +29,4 @@
 202604270400|MilanGalleria|Dôme en verre de la Galleria Vittorio Emanuele II, Milan, Italie (© PhillipMinnis/Getty Images)|Un dôme qui épate la galerie|![](/fr-CA/2026/04/202604270400MilanGalleria.jpg)|
 202604280400|AndeanBear|Ours à lunettes se reposant dans un arbre, Équateur (© Andy Rouse/Nature Picture Library)|Les lunettes des Andes|![](/fr-CA/2026/04/202604280400AndeanBear.jpg)|
 202604290400|BelemTowerBank|Tour de Belém au bord du Tage, Lisbonne, Portugal (© f9photos/Getty Images)|L’histoire gravée dans la pierre|![](/fr-CA/2026/04/202604290400BelemTowerBank.jpg)|
+202604300400|DutchTulips|Muscaris et tulipes, Keukenhof, Lisse, Pyas-Bas (© Martin Ruegner/Getty Images)|Des tulipes par milliers|![](/fr-CA/2026/04/202604300400DutchTulips.jpg)|
