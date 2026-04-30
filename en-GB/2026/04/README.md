@@ -30,3 +30,4 @@
 202604272300|AndeanBear|Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)|Spectacles in the wild|![](/en-GB/2026/04/202604272300AndeanBear.jpg)|
 202604282300|BelemTowerBank|Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)|History anchored in stone|![](/en-GB/2026/04/202604282300BelemTowerBank.jpg)|
 202604292300|DutchTulips|Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)|Tulips run the show|![](/en-GB/2026/04/202604292300DutchTulips.jpg)|
+202604302300|BrightonFestival2026|A merry-go-round in Brighton, England (© Alisia Luther/Shutterstock)|Hop on, it's a creative ride|![](/en-GB/2026/04/202604302300BrightonFestival2026.jpg)|
