@@ -30,3 +30,4 @@
 202604271600|AndeanBear|眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)|野外奇观|![](/zh-CN/2026/04/202604271600AndeanBear.jpg)|
 202604281600|BelemTowerBank|塔霍河岸边的贝伦塔, 里斯本, 葡萄牙 (© f9photos/Getty Images)|历史镌刻于石上|![](/zh-CN/2026/04/202604281600BelemTowerBank.jpg)|
 202604291600|DutchTulips|葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰 (© Martin Ruegner/Getty Images)|郁金香是这里的主角|![](/zh-CN/2026/04/202604291600DutchTulips.jpg)|
+202604301600|MayLaborDayY26|中国的长城 (© aphotostory/Getty Images)|初夏·翠微长城|![](/zh-CN/2026/04/202604301600MayLaborDayY26.jpg)|
