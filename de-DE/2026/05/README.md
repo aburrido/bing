@@ -4,3 +4,4 @@
 202605012200|GreenJasper|Kleiner See und Feuchtgebiet im Jasper‑Nationalpark in Alberta, Kanada (© Don White/Getty Images)|Die Magie von Jasper|![](/de-DE/2026/05/202605012200GreenJasper.jpg)|
 202605022200|MasaiLeopard|Leopard, der in einem Baum in der Savanne schläft, Masai‑Mara‑Nationalreservat, Kenia (© Klein & Hubert/Nature Picture Library)|Rast in der Savanne|![](/de-DE/2026/05/202605022200MasaiLeopard.jpg)|
 202605032200|KsarOuledSoltane|Ksar Ouled Soltane, Gouvernement Tataouine, Südtunesien (© Dark_Eni/Getty Images Plus)|Reale Kulisse, galaktische Fantasie|![](/de-DE/2026/05/202605032200KsarOuledSoltane.jpg)|
+202605042200|LuebeckChairs|Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)|Ein Stück Ostseetradition|![](/de-DE/2026/05/202605042200LuebeckChairs.jpg)|
