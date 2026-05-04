@@ -4,3 +4,4 @@
 202605010700|KoiPond|Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)|A pond of stories|![](/en-US/2026/05/202605010700KoiPond.jpg)|
 202605020700|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|The magic of Jasper|![](/en-US/2026/05/202605020700GreenJasper.jpg)|
 202605030700|MasaiLeopard|Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)|Savanna afterglow|![](/en-US/2026/05/202605030700MasaiLeopard.jpg)|
+202605040700|KsarOuledSoltane|Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)|Sci‑Fi, Earth‑made|![](/en-US/2026/05/202605040700KsarOuledSoltane.jpg)|

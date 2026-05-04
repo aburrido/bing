@@ -4,3 +4,4 @@
 202605010700|TwrMawrLighthouse2026|Tŵr Mawr lighthouse on Llanddwyn Island in Anglesey, Wales (© Lukas Bischoff/Getty Images)|Info|![](/en-AU/2026/05/202605010700TwrMawrLighthouse2026.jpg)|
 202605020700|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|Info|![](/en-AU/2026/05/202605020700GreenJasper.jpg)|
 202605030700|MasaiLeopard|Leopard sleeping in a tree in the savannah, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)|Info|![](/en-AU/2026/05/202605030700MasaiLeopard.jpg)|
+202605040700|KsarOuledSoltane|Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)|Info|![](/en-AU/2026/05/202605040700KsarOuledSoltane.jpg)|
