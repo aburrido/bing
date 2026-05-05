@@ -5,3 +5,4 @@
 202605020700|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|The magic of Jasper|![](/en-US/2026/05/202605020700GreenJasper.jpg)|
 202605030700|MasaiLeopard|Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)|Savanna afterglow|![](/en-US/2026/05/202605030700MasaiLeopard.jpg)|
 202605040700|KsarOuledSoltane|Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)|Sci‑Fi, Earth‑made|![](/en-US/2026/05/202605040700KsarOuledSoltane.jpg)|
+202605050700|MayoAgave|Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)|Where history took root|![](/en-US/2026/05/202605050700MayoAgave.jpg)|
