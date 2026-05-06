@@ -6,3 +6,4 @@
 202605030700|MasaiLeopard|Leopard sleeping in a tree in the savannah, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)|Info|![](/en-AU/2026/05/202605030700MasaiLeopard.jpg)|
 202605040700|KsarOuledSoltane|Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)|Info|![](/en-AU/2026/05/202605040700KsarOuledSoltane.jpg)|
 202605050700|MayoAgave|Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)|Info|![](/en-AU/2026/05/202605050700MayoAgave.jpg)|
+202605060700|BulgariaPlains|Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)|Info|![](/en-AU/2026/05/202605060700BulgariaPlains.jpg)|
