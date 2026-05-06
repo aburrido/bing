@@ -6,3 +6,4 @@
 202605031600|KsarOuledSoltane|乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部 (© Dark_Eni/Getty Images Plus)|科幻源于现实|![](/zh-CN/2026/05/202605031600KsarOuledSoltane.jpg)|
 202605041600|BeginningofSummerY26|莲花与莲花植株 (© real444/Getty Images)|藕花风起，首夏清和|![](/zh-CN/2026/05/202605041600BeginningofSummerY26.jpg)|
 202605051600|BulgariaPlains|平原上空的雷暴，保加利亚 (© Revolu7ion93/Getty Images)|承受压力之下的平原|![](/zh-CN/2026/05/202605051600BulgariaPlains.jpg)|
+202605061600|Kofa|科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)|广袤铺展的沙漠|![](/zh-CN/2026/05/202605061600Kofa.jpg)|
