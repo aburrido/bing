@@ -8,3 +8,4 @@
 202605042300|MayoAgave|Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)|Where history took root|![](/en-GB/2026/05/202605042300MayoAgave.jpg)|
 202605052300|BulgariaPlains|Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)|Plains under pressure|![](/en-GB/2026/05/202605052300BulgariaPlains.jpg)|
 202605062300|Kofa|Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-GB/2026/05/202605062300Kofa.jpg)|
+202605072300|SardinianDonkey|Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)|More than a hee-haw|![](/en-GB/2026/05/202605072300SardinianDonkey.jpg)|
