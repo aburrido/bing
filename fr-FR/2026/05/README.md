@@ -7,3 +7,4 @@
 202605042200|MayoAgave|Champs d’agave bleu près de Tequila, Jalisco, Mexique (© Brian Overcast/Alamy)|Où l’histoire prend racine|![](/fr-FR/2026/05/202605042200MayoAgave.jpg)|
 202605052200|BulgariaPlains|Orage sur les plaines, Bulgarie (© Revolu7ion93/Getty Images)|Des plaines sous haute tension|![](/fr-FR/2026/05/202605052200BulgariaPlains.jpg)|
 202605062200|Kofa|Refuge faunique national de Kofa, Arizona, États-Unis (© Denis Tangney Jr/Getty Images)|Un désert à l’état pur|![](/fr-FR/2026/05/202605062200Kofa.jpg)|
+202605072200|SardinianDonkey|Ânesse sarde et son ânon, France (© Klein & Hubert/Nature Picture Library)|Bien plus qu’un « iii ahn »|![](/fr-FR/2026/05/202605072200SardinianDonkey.jpg)|
