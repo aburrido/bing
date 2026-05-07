@@ -7,3 +7,4 @@
 202605040700|KsarOuledSoltane|Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)|Sci‑Fi, Earth‑made|![](/en-US/2026/05/202605040700KsarOuledSoltane.jpg)|
 202605050700|MayoAgave|Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)|Where history took root|![](/en-US/2026/05/202605050700MayoAgave.jpg)|
 202605060700|BulgariaPlains|Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)|Plains under pressure|![](/en-US/2026/05/202605060700BulgariaPlains.jpg)|
+202605070700|Kofa|Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-US/2026/05/202605070700Kofa.jpg)|
