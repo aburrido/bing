@@ -7,3 +7,4 @@
 202605041830|TwrMawrLighthouse2026|Tŵr Mawr Lighthouse, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)|Light at the end of the isle|![](/en-IN/2026/05/202605041830TwrMawrLighthouse2026.jpg)|
 202605051830|BulgariaPlains|Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)|Plains under pressure|![](/en-IN/2026/05/202605051830BulgariaPlains.jpg)|
 202605061830|Kofa|Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-IN/2026/05/202605061830Kofa.jpg)|
+202605071830|SardinianDonkey|Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)|More than a hee-haw|![](/en-IN/2026/05/202605071830SardinianDonkey.jpg)|
