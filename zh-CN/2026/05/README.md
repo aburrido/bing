@@ -8,3 +8,4 @@
 202605051600|BulgariaPlains|平原上空的雷暴，保加利亚 (© Revolu7ion93/Getty Images)|承受压力之下的平原|![](/zh-CN/2026/05/202605051600BulgariaPlains.jpg)|
 202605061600|Kofa|科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)|广袤铺展的沙漠|![](/zh-CN/2026/05/202605061600Kofa.jpg)|
 202605071600|SardinianDonkey|撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)|不仅仅是一声咿呀学语|![](/zh-CN/2026/05/202605071600SardinianDonkey.jpg)|
+202605081600|SkradinskiBuk|克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)|克尔卡的造物主|![](/zh-CN/2026/05/202605081600SkradinskiBuk.jpg)|
