@@ -8,3 +8,4 @@
 202605052200|BulgariaPlains|Orage sur les plaines, Bulgarie (© Revolu7ion93/Getty Images)|Des plaines sous haute tension|![](/fr-FR/2026/05/202605052200BulgariaPlains.jpg)|
 202605062200|Kofa|Refuge faunique national de Kofa, Arizona, États-Unis (© Denis Tangney Jr/Getty Images)|Un désert à l’état pur|![](/fr-FR/2026/05/202605062200Kofa.jpg)|
 202605072200|SardinianDonkey|Ânesse sarde et son ânon, France (© Klein & Hubert/Nature Picture Library)|Bien plus qu’un « iii ahn »|![](/fr-FR/2026/05/202605072200SardinianDonkey.jpg)|
+202605082200|SkradinskiBuk|Chutes de Skradinski Buk, Parc national de Krka, Croatie (© Amazing Aerial Agency/Adobe Stock)|L’eau, architecte de Krka|![](/fr-FR/2026/05/202605082200SkradinskiBuk.jpg)|
