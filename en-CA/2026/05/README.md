@@ -7,3 +7,4 @@
 202605050400|BullQuebec|A majestic bull moose foraging through the green undergrowth, Quebec (© pchoui/Getty Images)|In step with the forest|![](/en-CA/2026/05/202605050400BullQuebec.jpg)|
 202605060400|BulgariaPlains|Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)|Plains under pressure|![](/en-CA/2026/05/202605060400BulgariaPlains.jpg)|
 202605070400|Kofa|Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-CA/2026/05/202605070400Kofa.jpg)|
+202605080400|TulipFestOT|Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)|When Ottawa turns tulip|![](/en-CA/2026/05/202605080400TulipFestOT.jpg)|

@@ -7,3 +7,4 @@
 202605050400|BullQuebec|Orignal dans un sous-bois, Québec (© pchoui/Getty Images)|Promenons-nous dans les bois|![](/fr-CA/2026/05/202605050400BullQuebec.jpg)|
 202605060400|BulgariaPlains|Orage sur les plaines, Bulgarie (© Revolu7ion93/Getty Images)|Des plaines sous haute tension|![](/fr-CA/2026/05/202605060400BulgariaPlains.jpg)|
 202605070400|Kofa|Refuge faunique national de Kofa, Arizona, États-Unis (© Denis Tangney Jr/Getty Images)|Un désert à l’état pur|![](/fr-CA/2026/05/202605070400Kofa.jpg)|
+202605080400|TulipFestOT|Tulipes et cerisiers en fleurs sur les rives du canal Rideau, Ottawa, Ontario (© J Duquette/Getty Images)|Ottawa tapie de tulipes|![](/fr-CA/2026/05/202605080400TulipFestOT.jpg)|
