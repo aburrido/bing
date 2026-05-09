@@ -8,3 +8,4 @@
 202605060400|BulgariaPlains|Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)|Plains under pressure|![](/en-CA/2026/05/202605060400BulgariaPlains.jpg)|
 202605070400|Kofa|Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-CA/2026/05/202605070400Kofa.jpg)|
 202605080400|TulipFestOT|Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)|When Ottawa turns tulip|![](/en-CA/2026/05/202605080400TulipFestOT.jpg)|
+202605090400|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-CA/2026/05/202605090400SkradinskiBuk.jpg)|
