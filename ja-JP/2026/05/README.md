@@ -9,3 +9,4 @@
 202605061500|Kofa|コファ国立野生生物保護区, 米国 アリゾナ州 (© Denis Tangney Jr/Getty Images)|夕陽を受けて輝く山々|![](/ja-JP/2026/05/202605061500Kofa.jpg)|
 202605071500|SardinianDonkey|ロバの親子, フランス (© Klein & Hubert/Nature Picture Library)|今日は世界ロバの日|![](/ja-JP/2026/05/202605071500SardinianDonkey.jpg)|
 202605081500|SkradinskiBuk|スクラディンスキ・ブクの滝, クロアチア (© Amazing Aerial Agency/Adobe Stock)|緑豊かな森に輝く清流|![](/ja-JP/2026/05/202605081500SkradinskiBuk.jpg)|
+202605091500|MotherCub|ホッキョクグマ, カナダ (© Hao Jiang/Getty Images)|今日は母の日|![](/ja-JP/2026/05/202605091500MotherCub.jpg)|
