@@ -9,3 +9,4 @@
 202605062200|Kofa|Kofa National Wildlife Refuge, Arizona, USA (© Denis Tangney Jr/Getty Images)|Weite Horizonte der Wüste|![](/de-DE/2026/05/202605062200Kofa.jpg)|
 202605072200|SardinianDonkey|Sardische Eselstute mit Fohlen, Frankreich (© Klein & Hubert/Nature Picture Library)|Mehr als nur ein I‑aah|![](/de-DE/2026/05/202605072200SardinianDonkey.jpg)|
 202605082200|SkradinskiBuk|Wasserfälle von Skradinski Buk im Nationalpark Krka, Kroatien (© Amazing Aerial Agency/Adobe Stock)|Die Sprache des Wassers|![](/de-DE/2026/05/202605082200SkradinskiBuk.jpg)|
+202605092200|MotherCub|Eisbärmutter mit Jungtieren im Wapusk‑Nationalpark, Manitoba, Kanada (© Hao Jiang/Getty Images)|Ein Band fürs Leben|![](/de-DE/2026/05/202605092200MotherCub.jpg)|
