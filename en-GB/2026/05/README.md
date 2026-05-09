@@ -10,3 +10,4 @@
 202605062300|Kofa|Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-GB/2026/05/202605062300Kofa.jpg)|
 202605072300|SardinianDonkey|Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)|More than a hee-haw|![](/en-GB/2026/05/202605072300SardinianDonkey.jpg)|
 202605082300|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-GB/2026/05/202605082300SkradinskiBuk.jpg)|
+202605092300|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|The magic of Jasper|![](/en-GB/2026/05/202605092300GreenJasper.jpg)|
