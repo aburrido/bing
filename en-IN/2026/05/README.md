@@ -9,3 +9,4 @@
 202605061830|Kofa|Kofa National Wildlife Refuge, Arizona, United States (© Denis Tangney Jr/Getty Images)|Desert, drawn wide|![](/en-IN/2026/05/202605061830Kofa.jpg)|
 202605071830|SardinianDonkey|Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)|More than a hee-haw|![](/en-IN/2026/05/202605071830SardinianDonkey.jpg)|
 202605081830|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-IN/2026/05/202605081830SkradinskiBuk.jpg)|
+202605091830|MotherCub|Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)|A bond that endures|![](/en-IN/2026/05/202605091830MotherCub.jpg)|
