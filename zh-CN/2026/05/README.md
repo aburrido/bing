@@ -9,3 +9,4 @@
 202605061600|Kofa|科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)|广袤铺展的沙漠|![](/zh-CN/2026/05/202605061600Kofa.jpg)|
 202605071600|SardinianDonkey|撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)|不仅仅是一声咿呀学语|![](/zh-CN/2026/05/202605071600SardinianDonkey.jpg)|
 202605081600|SkradinskiBuk|克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)|克尔卡的造物主|![](/zh-CN/2026/05/202605081600SkradinskiBuk.jpg)|
+202605091600|MotherCub|北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大 (© Hao Jiang/Getty Images)|一份经久不衰的羁绊|![](/zh-CN/2026/05/202605091600MotherCub.jpg)|
