@@ -11,3 +11,4 @@
 202605072300|SardinianDonkey|Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)|More than a hee-haw|![](/en-GB/2026/05/202605072300SardinianDonkey.jpg)|
 202605082300|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-GB/2026/05/202605082300SkradinskiBuk.jpg)|
 202605092300|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|The magic of Jasper|![](/en-GB/2026/05/202605092300GreenJasper.jpg)|
+202605102300|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-GB/2026/05/202605102300QueenslandReef.jpg)|
