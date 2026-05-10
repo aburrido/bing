@@ -10,3 +10,4 @@
 202605071500|SardinianDonkey|ロバの親子, フランス (© Klein & Hubert/Nature Picture Library)|今日は世界ロバの日|![](/ja-JP/2026/05/202605071500SardinianDonkey.jpg)|
 202605081500|SkradinskiBuk|スクラディンスキ・ブクの滝, クロアチア (© Amazing Aerial Agency/Adobe Stock)|緑豊かな森に輝く清流|![](/ja-JP/2026/05/202605081500SkradinskiBuk.jpg)|
 202605091500|MotherCub|ホッキョクグマ, カナダ (© Hao Jiang/Getty Images)|今日は母の日|![](/ja-JP/2026/05/202605091500MotherCub.jpg)|
+202605101500|QueenslandReef|グレートバリアリーフ, オーストラリア (© Francesco Riccardo Iacomino/Getty Images)|透き通る海に広がるサンゴ礁|![](/ja-JP/2026/05/202605101500QueenslandReef.jpg)|
