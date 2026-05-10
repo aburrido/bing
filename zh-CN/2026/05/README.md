@@ -10,3 +10,4 @@
 202605071600|SardinianDonkey|撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)|不仅仅是一声咿呀学语|![](/zh-CN/2026/05/202605071600SardinianDonkey.jpg)|
 202605081600|SkradinskiBuk|克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)|克尔卡的造物主|![](/zh-CN/2026/05/202605081600SkradinskiBuk.jpg)|
 202605091600|MotherCub|北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大 (© Hao Jiang/Getty Images)|一份经久不衰的羁绊|![](/zh-CN/2026/05/202605091600MotherCub.jpg)|
+202605101600|QueenslandReef|从上方俯瞰大堡礁, 昆士兰州, 澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)|水下建筑|![](/zh-CN/2026/05/202605101600QueenslandReef.jpg)|
