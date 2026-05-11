@@ -11,3 +11,4 @@
 202605080700|SardinianDonkey|Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)|More than a hee-haw|![](/en-US/2026/05/202605080700SardinianDonkey.jpg)|
 202605090700|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-US/2026/05/202605090700SkradinskiBuk.jpg)|
 202605100700|MotherCub|Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)|A bond that endures|![](/en-US/2026/05/202605100700MotherCub.jpg)|
+202605110700|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-US/2026/05/202605110700QueenslandReef.jpg)|
