@@ -11,3 +11,4 @@
 202605081500|SkradinskiBuk|スクラディンスキ・ブクの滝, クロアチア (© Amazing Aerial Agency/Adobe Stock)|緑豊かな森に輝く清流|![](/ja-JP/2026/05/202605081500SkradinskiBuk.jpg)|
 202605091500|MotherCub|ホッキョクグマ, カナダ (© Hao Jiang/Getty Images)|今日は母の日|![](/ja-JP/2026/05/202605091500MotherCub.jpg)|
 202605101500|QueenslandReef|グレートバリアリーフ, オーストラリア (© Francesco Riccardo Iacomino/Getty Images)|透き通る海に広がるサンゴ礁|![](/ja-JP/2026/05/202605101500QueenslandReef.jpg)|
+202605111500|Fratercula|ニシツノメドリ, ウェールズ (© FLPA/Alamy)|草地に集う海鳥|![](/ja-JP/2026/05/202605111500Fratercula.jpg)|
