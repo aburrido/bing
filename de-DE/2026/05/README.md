@@ -11,3 +11,4 @@
 202605082200|SkradinskiBuk|Wasserfälle von Skradinski Buk im Nationalpark Krka, Kroatien (© Amazing Aerial Agency/Adobe Stock)|Die Sprache des Wassers|![](/de-DE/2026/05/202605082200SkradinskiBuk.jpg)|
 202605092200|MotherCub|Eisbärmutter mit Jungtieren im Wapusk‑Nationalpark, Manitoba, Kanada (© Hao Jiang/Getty Images)|Ein Band fürs Leben|![](/de-DE/2026/05/202605092200MotherCub.jpg)|
 202605102200|QueenslandReef|Great Barrier Reef aus der Luft, Queensland, Australien (© Francesco Riccardo Iacomino/Getty Images)|Ein Mosaik unter Wasser|![](/de-DE/2026/05/202605102200QueenslandReef.jpg)|
+202605112200|Fratercula|Papageitaucher, Wales (© FLPA/Alamy)|Leben zwischen Luft und Meer|![](/de-DE/2026/05/202605112200Fratercula.jpg)|

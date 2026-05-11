@@ -11,3 +11,4 @@
 202605082200|SkradinskiBuk|Chutes de Skradinski Buk, Parc national de Krka, Croatie (© Amazing Aerial Agency/Adobe Stock)|L’eau, architecte de Krka|![](/fr-FR/2026/05/202605082200SkradinskiBuk.jpg)|
 202605092200|Fratercula|Macareux moines, Pays de Galles (© FLPA/Alamy)|Plonger, s’envoler et survivre|![](/fr-FR/2026/05/202605092200Fratercula.jpg)|
 202605102200|QueenslandReef|Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)|Une architecture sous-marine|![](/fr-FR/2026/05/202605102200QueenslandReef.jpg)|
+202605112200|ChairsCannes|Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)|Place au tapis rouge !|![](/fr-FR/2026/05/202605112200ChairsCannes.jpg)|
