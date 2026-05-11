@@ -10,3 +10,4 @@
 202605080400|TulipFestOT|Tulipes et cerisiers en fleurs sur les rives du canal Rideau, Ottawa, Ontario (© J Duquette/Getty Images)|Ottawa tapie de tulipes|![](/fr-CA/2026/05/202605080400TulipFestOT.jpg)|
 202605090400|SkradinskiBuk|Chutes de Skradinski Buk, Parc national de Krka, Croatie (© Amazing Aerial Agency/Adobe Stock)|L’eau, architecte de Krka|![](/fr-CA/2026/05/202605090400SkradinskiBuk.jpg)|
 202605100400|MotherCub|Ourse polaire jouant avec ses oursons, Parc national Wapusk, Manitoba (© Hao Jiang/Getty Images)|Un lien qui dure pour la vie|![](/fr-CA/2026/05/202605100400MotherCub.jpg)|
+202605110400|QueenslandReef|Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)|Une architecture sous-marine|![](/fr-CA/2026/05/202605110400QueenslandReef.jpg)|
