@@ -12,3 +12,4 @@
 202605082300|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-GB/2026/05/202605082300SkradinskiBuk.jpg)|
 202605092300|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|The magic of Jasper|![](/en-GB/2026/05/202605092300GreenJasper.jpg)|
 202605102300|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-GB/2026/05/202605102300QueenslandReef.jpg)|
+202605112300|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Flap, dive, survive|![](/en-GB/2026/05/202605112300Fratercula.jpg)|
