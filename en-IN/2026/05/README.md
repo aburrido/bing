@@ -11,3 +11,4 @@
 202605081830|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|The architect of Krka|![](/en-IN/2026/05/202605081830SkradinskiBuk.jpg)|
 202605091830|MotherCub|Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)|A bond that endures|![](/en-IN/2026/05/202605091830MotherCub.jpg)|
 202605101830|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-IN/2026/05/202605101830QueenslandReef.jpg)|
+202605111830|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Flap, dive, survive|![](/en-IN/2026/05/202605111830Fratercula.jpg)|
