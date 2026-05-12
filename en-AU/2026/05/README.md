@@ -12,3 +12,4 @@
 202605090700|SkradinskiBuk|Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)|Info|![](/en-AU/2026/05/202605090700SkradinskiBuk.jpg)|
 202605100700|MotherCub|Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)|Info|![](/en-AU/2026/05/202605100700MotherCub.jpg)|
 202605110700|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2026/05/202605110700QueenslandReef.jpg)|
+202605120700|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Info|![](/en-AU/2026/05/202605120700Fratercula.jpg)|
