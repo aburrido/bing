@@ -13,3 +13,4 @@
 202605092300|GreenJasper|Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)|The magic of Jasper|![](/en-GB/2026/05/202605092300GreenJasper.jpg)|
 202605102300|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-GB/2026/05/202605102300QueenslandReef.jpg)|
 202605112300|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Flap, dive, survive|![](/en-GB/2026/05/202605112300Fratercula.jpg)|
+202605122300|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California, United States (© Tim Fitzharris/Minden Pictures)|Rock on, Milky Way!|![](/en-GB/2026/05/202605122300AlabamaHills.jpg)|
