@@ -11,3 +11,4 @@
 202605090400|SkradinskiBuk|Chutes de Skradinski Buk, Parc national de Krka, Croatie (© Amazing Aerial Agency/Adobe Stock)|L’eau, architecte de Krka|![](/fr-CA/2026/05/202605090400SkradinskiBuk.jpg)|
 202605100400|MotherCub|Ourse polaire jouant avec ses oursons, Parc national Wapusk, Manitoba (© Hao Jiang/Getty Images)|Un lien qui dure pour la vie|![](/fr-CA/2026/05/202605100400MotherCub.jpg)|
 202605110400|QueenslandReef|Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)|Une architecture sous-marine|![](/fr-CA/2026/05/202605110400QueenslandReef.jpg)|
+202605120400|Fratercula|Macareux moines, Pays de Galles (© FLPA/Alamy)|Plonger, s’envoler et survivre|![](/fr-CA/2026/05/202605120400Fratercula.jpg)|
