@@ -13,3 +13,4 @@
 202605101830|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-IN/2026/05/202605101830QueenslandReef.jpg)|
 202605111830|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Flap, dive, survive|![](/en-IN/2026/05/202605111830Fratercula.jpg)|
 202605121830|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California, United States (© Tim Fitzharris/Minden Pictures)|Rock on, Milky Way!|![](/en-IN/2026/05/202605121830AlabamaHills.jpg)|
+202605131830|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|A journey through time|![](/en-IN/2026/05/202605131830Pitigliano.jpg)|
