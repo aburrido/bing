@@ -13,3 +13,4 @@
 202605100700|MotherCub|Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)|A bond that endures|![](/en-US/2026/05/202605100700MotherCub.jpg)|
 202605110700|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Underwater architecture|![](/en-US/2026/05/202605110700QueenslandReef.jpg)|
 202605120700|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Flap, dive, survive|![](/en-US/2026/05/202605120700Fratercula.jpg)|
+202605130700|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)|Rock on, Milky Way!|![](/en-US/2026/05/202605130700AlabamaHills.jpg)|
