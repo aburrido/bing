@@ -13,3 +13,4 @@
 202605101600|QueenslandReef|从上方俯瞰大堡礁, 昆士兰州, 澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)|水下建筑|![](/zh-CN/2026/05/202605101600QueenslandReef.jpg)|
 202605111600|Fratercula|北极海鹦, 威尔士 (© FLPA/Alamy)|振翅, 潜水, 生存|![](/zh-CN/2026/05/202605111600Fratercula.jpg)|
 202605121600|AlabamaHills|拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)|银河系，摇滚吧！|![](/zh-CN/2026/05/202605121600AlabamaHills.jpg)|
+202605131600|Pitigliano|中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)|一场穿越时空的旅程|![](/zh-CN/2026/05/202605131600Pitigliano.jpg)|
