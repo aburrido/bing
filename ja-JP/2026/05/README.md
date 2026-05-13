@@ -13,3 +13,4 @@
 202605101500|QueenslandReef|グレートバリアリーフ, オーストラリア (© Francesco Riccardo Iacomino/Getty Images)|透き通る海に広がるサンゴ礁|![](/ja-JP/2026/05/202605101500QueenslandReef.jpg)|
 202605111500|Fratercula|ニシツノメドリ, ウェールズ (© FLPA/Alamy)|草地に集う海鳥|![](/ja-JP/2026/05/202605111500Fratercula.jpg)|
 202605121500|AlabamaHills|アラバマヒルズ, 米国 カリフォルニア州 (© Tim Fitzharris/Minden Pictures)|岩のアーチ越しに望む天の川|![](/ja-JP/2026/05/202605121500AlabamaHills.jpg)|
+202605131500|Pitigliano|ピティリアーノ, イタリア (© bluejayphoto/Getty Images Plus)|夕映えの断崖古都|![](/ja-JP/2026/05/202605131500Pitigliano.jpg)|
