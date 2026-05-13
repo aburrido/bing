@@ -13,3 +13,4 @@
 202605102200|QueenslandReef|Vue aérienne de la Grande Barrière de Corail, Queensland, Australie (© Francesco Riccardo Iacomino/Getty Images)|Une architecture sous-marine|![](/fr-FR/2026/05/202605102200QueenslandReef.jpg)|
 202605112200|ChairsCannes|Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)|Place au tapis rouge !|![](/fr-FR/2026/05/202605112200ChairsCannes.jpg)|
 202605122200|AlabamaHills|Voie lactée et arche naturelle, Alabama Hills, Sierra Nevada, Californie, États-Unis (© Tim Fitzharris/Minden Pictures)|L’art de briller sans projecteurs|![](/fr-FR/2026/05/202605122200AlabamaHills.jpg)|
+202605132200|Pitigliano|Ville médiévale de Pitigliano, Toscane, Italie (© bluejayphoto/Getty Images Plus)|Un voyage dans le temps|![](/fr-FR/2026/05/202605132200Pitigliano.jpg)|

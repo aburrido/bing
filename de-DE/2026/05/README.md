@@ -13,3 +13,4 @@
 202605102200|QueenslandReef|Great Barrier Reef aus der Luft, Queensland, Australien (© Francesco Riccardo Iacomino/Getty Images)|Ein Mosaik unter Wasser|![](/de-DE/2026/05/202605102200QueenslandReef.jpg)|
 202605112200|Fratercula|Papageitaucher, Wales (© FLPA/Alamy)|Leben zwischen Luft und Meer|![](/de-DE/2026/05/202605112200Fratercula.jpg)|
 202605122200|AlabamaHills|Felsbogen und Milchstraße, Alabama Hills, Sierra Nevada, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)|Tor zum Universum|![](/de-DE/2026/05/202605122200AlabamaHills.jpg)|
+202605132200|FathersDayItaly|Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)|An Vaters Seite|![](/de-DE/2026/05/202605132200FathersDayItaly.jpg)|
