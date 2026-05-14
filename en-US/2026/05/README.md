@@ -15,3 +15,4 @@
 202605120700|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Flap, dive, survive|![](/en-US/2026/05/202605120700Fratercula.jpg)|
 202605130700|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)|Rock on, Milky Way!|![](/en-US/2026/05/202605130700AlabamaHills.jpg)|
 202605140700|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|A journey through time|![](/en-US/2026/05/202605140700Pitigliano.jpg)|
+||||![](/en-US/2026/05/.jpg)|

@@ -15,3 +15,4 @@
 202605121600|AlabamaHills|拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)|银河系，摇滚吧！|![](/zh-CN/2026/05/202605121600AlabamaHills.jpg)|
 202605131600|Pitigliano|中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)|一场穿越时空的旅程|![](/zh-CN/2026/05/202605131600Pitigliano.jpg)|
 202605141600|EndangeredWhales|一群抹香鲸, 印度洋 (© Tony Wu/Nature Picture Library)|鲸鱼，你会救我吗？|![](/zh-CN/2026/05/202605141600EndangeredWhales.jpg)|
+||||![](/zh-CN/2026/05/.jpg)|
