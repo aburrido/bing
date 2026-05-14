@@ -15,3 +15,4 @@
 202605122200|AlabamaHills|Felsbogen und Milchstraße, Alabama Hills, Sierra Nevada, Kalifornien, USA (© Tim Fitzharris/Minden Pictures)|Tor zum Universum|![](/de-DE/2026/05/202605122200AlabamaHills.jpg)|
 202605132200|FathersDayItaly|Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)|An Vaters Seite|![](/de-DE/2026/05/202605132200FathersDayItaly.jpg)|
 ||||![](/de-DE/2026/05/.jpg)|
+202605142200|EndangeredWhales|Eine Pottwal-Familie im Indischen Ozean (© Tony Wu/Nature Picture Library)|Ganz schön laut|![](/de-DE/2026/05/202605142200EndangeredWhales.jpg)|
