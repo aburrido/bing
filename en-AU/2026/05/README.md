@@ -14,3 +14,4 @@
 202605110700|QueenslandReef|Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2026/05/202605110700QueenslandReef.jpg)|
 202605120700|Fratercula|Atlantic puffins, Wales (© FLPA/Alamy)|Info|![](/en-AU/2026/05/202605120700Fratercula.jpg)|
 202605130700|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California, United States (© Tim Fitzharris/Minden Pictures)|Info|![](/en-AU/2026/05/202605130700AlabamaHills.jpg)|
+202605140700|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|Info|![](/en-AU/2026/05/202605140700Pitigliano.jpg)|
