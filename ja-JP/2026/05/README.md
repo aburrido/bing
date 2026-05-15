@@ -16,3 +16,4 @@
 202605131500|Pitigliano|ピティリアーノ, イタリア (© bluejayphoto/Getty Images Plus)|夕映えの断崖古都|![](/ja-JP/2026/05/202605131500Pitigliano.jpg)|
 202605141500|EndangeredWhales|マッコウクジラ, インド洋 (© Tony Wu/Nature Picture Library)|今日は絶滅危惧種の日|![](/ja-JP/2026/05/202605141500EndangeredWhales.jpg)|
 ||||![](/ja-JP/2026/05/.jpg)|
+202605151500|SmithRockPark|スミスロック州立公園, 米国 オレゴン州 (© Alex Ratson/Getty Images)|そびえ立つ岩山と穏やかに曲がる川|![](/ja-JP/2026/05/202605151500SmithRockPark.jpg)|
