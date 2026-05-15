@@ -16,3 +16,4 @@
 202605131600|Pitigliano|中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)|一场穿越时空的旅程|![](/zh-CN/2026/05/202605131600Pitigliano.jpg)|
 202605141600|EndangeredWhales|一群抹香鲸, 印度洋 (© Tony Wu/Nature Picture Library)|鲸鱼，你会救我吗？|![](/zh-CN/2026/05/202605141600EndangeredWhales.jpg)|
 ||||![](/zh-CN/2026/05/.jpg)|
+202605151600|SmithRockPark|史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)|跌到谷底？这里可不是。|![](/zh-CN/2026/05/202605151600SmithRockPark.jpg)|
