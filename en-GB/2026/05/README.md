@@ -16,3 +16,4 @@
 202605122300|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California, United States (© Tim Fitzharris/Minden Pictures)|Rock on, Milky Way!|![](/en-GB/2026/05/202605122300AlabamaHills.jpg)|
 202605132300|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|A journey through time|![](/en-GB/2026/05/202605132300Pitigliano.jpg)|
 202605142300|EndangeredWhales|A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)|Whale you save me?|![](/en-GB/2026/05/202605142300EndangeredWhales.jpg)|
+202605152300|SmithRockPark|Smith Rock State Park, Oregon, United States (© Alex Ratson/Getty Images)|Rock bottom? Not here|![](/en-GB/2026/05/202605152300SmithRockPark.jpg)|
