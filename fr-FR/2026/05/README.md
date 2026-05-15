@@ -15,3 +15,4 @@
 202605122200|AlabamaHills|Voie lactée et arche naturelle, Alabama Hills, Sierra Nevada, Californie, États-Unis (© Tim Fitzharris/Minden Pictures)|L’art de briller sans projecteurs|![](/fr-FR/2026/05/202605122200AlabamaHills.jpg)|
 202605132200|Pitigliano|Ville médiévale de Pitigliano, Toscane, Italie (© bluejayphoto/Getty Images Plus)|Un voyage dans le temps|![](/fr-FR/2026/05/202605132200Pitigliano.jpg)|
 202605142200|EndangeredWhales|Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)|Le géant des fonds marins|![](/fr-FR/2026/05/202605142200EndangeredWhales.jpg)|
+202605152200|BirchForest|Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)|Ô bouleau !|![](/fr-FR/2026/05/202605152200BirchForest.jpg)|
