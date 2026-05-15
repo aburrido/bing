@@ -14,3 +14,4 @@
 202605120400|Fratercula|Macareux moines, Pays de Galles (© FLPA/Alamy)|Plonger, s’envoler et survivre|![](/fr-CA/2026/05/202605120400Fratercula.jpg)|
 202605130400|AlabamaHills|Voie lactée et arche naturelle, Alabama Hills, Sierra Nevada, Californie, États-Unis (© Tim Fitzharris/Minden Pictures)|L’art de briller sans projecteurs|![](/fr-CA/2026/05/202605130400AlabamaHills.jpg)|
 202605140400|Pitigliano|Ville médiévale de Pitigliano, Toscane, Italie (© bluejayphoto/Getty Images Plus)|Un voyage dans le temps|![](/fr-CA/2026/05/202605140400Pitigliano.jpg)|
+202605150400|EndangeredWhales|Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)|Le géant des fonds marins|![](/fr-CA/2026/05/202605150400EndangeredWhales.jpg)|
