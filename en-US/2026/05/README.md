@@ -16,3 +16,4 @@
 202605130700|AlabamaHills|Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)|Rock on, Milky Way!|![](/en-US/2026/05/202605130700AlabamaHills.jpg)|
 202605140700|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|A journey through time|![](/en-US/2026/05/202605140700Pitigliano.jpg)|
 ||||![](/en-US/2026/05/.jpg)|
+202605150700|EndangeredWhales|A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)|Whale you save me?|![](/en-US/2026/05/202605150700EndangeredWhales.jpg)|
