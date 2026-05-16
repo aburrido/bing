@@ -17,3 +17,4 @@
 202605140700|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|A journey through time|![](/en-US/2026/05/202605140700Pitigliano.jpg)|
 ||||![](/en-US/2026/05/.jpg)|
 202605150700|EndangeredWhales|A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)|Whale you save me?|![](/en-US/2026/05/202605150700EndangeredWhales.jpg)|
+202605160700|SmithRockPark|Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)|Rock bottom? Not here|![](/en-US/2026/05/202605160700SmithRockPark.jpg)|
