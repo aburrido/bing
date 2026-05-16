@@ -17,3 +17,4 @@
 202605141830|EndangeredWhales|A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)|Whale you save me?|![](/en-IN/2026/05/202605141830EndangeredWhales.jpg)|
 ||||![](/en-IN/2026/05/.jpg)|
 202605151830|SmithRockPark|Smith Rock State Park, Oregon, United States (© Alex Ratson/Getty Images)|Rock bottom? Not here|![](/en-IN/2026/05/202605151830SmithRockPark.jpg)|
+202605161830|ShenandoahSunset|Hawksbill Mountain in Shenandoah National Park, Virginia, USA (© John Baggaley/Getty Images)|Quiet peak, loud view|![](/en-IN/2026/05/202605161830ShenandoahSunset.jpg)|
