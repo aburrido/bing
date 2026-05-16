@@ -17,3 +17,4 @@
 ||||![](/de-DE/2026/05/.jpg)|
 202605142200|EndangeredWhales|Eine Pottwal-Familie im Indischen Ozean (© Tony Wu/Nature Picture Library)|Ganz schön laut|![](/de-DE/2026/05/202605142200EndangeredWhales.jpg)|
 202605152200|ButterflyFlower|Argus‑Bläuling auf einer Blüte (© Remus86/Getty Images)|Zarte Zeichen der Natur|![](/de-DE/2026/05/202605152200ButterflyFlower.jpg)|
+202605162200|ShenandoahSunset|Hawksbill Mountain im Shenandoah‑Nationalpark, Virginia, USA (© John Baggaley/Getty Images)|Stiller Gipfel, weite Sicht|![](/de-DE/2026/05/202605162200ShenandoahSunset.jpg)|
