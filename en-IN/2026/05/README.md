@@ -18,3 +18,4 @@
 ||||![](/en-IN/2026/05/.jpg)|
 202605151830|SmithRockPark|Smith Rock State Park, Oregon, United States (© Alex Ratson/Getty Images)|Rock bottom? Not here|![](/en-IN/2026/05/202605151830SmithRockPark.jpg)|
 202605161830|ShenandoahSunset|Hawksbill Mountain in Shenandoah National Park, Virginia, USA (© John Baggaley/Getty Images)|Quiet peak, loud view|![](/en-IN/2026/05/202605161830ShenandoahSunset.jpg)|
+202605171830|MuseumLondon|Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)|Hope in the hall|![](/en-IN/2026/05/202605171830MuseumLondon.jpg)|
