@@ -17,3 +17,4 @@
 202605142200|EndangeredWhales|Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)|Le géant des fonds marins|![](/fr-FR/2026/05/202605142200EndangeredWhales.jpg)|
 202605152200|BirchForest|Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)|Ô bouleau !|![](/fr-FR/2026/05/202605152200BirchForest.jpg)|
 202605162200|ShenandoahSunset|Hawksbill Mountain, Parc national de Shenandoah, Virginie, États-Unis (© John Baggaley/Getty Images)|Sommet paisible, vue éclatante|![](/fr-FR/2026/05/202605162200ShenandoahSunset.jpg)|
+202605172200|HatsRolandGarros|Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)|Jeu, set et match !|![](/fr-FR/2026/05/202605172200HatsRolandGarros.jpg)|
