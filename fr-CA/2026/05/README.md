@@ -16,3 +16,4 @@
 202605140400|Pitigliano|Ville médiévale de Pitigliano, Toscane, Italie (© bluejayphoto/Getty Images Plus)|Un voyage dans le temps|![](/fr-CA/2026/05/202605140400Pitigliano.jpg)|
 202605150400|EndangeredWhales|Famille de cachalots, Océan Indien (© Tony Wu/Nature Picture Library)|Le géant des fonds marins|![](/fr-CA/2026/05/202605150400EndangeredWhales.jpg)|
 202605160400|SmithRockPark|Parc d’État de Smith Rock, Oregon, États-Unis (© Alex Ratson/Getty Images)|Quand la roche mène la danse|![](/fr-CA/2026/05/202605160400SmithRockPark.jpg)|
+202605170400|ShenandoahSunset|Hawksbill Mountain, Parc national de Shenandoah, Virginie, États-Unis (© John Baggaley/Getty Images)|Sommet paisible, vue éclatante|![](/fr-CA/2026/05/202605170400ShenandoahSunset.jpg)|
