@@ -17,3 +17,4 @@
 202605140700|Pitigliano|Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)|Info|![](/en-AU/2026/05/202605140700Pitigliano.jpg)|
 202605150700|EndangeredWhales|A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)|Info|![](/en-AU/2026/05/202605150700EndangeredWhales.jpg)|
 202605160700|SmithRockPark|Smith Rock State Park, Oregon, United States (© Alex Ratson/Getty Images)|Info|![](/en-AU/2026/05/202605160700SmithRockPark.jpg)|
+202605170700|ShenandoahSunset|Hawksbill Mountain in Shenandoah National Park, Virginia, United States (© John Baggaley/Getty Images)|Info|![](/en-AU/2026/05/202605170700ShenandoahSunset.jpg)|
