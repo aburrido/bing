@@ -18,3 +18,4 @@
 ||||![](/zh-CN/2026/05/.jpg)|
 202605151600|SmithRockPark|史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)|跌到谷底？这里可不是。|![](/zh-CN/2026/05/202605151600SmithRockPark.jpg)|
 202605161600|ShenandoahSunset|仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)|静谧之巅，喧嚣之景|![](/zh-CN/2026/05/202605161600ShenandoahSunset.jpg)|
+202605171600|MuseumLondon|伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)|大厅里的希望|![](/zh-CN/2026/05/202605171600MuseumLondon.jpg)|
