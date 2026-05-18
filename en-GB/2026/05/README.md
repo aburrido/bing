@@ -19,3 +19,4 @@
 202605152300|SmithRockPark|Smith Rock State Park, Oregon, United States (© Alex Ratson/Getty Images)|Rock bottom? Not here|![](/en-GB/2026/05/202605152300SmithRockPark.jpg)|
 202605162300|ShenandoahSunset|Hawksbill Mountain in Shenandoah National Park, Virginia, United States (© John Baggaley/Getty Images)|Quiet peak, loud view|![](/en-GB/2026/05/202605162300ShenandoahSunset.jpg)|
 202605172300|MuseumLondon|Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)|Hope in the hall|![](/en-GB/2026/05/202605172300MuseumLondon.jpg)|
+202605182300|ChelseaFlower2026|Carnivorous red and green pitcher plants at the Chelsea Flower Show (© Jillian Cain Photography/Shutterstock)|Pitch perfect predators|![](/en-GB/2026/05/202605182300ChelseaFlower2026.jpg)|
