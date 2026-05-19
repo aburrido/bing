@@ -20,3 +20,4 @@
 202605161600|ShenandoahSunset|仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)|静谧之巅，喧嚣之景|![](/zh-CN/2026/05/202605161600ShenandoahSunset.jpg)|
 202605171600|MuseumLondon|伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)|大厅里的希望|![](/zh-CN/2026/05/202605171600MuseumLondon.jpg)|
 202605181600|SpainLighthouse|福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙 (© Allard Schager/Getty Images)|马略卡岛的边缘|![](/zh-CN/2026/05/202605181600SpainLighthouse.jpg)|
+202605191600|BumbleBee|熊蜂在授粉, 伍斯特, 英格兰 (© SimonEastwood87/Shutterstock)|喧闹从这里开始|![](/zh-CN/2026/05/202605191600BumbleBee.jpg)|
