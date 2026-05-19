@@ -18,3 +18,4 @@
 202605160400|SmithRockPark|Parc d’État de Smith Rock, Oregon, États-Unis (© Alex Ratson/Getty Images)|Quand la roche mène la danse|![](/fr-CA/2026/05/202605160400SmithRockPark.jpg)|
 202605170400|ShenandoahSunset|Hawksbill Mountain, Parc national de Shenandoah, Virginie, États-Unis (© John Baggaley/Getty Images)|Sommet paisible, vue éclatante|![](/fr-CA/2026/05/202605170400ShenandoahSunset.jpg)|
 202605180400|MuseumLondon|Musée d’histoire naturelle de Londres, Angleterre (© Colm Keating/Tandem Stills + Motion)|Un hall plein d’histoire|![](/fr-CA/2026/05/202605180400MuseumLondon.jpg)|
+202605190400|SpainLighthouse|Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)|La pointe nord de Majorque|![](/fr-CA/2026/05/202605190400SpainLighthouse.jpg)|
