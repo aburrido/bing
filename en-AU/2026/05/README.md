@@ -19,3 +19,4 @@
 202605160700|SmithRockPark|Smith Rock State Park, Oregon, United States (© Alex Ratson/Getty Images)|Info|![](/en-AU/2026/05/202605160700SmithRockPark.jpg)|
 202605170700|ShenandoahSunset|Hawksbill Mountain in Shenandoah National Park, Virginia, United States (© John Baggaley/Getty Images)|Info|![](/en-AU/2026/05/202605170700ShenandoahSunset.jpg)|
 202605180700|NPFortnight2026|Dolbadarn Castle, Llanberis, Wales (© Allan Hartley/Alamy)|Info|![](/en-AU/2026/05/202605180700NPFortnight2026.jpg)|
+202605190700|SpainLighthouse|Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)|Info|![](/en-AU/2026/05/202605190700SpainLighthouse.jpg)|
