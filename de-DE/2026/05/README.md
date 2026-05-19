@@ -20,3 +20,4 @@
 202605162200|ShenandoahSunset|Hawksbill Mountain im Shenandoah‑Nationalpark, Virginia, USA (© John Baggaley/Getty Images)|Stiller Gipfel, weite Sicht|![](/de-DE/2026/05/202605162200ShenandoahSunset.jpg)|
 202605172200|MuseumLondon|Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)|Ein Ort zum Entdecken und Staunen|![](/de-DE/2026/05/202605172200MuseumLondon.jpg)|
 202605182200|SpainLighthouse|Leuchtturm von Formentor, Mallorca, Balearen, Spanien (© Allard Schager/Getty Images)|Abgeschieden über den Klippen|![](/de-DE/2026/05/202605182200SpainLighthouse.jpg)|
+202605192200|BumbleBee|Hummel bei der Bestäubung, Worcester, England (© SimonEastwood87/Shutterstock)|Die Kraft des Summens|![](/de-DE/2026/05/202605192200BumbleBee.jpg)|
