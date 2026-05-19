@@ -20,3 +20,4 @@
 202605161830|ShenandoahSunset|Hawksbill Mountain in Shenandoah National Park, Virginia, USA (© John Baggaley/Getty Images)|Quiet peak, loud view|![](/en-IN/2026/05/202605161830ShenandoahSunset.jpg)|
 202605171830|MuseumLondon|Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)|Hope in the hall|![](/en-IN/2026/05/202605171830MuseumLondon.jpg)|
 202605181830|SpainLighthouse|Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)|The edge of Mallorca|![](/en-IN/2026/05/202605181830SpainLighthouse.jpg)|
+202605191830|BumbleBee|Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)|Where the buzz begins|![](/en-IN/2026/05/202605191830BumbleBee.jpg)|
