@@ -21,3 +21,4 @@
 202605172300|MuseumLondon|Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)|Hope in the hall|![](/en-GB/2026/05/202605172300MuseumLondon.jpg)|
 202605182300|ChelseaFlower2026|Carnivorous red and green pitcher plants at the Chelsea Flower Show (© Jillian Cain Photography/Shutterstock)|Pitch perfect predators|![](/en-GB/2026/05/202605182300ChelseaFlower2026.jpg)|
 202605192300|BumbleBee|Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)|Where the buzz begins|![](/en-GB/2026/05/202605192300BumbleBee.jpg)|
+202605202300|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Brewing a legacy|![](/en-GB/2026/05/202605202300SichuanTea.jpg)|
