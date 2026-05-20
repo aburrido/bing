@@ -21,3 +21,4 @@
 202605171500|MuseumDay2026|国立科学博物館, 東京 (© cowardlion/Shutterstock)|今日は国際博物館の日|![](/ja-JP/2026/05/202605171500MuseumDay2026.jpg)|
 202605181500|SpainLighthouse|フォルメントール灯台, スペイン (© Allard Schager/Getty Images)|断崖の先に立つ灯台|![](/ja-JP/2026/05/202605181500SpainLighthouse.jpg)|
 202605191500|BumbleBee|受粉しているマルハナバチ, イングランド (© SimonEastwood87/Shutterstock)|今日は世界ミツバチの日|![](/ja-JP/2026/05/202605191500BumbleBee.jpg)|
+202605201500|SichuanTea|四川省の茶畑, 中国 (© lzf/Shutterstock)|今日は国際お茶の日|![](/ja-JP/2026/05/202605201500SichuanTea.jpg)|
