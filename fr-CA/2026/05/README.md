@@ -19,3 +19,4 @@
 202605170400|ShenandoahSunset|Hawksbill Mountain, Parc national de Shenandoah, Virginie, États-Unis (© John Baggaley/Getty Images)|Sommet paisible, vue éclatante|![](/fr-CA/2026/05/202605170400ShenandoahSunset.jpg)|
 202605180400|MuseumLondon|Musée d’histoire naturelle de Londres, Angleterre (© Colm Keating/Tandem Stills + Motion)|Un hall plein d’histoire|![](/fr-CA/2026/05/202605180400MuseumLondon.jpg)|
 202605190400|SpainLighthouse|Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)|La pointe nord de Majorque|![](/fr-CA/2026/05/202605190400SpainLighthouse.jpg)|
+202605200400|BumbleBee|Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)|D’indispensables petites bêtes|![](/fr-CA/2026/05/202605200400BumbleBee.jpg)|
