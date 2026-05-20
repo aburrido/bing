@@ -20,3 +20,4 @@
 202605172200|HatsRolandGarros|Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)|Jeu, set et match !|![](/fr-FR/2026/05/202605172200HatsRolandGarros.jpg)|
 202605182200|SpainLighthouse|Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)|La pointe nord de Majorque|![](/fr-FR/2026/05/202605182200SpainLighthouse.jpg)|
 202605192200|BumbleBee|Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)|D’indispensables petites bêtes|![](/fr-FR/2026/05/202605192200BumbleBee.jpg)|
+202605202200|SichuanTea|Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)|Un héritage liquide|![](/fr-FR/2026/05/202605202200SichuanTea.jpg)|
