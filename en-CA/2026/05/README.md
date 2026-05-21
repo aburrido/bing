@@ -21,3 +21,4 @@
 202605180400|MuseumLondon|Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)|Hope in the hall|![](/en-CA/2026/05/202605180400MuseumLondon.jpg)|
 202605190400|SpainLighthouse|Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)|The edge of Mallorca|![](/en-CA/2026/05/202605190400SpainLighthouse.jpg)|
 202605200400|BumbleBee|Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)|Where the buzz begins|![](/en-CA/2026/05/202605200400BumbleBee.jpg)|
+202605210400|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Brewing a legacy|![](/en-CA/2026/05/202605210400SichuanTea.jpg)|
