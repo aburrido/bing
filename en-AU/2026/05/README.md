@@ -22,3 +22,4 @@
 202605190700|SpainLighthouse|Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)|Info|![](/en-AU/2026/05/202605190700SpainLighthouse.jpg)|
 202605200700|BumbleBee|Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)|Info|![](/en-AU/2026/05/202605200700BumbleBee.jpg)|
 ||||![](/en-AU/2026/05/.jpg)|
+202605210700|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Info|![](/en-AU/2026/05/202605210700SichuanTea.jpg)|
