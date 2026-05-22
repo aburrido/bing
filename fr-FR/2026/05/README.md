@@ -22,3 +22,4 @@
 202605192200|BumbleBee|Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)|D’indispensables petites bêtes|![](/fr-FR/2026/05/202605192200BumbleBee.jpg)|
 202605202200|SichuanTea|Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)|Un héritage liquide|![](/fr-FR/2026/05/202605202200SichuanTea.jpg)|
 202605212200|KauehiAtollLagoon|Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)|Sur la plage abandonnée…|![](/fr-FR/2026/05/202605212200KauehiAtollLagoon.jpg)|
+202605222200|ThreeTurtlesButterflies|Tortues et papillons (© Patrick Gallet/Getty Images)|De bien anciennes créatures|![](/fr-FR/2026/05/202605222200ThreeTurtlesButterflies.jpg)|
