@@ -23,3 +23,4 @@
 202605191600|BumbleBee|熊蜂在授粉, 伍斯特, 英格兰 (© SimonEastwood87/Shutterstock)|喧闹从这里开始|![](/zh-CN/2026/05/202605191600BumbleBee.jpg)|
 202605201600|SichuanTea|四川省的茶梯田, 中国 (© lzf/Shutterstock)|酿造传承|![](/zh-CN/2026/05/202605201600SichuanTea.jpg)|
 202605211600|KauehiAtollLagoon|埃希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame_dpr/Alamy)|海洋生命的律动|![](/zh-CN/2026/05/202605211600KauehiAtollLagoon.jpg)|
+202605221600|ThreeTurtlesButterflies|与蝴蝶在一起的乌龟 (© Patrick Gallet/Getty Images)|为龟类喝彩！|![](/zh-CN/2026/05/202605221600ThreeTurtlesButterflies.jpg)|

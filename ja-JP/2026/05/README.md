@@ -23,3 +23,4 @@
 202605191500|BumbleBee|受粉しているマルハナバチ, イングランド (© SimonEastwood87/Shutterstock)|今日は世界ミツバチの日|![](/ja-JP/2026/05/202605191500BumbleBee.jpg)|
 202605201500|SichuanTea|四川省の茶畑, 中国 (© lzf/Shutterstock)|今日は国際お茶の日|![](/ja-JP/2026/05/202605201500SichuanTea.jpg)|
 202605211500|TokyoSkyTreeDay2026|東京スカイツリー, 東京 (© GoranQ/Getty Images)|スカイツリー開業から 14 年|![](/ja-JP/2026/05/202605211500TokyoSkyTreeDay2026.jpg)|
+202605221500|ThreeTurtlesButterflies|カメと蝶 (© Patrick Gallet/Getty Images)|今日は世界カメの日|![](/ja-JP/2026/05/202605221500ThreeTurtlesButterflies.jpg)|
