@@ -21,3 +21,4 @@
 202605190400|SpainLighthouse|Phare de Formentor, Majorque, Îles Baléares, Espagne (© Allard Schager/Getty Images)|La pointe nord de Majorque|![](/fr-CA/2026/05/202605190400SpainLighthouse.jpg)|
 202605200400|BumbleBee|Bourdon, Worcester, Angleterre (© SimonEastwood87/Shutterstock)|D’indispensables petites bêtes|![](/fr-CA/2026/05/202605200400BumbleBee.jpg)|
 202605210400|SichuanTea|Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)|Un héritage liquide|![](/fr-CA/2026/05/202605210400SichuanTea.jpg)|
+202605220400|KauehiAtollLagoon|Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)|Sur la plage abandonnée…|![](/fr-CA/2026/05/202605220400KauehiAtollLagoon.jpg)|
