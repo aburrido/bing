@@ -23,3 +23,4 @@
 202605192300|BumbleBee|Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)|Where the buzz begins|![](/en-GB/2026/05/202605192300BumbleBee.jpg)|
 202605202300|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Brewing a legacy|![](/en-GB/2026/05/202605202300SichuanTea.jpg)|
 202605212300|KauehiAtollLagoon|Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)|The shape of life at sea|![](/en-GB/2026/05/202605212300KauehiAtollLagoon.jpg)|
+202605222300|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Shell yeah, turtles!|![](/en-GB/2026/05/202605222300ThreeTurtlesButterflies.jpg)|
