@@ -23,3 +23,4 @@
 202605202200|SichuanTea|Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)|Un héritage liquide|![](/fr-FR/2026/05/202605202200SichuanTea.jpg)|
 202605212200|KauehiAtollLagoon|Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)|Sur la plage abandonnée…|![](/fr-FR/2026/05/202605212200KauehiAtollLagoon.jpg)|
 202605222200|ThreeTurtlesButterflies|Tortues et papillons (© Patrick Gallet/Getty Images)|De bien anciennes créatures|![](/fr-FR/2026/05/202605222200ThreeTurtlesButterflies.jpg)|
+202605232200|DolomitesPark|Parc naturel Trois Cimes, Bolzano, Italie (© Adisorn Fineday Chutikunakorn/Getty Images)|La face sauvage de l’Europe|![](/fr-FR/2026/05/202605232200DolomitesPark.jpg)|
