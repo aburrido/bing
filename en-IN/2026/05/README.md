@@ -24,3 +24,4 @@
 202605201830|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Brewing a legacy|![](/en-IN/2026/05/202605201830SichuanTea.jpg)|
 202605211830|KauehiAtollLagoon|Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)|The shape of life at sea|![](/en-IN/2026/05/202605211830KauehiAtollLagoon.jpg)|
 202605221830|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Shell yeah, turtles!|![](/en-IN/2026/05/202605221830ThreeTurtlesButterflies.jpg)|
+202605231830|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Preserving Europe's wild places|![](/en-IN/2026/05/202605231830DolomitesPark.jpg)|
