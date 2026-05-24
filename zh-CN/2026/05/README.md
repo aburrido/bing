@@ -25,3 +25,4 @@
 202605211600|KauehiAtollLagoon|埃希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame_dpr/Alamy)|海洋生命的律动|![](/zh-CN/2026/05/202605211600KauehiAtollLagoon.jpg)|
 202605221600|ThreeTurtlesButterflies|与蝴蝶在一起的乌龟 (© Patrick Gallet/Getty Images)|为龟类喝彩！|![](/zh-CN/2026/05/202605221600ThreeTurtlesButterflies.jpg)|
 202605231600|DolomitesPark|三峰自然公园，南蒂罗尔，意大利 (© Adisorn Fineday Chutikunakorn/Getty Images)|守护欧洲的自然净土|![](/zh-CN/2026/05/202605231600DolomitesPark.jpg)|
+202605241600|HawaMahal2026|从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)|石间的清风|![](/zh-CN/2026/05/202605241600HawaMahal2026.jpg)|
