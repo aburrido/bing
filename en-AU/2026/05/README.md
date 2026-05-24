@@ -25,3 +25,4 @@
 202605210700|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Info|![](/en-AU/2026/05/202605210700SichuanTea.jpg)|
 202605220700|PontArdeche|Pont d'Arc, Ardèche, France (© Gael Fontaine/Getty Images)|Info|![](/en-AU/2026/05/202605220700PontArdeche.jpg)|
 202605230700|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Info|![](/en-AU/2026/05/202605230700ThreeTurtlesButterflies.jpg)|
+202605240700|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Info|![](/en-AU/2026/05/202605240700DolomitesPark.jpg)|
