@@ -25,3 +25,4 @@
 202605211830|KauehiAtollLagoon|Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)|The shape of life at sea|![](/en-IN/2026/05/202605211830KauehiAtollLagoon.jpg)|
 202605221830|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Shell yeah, turtles!|![](/en-IN/2026/05/202605221830ThreeTurtlesButterflies.jpg)|
 202605231830|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Preserving Europe's wild places|![](/en-IN/2026/05/202605231830DolomitesPark.jpg)|
+202605241830|HawaMahal2026|View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)|A breeze in stone|![](/en-IN/2026/05/202605241830HawaMahal2026.jpg)|
