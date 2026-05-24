@@ -23,3 +23,4 @@
 202605210400|SichuanTea|Plantations de thé en terrasses, Sichuan, Chine (© lzf/Shutterstock)|Un héritage liquide|![](/fr-CA/2026/05/202605210400SichuanTea.jpg)|
 202605220400|KauehiAtollLagoon|Kauehi, Archipel des Tuamotu, Polynésie française (© WaterFrame_dpr/Alamy)|Sur la plage abandonnée…|![](/fr-CA/2026/05/202605220400KauehiAtollLagoon.jpg)|
 202605230400|ThreeTurtlesButterflies|Tortues et papillons (© Patrick Gallet/Getty Images)|De bien anciennes créatures|![](/fr-CA/2026/05/202605230400ThreeTurtlesButterflies.jpg)|
+202605240400|MuteSwanGI|Cygne tuberculé sur un plan d’eau calme (© Don White/Getty Images)|L’art de la tranquilité|![](/fr-CA/2026/05/202605240400MuteSwanGI.jpg)|

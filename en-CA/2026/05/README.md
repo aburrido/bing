@@ -24,3 +24,4 @@
 202605210400|SichuanTea|Tea terraces in Sichuan Province, China (© lzf/Shutterstock)|Brewing a legacy|![](/en-CA/2026/05/202605210400SichuanTea.jpg)|
 202605220400|KauehiAtollLagoon|Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)|The shape of life at sea|![](/en-CA/2026/05/202605220400KauehiAtollLagoon.jpg)|
 202605230400|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Shell yeah, turtles!|![](/en-CA/2026/05/202605230400ThreeTurtlesButterflies.jpg)|
+202605240400|MuteSwanGI|A mute swan reflected on tranquil waters (© Don White/Getty Images)|The art of quiet control|![](/en-CA/2026/05/202605240400MuteSwanGI.jpg)|
