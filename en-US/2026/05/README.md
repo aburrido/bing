@@ -26,3 +26,4 @@
 202605220700|KauehiAtollLagoon|Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)|The shape of life at sea|![](/en-US/2026/05/202605220700KauehiAtollLagoon.jpg)|
 202605230700|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Shell yeah, turtles!|![](/en-US/2026/05/202605230700ThreeTurtlesButterflies.jpg)|
 202605240700|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Preserving Europe's wild places|![](/en-US/2026/05/202605240700DolomitesPark.jpg)|
+202605250700|ArlingtonAmphitheater|Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)|Where silence bears names|![](/en-US/2026/05/202605250700ArlingtonAmphitheater.jpg)|
