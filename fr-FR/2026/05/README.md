@@ -25,3 +25,4 @@
 202605222200|ThreeTurtlesButterflies|Tortues et papillons (© Patrick Gallet/Getty Images)|De bien anciennes créatures|![](/fr-FR/2026/05/202605222200ThreeTurtlesButterflies.jpg)|
 202605232200|DolomitesPark|Parc naturel Trois Cimes, Bolzano, Italie (© Adisorn Fineday Chutikunakorn/Getty Images)|La face sauvage de l’Europe|![](/fr-FR/2026/05/202605232200DolomitesPark.jpg)|
 202605242200|HawaMahal2026|Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)|Un souffle entre les pierres|![](/fr-FR/2026/05/202605242200HawaMahal2026.jpg)|
+202605252200|LupineBloom|Lupins en fleur, Californie du Nord, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Marée bleue sur la colline|![](/fr-FR/2026/05/202605252200LupineBloom.jpg)|

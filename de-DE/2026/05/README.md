@@ -26,3 +26,4 @@
 202605222200|ThreeTurtlesButterflies|Schildkröten mit Schmetterlingen (© Patrick Gallet/Getty Images)|Harte Schale, starkes Leben|![](/de-DE/2026/05/202605222200ThreeTurtlesButterflies.jpg)|
 202605232200|DolomitesPark|Naturpark Drei Zinnen, Südtirol, Italien (© Adisorn Fineday Chutikunakorn/Getty Images)|Schutz für Europas natürliche Vielfalt|![](/de-DE/2026/05/202605232200DolomitesPark.jpg)|
 202605242200|HexenlochMill|Die Hexenlochmühle im Schwarzwald bei Furtwangen, Baden‑Württemberg (© Conny Pokorny/Shutterstock)|Wasser treibt Geschichte|![](/de-DE/2026/05/202605242200HexenlochMill.jpg)|
+202605252200|LupineBloom|Blühende Lupinen, Nordkalifornien, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Blüten schreiben Landschaft|![](/de-DE/2026/05/202605252200LupineBloom.jpg)|
