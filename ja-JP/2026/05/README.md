@@ -26,3 +26,4 @@
 202605221500|ThreeTurtlesButterflies|カメと蝶 (© Patrick Gallet/Getty Images)|今日は世界カメの日|![](/ja-JP/2026/05/202605221500ThreeTurtlesButterflies.jpg)|
 202605231500|DolomitesPark|トレ・チーメ自然公園, イタリア (© Adisorn Fineday Chutikunakorn/Getty Images)|今日はヨーロッパの公園の日|![](/ja-JP/2026/05/202605231500DolomitesPark.jpg)|
 202605241500|TwrMawrLighthouse2026|トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)|小道の先に佇む灯台|![](/ja-JP/2026/05/202605241500TwrMawrLighthouse2026.jpg)|
+202605251500|LupineBloom|ルピナスの花, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)|一面に咲き広がる青いルピナス|![](/ja-JP/2026/05/202605251500LupineBloom.jpg)|
