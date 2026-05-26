@@ -27,3 +27,4 @@
 202605230700|ThreeTurtlesButterflies|Turtles with butterflies (© Patrick Gallet/Getty Images)|Shell yeah, turtles!|![](/en-US/2026/05/202605230700ThreeTurtlesButterflies.jpg)|
 202605240700|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Preserving Europe's wild places|![](/en-US/2026/05/202605240700DolomitesPark.jpg)|
 202605250700|ArlingtonAmphitheater|Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)|Where silence bears names|![](/en-US/2026/05/202605250700ArlingtonAmphitheater.jpg)|
+202605260700|LupineBloom|Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)|A season written in lupine|![](/en-US/2026/05/202605260700LupineBloom.jpg)|
