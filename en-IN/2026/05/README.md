@@ -27,3 +27,4 @@
 202605231830|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Preserving Europe's wild places|![](/en-IN/2026/05/202605231830DolomitesPark.jpg)|
 202605241830|HawaMahal2026|View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)|A breeze in stone|![](/en-IN/2026/05/202605241830HawaMahal2026.jpg)|
 202605251830|LupineBloom|Lupine flowers in bloom, Northern California, United States (© Jeffrey Lewis/Tandem Stills + Motion)|A season written in lupine|![](/en-IN/2026/05/202605251830LupineBloom.jpg)|
+202605261830|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|No 'otter' like them|![](/en-IN/2026/05/202605261830OtterDay.jpg)|
