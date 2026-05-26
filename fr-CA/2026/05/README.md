@@ -25,3 +25,4 @@
 202605230400|ThreeTurtlesButterflies|Tortues et papillons (© Patrick Gallet/Getty Images)|De bien anciennes créatures|![](/fr-CA/2026/05/202605230400ThreeTurtlesButterflies.jpg)|
 202605240400|MuteSwanGI|Cygne tuberculé sur un plan d’eau calme (© Don White/Getty Images)|L’art de la tranquilité|![](/fr-CA/2026/05/202605240400MuteSwanGI.jpg)|
 202605250400|HawaMahal2026|Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)|Un souffle entre les pierres|![](/fr-CA/2026/05/202605250400HawaMahal2026.jpg)|
+202605260400|LupineBloom|Lupins en fleur, Californie du Nord, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Marée bleue sur la colline|![](/fr-CA/2026/05/202605260400LupineBloom.jpg)|
