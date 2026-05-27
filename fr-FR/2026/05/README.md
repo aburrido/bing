@@ -27,3 +27,4 @@
 202605242200|HawaMahal2026|Vue sur Jaipur depuis le Palais des Vents, Rajasthan, Inde (© byheaven/Getty Images)|Un souffle entre les pierres|![](/fr-FR/2026/05/202605242200HawaMahal2026.jpg)|
 202605252200|LupineBloom|Lupins en fleur, Californie du Nord, États-Unis (© Jeffrey Lewis/Tandem Stills + Motion)|Marée bleue sur la colline|![](/fr-FR/2026/05/202605252200LupineBloom.jpg)|
 202605262200|OtterDay|Loutre de mer, Baie de Kachemak, Homer, Alaska, États-Unis (© roclwyr/Getty Images)|Aussi attendrissante qu’essentielle|![](/fr-FR/2026/05/202605262200OtterDay.jpg)|
+202605272200|HwaesongFortress|Forteresse de Hwaseong, Suwon, Corée du Sud (© aomam/Getty Images)|Quand architecture et discipline ne font qu’une|![](/fr-FR/2026/05/202605272200HwaesongFortress.jpg)|
