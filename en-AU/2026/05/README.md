@@ -28,3 +28,4 @@
 202605240700|DolomitesPark|Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)|Info|![](/en-AU/2026/05/202605240700DolomitesPark.jpg)|
 202605250700|HawaMahal2026|View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)|Info|![](/en-AU/2026/05/202605250700HawaMahal2026.jpg)|
 202605260700|LupineBloom|Lupine flowers in bloom, Northern California, United States (© Jeffrey Lewis/Tandem Stills + Motion)|Info|![](/en-AU/2026/05/202605260700LupineBloom.jpg)|
+202605270700|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|Info|![](/en-AU/2026/05/202605270700OtterDay.jpg)|
