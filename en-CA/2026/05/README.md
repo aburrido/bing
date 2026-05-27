@@ -27,3 +27,4 @@
 202605240400|MuteSwanGI|A mute swan reflected on tranquil waters (© Don White/Getty Images)|The art of quiet control|![](/en-CA/2026/05/202605240400MuteSwanGI.jpg)|
 202605250400|HawaMahal2026|View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)|A breeze in stone|![](/en-CA/2026/05/202605250400HawaMahal2026.jpg)|
 202605260400|LupineBloom|Lupine flowers in bloom, Northern California, United States (© Jeffrey Lewis/Tandem Stills + Motion)|A season written in lupine|![](/en-CA/2026/05/202605260400LupineBloom.jpg)|
+202605270400|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|No 'otter' like them|![](/en-CA/2026/05/202605270400OtterDay.jpg)|
