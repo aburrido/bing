@@ -28,3 +28,4 @@
 202605241600|HawaMahal2026|从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)|石间的清风|![](/zh-CN/2026/05/202605241600HawaMahal2026.jpg)|
 202605251600|LupineBloom|盛开的羽扇豆，北加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)|羽扇豆书写的季节|![](/zh-CN/2026/05/202605251600LupineBloom.jpg)|
 202605261600|OtterDay|海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)|它们“獭”独一无二|![](/zh-CN/2026/05/202605261600OtterDay.jpg)|
+202605271600|HwaesongFortress|华城堡的古城墙，水原，韩国 (© aomam/Getty Images)|设计与秩序相结合|![](/zh-CN/2026/05/202605271600HwaesongFortress.jpg)|
