@@ -29,3 +29,4 @@
 202605252200|LupineBloom|Blühende Lupinen, Nordkalifornien, USA (© Jeffrey Lewis/Tandem Stills + Motion)|Blüten schreiben Landschaft|![](/de-DE/2026/05/202605252200LupineBloom.jpg)|
 202605262200|OtterDay|Seeotter in der Kachemak Bay bei Homer, Alaska, USA (© roclwyr/Getty Images)|Einzigartig auf ihre Art|![](/de-DE/2026/05/202605262200OtterDay.jpg)|
 202605272200|HwaesongFortress|Alte Stadtmauer der Festung Hwaseong, Suwon, Südkorea (© aomam/Getty Images)|Form trifft Ordnung|![](/de-DE/2026/05/202605272200HwaesongFortress.jpg)|
+202605282200|SummitEverest|Gipfel des Mount Everest, Sagarmatha-Nationalpark, Nepal (© fotoVoyager/Getty Images)|Ein Gipfelmoment der Geschichte|![](/de-DE/2026/05/202605282200SummitEverest.jpg)|
