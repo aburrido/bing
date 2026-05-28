@@ -28,3 +28,4 @@
 202605250400|HawaMahal2026|View over Jaipur from Hawa Mahal, Rajasthan (© byheaven/Getty Images)|A breeze in stone|![](/en-CA/2026/05/202605250400HawaMahal2026.jpg)|
 202605260400|LupineBloom|Lupine flowers in bloom, Northern California, United States (© Jeffrey Lewis/Tandem Stills + Motion)|A season written in lupine|![](/en-CA/2026/05/202605260400LupineBloom.jpg)|
 202605270400|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|No 'otter' like them|![](/en-CA/2026/05/202605270400OtterDay.jpg)|
+202605280400|HwaesongFortress|Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)|Design meets discipline|![](/en-CA/2026/05/202605280400HwaesongFortress.jpg)|
