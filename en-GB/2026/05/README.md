@@ -29,3 +29,4 @@
 202605252300|LupineBloom|Lupine flowers in bloom, Northern California, United States (© Jeffrey Lewis/Tandem Stills + Motion)|A season written in lupine|![](/en-GB/2026/05/202605252300LupineBloom.jpg)|
 202605262300|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|No 'otter' like them|![](/en-GB/2026/05/202605262300OtterDay.jpg)|
 202605272300|HwaesongFortress|Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)|Design meets discipline|![](/en-GB/2026/05/202605272300HwaesongFortress.jpg)|
+202605282300|SummitEverest|Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)|A 'peak' into history|![](/en-GB/2026/05/202605282300SummitEverest.jpg)|
