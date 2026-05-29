@@ -30,3 +30,4 @@
 202605261500|OtterDay|ラッコ, 米国 アラスカ州 (© roclwyr/Getty Images)|今日は世界カワウソの日|![](/ja-JP/2026/05/202605261500OtterDay.jpg)|
 202605271500|HwaesongFortress|スウォンファソン, 韓国 水原市 (© aomam/Getty Images)|夕空に溶け込む城壁|![](/ja-JP/2026/05/202605271500HwaesongFortress.jpg)|
 202605281500|SummitEverest|エベレスト, ネパール (© fotoVoyager/Getty Images)|今日はエベレスト登頂記念日|![](/ja-JP/2026/05/202605281500SummitEverest.jpg)|
+202605291500|EquusQuagga|サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)|夕焼けに佇む若いシマウマ|![](/ja-JP/2026/05/202605291500EquusQuagga.jpg)|
