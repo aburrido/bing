@@ -30,3 +30,4 @@
 202605261600|OtterDay|海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)|它们“獭”独一无二|![](/zh-CN/2026/05/202605261600OtterDay.jpg)|
 202605271600|HwaesongFortress|华城堡的古城墙，水原，韩国 (© aomam/Getty Images)|设计与秩序相结合|![](/zh-CN/2026/05/202605271600HwaesongFortress.jpg)|
 202605281600|SummitEverest|珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)|巅峰历史时刻|![](/zh-CN/2026/05/202605281600SummitEverest.jpg)|
+202605291600|EquusQuagga|平原斑马幼崽，埃托沙国家公园，纳米比亚 (© Sharon Heald/Nature Picture Library)|读懂黑白之间|![](/zh-CN/2026/05/202605291600EquusQuagga.jpg)|
