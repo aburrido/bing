@@ -29,3 +29,4 @@
 202605262200|OtterDay|Loutre de mer, Baie de Kachemak, Homer, Alaska, États-Unis (© roclwyr/Getty Images)|Aussi attendrissante qu’essentielle|![](/fr-FR/2026/05/202605262200OtterDay.jpg)|
 202605272200|HwaesongFortress|Forteresse de Hwaseong, Suwon, Corée du Sud (© aomam/Getty Images)|Quand architecture et discipline ne font qu’une|![](/fr-FR/2026/05/202605272200HwaesongFortress.jpg)|
 202605282200|SummitEverest|Mont Everest, Parc national de Sagarmatha, Népal (© fotoVoyager/Getty Images)|Le summum de l’histoire de l’alpinisme|![](/fr-FR/2026/05/202605282200SummitEverest.jpg)|
+202605292200|EquusQuagga|Zébreau dans le parc national d’Etosha, Namibie (© Sharon Heald/Nature Picture Library)|Lire entre les lignes|![](/fr-FR/2026/05/202605292200EquusQuagga.jpg)|
