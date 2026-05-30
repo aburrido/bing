@@ -31,3 +31,4 @@
 202605272300|HwaesongFortress|Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)|Design meets discipline|![](/en-GB/2026/05/202605272300HwaesongFortress.jpg)|
 202605282300|SummitEverest|Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)|A 'peak' into history|![](/en-GB/2026/05/202605282300SummitEverest.jpg)|
 202605292300|EquusQuagga|Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)|Reading between the lines|![](/en-GB/2026/05/202605292300EquusQuagga.jpg)|
+202605302300|EvergladesWetlands|Aerial view of Everglades National Park, Florida, United States (© Tetra Images/Getty Images)|Follow the flow|![](/en-GB/2026/05/202605302300EvergladesWetlands.jpg)|
