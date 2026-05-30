@@ -30,3 +30,4 @@
 202605270400|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|No 'otter' like them|![](/en-CA/2026/05/202605270400OtterDay.jpg)|
 202605280400|HwaesongFortress|Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)|Design meets discipline|![](/en-CA/2026/05/202605280400HwaesongFortress.jpg)|
 202605290400|SummitEverest|Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)|A 'peak' into history|![](/en-CA/2026/05/202605290400SummitEverest.jpg)|
+202605300400|EquusQuagga|Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)|Reading between the lines|![](/en-CA/2026/05/202605300400EquusQuagga.jpg)|
