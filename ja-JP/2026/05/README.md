@@ -31,3 +31,4 @@
 202605271500|HwaesongFortress|スウォンファソン, 韓国 水原市 (© aomam/Getty Images)|夕空に溶け込む城壁|![](/ja-JP/2026/05/202605271500HwaesongFortress.jpg)|
 202605281500|SummitEverest|エベレスト, ネパール (© fotoVoyager/Getty Images)|今日はエベレスト登頂記念日|![](/ja-JP/2026/05/202605281500SummitEverest.jpg)|
 202605291500|EquusQuagga|サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)|夕焼けに佇む若いシマウマ|![](/ja-JP/2026/05/202605291500EquusQuagga.jpg)|
+202605301500|EvergladesWetlands|エバーグレーズ国立公園, 米国 フロリダ州 (© Tetra Images/Getty Images)|今日は米国の湿地月間の最終日|![](/ja-JP/2026/05/202605301500EvergladesWetlands.jpg)|
