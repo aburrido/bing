@@ -31,3 +31,4 @@
 202605270700|OtterDay|Sea otter, Kachemak Bay, Homer, Alaska, United States (© roclwyr/Getty Images)|Info|![](/en-AU/2026/05/202605270700OtterDay.jpg)|
 202605280700|HwaesongFortress|Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)|Info|![](/en-AU/2026/05/202605280700HwaesongFortress.jpg)|
 202605290700|SummitEverest|Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)|Info|![](/en-AU/2026/05/202605290700SummitEverest.jpg)|
+202605300700|EquusQuagga|Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)|Info|![](/en-AU/2026/05/202605300700EquusQuagga.jpg)|
