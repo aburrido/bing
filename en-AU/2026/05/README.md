@@ -32,3 +32,4 @@
 202605280700|HwaesongFortress|Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)|Info|![](/en-AU/2026/05/202605280700HwaesongFortress.jpg)|
 202605290700|SummitEverest|Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)|Info|![](/en-AU/2026/05/202605290700SummitEverest.jpg)|
 202605300700|EquusQuagga|Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)|Info|![](/en-AU/2026/05/202605300700EquusQuagga.jpg)|
+202605310700|EvergladesWetlands|Aerial view of Everglades National Park, Florida, United States (© Tetra Images/Getty Images)|Info|![](/en-AU/2026/05/202605310700EvergladesWetlands.jpg)|
