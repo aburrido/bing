@@ -32,3 +32,4 @@
 202605281830|SummitEverest|Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)|A 'peak' into history|![](/en-IN/2026/05/202605281830SummitEverest.jpg)|
 202605291830|EquusQuagga|Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)|Reading between the lines|![](/en-IN/2026/05/202605291830EquusQuagga.jpg)|
 202605301830|Qinghai|Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)|Between the blues|![](/en-IN/2026/05/202605301830Qinghai.jpg)|
+202605311830|OlivaPalermo|Palermo skyline, Sicily, Italy (© Sean Pavone/Getty Images)|Flavours of history|![](/en-IN/2026/05/202605311830OlivaPalermo.jpg)|
