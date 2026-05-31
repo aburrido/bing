@@ -32,3 +32,4 @@
 202605282200|SummitEverest|Gipfel des Mount Everest, Sagarmatha-Nationalpark, Nepal (© fotoVoyager/Getty Images)|Ein Gipfelmoment der Geschichte|![](/de-DE/2026/05/202605282200SummitEverest.jpg)|
 202605292200|EquusQuagga|Steppenzebra-Fohlen im Etosha-Nationalpark, Namibia (© Sharon Heald/Nature Picture Library)|Zwischen den Streifen lesen|![](/de-DE/2026/05/202605292200EquusQuagga.jpg)|
 202605302200|RapeseedField|Rapsfelder vor der Festung Königstein, Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)|Gelb, soweit das Auge reicht|![](/de-DE/2026/05/202605302200RapeseedField.jpg)|
+202605312200|OlivaPalermo|Skyline von Palermo in der Abenddämmerung, Sizilien, Italien (© Sean Pavone/Getty Images)|Geschichten aus Stein und Zeit|![](/de-DE/2026/05/202605312200OlivaPalermo.jpg)|

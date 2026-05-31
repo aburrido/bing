@@ -31,3 +31,4 @@
 202605282200|SummitEverest|Mont Everest, Parc national de Sagarmatha, Népal (© fotoVoyager/Getty Images)|Le summum de l’histoire de l’alpinisme|![](/fr-FR/2026/05/202605282200SummitEverest.jpg)|
 202605292200|EquusQuagga|Zébreau dans le parc national d’Etosha, Namibie (© Sharon Heald/Nature Picture Library)|Lire entre les lignes|![](/fr-FR/2026/05/202605292200EquusQuagga.jpg)|
 202605302200|CheetahMotherDay|Une guéparde et son guépardeau (© hilton123/Getty Images)|Un lien éternel|![](/fr-FR/2026/05/202605302200CheetahMotherDay.jpg)|
+202605312200|OlivaPalermo|Palerme au crépuscule, Sicile, Italie (© Sean Pavone/Getty Images)|L’éclat sicilien|![](/fr-FR/2026/05/202605312200OlivaPalermo.jpg)|
