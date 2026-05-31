@@ -32,3 +32,4 @@
 202605281600|SummitEverest|珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)|巅峰历史时刻|![](/zh-CN/2026/05/202605281600SummitEverest.jpg)|
 202605291600|EquusQuagga|平原斑马幼崽，埃托沙国家公园，纳米比亚 (© Sharon Heald/Nature Picture Library)|读懂黑白之间|![](/zh-CN/2026/05/202605291600EquusQuagga.jpg)|
 202605301600|EvergladesWetlands|大沼泽地国家公园航拍景观，佛罗里达州，美国 (© Tetra Images/Getty Images)|顺流而行|![](/zh-CN/2026/05/202605301600EvergladesWetlands.jpg)|
+202605311600|OlivaPalermo|巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)|历史的况味|![](/zh-CN/2026/05/202605311600OlivaPalermo.jpg)|
