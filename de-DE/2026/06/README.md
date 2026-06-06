@@ -6,3 +6,4 @@
 202606032200|PreeningEgret|Schmuckreiher bei der Gefiederpflege, Zentralflorida, USA (© Donald M. Jones/Minden Pictures)|Prachtvolles Gefieder|![](/de-DE/2026/06/202606032200PreeningEgret.jpg)|
 202606042200|WedLapland|Blick vom Skierffe über das Flussdelta des Rapadalen, Nationalpark Sarek, Laponia, Lappland, Schweden (© Robert Haasmann/Getty Images)|Die stille Kraft einer unberührten Welt|![](/de-DE/2026/06/202606042200WedLapland.jpg)|
 202606052200|RothenburgPloenlein|Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)|Wie aus dem Märchen|![](/de-DE/2026/06/202606052200RothenburgPloenlein.jpg)|
+202606062200|DunseverickCastle2026|Ruine von Dunseverick Castle, County Antrim, Nordirland (© Krzysztof Rogalski/Getty Images)|Ruinen voller Geschichte|![](/de-DE/2026/06/202606062200DunseverickCastle2026.jpg)|
