@@ -6,3 +6,4 @@
 202606040700|PreeningEgret|Snowy egret preening, central Florida, United States (© Donald M. Jones/Minden Pictures)|Info|![](/en-AU/2026/06/202606040700PreeningEgret.jpg)|
 202606050700|WedLapland|View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)|Info|![](/en-AU/2026/06/202606050700WedLapland.jpg)|
 202606060700|HikingNatchez|Natchez Trace Parkway, Tupelo, Mississippi, United States (© The best photo is earned/Getty Images Plus)|Info|![](/en-AU/2026/06/202606060700HikingNatchez.jpg)|
+202606070700|DunseverickCastle2026|Ruins of Dunseverick Castle, County Antrim, Northern Ireland (© Krzysztof Rogalski/Getty Images)|Info|![](/en-AU/2026/06/202606070700DunseverickCastle2026.jpg)|
