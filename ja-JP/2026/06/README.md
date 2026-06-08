@@ -8,3 +8,4 @@
 202606051500|HikingNatchez|ナチェズ・トレース・パークウェイのトレイル, 米国 ミシシッピ州 (© The best photo is earned/Getty Images Plus)|今日は米国の「トレイルデー」|![](/ja-JP/2026/06/202606051500HikingNatchez.jpg)|
 202606061500|Limpets|プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)|干潮時の浜辺で露出した巻貝たち|![](/ja-JP/2026/06/202606061500Limpets.jpg)|
 202606071500|Cyanea|海中を泳ぐキタユウレイクラゲ (© Alexander Semenov Images/Shutterstock)|今日は世界海洋デー|![](/ja-JP/2026/06/202606071500Cyanea.jpg)|
+202606081500|CTNPVernazza|ヴェルナッツァ, イタリア (© Kelly Cheng/Getty Images)|夕暮れに包まれた海辺の町|![](/ja-JP/2026/06/202606081500CTNPVernazza.jpg)|
