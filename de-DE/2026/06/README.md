@@ -8,3 +8,4 @@
 202606052200|RothenburgPloenlein|Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)|Wie aus dem Märchen|![](/de-DE/2026/06/202606052200RothenburgPloenlein.jpg)|
 202606062200|DunseverickCastle2026|Ruine von Dunseverick Castle, County Antrim, Nordirland (© Krzysztof Rogalski/Getty Images)|Ruinen voller Geschichte|![](/de-DE/2026/06/202606062200DunseverickCastle2026.jpg)|
 202606072200|Cyanea|Gelbe Haarqualle im Ozean (© Alexander Semenov Images/Shutterstock)|Gleiten im Takt der Wellen|![](/de-DE/2026/06/202606072200Cyanea.jpg)|
+202606082200|CTNPVernazza|Vernazza, Cinque Terre, Ligurien, Italien (© Kelly Cheng/Getty Images)|Farben eines ligurischen Abends|![](/de-DE/2026/06/202606082200CTNPVernazza.jpg)|
