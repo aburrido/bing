@@ -7,3 +7,4 @@
 202606050700|WedLapland|View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)|The quiet power of an unclaimed world|![](/en-US/2026/06/202606050700WedLapland.jpg)|
 202606060700|HikingNatchez|Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)|Wander often, wonder more|![](/en-US/2026/06/202606060700HikingNatchez.jpg)|
 202606070700|GardenAtlanta|Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)|Plant your kingdom|![](/en-US/2026/06/202606070700GardenAtlanta.jpg)|
+202606080700|Cyanea|Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)|Drift with the current|![](/en-US/2026/06/202606080700Cyanea.jpg)|
