@@ -7,3 +7,4 @@
 202606050400|WedLapland|Vue sur Skierffe et la vallée de Rapa, Parc national de Sarek, Laponie, Suède (© Robert Haasmann/Getty Images)|Une terre indomptable|![](/fr-CA/2026/06/202606050400WedLapland.jpg)|
 202606060400|HikingNatchez|Natchez Trace Parkway, Tupelo, Mississippi, États-Unis (© The best photo is earned/Getty Images Plus)|Promenons-nous dans les bois|![](/fr-CA/2026/06/202606060400HikingNatchez.jpg)|
 202606070400|DunseverickCastle2026|Ruines du château de Dunseverick, Antrim, Irlande du Nord (© Krzysztof Rogalski/Getty Images)|Il tient encore bon|![](/fr-CA/2026/06/202606070400DunseverickCastle2026.jpg)|
+202606080400|Cyanea|Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)|Quand le courant mène la danse|![](/fr-CA/2026/06/202606080400Cyanea.jpg)|
