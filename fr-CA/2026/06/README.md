@@ -8,3 +8,4 @@
 202606060400|HikingNatchez|Natchez Trace Parkway, Tupelo, Mississippi, États-Unis (© The best photo is earned/Getty Images Plus)|Promenons-nous dans les bois|![](/fr-CA/2026/06/202606060400HikingNatchez.jpg)|
 202606070400|DunseverickCastle2026|Ruines du château de Dunseverick, Antrim, Irlande du Nord (© Krzysztof Rogalski/Getty Images)|Il tient encore bon|![](/fr-CA/2026/06/202606070400DunseverickCastle2026.jpg)|
 202606080400|Cyanea|Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)|Quand le courant mène la danse|![](/fr-CA/2026/06/202606080400Cyanea.jpg)|
+202606090400|CTNPVernazza|Vernazza, Cinque Terre, Ligurie, Italie (© Kelly Cheng/Getty Images)|L’essence du charme italien|![](/fr-CA/2026/06/202606090400CTNPVernazza.jpg)|

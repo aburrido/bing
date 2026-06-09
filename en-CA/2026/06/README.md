@@ -8,3 +8,4 @@
 202606060400|HikingNatchez|Natchez Trace Parkway, Tupelo, Mississippi, United States (© The best photo is earned/Getty Images Plus)|Wander often, wonder more|![](/en-CA/2026/06/202606060400HikingNatchez.jpg)|
 202606070400|DunseverickCastle2026|Ruins of Dunseverick Castle, County Antrim, Northern Ireland (© Krzysztof Rogalski/Getty Images)|The last wall standing|![](/en-CA/2026/06/202606070400DunseverickCastle2026.jpg)|
 202606080400|Cyanea|Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)|Drift with the current|![](/en-CA/2026/06/202606080400Cyanea.jpg)|
+202606090400|CTNPVernazza|Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)|Taste the sunset|![](/en-CA/2026/06/202606090400CTNPVernazza.jpg)|
