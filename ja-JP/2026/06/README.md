@@ -9,3 +9,4 @@
 202606061500|Limpets|プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)|干潮時の浜辺で露出した巻貝たち|![](/ja-JP/2026/06/202606061500Limpets.jpg)|
 202606071500|Cyanea|海中を泳ぐキタユウレイクラゲ (© Alexander Semenov Images/Shutterstock)|今日は世界海洋デー|![](/ja-JP/2026/06/202606071500Cyanea.jpg)|
 202606081500|CTNPVernazza|ヴェルナッツァ, イタリア (© Kelly Cheng/Getty Images)|夕暮れに包まれた海辺の町|![](/ja-JP/2026/06/202606081500CTNPVernazza.jpg)|
+202606091500|Hnausapollur|フナウサウポットル, アイスランド (© Juan Maria Coy Vergara/Getty Images)|大地に走る一筋の青|![](/ja-JP/2026/06/202606091500Hnausapollur.jpg)|

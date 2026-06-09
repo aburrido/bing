@@ -9,3 +9,4 @@
 202606061600|DunseverickCastle2026|邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)|最后一堵墙矗立着|![](/zh-CN/2026/06/202606061600DunseverickCastle2026.jpg)|
 202606071600|Cyanea|在海洋中游动的狮鬃水母 (© Alexander Semenov Images/Shutterstock)|随波逐流|![](/zh-CN/2026/06/202606071600Cyanea.jpg)|
 202606081600|CTNPVernazza|韦尔纳扎, 五渔村, 利古里亚, 意大利 (© Kelly Cheng/Getty Images)|品尝日落|![](/zh-CN/2026/06/202606081600CTNPVernazza.jpg)|
+202606091600|Hnausapollur|赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛 (© Juan Maria Coy Vergara/Getty Images)|一抹蓝色|![](/zh-CN/2026/06/202606091600Hnausapollur.jpg)|
