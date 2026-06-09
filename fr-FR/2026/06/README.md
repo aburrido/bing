@@ -9,3 +9,4 @@
 202606062200|DunseverickCastle2026|Ruines du château de Dunseverick, Antrim, Irlande du Nord (© Krzysztof Rogalski/Getty Images)|Il tient encore bon|![](/fr-FR/2026/06/202606062200DunseverickCastle2026.jpg)|
 202606072200|PantheonParisNight|Le Panthéon de nuit, Paris (© Don White/Getty Images)|Une voix libre à tout jamais|![](/fr-FR/2026/06/202606072200PantheonParisNight.jpg)|
 202606082200|CTNPVernazza|Vernazza, Cinque Terre, Ligurie, Italie (© Kelly Cheng/Getty Images)|L’essence du charme italien|![](/fr-FR/2026/06/202606082200CTNPVernazza.jpg)|
+202606092200|Hnausapollur|Lac de Hnausapollur, Réserve naturelle de Fjallabak, Landmannalaugar, Islande (© Juan Maria Coy Vergara/Getty Images)|Une touche de bleu|![](/fr-FR/2026/06/202606092200Hnausapollur.jpg)|
