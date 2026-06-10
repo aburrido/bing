@@ -10,3 +10,4 @@
 202606072200|Cyanea|Gelbe Haarqualle im Ozean (© Alexander Semenov Images/Shutterstock)|Gleiten im Takt der Wellen|![](/de-DE/2026/06/202606072200Cyanea.jpg)|
 202606082200|CTNPVernazza|Vernazza, Cinque Terre, Ligurien, Italien (© Kelly Cheng/Getty Images)|Farben eines ligurischen Abends|![](/de-DE/2026/06/202606082200CTNPVernazza.jpg)|
 202606092200|Hnausapollur|Vulkanischer Kratersee Hnausapollur, Naturschutzgebiet Fjallabak, Landmannalaugar, Island (© Juan Maria Coy Vergara/Getty Images)|Ein Hauch von Blau|![](/de-DE/2026/06/202606092200Hnausapollur.jpg)|
+202606102200|Limpets|Napfschnecken bei Ebbe an der Küste von Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Fest im Fels|![](/de-DE/2026/06/202606102200Limpets.jpg)|
