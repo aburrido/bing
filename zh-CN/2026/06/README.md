@@ -11,3 +11,4 @@
 202606081600|CTNPVernazza|韦尔纳扎, 五渔村, 利古里亚, 意大利 (© Kelly Cheng/Getty Images)|品尝日落|![](/zh-CN/2026/06/202606081600CTNPVernazza.jpg)|
 202606091600|Hnausapollur|赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛 (© Juan Maria Coy Vergara/Getty Images)|一抹蓝色|![](/zh-CN/2026/06/202606091600Hnausapollur.jpg)|
 202606101600|Limpets|退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙 (© Theo Bosboom/Nature Picture Library)|沉静的力量|![](/zh-CN/2026/06/202606101600Limpets.jpg)|
+202606111600|SpainBeeEater|黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)|惊鸿一瞥|![](/zh-CN/2026/06/202606111600SpainBeeEater.jpg)|

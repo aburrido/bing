@@ -11,3 +11,4 @@
 202606081500|CTNPVernazza|ヴェルナッツァ, イタリア (© Kelly Cheng/Getty Images)|夕暮れに包まれた海辺の町|![](/ja-JP/2026/06/202606081500CTNPVernazza.jpg)|
 202606091500|Hnausapollur|フナウサウポットル, アイスランド (© Juan Maria Coy Vergara/Getty Images)|大地に走る一筋の青|![](/ja-JP/2026/06/202606091500Hnausapollur.jpg)|
 202606101500|FireflySeason2026|蛍の光がきらめく森, 日本 (© tdub303/Getty Images)|初夏の渓流に舞う光|![](/ja-JP/2026/06/202606101500FireflySeason2026.jpg)|
+202606111500|SpainBeeEater|ヨーロッパハチクイ, スペイン (© Andres M. Dominguez/Nature Picture Library)|野の花をかすめる色鮮やかな鳥|![](/ja-JP/2026/06/202606111500SpainBeeEater.jpg)|
