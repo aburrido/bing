@@ -10,3 +10,4 @@
 202606080400|Cyanea|Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)|Quand le courant mène la danse|![](/fr-CA/2026/06/202606080400Cyanea.jpg)|
 202606090400|CTNPVernazza|Vernazza, Cinque Terre, Ligurie, Italie (© Kelly Cheng/Getty Images)|L’essence du charme italien|![](/fr-CA/2026/06/202606090400CTNPVernazza.jpg)|
 202606100400|Hnausapollur|Lac de Hnausapollur, Réserve naturelle de Fjallabak, Landmannalaugar, Islande (© Juan Maria Coy Vergara/Getty Images)|Une touche de bleu|![](/fr-CA/2026/06/202606100400Hnausapollur.jpg)|
+202606110400|Limpets|Des patelles à marée basse sur la Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Entre force et discrétion|![](/fr-CA/2026/06/202606110400Limpets.jpg)|

@@ -10,3 +10,4 @@
 202606080400|Cyanea|Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)|Drift with the current|![](/en-CA/2026/06/202606080400Cyanea.jpg)|
 202606090400|CTNPVernazza|Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)|Taste the sunset|![](/en-CA/2026/06/202606090400CTNPVernazza.jpg)|
 202606100400|Hnausapollur|Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)|A splash of blue|![](/en-CA/2026/06/202606100400Hnausapollur.jpg)|
+202606110400|Limpets|Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Quiet strength|![](/en-CA/2026/06/202606110400Limpets.jpg)|
