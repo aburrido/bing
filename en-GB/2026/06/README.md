@@ -11,3 +11,4 @@
 202606082300|CTNPVernazza|Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)|Taste the sunset|![](/en-GB/2026/06/202606082300CTNPVernazza.jpg)|
 202606092300|Hnausapollur|Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)|A splash of blue|![](/en-GB/2026/06/202606092300Hnausapollur.jpg)|
 202606102300|Limpets|Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Quiet strength|![](/en-GB/2026/06/202606102300Limpets.jpg)|
+202606112300|SpainBeeEater|European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)|A flash in flight|![](/en-GB/2026/06/202606112300SpainBeeEater.jpg)|
