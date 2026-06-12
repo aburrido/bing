@@ -12,3 +12,4 @@
 202606091500|Hnausapollur|フナウサウポットル, アイスランド (© Juan Maria Coy Vergara/Getty Images)|大地に走る一筋の青|![](/ja-JP/2026/06/202606091500Hnausapollur.jpg)|
 202606101500|FireflySeason2026|蛍の光がきらめく森, 日本 (© tdub303/Getty Images)|初夏の渓流に舞う光|![](/ja-JP/2026/06/202606101500FireflySeason2026.jpg)|
 202606111500|SpainBeeEater|ヨーロッパハチクイ, スペイン (© Andres M. Dominguez/Nature Picture Library)|野の花をかすめる色鮮やかな鳥|![](/ja-JP/2026/06/202606111500SpainBeeEater.jpg)|
+202606121500|HayabusaDay2026|はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)|今日ははやぶさの日|![](/ja-JP/2026/06/202606121500HayabusaDay2026.jpg)|
