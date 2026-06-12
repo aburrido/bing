@@ -11,3 +11,4 @@
 202606090400|CTNPVernazza|Vernazza, Cinque Terre, Ligurie, Italie (© Kelly Cheng/Getty Images)|L’essence du charme italien|![](/fr-CA/2026/06/202606090400CTNPVernazza.jpg)|
 202606100400|Hnausapollur|Lac de Hnausapollur, Réserve naturelle de Fjallabak, Landmannalaugar, Islande (© Juan Maria Coy Vergara/Getty Images)|Une touche de bleu|![](/fr-CA/2026/06/202606100400Hnausapollur.jpg)|
 202606110400|Limpets|Des patelles à marée basse sur la Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Entre force et discrétion|![](/fr-CA/2026/06/202606110400Limpets.jpg)|
+202606120400|SpainBeeEater|Guêpier d’Europe, Parc naturel de la Sierra de Grazalema, Cadix, Espagne (© Andres M. Dominguez/Nature Picture Library)|Comme un éclair de couleurs|![](/fr-CA/2026/06/202606120400SpainBeeEater.jpg)|
