@@ -13,3 +13,4 @@
 202606102200|Limpets|Des patelles à marée basse sur la Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Entre force et discrétion|![](/fr-FR/2026/06/202606102200Limpets.jpg)|
 202606112200|SpainBeeEater|Guêpier d’Europe, Parc naturel de la Sierra de Grazalema, Cadix, Espagne (© Andres M. Dominguez/Nature Picture Library)|Comme un éclair de couleurs|![](/fr-FR/2026/06/202606112200SpainBeeEater.jpg)|
 202606122200|BadSunset|Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)|Au fil du temps|![](/fr-FR/2026/06/202606122200BadSunset.jpg)|
+202606132200|DuckPond|Canard colvert (© Philippe Paternolli/Getty Images)|C’est la danse des canards|![](/fr-FR/2026/06/202606132200DuckPond.jpg)|

@@ -13,3 +13,4 @@
 202606102200|Limpets|Napfschnecken bei Ebbe an der Küste von Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Fest im Fels|![](/de-DE/2026/06/202606102200Limpets.jpg)|
 202606112200|SpainBeeEater|Europäischer Bienenfresser im Naturpark Sierra de Grazalema, Cádiz, Spanien (© Andres M. Dominguez/Nature Picture Library)|Farben in Bewegung|![](/de-DE/2026/06/202606112200SpainBeeEater.jpg)|
 202606122200|BadSunset|Sonnenuntergang im Badlands-Nationalpark, South Dakota, USA (© Troy Harrison/Getty Images)|Schichten des Wandels|![](/de-DE/2026/06/202606122200BadSunset.jpg)|
+202606132200|MainauFlowers|Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)|Die stille Kunst des Gartens|![](/de-DE/2026/06/202606132200MainauFlowers.jpg)|
