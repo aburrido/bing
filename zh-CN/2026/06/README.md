@@ -13,3 +13,4 @@
 202606101600|Limpets|退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙 (© Theo Bosboom/Nature Picture Library)|沉静的力量|![](/zh-CN/2026/06/202606101600Limpets.jpg)|
 202606111600|SpainBeeEater|黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)|惊鸿一瞥|![](/zh-CN/2026/06/202606111600SpainBeeEater.jpg)|
 202606121600|BadSunset|落日，恶地国家公园，南达科他州，美国 (© Troy Harrison/Getty Images)|岁月的层峦|![](/zh-CN/2026/06/202606121600BadSunset.jpg)|
+202606131600|DuckPond|绿头鸭 (© Philippe Paternolli/Getty Images)|潜羽探清波|![](/zh-CN/2026/06/202606131600DuckPond.jpg)|

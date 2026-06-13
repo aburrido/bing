@@ -13,3 +13,4 @@
 202606101500|FireflySeason2026|蛍の光がきらめく森, 日本 (© tdub303/Getty Images)|初夏の渓流に舞う光|![](/ja-JP/2026/06/202606101500FireflySeason2026.jpg)|
 202606111500|SpainBeeEater|ヨーロッパハチクイ, スペイン (© Andres M. Dominguez/Nature Picture Library)|野の花をかすめる色鮮やかな鳥|![](/ja-JP/2026/06/202606111500SpainBeeEater.jpg)|
 202606121500|HayabusaDay2026|はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)|今日ははやぶさの日|![](/ja-JP/2026/06/202606121500HayabusaDay2026.jpg)|
+202606131500|BadSunset|バッドランズ国立公園, 米国 サウスダコタ州 (© Troy Harrison/Getty Images)|夕焼けに染まる層をなす岩の景観|![](/ja-JP/2026/06/202606131500BadSunset.jpg)|
