@@ -12,3 +12,4 @@
 202606092300|Hnausapollur|Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)|A splash of blue|![](/en-GB/2026/06/202606092300Hnausapollur.jpg)|
 202606102300|Limpets|Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Quiet strength|![](/en-GB/2026/06/202606102300Limpets.jpg)|
 202606112300|SpainBeeEater|European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)|A flash in flight|![](/en-GB/2026/06/202606112300SpainBeeEater.jpg)|
+202606122300|TroopingTheColour2026|Members of the Household Cavalry Mounted Regiment at Hyde Park, London (© Leon Neal/Staff/Getty Images)|Marching to the royal beat|![](/en-GB/2026/06/202606122300TroopingTheColour2026.jpg)|
