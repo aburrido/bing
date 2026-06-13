@@ -12,3 +12,4 @@
 202606100700|Hnausapollur|Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)|A splash of blue|![](/en-US/2026/06/202606100700Hnausapollur.jpg)|
 202606110700|Limpets|Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Quiet strength|![](/en-US/2026/06/202606110700Limpets.jpg)|
 202606120700|SpainBeeEater|European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)|A flash in flight|![](/en-US/2026/06/202606120700SpainBeeEater.jpg)|
+202606130700|BadSunset|Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)|Layers of change|![](/en-US/2026/06/202606130700BadSunset.jpg)|
