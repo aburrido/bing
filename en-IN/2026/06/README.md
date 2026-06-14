@@ -14,3 +14,4 @@
 202606111830|SpainBeeEater|European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)|A flash in flight|![](/en-IN/2026/06/202606111830SpainBeeEater.jpg)|
 202606121830|BadSunset|Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)|Layers of change|![](/en-IN/2026/06/202606121830BadSunset.jpg)|
 202606131830|DuckPond|Mallard duck (© Philippe Paternolli/Getty Images)|Ducking under water|![](/en-IN/2026/06/202606131830DuckPond.jpg)|
+202606141830|ParkEstd|Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)|Aged to scenic perfection|![](/en-IN/2026/06/202606141830ParkEstd.jpg)|
