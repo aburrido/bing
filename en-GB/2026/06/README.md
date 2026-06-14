@@ -14,3 +14,4 @@
 202606112300|SpainBeeEater|European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)|A flash in flight|![](/en-GB/2026/06/202606112300SpainBeeEater.jpg)|
 202606122300|TroopingTheColour2026|Members of the Household Cavalry Mounted Regiment at Hyde Park, London (© Leon Neal/Staff/Getty Images)|Marching to the royal beat|![](/en-GB/2026/06/202606122300TroopingTheColour2026.jpg)|
 202606132300|BadSunset|Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)|Layers of change|![](/en-GB/2026/06/202606132300BadSunset.jpg)|
+202606142300|ParkEstd|Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)|Aged to scenic perfection|![](/en-GB/2026/06/202606142300ParkEstd.jpg)|
