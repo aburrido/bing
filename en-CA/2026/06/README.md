@@ -13,3 +13,4 @@
 202606110400|Limpets|Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)|Quiet strength|![](/en-CA/2026/06/202606110400Limpets.jpg)|
 202606120400|SpainBeeEater|European bee-eater in Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)|A flash in flight|![](/en-CA/2026/06/202606120400SpainBeeEater.jpg)|
 202606130400|BadSunset|Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)|Layers of change|![](/en-CA/2026/06/202606130400BadSunset.jpg)|
+202606140400|DuckPond|Mallard duck (© Philippe Paternolli/Getty Images)|Drift and paddle|![](/en-CA/2026/06/202606140400DuckPond.jpg)|
