@@ -14,3 +14,4 @@
 202606112200|SpainBeeEater|Guêpier d’Europe, Parc naturel de la Sierra de Grazalema, Cadix, Espagne (© Andres M. Dominguez/Nature Picture Library)|Comme un éclair de couleurs|![](/fr-FR/2026/06/202606112200SpainBeeEater.jpg)|
 202606122200|BadSunset|Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)|Au fil du temps|![](/fr-FR/2026/06/202606122200BadSunset.jpg)|
 202606132200|DuckPond|Canard colvert (© Philippe Paternolli/Getty Images)|C’est la danse des canards|![](/fr-FR/2026/06/202606132200DuckPond.jpg)|
+202606142200|ParkEstd|Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Mint Images/Getty Images)|Le silence des vallées|![](/fr-FR/2026/06/202606142200ParkEstd.jpg)|
