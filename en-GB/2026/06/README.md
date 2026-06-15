@@ -15,3 +15,4 @@
 202606122300|TroopingTheColour2026|Members of the Household Cavalry Mounted Regiment at Hyde Park, London (© Leon Neal/Staff/Getty Images)|Marching to the royal beat|![](/en-GB/2026/06/202606122300TroopingTheColour2026.jpg)|
 202606132300|BadSunset|Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)|Layers of change|![](/en-GB/2026/06/202606132300BadSunset.jpg)|
 202606142300|ParkEstd|Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)|Aged to scenic perfection|![](/en-GB/2026/06/202606142300ParkEstd.jpg)|
+202606152300|SevenMileTurtle|Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)|Nature's reef keepers|![](/en-GB/2026/06/202606152300SevenMileTurtle.jpg)|

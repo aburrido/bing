@@ -15,3 +15,4 @@
 202606122200|BadSunset|Coucher de soleil au parc national des Badlands, Dakota du Sud, États-Unis (© Troy Harrison/Getty Images)|Au fil du temps|![](/fr-FR/2026/06/202606122200BadSunset.jpg)|
 202606132200|DuckPond|Canard colvert (© Philippe Paternolli/Getty Images)|C’est la danse des canards|![](/fr-FR/2026/06/202606132200DuckPond.jpg)|
 202606142200|ParkEstd|Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Mint Images/Getty Images)|Le silence des vallées|![](/fr-FR/2026/06/202606142200ParkEstd.jpg)|
+202606152200|SevenMileTurtle|Un couple de tortues imbriquées près de Seven Mile Beach, Grand Cayman, Îles Caïmans (© Alex Mustard/Nature Picture Library)|Les gardiennes des récifs|![](/fr-FR/2026/06/202606152200SevenMileTurtle.jpg)|
