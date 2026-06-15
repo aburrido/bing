@@ -15,3 +15,4 @@
 202606121600|BadSunset|落日，恶地国家公园，南达科他州，美国 (© Troy Harrison/Getty Images)|岁月的层峦|![](/zh-CN/2026/06/202606121600BadSunset.jpg)|
 202606131600|DuckPond|绿头鸭 (© Philippe Paternolli/Getty Images)|潜羽探清波|![](/zh-CN/2026/06/202606131600DuckPond.jpg)|
 202606141600|ParkEstd|大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)|岁月雕琢，风景始成|![](/zh-CN/2026/06/202606141600ParkEstd.jpg)|
+202606151600|SevenMileTurtle|七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)|蔚蓝海礁的守护者|![](/zh-CN/2026/06/202606151600SevenMileTurtle.jpg)|
