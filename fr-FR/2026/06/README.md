@@ -16,3 +16,4 @@
 202606132200|DuckPond|Canard colvert (© Philippe Paternolli/Getty Images)|C’est la danse des canards|![](/fr-FR/2026/06/202606132200DuckPond.jpg)|
 202606142200|ParkEstd|Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Mint Images/Getty Images)|Le silence des vallées|![](/fr-FR/2026/06/202606142200ParkEstd.jpg)|
 202606152200|SevenMileTurtle|Un couple de tortues imbriquées près de Seven Mile Beach, Grand Cayman, Îles Caïmans (© Alex Mustard/Nature Picture Library)|Les gardiennes des récifs|![](/fr-FR/2026/06/202606152200SevenMileTurtle.jpg)|
+202606162200|TremolaRoad|Route de la Tremola sur le col du Saint-Gothard, Airolo, Suisse (© Sandro Bisaro/Getty Images)|Prêt pour une échappée ?|![](/fr-FR/2026/06/202606162200TremolaRoad.jpg)|
