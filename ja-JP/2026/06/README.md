@@ -16,3 +16,4 @@
 202606131500|BadSunset|バッドランズ国立公園, 米国 サウスダコタ州 (© Troy Harrison/Getty Images)|夕焼けに染まる層をなす岩の景観|![](/ja-JP/2026/06/202606131500BadSunset.jpg)|
 202606141500|ParkEstd|グレート・スモーキー山脈国立公園, 米国 テネシー州 (© Mint Images/Getty Images)|今日はグレート・スモーキー山脈国立公園の記念日|![](/ja-JP/2026/06/202606141500ParkEstd.jpg)|
 202606151500|SevenMileTurtle|優雅に泳ぐタイマイ, ケイマン諸島 (© Alex Mustard/Nature Picture Library)|今日は世界ウミガメの日|![](/ja-JP/2026/06/202606151500SevenMileTurtle.jpg)|
+202606161500|TremolaRoad|トレモラ道路, スイス (© Sandro Bisaro/Getty Images)|山肌に輝く曲がりくねった道路|![](/ja-JP/2026/06/202606161500TremolaRoad.jpg)|
