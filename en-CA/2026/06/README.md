@@ -15,3 +15,4 @@
 202606130400|BadSunset|Sunset in Badlands National Park, South Dakota, United States (© Troy Harrison/Getty Images)|Layers of change|![](/en-CA/2026/06/202606130400BadSunset.jpg)|
 202606140400|DuckPond|Mallard duck (© Philippe Paternolli/Getty Images)|Drift and paddle|![](/en-CA/2026/06/202606140400DuckPond.jpg)|
 202606150400|ParkEstd|Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)|Aged to scenic perfection|![](/en-CA/2026/06/202606150400ParkEstd.jpg)|
+202606160400|SevenMileTurtle|Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)|Nature's reef keepers|![](/en-CA/2026/06/202606160400SevenMileTurtle.jpg)|

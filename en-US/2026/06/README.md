@@ -15,3 +15,4 @@
 202606130700|BadSunset|Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)|Layers of change|![](/en-US/2026/06/202606130700BadSunset.jpg)|
 202606140700|FlagsMonument|US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)|History flies high|![](/en-US/2026/06/202606140700FlagsMonument.jpg)|
 202606150700|ParkEstd|Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)|Aged to scenic perfection|![](/en-US/2026/06/202606150700ParkEstd.jpg)|
+202606160700|SevenMileTurtle|Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)|Nature's reef keepers|![](/en-US/2026/06/202606160700SevenMileTurtle.jpg)|
