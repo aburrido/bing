@@ -17,3 +17,4 @@
 202606142200|DuckPond|Stockente (© Philippe Paternolli/Getty Images)|Ein vertrauter Gast am Wasser|![](/de-DE/2026/06/202606142200DuckPond.jpg)|
 202606152200|SevenMileTurtle|Zwei Echte Karettschildkröten in der Nähe des Seven Mile Beach, Grand Cayman, Kaimaninseln (© Alex Mustard/Nature Picture Library)|Hüter der Korallenriffe|![](/de-DE/2026/06/202606152200SevenMileTurtle.jpg)|
 202606162200|TremolaRoad|Tremolastraße am Gotthardpass in Airolo, Schweiz (© Sandro Bisaro/Getty Images)|Tanz der Serpentinen|![](/de-DE/2026/06/202606162200TremolaRoad.jpg)|
+202606172200|Saqsaywaman|Luftaufnahme der Ruinen von Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)|Wunder aus Stein|![](/de-DE/2026/06/202606172200Saqsaywaman.jpg)|
