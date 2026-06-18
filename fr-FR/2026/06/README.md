@@ -18,3 +18,4 @@
 202606152200|SevenMileTurtle|Un couple de tortues imbriquées près de Seven Mile Beach, Grand Cayman, Îles Caïmans (© Alex Mustard/Nature Picture Library)|Les gardiennes des récifs|![](/fr-FR/2026/06/202606152200SevenMileTurtle.jpg)|
 202606162200|TremolaRoad|Route de la Tremola sur le col du Saint-Gothard, Airolo, Suisse (© Sandro Bisaro/Getty Images)|Prêt pour une échappée ?|![](/fr-FR/2026/06/202606162200TremolaRoad.jpg)|
 202606172200|Saqsaywaman|Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)|Une merveille faite de pierre|![](/fr-FR/2026/06/202606172200Saqsaywaman.jpg)|
+202606182200|IsolaElba|Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)|Entre ciel, mer et mémoire|![](/fr-FR/2026/06/202606182200IsolaElba.jpg)|
