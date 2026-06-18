@@ -17,3 +17,4 @@
 202606150700|ParkEstd|Great Smoky Mountains National Park, Tennessee, United States (© Mint Images/Getty Images)|Info|![](/en-AU/2026/06/202606150700ParkEstd.jpg)|
 202606160700|SevenMileTurtle|Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)|Info|![](/en-AU/2026/06/202606160700SevenMileTurtle.jpg)|
 202606170700|TremolaRoad|Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)|Info|![](/en-AU/2026/06/202606170700TremolaRoad.jpg)|
+202606180700|Saqsaywaman|Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)|Info|![](/en-AU/2026/06/202606180700Saqsaywaman.jpg)|
