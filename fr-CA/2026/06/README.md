@@ -17,3 +17,4 @@
 202606150400|ParkEstd|Parc national des Great Smoky Mountains, Tennessee, États-Unis (© Mint Images/Getty Images)|Le silence des vallées|![](/fr-CA/2026/06/202606150400ParkEstd.jpg)|
 202606160400|SevenMileTurtle|Un couple de tortues imbriquées près de Seven Mile Beach, Grand Cayman, Îles Caïmans (© Alex Mustard/Nature Picture Library)|Les gardiennes des récifs|![](/fr-CA/2026/06/202606160400SevenMileTurtle.jpg)|
 202606170400|TremolaRoad|Route de la Tremola sur le col du Saint-Gothard, Airolo, Suisse (© Sandro Bisaro/Getty Images)|Prêt pour une échappée?|![](/fr-CA/2026/06/202606170400TremolaRoad.jpg)|
+202606180400|Saqsaywaman|Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)|Une merveille faite de pierre|![](/fr-CA/2026/06/202606180400Saqsaywaman.jpg)|
