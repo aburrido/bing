@@ -18,3 +18,4 @@
 202606151600|SevenMileTurtle|七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)|蔚蓝海礁的守护者|![](/zh-CN/2026/06/202606151600SevenMileTurtle.jpg)|
 202606161600|TremolaRoad|特雷莫拉公路在圣哥达山口，艾罗洛，瑞士 (© Sandro Bisaro/Getty Images)|蜿蜒而上|![](/zh-CN/2026/06/202606161600TremolaRoad.jpg)|
 202606171600|Saqsaywaman|萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁 (© Creative-Family/Getty Images Plus)|坚如磐石的奇观|![](/zh-CN/2026/06/202606171600Saqsaywaman.jpg)|
+202606181600|DragonBoatFestivalY26|湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)|龙吟古韵|![](/zh-CN/2026/06/202606181600DragonBoatFestivalY26.jpg)|
