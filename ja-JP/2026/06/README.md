@@ -19,3 +19,4 @@
 202606161500|TremolaRoad|トレモラ道路, スイス (© Sandro Bisaro/Getty Images)|山肌に輝く曲がりくねった道路|![](/ja-JP/2026/06/202606161500TremolaRoad.jpg)|
 202606171500|Saqsaywaman|サクサイワマン, ペルー (© Creative-Family/Getty Images Plus)|上空から望む古代遺跡の構造美|![](/ja-JP/2026/06/202606171500Saqsaywaman.jpg)|
 202606181500|GrandPlace|グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)|装飾美が際立つ歴史的街並み|![](/ja-JP/2026/06/202606181500GrandPlace.jpg)|
+202606191500|ArchedIceberg|アーチ状の氷山, 南極半島西部 (© Steven Kazlowski/Nature Picture Library)|氷山に穿たれた天然のアーチ|![](/ja-JP/2026/06/202606191500ArchedIceberg.jpg)|

@@ -19,3 +19,4 @@
 202606161600|TremolaRoad|特雷莫拉公路在圣哥达山口，艾罗洛，瑞士 (© Sandro Bisaro/Getty Images)|蜿蜒而上|![](/zh-CN/2026/06/202606161600TremolaRoad.jpg)|
 202606171600|Saqsaywaman|萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁 (© Creative-Family/Getty Images Plus)|坚如磐石的奇观|![](/zh-CN/2026/06/202606171600Saqsaywaman.jpg)|
 202606181600|DragonBoatFestivalY26|湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)|龙吟古韵|![](/zh-CN/2026/06/202606181600DragonBoatFestivalY26.jpg)|
+202606191600|ArchedIceberg|漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)|海洋中冰封的大教堂|![](/zh-CN/2026/06/202606191600ArchedIceberg.jpg)|
