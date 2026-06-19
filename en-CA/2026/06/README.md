@@ -18,3 +18,4 @@
 202606160400|SevenMileTurtle|Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)|Nature's reef keepers|![](/en-CA/2026/06/202606160400SevenMileTurtle.jpg)|
 202606170400|TremolaRoad|Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)|Twist your way up|![](/en-CA/2026/06/202606170400TremolaRoad.jpg)|
 202606180400|Saqsaywaman|Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)|A rock-solid marvel|![](/en-CA/2026/06/202606180400Saqsaywaman.jpg)|
+202606190400|IsolaElba|La Rocchetta Lighthouse, Piombino, Italy (© StevanZZ/Getty Images)|Where the light stands|![](/en-CA/2026/06/202606190400IsolaElba.jpg)|
