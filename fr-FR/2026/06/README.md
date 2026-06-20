@@ -20,3 +20,4 @@
 202606172200|Saqsaywaman|Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)|Une merveille faite de pierre|![](/fr-FR/2026/06/202606172200Saqsaywaman.jpg)|
 202606182200|IsolaElba|Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)|Entre ciel, mer et mémoire|![](/fr-FR/2026/06/202606182200IsolaElba.jpg)|
 202606192200|ArchedIceberg|Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)|Sculpté dans la glace|![](/fr-FR/2026/06/202606192200ArchedIceberg.jpg)|
+202606202200|SeineRiverside|Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)|Tous en chœur !|![](/fr-FR/2026/06/202606202200SeineRiverside.jpg)|
