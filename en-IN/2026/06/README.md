@@ -20,3 +20,4 @@
 202606171830|Saqsaywaman|Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)|A rock-solid marvel|![](/en-IN/2026/06/202606171830Saqsaywaman.jpg)|
 202606181830|IsolaElba|La Rocchetta Lighthouse, Piombino, Tuscany, Italy (© StevanZZ/Getty Images)|What stands at the edge?|![](/en-IN/2026/06/202606181830IsolaElba.jpg)|
 202606191830|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|An ocean's frozen cathedral|![](/en-IN/2026/06/202606191830ArchedIceberg.jpg)|
+202606201830|InternationalDayOfYoga2026|Colourful sky and clouds reflecting over the Ganges River, Rishikesh (© fbxx/iStock/Getty Images)|Beneath the solstice sun|![](/en-IN/2026/06/202606201830InternationalDayOfYoga2026.jpg)|
