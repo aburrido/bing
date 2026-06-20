@@ -19,3 +19,4 @@
 202606170700|TremolaRoad|Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)|Info|![](/en-AU/2026/06/202606170700TremolaRoad.jpg)|
 202606180700|Saqsaywaman|Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)|Info|![](/en-AU/2026/06/202606180700Saqsaywaman.jpg)|
 202606190700|IsolaElba|La Rocchetta Lighthouse, Piombino, Tuscany, Italy (© StevanZZ/Getty Images)|Info|![](/en-AU/2026/06/202606190700IsolaElba.jpg)|
+202606200700|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|Info|![](/en-AU/2026/06/202606200700ArchedIceberg.jpg)|
