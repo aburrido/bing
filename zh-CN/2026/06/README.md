@@ -20,3 +20,4 @@
 202606171600|Saqsaywaman|萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁 (© Creative-Family/Getty Images Plus)|坚如磐石的奇观|![](/zh-CN/2026/06/202606171600Saqsaywaman.jpg)|
 202606181600|DragonBoatFestivalY26|湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)|龙吟古韵|![](/zh-CN/2026/06/202606181600DragonBoatFestivalY26.jpg)|
 202606191600|ArchedIceberg|漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)|海洋中冰封的大教堂|![](/zh-CN/2026/06/202606191600ArchedIceberg.jpg)|
+202606201600|EggDad|企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)|鸟类好爸爸|![](/zh-CN/2026/06/202606201600EggDad.jpg)|
