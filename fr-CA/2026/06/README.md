@@ -19,3 +19,4 @@
 202606170400|TremolaRoad|Route de la Tremola sur le col du Saint-Gothard, Airolo, Suisse (© Sandro Bisaro/Getty Images)|Prêt pour une échappée?|![](/fr-CA/2026/06/202606170400TremolaRoad.jpg)|
 202606180400|Saqsaywaman|Vue aérienne des ruines de Sacsayhuamán, Cusco, Pérou (© Creative-Family/Getty Images Plus)|Une merveille faite de pierre|![](/fr-CA/2026/06/202606180400Saqsaywaman.jpg)|
 202606190400|IsolaElba|Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)|Entre ciel, mer et mémoire|![](/fr-CA/2026/06/202606190400IsolaElba.jpg)|
+202606200400|ArchedIceberg|Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)|Sculpté dans la glace|![](/fr-CA/2026/06/202606200400ArchedIceberg.jpg)|
