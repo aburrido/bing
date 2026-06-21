@@ -20,3 +20,4 @@
 202606180700|Saqsaywaman|Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)|A rock-solid marvel|![](/en-US/2026/06/202606180700Saqsaywaman.jpg)|
 202606190700|JuneteenthNMAAHC|National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)|A story rising in bronze|![](/en-US/2026/06/202606190700JuneteenthNMAAHC.jpg)|
 202606200700|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|An ocean's frozen cathedral|![](/en-US/2026/06/202606200700ArchedIceberg.jpg)|
+202606210700|EggDad|King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)|Feathered fathers|![](/en-US/2026/06/202606210700EggDad.jpg)|
