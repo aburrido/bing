@@ -21,3 +21,4 @@
 202606181500|GrandPlace|グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)|装飾美が際立つ歴史的街並み|![](/ja-JP/2026/06/202606181500GrandPlace.jpg)|
 202606191500|ArchedIceberg|アーチ状の氷山, 南極半島西部 (© Steven Kazlowski/Nature Picture Library)|氷山に穿たれた天然のアーチ|![](/ja-JP/2026/06/202606191500ArchedIceberg.jpg)|
 202606201500|EggDad|オウサマペンギンの父親 (© McDonald Wildlife Photography Inc./Getty Images)|今日は父の日|![](/ja-JP/2026/06/202606201500EggDad.jpg)|
+202606211500|Fujisan|富士山 (© phutthiseth thongtae/Getty Images)|今日は富士山が世界文化遺産に登録された日|![](/ja-JP/2026/06/202606211500Fujisan.jpg)|
