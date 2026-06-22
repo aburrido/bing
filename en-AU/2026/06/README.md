@@ -21,3 +21,4 @@
 202606190700|IsolaElba|La Rocchetta Lighthouse, Piombino, Tuscany, Italy (© StevanZZ/Getty Images)|Info|![](/en-AU/2026/06/202606190700IsolaElba.jpg)|
 202606200700|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|Info|![](/en-AU/2026/06/202606200700ArchedIceberg.jpg)|
 202606210700|MillauViaductFrance|Millau Viaduct, France (© Sergi Reboredo/Alamy)|Info|![](/en-AU/2026/06/202606210700MillauViaductFrance.jpg)|
+202606220700|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington state, United States (© Chris Moore/Tandem Stills + Motion)|Info|![](/en-AU/2026/06/202606220700QuinaultFerns.jpg)|
