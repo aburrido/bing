@@ -22,3 +22,4 @@
 202606191600|ArchedIceberg|漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)|海洋中冰封的大教堂|![](/zh-CN/2026/06/202606191600ArchedIceberg.jpg)|
 202606201600|EggDad|企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)|鸟类好爸爸|![](/zh-CN/2026/06/202606201600EggDad.jpg)|
 202606211600|QuinaultFerns|奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)|一个郁郁葱葱的王国|![](/zh-CN/2026/06/202606211600QuinaultFerns.jpg)|
+202606221600|Fujisan|本州岛上的富士山, 日本 (© phutthiseth thongtae/Getty Images)|天际线上的印记|![](/zh-CN/2026/06/202606221600Fujisan.jpg)|

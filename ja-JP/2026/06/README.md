@@ -22,3 +22,4 @@
 202606191500|ArchedIceberg|アーチ状の氷山, 南極半島西部 (© Steven Kazlowski/Nature Picture Library)|氷山に穿たれた天然のアーチ|![](/ja-JP/2026/06/202606191500ArchedIceberg.jpg)|
 202606201500|EggDad|オウサマペンギンの父親 (© McDonald Wildlife Photography Inc./Getty Images)|今日は父の日|![](/ja-JP/2026/06/202606201500EggDad.jpg)|
 202606211500|Fujisan|富士山 (© phutthiseth thongtae/Getty Images)|今日は富士山が世界文化遺産に登録された日|![](/ja-JP/2026/06/202606211500Fujisan.jpg)|
+202606221500|QuinaultFerns|キノート・レイン・フォレスト, 米国 ワシントン州 (© Chris Moore/Tandem Stills + Motion)|陽光が貫く密林|![](/ja-JP/2026/06/202606221500QuinaultFerns.jpg)|
