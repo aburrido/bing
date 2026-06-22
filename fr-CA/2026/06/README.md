@@ -21,3 +21,4 @@
 202606190400|IsolaElba|Phare de La Rocchetta, Piombino, Toscane, Italie (© StevanZZ/Getty Images)|Entre ciel, mer et mémoire|![](/fr-CA/2026/06/202606190400IsolaElba.jpg)|
 202606200400|ArchedIceberg|Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)|Sculpté dans la glace|![](/fr-CA/2026/06/202606200400ArchedIceberg.jpg)|
 202606210400|IndigenousMaple|La feuille d'érable rouge, symbole du Canada (© namaki/Getty Images)|Racines et territoires|![](/fr-CA/2026/06/202606210400IndigenousMaple.jpg)|
+202606220400|QuinaultFerns|Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)|Un royaume humide|![](/fr-CA/2026/06/202606220400QuinaultFerns.jpg)|

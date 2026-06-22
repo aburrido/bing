@@ -21,3 +21,4 @@
 202606190400|IsolaElba|La Rocchetta Lighthouse, Piombino, Italy (© StevanZZ/Getty Images)|Where the light stands|![](/en-CA/2026/06/202606190400IsolaElba.jpg)|
 202606200400|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|An ocean's frozen cathedral|![](/en-CA/2026/06/202606200400ArchedIceberg.jpg)|
 202606210400|IndigenousMaple|Red maple leaf, symbol of Canada (© namaki/Getty Images)|Rooted across generations|![](/en-CA/2026/06/202606210400IndigenousMaple.jpg)|
+202606220400|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington state, United States (© Chris Moore/Tandem Stills + Motion)|A lush kingdom|![](/en-CA/2026/06/202606220400QuinaultFerns.jpg)|
