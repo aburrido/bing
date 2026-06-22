@@ -22,3 +22,4 @@
 202606191830|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|An ocean's frozen cathedral|![](/en-IN/2026/06/202606191830ArchedIceberg.jpg)|
 202606201830|InternationalDayOfYoga2026|Colourful sky and clouds reflecting over the Ganges River, Rishikesh (© fbxx/iStock/Getty Images)|Beneath the solstice sun|![](/en-IN/2026/06/202606201830InternationalDayOfYoga2026.jpg)|
 202606211830|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington state, United States (© Chris Moore/Tandem Stills + Motion)|A lush kingdom|![](/en-IN/2026/06/202606211830QuinaultFerns.jpg)|
+202606221830|Fujisan|Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)|Signature on the horizon|![](/en-IN/2026/06/202606221830Fujisan.jpg)|
