@@ -22,3 +22,4 @@
 202606192300|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|An ocean's frozen cathedral|![](/en-GB/2026/06/202606192300ArchedIceberg.jpg)|
 202606202300|EggDad|King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)|Feathered fathers|![](/en-GB/2026/06/202606202300EggDad.jpg)|
 202606212300|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington, United States (© Chris Moore/Tandem Stills + Motion)|A lush kingdom|![](/en-GB/2026/06/202606212300QuinaultFerns.jpg)|
+202606222300|Fujisan|Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)|Signature on the horizon|![](/en-GB/2026/06/202606222300Fujisan.jpg)|

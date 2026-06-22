@@ -22,3 +22,4 @@
 202606192200|ArchedIceberg|Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)|Sculpté dans la glace|![](/fr-FR/2026/06/202606192200ArchedIceberg.jpg)|
 202606202200|SeineRiverside|Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)|Tous en chœur !|![](/fr-FR/2026/06/202606202200SeineRiverside.jpg)|
 202606212200|QuinaultFerns|Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)|Un royaume humide|![](/fr-FR/2026/06/202606212200QuinaultFerns.jpg)|
+202606222200|Fujisan|Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)|Empreinte intemporelle à l’horizon|![](/fr-FR/2026/06/202606222200Fujisan.jpg)|
