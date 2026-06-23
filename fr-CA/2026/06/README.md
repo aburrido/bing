@@ -22,3 +22,4 @@
 202606200400|ArchedIceberg|Arche naturelle sculptée dans un iceberg, Océan Antarctique (© Steven Kazlowski/Nature Picture Library)|Sculpté dans la glace|![](/fr-CA/2026/06/202606200400ArchedIceberg.jpg)|
 202606210400|IndigenousMaple|La feuille d'érable rouge, symbole du Canada (© namaki/Getty Images)|Racines et territoires|![](/fr-CA/2026/06/202606210400IndigenousMaple.jpg)|
 202606220400|QuinaultFerns|Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)|Un royaume humide|![](/fr-CA/2026/06/202606220400QuinaultFerns.jpg)|
+202606230400|Fujisan|Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)|Empreinte intemporelle à l’horizon|![](/fr-CA/2026/06/202606230400Fujisan.jpg)|

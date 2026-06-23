@@ -22,3 +22,4 @@
 202606200400|ArchedIceberg|Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)|An ocean's frozen cathedral|![](/en-CA/2026/06/202606200400ArchedIceberg.jpg)|
 202606210400|IndigenousMaple|Red maple leaf, symbol of Canada (© namaki/Getty Images)|Rooted across generations|![](/en-CA/2026/06/202606210400IndigenousMaple.jpg)|
 202606220400|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington state, United States (© Chris Moore/Tandem Stills + Motion)|A lush kingdom|![](/en-CA/2026/06/202606220400QuinaultFerns.jpg)|
+202606230400|Fujisan|Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)|Signature on the horizon|![](/en-CA/2026/06/202606230400Fujisan.jpg)|
