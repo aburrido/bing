@@ -23,3 +23,4 @@
 202606202200|EggDad|Ein Königspinguin-Männchen schaut nach seinem Ei (© McDonald Wildlife Photography Inc./Getty Images)|Wächter im Eis|![](/de-DE/2026/06/202606202200EggDad.jpg)|
 202606212200|QuinaultFerns|Quinault‑Regenwald im Olympic‑Nationalpark, Washington, USA (© Chris Moore/Tandem Stills + Motion)|Regenwälder voller Leben|![](/de-DE/2026/06/202606212200QuinaultFerns.jpg)|
 202606222200|Fujisan|Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)|Ikone am Horizont|![](/de-DE/2026/06/202606222200Fujisan.jpg)|
+202606232200|BFPollin|Schmetterling beim Bestäuben einer gelben Blüte (© lzh/Getty Images)|Kleine Flügel, große Wirkung|![](/de-DE/2026/06/202606232200BFPollin.jpg)|
