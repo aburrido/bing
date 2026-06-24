@@ -24,3 +24,4 @@
 202606212200|QuinaultFerns|Forêt humide de Quinault, Parc national Olympique, État de Washington, États-Unis (© Chris Moore/Tandem Stills + Motion)|Un royaume humide|![](/fr-FR/2026/06/202606212200QuinaultFerns.jpg)|
 202606222200|Fujisan|Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)|Empreinte intemporelle à l’horizon|![](/fr-FR/2026/06/202606222200Fujisan.jpg)|
 202606232200|BFPollin|Papillon sur une fleur jaune (© lzh/Getty Images)|Silence, ça butine !|![](/fr-FR/2026/06/202606232200BFPollin.jpg)|
+202606242200|GrandPlace|Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)|Grande et incontournable|![](/fr-FR/2026/06/202606242200GrandPlace.jpg)|

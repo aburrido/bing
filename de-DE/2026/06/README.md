@@ -24,3 +24,4 @@
 202606212200|QuinaultFerns|Quinault‑Regenwald im Olympic‑Nationalpark, Washington, USA (© Chris Moore/Tandem Stills + Motion)|Regenwälder voller Leben|![](/de-DE/2026/06/202606212200QuinaultFerns.jpg)|
 202606222200|Fujisan|Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)|Ikone am Horizont|![](/de-DE/2026/06/202606222200Fujisan.jpg)|
 202606232200|BFPollin|Schmetterling beim Bestäuben einer gelben Blüte (© lzh/Getty Images)|Kleine Flügel, große Wirkung|![](/de-DE/2026/06/202606232200BFPollin.jpg)|
+202606242200|GrandPlace|Gebäude am Grand-Place in Brüssel, Belgien (© Vladislav Zolotov/Getty Images Plus)|Glanz trifft Geschichte|![](/de-DE/2026/06/202606242200GrandPlace.jpg)|
