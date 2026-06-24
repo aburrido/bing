@@ -23,3 +23,4 @@
 202606210700|EggDad|King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)|Feathered fathers|![](/en-US/2026/06/202606210700EggDad.jpg)|
 202606220700|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)|A lush kingdom|![](/en-US/2026/06/202606220700QuinaultFerns.jpg)|
 202606230700|Fujisan|Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)|Signature on the horizon|![](/en-US/2026/06/202606230700Fujisan.jpg)|
+202606240700|BFPollin|Butterfly pollinating on yellow flower (© lzh/Getty Images)|Pollen meets wings|![](/en-US/2026/06/202606240700BFPollin.jpg)|
