@@ -24,3 +24,4 @@
 202606211600|QuinaultFerns|奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)|一个郁郁葱葱的王国|![](/zh-CN/2026/06/202606211600QuinaultFerns.jpg)|
 202606221600|Fujisan|本州岛上的富士山, 日本 (© phutthiseth thongtae/Getty Images)|天际线上的印记|![](/zh-CN/2026/06/202606221600Fujisan.jpg)|
 202606231600|BFPollin|蝴蝶正在黄花上授粉 (© lzh/Getty Images)|花粉与翅膀相遇|![](/zh-CN/2026/06/202606231600BFPollin.jpg)|
+202606241600|GrandPlace|布鲁塞尔大广场上的建筑群, 比利时 (© Vladislav Zolotov/Getty Images Plus)|在广场中感受历史|![](/zh-CN/2026/06/202606241600GrandPlace.jpg)|
