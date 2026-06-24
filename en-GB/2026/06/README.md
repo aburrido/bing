@@ -24,3 +24,4 @@
 202606212300|QuinaultFerns|Quinault rainforest, Olympic National Park, Washington, United States (© Chris Moore/Tandem Stills + Motion)|A lush kingdom|![](/en-GB/2026/06/202606212300QuinaultFerns.jpg)|
 202606222300|Fujisan|Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)|Signature on the horizon|![](/en-GB/2026/06/202606222300Fujisan.jpg)|
 202606232300|BFPollin|Butterfly pollinating on yellow flower (© lzh/Getty Images)|Pollen meets wings|![](/en-GB/2026/06/202606232300BFPollin.jpg)|
+202606242300|GrandPlace|Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)|Square up to history|![](/en-GB/2026/06/202606242300GrandPlace.jpg)|
