@@ -24,3 +24,4 @@
 202606211500|Fujisan|富士山 (© phutthiseth thongtae/Getty Images)|今日は富士山が世界文化遺産に登録された日|![](/ja-JP/2026/06/202606211500Fujisan.jpg)|
 202606221500|QuinaultFerns|キノート・レイン・フォレスト, 米国 ワシントン州 (© Chris Moore/Tandem Stills + Motion)|陽光が貫く密林|![](/ja-JP/2026/06/202606221500QuinaultFerns.jpg)|
 202606231500|BFPollin|花の蜜を味わう蝶 (© lzh/Getty Images)|今週は全米花粉媒介者週間|![](/ja-JP/2026/06/202606231500BFPollin.jpg)|
+202606241500|LavenderSeason2026|ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)|初夏に揺れる紫の花畑|![](/ja-JP/2026/06/202606241500LavenderSeason2026.jpg)|
