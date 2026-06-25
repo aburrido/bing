@@ -25,3 +25,4 @@
 202606222200|Fujisan|Mont Fuji sur l’île de Honshū, Japon (© phutthiseth thongtae/Getty Images)|Empreinte intemporelle à l’horizon|![](/fr-FR/2026/06/202606222200Fujisan.jpg)|
 202606232200|BFPollin|Papillon sur une fleur jaune (© lzh/Getty Images)|Silence, ça butine !|![](/fr-FR/2026/06/202606232200BFPollin.jpg)|
 202606242200|GrandPlace|Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)|Grande et incontournable|![](/fr-FR/2026/06/202606242200GrandPlace.jpg)|
+202606252200|ThamesSummer|La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)|On se la coule douce|![](/fr-FR/2026/06/202606252200ThamesSummer.jpg)|

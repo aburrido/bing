@@ -25,3 +25,4 @@
 202606222200|Fujisan|Berg Fuji auf der Insel Honshū, Japan (© phutthiseth thongtae/Getty Images)|Ikone am Horizont|![](/de-DE/2026/06/202606222200Fujisan.jpg)|
 202606232200|BFPollin|Schmetterling beim Bestäuben einer gelben Blüte (© lzh/Getty Images)|Kleine Flügel, große Wirkung|![](/de-DE/2026/06/202606232200BFPollin.jpg)|
 202606242200|GrandPlace|Gebäude am Grand-Place in Brüssel, Belgien (© Vladislav Zolotov/Getty Images Plus)|Glanz trifft Geschichte|![](/de-DE/2026/06/202606242200GrandPlace.jpg)|
+202606252200|ThamesSummer|Themse, London, England (© Daniel Lange/Getty Images)|Die Stadt im Fluss der Zeit|![](/de-DE/2026/06/202606252200ThamesSummer.jpg)|
