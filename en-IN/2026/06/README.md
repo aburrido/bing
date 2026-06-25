@@ -25,3 +25,4 @@
 202606221830|Fujisan|Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)|Signature on the horizon|![](/en-IN/2026/06/202606221830Fujisan.jpg)|
 202606231830|BFPollin|Butterfly pollinating on yellow flower (© lzh/Getty Images)|Pollen meets wings|![](/en-IN/2026/06/202606231830BFPollin.jpg)|
 202606241830|GrandPlace|Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)|Square up to history|![](/en-IN/2026/06/202606241830GrandPlace.jpg)|
+202606251830|ThamesSummer|The River Thames, London, England (© Daniel Lange/Getty Images)|Current affairs|![](/en-IN/2026/06/202606251830ThamesSummer.jpg)|
