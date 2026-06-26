@@ -26,3 +26,4 @@
 202606232300|BFPollin|Butterfly pollinating on yellow flower (© lzh/Getty Images)|Pollen meets wings|![](/en-GB/2026/06/202606232300BFPollin.jpg)|
 202606242300|GrandPlace|Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)|Square up to history|![](/en-GB/2026/06/202606242300GrandPlace.jpg)|
 202606252300|ThamesSummer|The River Thames, London (© Daniel Lange/Getty Images)|Current affairs|![](/en-GB/2026/06/202606252300ThamesSummer.jpg)|
+202606262300|BoneyardBeach|Driftwood on Boneyard Beach, Hunting Island, South Carolina, United States (© Frances/Adobe Stock)|The trees that lost ground|![](/en-GB/2026/06/202606262300BoneyardBeach.jpg)|
