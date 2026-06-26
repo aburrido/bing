@@ -26,3 +26,4 @@
 202606232200|BFPollin|Papillon sur une fleur jaune (© lzh/Getty Images)|Silence, ça butine !|![](/fr-FR/2026/06/202606232200BFPollin.jpg)|
 202606242200|GrandPlace|Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)|Grande et incontournable|![](/fr-FR/2026/06/202606242200GrandPlace.jpg)|
 202606252200|ThamesSummer|La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)|On se la coule douce|![](/fr-FR/2026/06/202606252200ThamesSummer.jpg)|
+202606262200|BoneyardBeach|Bois flotté sur la plage de Beaufort, Hunting Island, Caroline du Sud, États-Unis (© Frances/Adobe Stock)|Perdre pied|![](/fr-FR/2026/06/202606262200BoneyardBeach.jpg)|
