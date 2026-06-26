@@ -26,3 +26,4 @@
 202606231600|BFPollin|蝴蝶正在黄花上授粉 (© lzh/Getty Images)|花粉与翅膀相遇|![](/zh-CN/2026/06/202606231600BFPollin.jpg)|
 202606241600|GrandPlace|布鲁塞尔大广场上的建筑群, 比利时 (© Vladislav Zolotov/Getty Images Plus)|在广场中感受历史|![](/zh-CN/2026/06/202606241600GrandPlace.jpg)|
 202606251600|ThamesSummer|泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)|时事|![](/zh-CN/2026/06/202606251600ThamesSummer.jpg)|
+202606261600|BoneyardBeach|博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)|逐渐失去立足之地的树木|![](/zh-CN/2026/06/202606261600BoneyardBeach.jpg)|
