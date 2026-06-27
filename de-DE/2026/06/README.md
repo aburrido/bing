@@ -27,3 +27,4 @@
 202606242200|GrandPlace|Gebäude am Grand-Place in Brüssel, Belgien (© Vladislav Zolotov/Getty Images Plus)|Glanz trifft Geschichte|![](/de-DE/2026/06/202606242200GrandPlace.jpg)|
 202606252200|ThamesSummer|Themse, London, England (© Daniel Lange/Getty Images)|Die Stadt im Fluss der Zeit|![](/de-DE/2026/06/202606252200ThamesSummer.jpg)|
 202606262200|Westerheversand|Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)|Rot‑weiß am Horizont|![](/de-DE/2026/06/202606262200Westerheversand.jpg)|
+202606272200|SaguaroSun|Saguaro-Kakteen nahe dem Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)|Stille Riesen der Wüste|![](/de-DE/2026/06/202606272200SaguaroSun.jpg)|

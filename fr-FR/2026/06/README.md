@@ -27,3 +27,4 @@
 202606242200|GrandPlace|Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)|Grande et incontournable|![](/fr-FR/2026/06/202606242200GrandPlace.jpg)|
 202606252200|ThamesSummer|La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)|On se la coule douce|![](/fr-FR/2026/06/202606252200ThamesSummer.jpg)|
 202606262200|BoneyardBeach|Bois flotté sur la plage de Beaufort, Hunting Island, Caroline du Sud, États-Unis (© Frances/Adobe Stock)|Perdre pied|![](/fr-FR/2026/06/202606262200BoneyardBeach.jpg)|
+202606272200|SaguaroSun|Cactus saguaro près de Windgate Pass, chaîne des McDowell, Arizona, États‑Unis (© Eric Mischke/Getty Images)|Un piquant sans égal|![](/fr-FR/2026/06/202606272200SaguaroSun.jpg)|
