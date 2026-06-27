@@ -26,3 +26,4 @@
 202606240400|BFPollin|Papillon sur une fleur jaune (© lzh/Getty Images)|Silence, ça butine!|![](/fr-CA/2026/06/202606240400BFPollin.jpg)|
 202606250400|GrandPlace|Bâtiments sur la Grand-Place de Bruxelles, Belgique (© Vladislav Zolotov/Getty Images Plus)|Grande et incontournable|![](/fr-CA/2026/06/202606250400GrandPlace.jpg)|
 202606260400|ThamesSummer|La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)|On se la coule douce|![](/fr-CA/2026/06/202606260400ThamesSummer.jpg)|
+202606270400|MulticulturalismDY|Ciel spectaculaire sur Montréal, Québec (© d3sign/Getty Images)|La richesse de la diversité|![](/fr-CA/2026/06/202606270400MulticulturalismDY.jpg)|

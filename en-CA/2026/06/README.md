@@ -26,3 +26,4 @@
 202606240400|BFPollin|Butterfly pollinating on yellow flower (© lzh/Getty Images)|Pollen meets wings|![](/en-CA/2026/06/202606240400BFPollin.jpg)|
 202606250400|GrandPlace|Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)|Square up to history|![](/en-CA/2026/06/202606250400GrandPlace.jpg)|
 202606260400|ThamesSummer|The River Thames, London, England (© Daniel Lange/Getty Images)|Current affairs|![](/en-CA/2026/06/202606260400ThamesSummer.jpg)|
+202606270400|MulticulturalismDY|Dramatic sky over Montreal, Quebec (© d3sign/Getty Images)|Many voices, one country|![](/en-CA/2026/06/202606270400MulticulturalismDY.jpg)|
