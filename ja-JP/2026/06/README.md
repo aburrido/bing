@@ -27,3 +27,4 @@
 202606241500|LavenderSeason2026|ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)|初夏に揺れる紫の花畑|![](/ja-JP/2026/06/202606241500LavenderSeason2026.jpg)|
 202606251500|ThamesSummer|テムズ川, イングランド ロンドン (© Daniel Lange/Getty Images)|活気あふれる川沿いの街並み|![](/ja-JP/2026/06/202606251500ThamesSummer.jpg)|
 202606261500|Ajisai2026|あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)|青い花に包まれた小道|![](/ja-JP/2026/06/202606261500Ajisai2026.jpg)|
+202606271500|SaguaroSun|ウィンドゲートパス, 米国 アリゾナ州 (© Eric Mischke/Getty Images)|夕日を浴びるベンケイチュウ|![](/ja-JP/2026/06/202606271500SaguaroSun.jpg)|
