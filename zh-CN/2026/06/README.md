@@ -27,3 +27,4 @@
 202606241600|GrandPlace|布鲁塞尔大广场上的建筑群, 比利时 (© Vladislav Zolotov/Getty Images Plus)|在广场中感受历史|![](/zh-CN/2026/06/202606241600GrandPlace.jpg)|
 202606251600|ThamesSummer|泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)|时事|![](/zh-CN/2026/06/202606251600ThamesSummer.jpg)|
 202606261600|BoneyardBeach|博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)|逐渐失去立足之地的树木|![](/zh-CN/2026/06/202606261600BoneyardBeach.jpg)|
+202606271600|SaguaroSun|温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)|看起来很精神|![](/zh-CN/2026/06/202606271600SaguaroSun.jpg)|
