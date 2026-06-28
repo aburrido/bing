@@ -27,3 +27,4 @@
 202606250700|GrandPlace|Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)|Square up to history|![](/en-US/2026/06/202606250700GrandPlace.jpg)|
 202606260700|ThamesSummer|The River Thames, London, England (© Daniel Lange/Getty Images)|Current affairs|![](/en-US/2026/06/202606260700ThamesSummer.jpg)|
 202606270700|BoneyardBeach|Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)|The trees that lost ground|![](/en-US/2026/06/202606270700BoneyardBeach.jpg)|
+202606280700|SaguaroSun|Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)|Looking sharp|![](/en-US/2026/06/202606280700SaguaroSun.jpg)|
