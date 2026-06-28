@@ -28,3 +28,4 @@
 202606252300|ThamesSummer|The River Thames, London (© Daniel Lange/Getty Images)|Current affairs|![](/en-GB/2026/06/202606252300ThamesSummer.jpg)|
 202606262300|BoneyardBeach|Driftwood on Boneyard Beach, Hunting Island, South Carolina, United States (© Frances/Adobe Stock)|The trees that lost ground|![](/en-GB/2026/06/202606262300BoneyardBeach.jpg)|
 202606272300|SaguaroSun|Saguaro cacti near Windgate Pass, McDowell Range, Arizona, United States (© Eric Mischke/Getty Images)|Looking sharp|![](/en-GB/2026/06/202606272300SaguaroSun.jpg)|
+202606282300|BoraBoraLagoon|Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)|Born on fire, held by water|![](/en-GB/2026/06/202606282300BoraBoraLagoon.jpg)|
