@@ -28,3 +28,4 @@
 202606251500|ThamesSummer|テムズ川, イングランド ロンドン (© Daniel Lange/Getty Images)|活気あふれる川沿いの街並み|![](/ja-JP/2026/06/202606251500ThamesSummer.jpg)|
 202606261500|Ajisai2026|あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)|青い花に包まれた小道|![](/ja-JP/2026/06/202606261500Ajisai2026.jpg)|
 202606271500|SaguaroSun|ウィンドゲートパス, 米国 アリゾナ州 (© Eric Mischke/Getty Images)|夕日を浴びるベンケイチュウ|![](/ja-JP/2026/06/202606271500SaguaroSun.jpg)|
+202606281500|BoraBoraLagoon|ボラボラ島, フランス領ポリネシア (© Frederick Millett/Shutterstock)|今日は国際熱帯デー|![](/ja-JP/2026/06/202606281500BoraBoraLagoon.jpg)|
