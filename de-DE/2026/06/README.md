@@ -28,3 +28,4 @@
 202606252200|ThamesSummer|Themse, London, England (© Daniel Lange/Getty Images)|Die Stadt im Fluss der Zeit|![](/de-DE/2026/06/202606252200ThamesSummer.jpg)|
 202606262200|Westerheversand|Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)|Rot‑weiß am Horizont|![](/de-DE/2026/06/202606262200Westerheversand.jpg)|
 202606272200|SaguaroSun|Saguaro-Kakteen nahe dem Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)|Stille Riesen der Wüste|![](/de-DE/2026/06/202606272200SaguaroSun.jpg)|
+202606282200|BoraBoraLagoon|Bora Bora und ihre Lagune, Südpazifik, Französisch-Polynesien (© Frederick Millett/Shutterstock)|Aus Feuer geboren, vom Wasser gehalten|![](/de-DE/2026/06/202606282200BoraBoraLagoon.jpg)|
