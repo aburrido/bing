@@ -29,3 +29,4 @@
 202606261600|BoneyardBeach|博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)|逐渐失去立足之地的树木|![](/zh-CN/2026/06/202606261600BoneyardBeach.jpg)|
 202606271600|SaguaroSun|温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)|看起来很精神|![](/zh-CN/2026/06/202606271600SaguaroSun.jpg)|
 202606281600|BoraBoraLagoon|波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)|生于烈火，拥于碧水|![](/zh-CN/2026/06/202606281600BoraBoraLagoon.jpg)|
+202606291600|MasaiGiraffe|马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)|阴影被拉得修长之处|![](/zh-CN/2026/06/202606291600MasaiGiraffe.jpg)|
