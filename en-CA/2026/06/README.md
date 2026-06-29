@@ -28,3 +28,4 @@
 202606260400|ThamesSummer|The River Thames, London, England (© Daniel Lange/Getty Images)|Current affairs|![](/en-CA/2026/06/202606260400ThamesSummer.jpg)|
 202606270400|MulticulturalismDY|Dramatic sky over Montreal, Quebec (© d3sign/Getty Images)|Many voices, one country|![](/en-CA/2026/06/202606270400MulticulturalismDY.jpg)|
 202606280400|SaguaroSun|Saguaro cacti near Windgate Pass, McDowell Range, Arizona, United States (© Eric Mischke/Getty Images)|Looking sharp|![](/en-CA/2026/06/202606280400SaguaroSun.jpg)|
+202606290400|BoraBoraLagoon|Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)|Born on fire, held by water|![](/en-CA/2026/06/202606290400BoraBoraLagoon.jpg)|

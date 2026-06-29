@@ -28,3 +28,4 @@
 202606260400|ThamesSummer|La Tamise, Londres, Angleterre (© Daniel Lange/Getty Images)|On se la coule douce|![](/fr-CA/2026/06/202606260400ThamesSummer.jpg)|
 202606270400|MulticulturalismDY|Ciel spectaculaire sur Montréal, Québec (© d3sign/Getty Images)|La richesse de la diversité|![](/fr-CA/2026/06/202606270400MulticulturalismDY.jpg)|
 202606280400|SaguaroSun|Cactus saguaro près de Windgate Pass, chaîne des McDowell, Arizona, États‑Unis (© Eric Mischke/Getty Images)|Un piquant sans égal|![](/fr-CA/2026/06/202606280400SaguaroSun.jpg)|
+202606290400|BoraBoraLagoon|Bora Bora et son lagon, Pacifique Sud, Polynésie française (© Frederick Millett/Shutterstock)|D’eau et de feu|![](/fr-CA/2026/06/202606290400BoraBoraLagoon.jpg)|
