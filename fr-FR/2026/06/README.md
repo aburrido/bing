@@ -29,3 +29,4 @@
 202606262200|BoneyardBeach|Bois flotté sur la plage de Beaufort, Hunting Island, Caroline du Sud, États-Unis (© Frances/Adobe Stock)|Perdre pied|![](/fr-FR/2026/06/202606262200BoneyardBeach.jpg)|
 202606272200|SaguaroSun|Cactus saguaro près de Windgate Pass, chaîne des McDowell, Arizona, États‑Unis (© Eric Mischke/Getty Images)|Un piquant sans égal|![](/fr-FR/2026/06/202606272200SaguaroSun.jpg)|
 202606282200|BoraBoraLagoon|Bora Bora et son lagon, Pacifique Sud, Polynésie française (© Frederick Millett/Shutterstock)|D’eau et de feu|![](/fr-FR/2026/06/202606282200BoraBoraLagoon.jpg)|
+202606292200|MasaiGiraffe|Girafes au coucher du soleil, Masai Mara, Kenya (© danm/Getty Images)|Jouer à l’ombre la plus longue|![](/fr-FR/2026/06/202606292200MasaiGiraffe.jpg)|
