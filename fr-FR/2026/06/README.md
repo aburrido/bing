@@ -30,3 +30,4 @@
 202606272200|SaguaroSun|Cactus saguaro près de Windgate Pass, chaîne des McDowell, Arizona, États‑Unis (© Eric Mischke/Getty Images)|Un piquant sans égal|![](/fr-FR/2026/06/202606272200SaguaroSun.jpg)|
 202606282200|BoraBoraLagoon|Bora Bora et son lagon, Pacifique Sud, Polynésie française (© Frederick Millett/Shutterstock)|D’eau et de feu|![](/fr-FR/2026/06/202606282200BoraBoraLagoon.jpg)|
 202606292200|MasaiGiraffe|Girafes au coucher du soleil, Masai Mara, Kenya (© danm/Getty Images)|Jouer à l’ombre la plus longue|![](/fr-FR/2026/06/202606292200MasaiGiraffe.jpg)|
+202606302200|DungeonPark|Parc provincial de Dungeon, Terre-Neuve-et-Labrador, Canada (© Kaitlyn McLachlan/Getty Images)|Le Canada, sculpté par l'Atlantique|![](/fr-FR/2026/06/202606302200DungeonPark.jpg)|

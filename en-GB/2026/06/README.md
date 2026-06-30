@@ -30,3 +30,4 @@
 202606272300|SaguaroSun|Saguaro cacti near Windgate Pass, McDowell Range, Arizona, United States (© Eric Mischke/Getty Images)|Looking sharp|![](/en-GB/2026/06/202606272300SaguaroSun.jpg)|
 202606282300|BoraBoraLagoon|Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)|Born on fire, held by water|![](/en-GB/2026/06/202606282300BoraBoraLagoon.jpg)|
 202606292300|MasaiGiraffe|Giraffes in the Masai Mara National Reserve, Kenya (© danm/Getty Images)|Where shadows stretch tall|![](/en-GB/2026/06/202606292300MasaiGiraffe.jpg)|
+202606302300|KaysersbergVillage|Kaysersberg, Alsace, France (© Federica Gentile/Getty Images)|This is your detour|![](/en-GB/2026/06/202606302300KaysersbergVillage.jpg)|
