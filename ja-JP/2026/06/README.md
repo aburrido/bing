@@ -30,3 +30,4 @@
 202606271500|SaguaroSun|ウィンドゲートパス, 米国 アリゾナ州 (© Eric Mischke/Getty Images)|夕日を浴びるベンケイチュウ|![](/ja-JP/2026/06/202606271500SaguaroSun.jpg)|
 202606281500|BoraBoraLagoon|ボラボラ島, フランス領ポリネシア (© Frederick Millett/Shutterstock)|今日は国際熱帯デー|![](/ja-JP/2026/06/202606281500BoraBoraLagoon.jpg)|
 202606291500|MasaiGiraffe|マサイキリン, ケニヤ (© danm/Getty Images)|夕焼けに浮かぶキリンの影|![](/ja-JP/2026/06/202606291500MasaiGiraffe.jpg)|
+202606301500|DungeonPark|ダンジョン州立公園, カナダ (© Kaitlyn McLachlan/Getty Images)|今日はカナダの日|![](/ja-JP/2026/06/202606301500DungeonPark.jpg)|
