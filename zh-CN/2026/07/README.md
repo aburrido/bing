@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202606301600|DungeonPark|地牢省立公园, 纽芬兰和拉布拉多省, 加拿大 (© Kaitlyn McLachlan/Getty Images)|大西洋雕琢而成的加拿大|![](/zh-CN/2026/07/202606301600DungeonPark.jpg)|
+202607011600|TempleEsna|埃斯纳神庙穹顶天花板, 埃及 (© Nick Brundle Photography/Getty Images)|走进埃斯纳神圣的世界|![](/zh-CN/2026/07/202607011600TempleEsna.jpg)|
