@@ -3,3 +3,4 @@
 202606302200|NeckarVineyards|Sonnenuntergang über den Weinbergen von Steinhaldenfeld im Neckartal bei Stuttgart, Baden-Württemberg (© Cyril Gosselin/Getty Images)|Rebhänge im Abendlicht|![](/de-DE/2026/07/202606302200NeckarVineyards.jpg)|
 202607012200|TempleEsna|Decke des Tempels von Esna, Ägypten (© Nick Brundle Photography/Getty Images)|Ein Blick in Esnas Universum|![](/de-DE/2026/07/202607012200TempleEsna.jpg)|
 202607022200|FirefliesJapan|Leuchtende Glühwürmchen über einem Bach, Präfektur Okayama, Japan (© tdub303/Getty Images)|Die Poesie des schwindenden Lichts|![](/de-DE/2026/07/202607022200FirefliesJapan.jpg)|
+202607032200|KaysersbergVillage|Kaysersberg, Elsass, Frankreich (© Federica Gentile/Getty Images)|Im Herzen des Elsass|![](/de-DE/2026/07/202607032200KaysersbergVillage.jpg)|
