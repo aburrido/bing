@@ -4,3 +4,4 @@
 202607012200|TempleEsna|Plafond du temple d'Esna, Égypte (© Nick Brundle Photography/Getty Images)|Dans l'univers sacré d'Esna|![](/fr-FR/2026/07/202607012200TempleEsna.jpg)|
 202607022200|FirefliesJapan|Lucioles scintillant au-dessus d'un ruisseau, Okayama, Japon (© tdub303/Getty Images)|La féerie des lucioles|![](/fr-FR/2026/07/202607022200FirefliesJapan.jpg)|
 202607032200|KaysersbergVillage|Kaysersberg, Alsace (© Federica Gentile/Getty Images)|Faire un Tour au village|![](/fr-FR/2026/07/202607032200KaysersbergVillage.jpg)|
+202607042200|LavenderRows|Champs de lavande, Plateau de Valensole, Provence (© Robert Harding/Shutterstock)|Les mers pourpres|![](/fr-FR/2026/07/202607042200LavenderRows.jpg)|
