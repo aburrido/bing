@@ -4,3 +4,4 @@
 202607011500|TempleEsna|クヌム神に捧げられたエスナ神殿の天井, エジプト (© Nick Brundle Photography/Getty Images)|古代神殿の壮麗な内部空間|![](/ja-JP/2026/07/202607011500TempleEsna.jpg)|
 202607021500|BoneyardBeach|ボニーヤード・ビーチ, 米国 サウスカロライナ州 (© Frances/Adobe Stock)|夕焼けに染まる水辺と枯れ木|![](/ja-JP/2026/07/202607021500BoneyardBeach.jpg)|
 202607031500|MountainToucanOrchids|イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)|枝に止まるユニークなオオハシ|![](/ja-JP/2026/07/202607031500MountainToucanOrchids.jpg)|
+202607041500|LavenderRows|ヴァランソール高原, フランス (© Robert Harding/Shutterstock)|一面に広がる紫色のラベンダー畑|![](/ja-JP/2026/07/202607041500LavenderRows.jpg)|
