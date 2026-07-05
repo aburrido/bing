@@ -5,3 +5,4 @@
 202607020700|TempleEsna|Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)|Inside Esna's sacred universe|![](/en-US/2026/07/202607020700TempleEsna.jpg)|
 202607030700|FirefliesJapan|Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)|The poetry of vanishing light|![](/en-US/2026/07/202607030700FirefliesJapan.jpg)|
 202607040700|LibertyHall|Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)|The story continues|![](/en-US/2026/07/202607040700LibertyHall.jpg)|
+202607050700|LavenderRows|Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Sea of purple|![](/en-US/2026/07/202607050700LavenderRows.jpg)|
