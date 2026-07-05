@@ -5,3 +5,4 @@
 202607022200|FirefliesJapan|Lucioles scintillant au-dessus d'un ruisseau, Okayama, Japon (© tdub303/Getty Images)|La féerie des lucioles|![](/fr-FR/2026/07/202607022200FirefliesJapan.jpg)|
 202607032200|KaysersbergVillage|Kaysersberg, Alsace (© Federica Gentile/Getty Images)|Faire un Tour au village|![](/fr-FR/2026/07/202607032200KaysersbergVillage.jpg)|
 202607042200|LavenderRows|Champs de lavande, Plateau de Valensole, Provence (© Robert Harding/Shutterstock)|Les mers pourpres|![](/fr-FR/2026/07/202607042200LavenderRows.jpg)|
+202607052200|SyracuseItaly|Syracuse au coucher du soleil, Sicile, Italie (© Balate Dorin/Getty Images)|Des siècles d’Histoire|![](/fr-FR/2026/07/202607052200SyracuseItaly.jpg)|
