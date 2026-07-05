@@ -5,3 +5,4 @@
 202607021500|BoneyardBeach|ボニーヤード・ビーチ, 米国 サウスカロライナ州 (© Frances/Adobe Stock)|夕焼けに染まる水辺と枯れ木|![](/ja-JP/2026/07/202607021500BoneyardBeach.jpg)|
 202607031500|MountainToucanOrchids|イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)|枝に止まるユニークなオオハシ|![](/ja-JP/2026/07/202607031500MountainToucanOrchids.jpg)|
 202607041500|LavenderRows|ヴァランソール高原, フランス (© Robert Harding/Shutterstock)|一面に広がる紫色のラベンダー畑|![](/ja-JP/2026/07/202607041500LavenderRows.jpg)|
+202607051500|SyracuseItaly|シラクサ, イタリア (© Balate Dorin/Getty Images)|夕焼けに染まる海に突き出た石造要塞|![](/ja-JP/2026/07/202607051500SyracuseItaly.jpg)|
