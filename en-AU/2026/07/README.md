@@ -6,3 +6,4 @@
 202607030700|FirefliesJapan|Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)|Info|![](/en-AU/2026/07/202607030700FirefliesJapan.jpg)|
 202607040700|KaysersbergVillage|Kaysersberg, Alsace, France (© Federica Gentile/Getty Images)|Info|![](/en-AU/2026/07/202607040700KaysersbergVillage.jpg)|
 202607050700|LavenderRows|Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Info|![](/en-AU/2026/07/202607050700LavenderRows.jpg)|
+202607060700|SyracuseItaly|Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)|Info|![](/en-AU/2026/07/202607060700SyracuseItaly.jpg)|
