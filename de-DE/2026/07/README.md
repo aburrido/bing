@@ -6,3 +6,4 @@
 202607032200|KaysersbergVillage|Kaysersberg, Elsass, Frankreich (© Federica Gentile/Getty Images)|Im Herzen des Elsass|![](/de-DE/2026/07/202607032200KaysersbergVillage.jpg)|
 202607042200|LavenderRows|Lavendelfelder, Plateau de Valensole, Provence, Frankreich (© Robert Harding/Shutterstock)|Ein Meer aus Lila|![](/de-DE/2026/07/202607042200LavenderRows.jpg)|
 202607052200|SyracuseItaly|Syrakus bei Sonnenuntergang, Sizilien, Italien (© Balate Dorin/Getty Images)|Im Licht der Jahrhunderte|![](/de-DE/2026/07/202607052200SyracuseItaly.jpg)|
+202607062200|MountainToucanOrchids|Leistenschnabeltukan mit Orchideen, Ecuador (© Murray Cooper/Minden Pictures)|Farbenpracht im Blätterdach|![](/de-DE/2026/07/202607062200MountainToucanOrchids.jpg)|
