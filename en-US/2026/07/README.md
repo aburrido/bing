@@ -7,3 +7,4 @@
 202607040700|LibertyHall|Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)|The story continues|![](/en-US/2026/07/202607040700LibertyHall.jpg)|
 202607050700|LavenderRows|Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Sea of purple|![](/en-US/2026/07/202607050700LavenderRows.jpg)|
 202607060700|SyracuseItaly|Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)|A city written in centuries|![](/en-US/2026/07/202607060700SyracuseItaly.jpg)|
+202607070700|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Color, craft, and canopy life|![](/en-US/2026/07/202607070700MountainToucanOrchids.jpg)|

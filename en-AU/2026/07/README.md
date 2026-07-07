@@ -7,3 +7,4 @@
 202607040700|KaysersbergVillage|Kaysersberg, Alsace, France (© Federica Gentile/Getty Images)|Info|![](/en-AU/2026/07/202607040700KaysersbergVillage.jpg)|
 202607050700|LavenderRows|Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Info|![](/en-AU/2026/07/202607050700LavenderRows.jpg)|
 202607060700|SyracuseItaly|Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)|Info|![](/en-AU/2026/07/202607060700SyracuseItaly.jpg)|
+202607070700|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Info|![](/en-AU/2026/07/202607070700MountainToucanOrchids.jpg)|
