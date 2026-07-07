@@ -7,3 +7,4 @@
 202607041500|LavenderRows|ヴァランソール高原, フランス (© Robert Harding/Shutterstock)|一面に広がる紫色のラベンダー畑|![](/ja-JP/2026/07/202607041500LavenderRows.jpg)|
 202607051500|SyracuseItaly|シラクサ, イタリア (© Balate Dorin/Getty Images)|夕焼けに染まる海に突き出た石造要塞|![](/ja-JP/2026/07/202607051500SyracuseItaly.jpg)|
 202607061500|Tanabata2026|七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)|七夕の伝統行事|![](/ja-JP/2026/07/202607061500Tanabata2026.jpg)|
+202607071500|LakeAtitlan|アティトラン湖, グアテマラ (© shayes17/Getty Images)|静けさにしずむ湖|![](/ja-JP/2026/07/202607071500LakeAtitlan.jpg)|

@@ -7,3 +7,4 @@
 202607041600|LavenderRows|瓦朗索勒高原的薰衣草行，普罗旺斯，法国 (© Robert Harding/Shutterstock)|紫色花海|![](/zh-CN/2026/07/202607041600LavenderRows.jpg)|
 202607051600|SyracuseItaly|锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)|百代镌刻之城|![](/zh-CN/2026/07/202607051600SyracuseItaly.jpg)|
 202607061600|MountainToucanOrchids|板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)|林冠华彩|![](/zh-CN/2026/07/202607061600MountainToucanOrchids.jpg)|
+202607071600|LakeAtitlan|阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)|远古火山的回响|![](/zh-CN/2026/07/202607071600LakeAtitlan.jpg)|
