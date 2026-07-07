@@ -6,3 +6,4 @@
 202607040400|KaysersbergVillage|Kaysersberg, Alsace, France (© Federica Gentile/Getty Images)|Faire un Tour au village|![](/fr-CA/2026/07/202607040400KaysersbergVillage.jpg)|
 202607050400|LavenderRows|Champs de lavande, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Les mers pourpres|![](/fr-CA/2026/07/202607050400LavenderRows.jpg)|
 202607060400|SyracuseItaly|Syracuse au coucher du soleil, Sicile, Italie (© Balate Dorin/Getty Images)|Des siècles d’Histoire|![](/fr-CA/2026/07/202607060400SyracuseItaly.jpg)|
+202607070400|MountainToucanOrchids|Toucan montagnard à bec plat avec des orchidées, Équateur (© Murray Cooper/Minden Pictures)|Un bec pas si plat|![](/fr-CA/2026/07/202607070400MountainToucanOrchids.jpg)|
