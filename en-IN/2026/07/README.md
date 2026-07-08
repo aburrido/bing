@@ -8,3 +8,4 @@
 202607051830|SyracuseItaly|Syracuse, Sicily, Italy (© Balate Dorin/Getty Images)|A city written in centuries|![](/en-IN/2026/07/202607051830SyracuseItaly.jpg)|
 202607061830|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Colour, craft and canopy life|![](/en-IN/2026/07/202607061830MountainToucanOrchids.jpg)|
 202607071830|LakeAtitlan|Lake Atitlán, Guatemala (© shayes17/Getty Images)|Echoes of a volcanic past|![](/en-IN/2026/07/202607071830LakeAtitlan.jpg)|
+202607081830|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition in every step|![](/en-IN/2026/07/202607081830SapaVietnam.jpg)|
