@@ -8,3 +8,4 @@
 202607050700|LavenderRows|Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Sea of purple|![](/en-US/2026/07/202607050700LavenderRows.jpg)|
 202607060700|SyracuseItaly|Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)|A city written in centuries|![](/en-US/2026/07/202607060700SyracuseItaly.jpg)|
 202607070700|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Color, craft, and canopy life|![](/en-US/2026/07/202607070700MountainToucanOrchids.jpg)|
+202607080700|LakeAtitlan|Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)|Echoes of a volcanic past|![](/en-US/2026/07/202607080700LakeAtitlan.jpg)|
