@@ -8,3 +8,4 @@
 202607051600|SyracuseItaly|锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)|百代镌刻之城|![](/zh-CN/2026/07/202607051600SyracuseItaly.jpg)|
 202607061600|MountainToucanOrchids|板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)|林冠华彩|![](/zh-CN/2026/07/202607061600MountainToucanOrchids.jpg)|
 202607071600|LakeAtitlan|阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)|远古火山的回响|![](/zh-CN/2026/07/202607071600LakeAtitlan.jpg)|
+202607081600|SapaVietnam|在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)|步步传承|![](/zh-CN/2026/07/202607081600SapaVietnam.jpg)|
