@@ -7,3 +7,4 @@
 202607050400|LavenderRows|Champs de lavande, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)|Les mers pourpres|![](/fr-CA/2026/07/202607050400LavenderRows.jpg)|
 202607060400|SyracuseItaly|Syracuse au coucher du soleil, Sicile, Italie (© Balate Dorin/Getty Images)|Des siècles d’Histoire|![](/fr-CA/2026/07/202607060400SyracuseItaly.jpg)|
 202607070400|MountainToucanOrchids|Toucan montagnard à bec plat avec des orchidées, Équateur (© Murray Cooper/Minden Pictures)|Un bec pas si plat|![](/fr-CA/2026/07/202607070400MountainToucanOrchids.jpg)|
+202607080400|LakeAtitlan|Lever du soleil sur le lac Atitlán, Guatemala (© shayes17/Getty Images)|Échos d'un passé volcanique|![](/fr-CA/2026/07/202607080400LakeAtitlan.jpg)|
