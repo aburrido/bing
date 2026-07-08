@@ -8,3 +8,4 @@
 202607052200|SyracuseItaly|Syracuse au coucher du soleil, Sicile, Italie (© Balate Dorin/Getty Images)|Des siècles d’Histoire|![](/fr-FR/2026/07/202607052200SyracuseItaly.jpg)|
 202607062200|MountainToucanOrchids|Toucan montagnard à bec plat avec des orchidées, Équateur (© Murray Cooper/Minden Pictures)|Un bec pas si plat|![](/fr-FR/2026/07/202607062200MountainToucanOrchids.jpg)|
 202607072200|LakeAtitlan|Lever du soleil sur le lac Atitlán, Guatemala (© shayes17/Getty Images)|Échos d'un passé volcanique|![](/fr-FR/2026/07/202607072200LakeAtitlan.jpg)|
+202607082200|SapaVietnam|Champs de riz à Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Une autre montée des marches|![](/fr-FR/2026/07/202607082200SapaVietnam.jpg)|
