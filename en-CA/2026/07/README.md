@@ -8,3 +8,4 @@
 202607060400|SyracuseItaly|Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)|A city written in centuries|![](/en-CA/2026/07/202607060400SyracuseItaly.jpg)|
 202607070400|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Colour, craft and canopy life|![](/en-CA/2026/07/202607070400MountainToucanOrchids.jpg)|
 202607080400|LakeAtitlan|Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)|Echoes of a volcanic past|![](/en-CA/2026/07/202607080400LakeAtitlan.jpg)|
+202607090400|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition in every step|![](/en-CA/2026/07/202607090400SapaVietnam.jpg)|
