@@ -9,3 +9,4 @@
 202607061830|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Colour, craft and canopy life|![](/en-IN/2026/07/202607061830MountainToucanOrchids.jpg)|
 202607071830|LakeAtitlan|Lake Atitlán, Guatemala (© shayes17/Getty Images)|Echoes of a volcanic past|![](/en-IN/2026/07/202607071830LakeAtitlan.jpg)|
 202607081830|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition in every step|![](/en-IN/2026/07/202607081830SapaVietnam.jpg)|
+202607091830|VictoriaBeach|Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)|The land of moving shorelines|![](/en-IN/2026/07/202607091830VictoriaBeach.jpg)|
