@@ -9,3 +9,4 @@
 202607062200|MountainToucanOrchids|Leistenschnabeltukan mit Orchideen, Ecuador (© Murray Cooper/Minden Pictures)|Farbenpracht im Blätterdach|![](/de-DE/2026/07/202607062200MountainToucanOrchids.jpg)|
 202607072200|LakeAtitlan|Sonnenaufgang am Atitlán-See, Guatemala (© shayes17/Getty Images)|Echos einer vulkanischen Vergangenheit|![](/de-DE/2026/07/202607072200LakeAtitlan.jpg)|
 202607082200|SapaVietnam|Reisfelder in Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition auf Schritt und Tritt|![](/de-DE/2026/07/202607082200SapaVietnam.jpg)|
+202607092200|VictoriaBeach|Luftaufnahme von Land und Meer, Victoria, Australien (© Nearmap/Getty Images)|Zwischen zwei Welten|![](/de-DE/2026/07/202607092200VictoriaBeach.jpg)|
