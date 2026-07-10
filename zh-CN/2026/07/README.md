@@ -10,3 +10,4 @@
 202607071600|LakeAtitlan|阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)|远古火山的回响|![](/zh-CN/2026/07/202607071600LakeAtitlan.jpg)|
 202607081600|SapaVietnam|在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)|步步传承|![](/zh-CN/2026/07/202607081600SapaVietnam.jpg)|
 202607091600|VictoriaBeach|陆地与海洋的鸟瞰图，维多利亚州，澳大利亚 (© Nearmap/Getty Images)|陆地与海洋的鸟瞰图|![](/zh-CN/2026/07/202607091600VictoriaBeach.jpg)|
+202607101600|AurayBrittany|圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)|布列塔尼的潮汐之约|![](/zh-CN/2026/07/202607101600AurayBrittany.jpg)|
