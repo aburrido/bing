@@ -9,3 +9,4 @@
 202607070400|MountainToucanOrchids|Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)|Colour, craft and canopy life|![](/en-CA/2026/07/202607070400MountainToucanOrchids.jpg)|
 202607080400|LakeAtitlan|Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)|Echoes of a volcanic past|![](/en-CA/2026/07/202607080400LakeAtitlan.jpg)|
 202607090400|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition in every step|![](/en-CA/2026/07/202607090400SapaVietnam.jpg)|
+202607100400|SummerBC|Pink wildflowers by Emerald Lake in summer, Yoho National Park, British Columbia (© Olga Matveeva/Getty Images)|Nature's summer showcase|![](/en-CA/2026/07/202607100400SummerBC.jpg)|
