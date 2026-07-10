@@ -10,3 +10,4 @@
 202607071500|LakeAtitlan|アティトラン湖, グアテマラ (© shayes17/Getty Images)|静けさにしずむ湖|![](/ja-JP/2026/07/202607071500LakeAtitlan.jpg)|
 202607081500|SapaVietnam|サパの棚田, ベトナム (© Anujak Jaimook/Getty Images)|光差す山岳地帯の棚田|![](/ja-JP/2026/07/202607081500SapaVietnam.jpg)|
 202607091500|VictoriaBeach|ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)|浜辺に打ち寄せる波|![](/ja-JP/2026/07/202607091500VictoriaBeach.jpg)|
+202607101500|AurayBrittany|サン＝グスタン港, フランス (© Rolf E. Staerk/Shutterstock)|港に停泊する観光船|![](/ja-JP/2026/07/202607101500AurayBrittany.jpg)|
