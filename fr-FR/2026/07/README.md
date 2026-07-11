@@ -11,3 +11,4 @@
 202607082200|SapaVietnam|Champs de riz à Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Une autre montée des marches|![](/fr-FR/2026/07/202607082200SapaVietnam.jpg)|
 202607092200|VictoriaBeach|Vue aérienne des terres et de l'océan, Victoria, Australie (© Nearmap/Getty Images)|Le pays des rivages mouvants|![](/fr-FR/2026/07/202607092200VictoriaBeach.jpg)|
 202607102200|AurayBrittany|Port de Saint-Goustan, Auray, Bretagne (© Rolf E. Staerk/Shutterstock)|Niché au creux du Loc’h|![](/fr-FR/2026/07/202607102200AurayBrittany.jpg)|
+202607112200|KatahdinWWNM|Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)|Le côté sauvage du Maine|![](/fr-FR/2026/07/202607112200KatahdinWWNM.jpg)|
