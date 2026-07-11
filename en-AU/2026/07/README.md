@@ -11,3 +11,4 @@
 202607080700|LakeAtitlan|Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)|Info|![](/en-AU/2026/07/202607080700LakeAtitlan.jpg)|
 202607090700|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Info|![](/en-AU/2026/07/202607090700SapaVietnam.jpg)|
 202607100700|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Info|![](/en-AU/2026/07/202607100700LemonShark.jpg)|
+202607110700|CoralAwareness|Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)|Info|![](/en-AU/2026/07/202607110700CoralAwareness.jpg)|

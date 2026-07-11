@@ -11,3 +11,4 @@
 202607080700|LakeAtitlan|Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)|Echoes of a volcanic past|![](/en-US/2026/07/202607080700LakeAtitlan.jpg)|
 202607090700|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition in every step|![](/en-US/2026/07/202607090700SapaVietnam.jpg)|
 202607100700|VictoriaBeach|Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)|The land of moving shorelines|![](/en-US/2026/07/202607100700VictoriaBeach.jpg)|
+202607110700|AurayBrittany|Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)|Where Brittany meets the tide|![](/en-US/2026/07/202607110700AurayBrittany.jpg)|
