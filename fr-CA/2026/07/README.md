@@ -10,3 +10,4 @@
 202607080400|LakeAtitlan|Lever du soleil sur le lac Atitlán, Guatemala (© shayes17/Getty Images)|Échos d'un passé volcanique|![](/fr-CA/2026/07/202607080400LakeAtitlan.jpg)|
 202607090400|SapaVietnam|Champs de riz à Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Une autre montée des marches|![](/fr-CA/2026/07/202607090400SapaVietnam.jpg)|
 202607100400|SummerBC|Fleurs sauvages au bord du lac Emerald en été, Parc national Yoho, Colombie-Britannique (© Olga Matveeva/Getty Images)|Le spectacle estival de la nature|![](/fr-CA/2026/07/202607100400SummerBC.jpg)|
+202607110400|AurayBrittany|Port de Saint-Goustan, Auray, Bretagne, France (© Rolf E. Staerk/Shutterstock)|Niché au creux du Loc’h|![](/fr-CA/2026/07/202607110400AurayBrittany.jpg)|
