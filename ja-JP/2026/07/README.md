@@ -12,3 +12,4 @@
 202607091500|VictoriaBeach|ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)|浜辺に打ち寄せる波|![](/ja-JP/2026/07/202607091500VictoriaBeach.jpg)|
 202607101500|AurayBrittany|サン＝グスタン港, フランス (© Rolf E. Staerk/Shutterstock)|港に停泊する観光船|![](/ja-JP/2026/07/202607101500AurayBrittany.jpg)|
 202607111500|KatahdinWWNM|カタディン・ウッズ・アンド・ウォーターズ国定記念物, 米国 メイン州 (© Cavan Images/Offset/Shutterstock)|静かな池に映る鬱蒼とした森|![](/ja-JP/2026/07/202607111500KatahdinWWNM.jpg)|
+202607121500|NavajoSandstone|アンテロープ・キャニオン, 米国 アリゾナ州 (© Mark Skalny/Getty Images)|今日は国際岩の日|![](/ja-JP/2026/07/202607121500NavajoSandstone.jpg)|
