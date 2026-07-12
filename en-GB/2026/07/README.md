@@ -12,3 +12,4 @@
 202607092300|LlanthonyPriory2026|Llanthony Priory, Black Mountains area, Monmouthshire, Wales (© Chris Griffiths/Moment/Getty Images)|A valley of ruins and legends|![](/en-GB/2026/07/202607092300LlanthonyPriory2026.jpg)|
 202607102300|AurayBrittany|Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)|Just across the channel: Port de Saint-Goustan|![](/en-GB/2026/07/202607102300AurayBrittany.jpg)|
 202607112300|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine, United States (© Cavan Images/Offset/Shutterstock)|A wilder side of Maine|![](/en-GB/2026/07/202607112300KatahdinWWNM.jpg)|
+202607122300|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)|Born to rock|![](/en-GB/2026/07/202607122300NavajoSandstone.jpg)|
