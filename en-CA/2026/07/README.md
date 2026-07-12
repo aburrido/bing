@@ -11,3 +11,4 @@
 202607090400|SapaVietnam|Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)|Tradition in every step|![](/en-CA/2026/07/202607090400SapaVietnam.jpg)|
 202607100400|SummerBC|Pink wildflowers by Emerald Lake in summer, Yoho National Park, British Columbia (© Olga Matveeva/Getty Images)|Nature's summer showcase|![](/en-CA/2026/07/202607100400SummerBC.jpg)|
 202607110400|BoneyardBeach|Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)|The trees that lost ground|![](/en-CA/2026/07/202607110400BoneyardBeach.jpg)|
+202607120400|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine, United States (© Cavan Images/Offset/Shutterstock)|A wilder side of Maine|![](/en-CA/2026/07/202607120400KatahdinWWNM.jpg)|
