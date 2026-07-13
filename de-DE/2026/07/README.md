@@ -13,3 +13,4 @@
 202607102200|AurayBrittany|Hafen von Saint-Goustan, Auray, Bretagne, Frankreich (© Rolf E. Staerk/Shutterstock)|Wo die Bretagne auf die Gezeiten trifft|![](/de-DE/2026/07/202607102200AurayBrittany.jpg)|
 202607112200|KatahdinWWNM|Katahdin Woods and Waters National Monument in Maine, USA (© Cavan Images/Offset/Shutterstock)|Maine von seiner wilden Seite|![](/de-DE/2026/07/202607112200KatahdinWWNM.jpg)|
 202607122200|MunichTwilight|München mit der Frauenkirche vor den Alpen, Bayern (© MarcelStrelow/Getty Images)|Im Festspielglanz|![](/de-DE/2026/07/202607122200MunichTwilight.jpg)|
+202607132200|LemonShark|Zitronenhai-Jungtier im Mangrovenwald, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Könige der Meere|![](/de-DE/2026/07/202607132200LemonShark.jpg)|

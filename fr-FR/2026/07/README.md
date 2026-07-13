@@ -13,3 +13,4 @@
 202607102200|AurayBrittany|Port de Saint-Goustan, Auray, Bretagne (© Rolf E. Staerk/Shutterstock)|Niché au creux du Loc’h|![](/fr-FR/2026/07/202607102200AurayBrittany.jpg)|
 202607112200|KatahdinWWNM|Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)|Le côté sauvage du Maine|![](/fr-FR/2026/07/202607112200KatahdinWWNM.jpg)|
 202607122200|NavajoSandstone|Antelope Canyon, territoire Navajo, Arizona, États-Unis (© Mark Skalny/Getty Images)|Ondes minérales|![](/fr-FR/2026/07/202607122200NavajoSandstone.jpg)|
+202607132200|BastilleSacreCoeur|Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)|Allons, enfants sur le parvis|![](/fr-FR/2026/07/202607132200BastilleSacreCoeur.jpg)|
