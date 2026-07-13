@@ -12,3 +12,4 @@
 202607100400|SummerBC|Fleurs sauvages au bord du lac Emerald en été, Parc national Yoho, Colombie-Britannique (© Olga Matveeva/Getty Images)|Le spectacle estival de la nature|![](/fr-CA/2026/07/202607100400SummerBC.jpg)|
 202607110400|AurayBrittany|Port de Saint-Goustan, Auray, Bretagne, France (© Rolf E. Staerk/Shutterstock)|Niché au creux du Loc’h|![](/fr-CA/2026/07/202607110400AurayBrittany.jpg)|
 202607120400|VictoriaBeach|Vue aérienne des terres et de l'océan, Victoria, Australie (© Nearmap/Getty Images)|Le pays des rivages mouvants|![](/fr-CA/2026/07/202607120400VictoriaBeach.jpg)|
+202607130400|NavajoSandstone|Antelope Canyon, territoire Navajo, Arizona, États-Unis (© Mark Skalny/Getty Images)|Ondes minérales|![](/fr-CA/2026/07/202607130400NavajoSandstone.jpg)|
