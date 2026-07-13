@@ -13,3 +13,4 @@
 202607101830|AurayBrittany|Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)|Where Brittany meets the tide|![](/en-IN/2026/07/202607101830AurayBrittany.jpg)|
 202607111830|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine, United States (© Cavan Images/Offset/Shutterstock)|Where the forest swallows sound|![](/en-IN/2026/07/202607111830KatahdinWWNM.jpg)|
 202607121830|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)|Born to rock|![](/en-IN/2026/07/202607121830NavajoSandstone.jpg)|
+202607131830|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Fin-tastic truths|![](/en-IN/2026/07/202607131830LemonShark.jpg)|
