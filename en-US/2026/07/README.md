@@ -13,3 +13,4 @@
 202607100700|VictoriaBeach|Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)|The land of moving shorelines|![](/en-US/2026/07/202607100700VictoriaBeach.jpg)|
 202607110700|AurayBrittany|Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)|Where Brittany meets the tide|![](/en-US/2026/07/202607110700AurayBrittany.jpg)|
 202607120700|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)|A wilder side of Maine|![](/en-US/2026/07/202607120700KatahdinWWNM.jpg)|
+202607130700|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)|Born to rock|![](/en-US/2026/07/202607130700NavajoSandstone.jpg)|

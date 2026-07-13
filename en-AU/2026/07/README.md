@@ -13,3 +13,4 @@
 202607100700|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Info|![](/en-AU/2026/07/202607100700LemonShark.jpg)|
 202607110700|CoralAwareness|Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)|Info|![](/en-AU/2026/07/202607110700CoralAwareness.jpg)|
 202607120700|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine, United States (© Cavan Images/Offset/Shutterstock)|Info|![](/en-AU/2026/07/202607120700KatahdinWWNM.jpg)|
+202607130700|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)|Info|![](/en-AU/2026/07/202607130700NavajoSandstone.jpg)|
