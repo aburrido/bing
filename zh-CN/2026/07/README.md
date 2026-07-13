@@ -13,3 +13,4 @@
 202607101600|AurayBrittany|圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)|布列塔尼的潮汐之约|![](/zh-CN/2026/07/202607101600AurayBrittany.jpg)|
 202607111600|KatahdinWWNM|卡塔丁森林和水域国家纪念地，缅因州，美国 (© Cavan Images/Offset/Shutterstock)|缅因州的狂野一面|![](/zh-CN/2026/07/202607111600KatahdinWWNM.jpg)|
 202607121600|NavajoSandstone|羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)|为摇滚而生|![](/zh-CN/2026/07/202607121600NavajoSandstone.jpg)|
+202607131600|LemonShark|柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马 (© Shane Gross/Nature Picture Library)|奇妙的真相|![](/zh-CN/2026/07/202607131600LemonShark.jpg)|
