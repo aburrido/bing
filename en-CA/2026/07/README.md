@@ -13,3 +13,4 @@
 202607110400|BoneyardBeach|Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)|The trees that lost ground|![](/en-CA/2026/07/202607110400BoneyardBeach.jpg)|
 202607120400|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine, United States (© Cavan Images/Offset/Shutterstock)|A wilder side of Maine|![](/en-CA/2026/07/202607120400KatahdinWWNM.jpg)|
 202607130400|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)|Born to rock|![](/en-CA/2026/07/202607130400NavajoSandstone.jpg)|
+202607140400|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Fin-tastic truths|![](/en-CA/2026/07/202607140400LemonShark.jpg)|
