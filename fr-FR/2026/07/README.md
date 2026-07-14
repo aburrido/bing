@@ -14,3 +14,4 @@
 202607112200|KatahdinWWNM|Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)|Le côté sauvage du Maine|![](/fr-FR/2026/07/202607112200KatahdinWWNM.jpg)|
 202607122200|NavajoSandstone|Antelope Canyon, territoire Navajo, Arizona, États-Unis (© Mark Skalny/Getty Images)|Ondes minérales|![](/fr-FR/2026/07/202607122200NavajoSandstone.jpg)|
 202607132200|BastilleSacreCoeur|Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)|Allons, enfants sur le parvis|![](/fr-FR/2026/07/202607132200BastilleSacreCoeur.jpg)|
+202607142200|LemonShark|Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Des racines et des zestes|![](/fr-FR/2026/07/202607142200LemonShark.jpg)|
