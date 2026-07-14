@@ -14,3 +14,4 @@
 202607111500|KatahdinWWNM|カタディン・ウッズ・アンド・ウォーターズ国定記念物, 米国 メイン州 (© Cavan Images/Offset/Shutterstock)|静かな池に映る鬱蒼とした森|![](/ja-JP/2026/07/202607111500KatahdinWWNM.jpg)|
 202607121500|NavajoSandstone|アンテロープ・キャニオン, 米国 アリゾナ州 (© Mark Skalny/Getty Images)|今日は国際岩の日|![](/ja-JP/2026/07/202607121500NavajoSandstone.jpg)|
 202607131500|LemonShark|レモンザメの幼魚, バハマ (© Shane Gross/Nature Picture Library)|今日はサメ啓発の日|![](/ja-JP/2026/07/202607131500LemonShark.jpg)|
+202607141500|MarieLake|マリー・レイク, 米国 カリフォルニア州 (© Steve Dunleavy/Getty Images)|山々に囲まれた湖|![](/ja-JP/2026/07/202607141500MarieLake.jpg)|
