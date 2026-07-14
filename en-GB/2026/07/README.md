@@ -14,3 +14,4 @@
 202607112300|KatahdinWWNM|Katahdin Woods and Waters National Monument, Maine, United States (© Cavan Images/Offset/Shutterstock)|A wilder side of Maine|![](/en-GB/2026/07/202607112300KatahdinWWNM.jpg)|
 202607122300|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)|Born to rock|![](/en-GB/2026/07/202607122300NavajoSandstone.jpg)|
 202607132300|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Fin-tastic truths|![](/en-GB/2026/07/202607132300LemonShark.jpg)|
+202607142300|MarieLake|Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)|The reward after the climb|![](/en-GB/2026/07/202607142300MarieLake.jpg)|
