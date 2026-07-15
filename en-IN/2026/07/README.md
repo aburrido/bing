@@ -15,3 +15,4 @@
 202607121830|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona, United States (© Mark Skalny/Getty Images)|Born to rock|![](/en-IN/2026/07/202607121830NavajoSandstone.jpg)|
 202607131830|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Fin-tastic truths|![](/en-IN/2026/07/202607131830LemonShark.jpg)|
 202607141830|MarieLake|Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)|The reward after the climb|![](/en-IN/2026/07/202607141830MarieLake.jpg)|
+202607151830|RathYatra2026|The Stone Chariot, Hampi, Karnataka (© Alan_Lagadu/iStock/Getty Images)|The wheels of tradition|![](/en-IN/2026/07/202607151830RathYatra2026.jpg)|
