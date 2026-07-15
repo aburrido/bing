@@ -15,3 +15,4 @@
 202607122200|MunichTwilight|München mit der Frauenkirche vor den Alpen, Bayern (© MarcelStrelow/Getty Images)|Im Festspielglanz|![](/de-DE/2026/07/202607122200MunichTwilight.jpg)|
 202607132200|LemonShark|Zitronenhai-Jungtier im Mangrovenwald, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Könige der Meere|![](/de-DE/2026/07/202607132200LemonShark.jpg)|
 202607142200|MarieLake|Marie Lake, John Muir Wilderness, nahe Bishop, Kalifornien, USA (© Steve Dunleavy/Getty Images)|Die Belohnung nach der Wanderung|![](/de-DE/2026/07/202607142200MarieLake.jpg)|
+202607152200|NavyPier|Navy Pier in Chicago, Illinois, USA (© Christopher.F Photography/Getty Images)|Ein Wahrzeichen Chicagos|![](/de-DE/2026/07/202607152200NavyPier.jpg)|
