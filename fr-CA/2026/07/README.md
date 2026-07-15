@@ -14,3 +14,4 @@
 202607120400|VictoriaBeach|Vue aérienne des terres et de l'océan, Victoria, Australie (© Nearmap/Getty Images)|Le pays des rivages mouvants|![](/fr-CA/2026/07/202607120400VictoriaBeach.jpg)|
 202607130400|NavajoSandstone|Antelope Canyon, territoire Navajo, Arizona, États-Unis (© Mark Skalny/Getty Images)|Ondes minérales|![](/fr-CA/2026/07/202607130400NavajoSandstone.jpg)|
 202607140400|LemonShark|Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Des racines et des zestes|![](/fr-CA/2026/07/202607140400LemonShark.jpg)|
+202607150400|KatahdinWWNM|Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)|Le côté sauvage du Maine|![](/fr-CA/2026/07/202607150400KatahdinWWNM.jpg)|
