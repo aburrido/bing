@@ -15,3 +15,4 @@
 202607121600|NavajoSandstone|羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)|为摇滚而生|![](/zh-CN/2026/07/202607121600NavajoSandstone.jpg)|
 202607131600|LemonShark|柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马 (© Shane Gross/Nature Picture Library)|奇妙的真相|![](/zh-CN/2026/07/202607131600LemonShark.jpg)|
 202607141600|MarieLake|玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)|攀登后的奖励|![](/zh-CN/2026/07/202607141600MarieLake.jpg)|
+202607151600|NavyPier|海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)|滨水变色龙|![](/zh-CN/2026/07/202607151600NavyPier.jpg)|
