@@ -15,3 +15,4 @@
 202607121500|NavajoSandstone|アンテロープ・キャニオン, 米国 アリゾナ州 (© Mark Skalny/Getty Images)|今日は国際岩の日|![](/ja-JP/2026/07/202607121500NavajoSandstone.jpg)|
 202607131500|LemonShark|レモンザメの幼魚, バハマ (© Shane Gross/Nature Picture Library)|今日はサメ啓発の日|![](/ja-JP/2026/07/202607131500LemonShark.jpg)|
 202607141500|MarieLake|マリー・レイク, 米国 カリフォルニア州 (© Steve Dunleavy/Getty Images)|山々に囲まれた湖|![](/ja-JP/2026/07/202607141500MarieLake.jpg)|
+202607151500|NavyPier|ネイビー・ピア, 米国イリノイ州 (© Christopher.F Photography/Getty Images)|活気あふれる桟橋の夜景|![](/ja-JP/2026/07/202607151500NavyPier.jpg)|
