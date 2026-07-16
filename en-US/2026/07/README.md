@@ -16,3 +16,4 @@
 202607130700|NavajoSandstone|Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)|Born to rock|![](/en-US/2026/07/202607130700NavajoSandstone.jpg)|
 202607140700|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Fin-tastic truths|![](/en-US/2026/07/202607140700LemonShark.jpg)|
 202607150700|MarieLake|Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)|The reward after the climb|![](/en-US/2026/07/202607150700MarieLake.jpg)|
+202607160700|NavyPier|Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)|A waterfront chameleon|![](/en-US/2026/07/202607160700NavyPier.jpg)|
