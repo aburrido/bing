@@ -16,3 +16,4 @@
 202607132200|BastilleSacreCoeur|Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)|Allons, enfants sur le parvis|![](/fr-FR/2026/07/202607132200BastilleSacreCoeur.jpg)|
 202607142200|LemonShark|Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Des racines et des zestes|![](/fr-FR/2026/07/202607142200LemonShark.jpg)|
 202607152200|DeerGrass|Cerf sika dans l’herbe, parc de Merlet, Haute-Savoie (© porojnicu/Getty Images)|Sieste estivale|![](/fr-FR/2026/07/202607152200DeerGrass.jpg)|
+202607162200|VaiUmbrellas|Chaises longues sur la plage de Vaï, Crète, Grèce (© borchee/Getty Images)|Quand l’évasion rime avec préservation|![](/fr-FR/2026/07/202607162200VaiUmbrellas.jpg)|
