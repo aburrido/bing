@@ -16,3 +16,4 @@
 202607131500|LemonShark|レモンザメの幼魚, バハマ (© Shane Gross/Nature Picture Library)|今日はサメ啓発の日|![](/ja-JP/2026/07/202607131500LemonShark.jpg)|
 202607141500|MarieLake|マリー・レイク, 米国 カリフォルニア州 (© Steve Dunleavy/Getty Images)|山々に囲まれた湖|![](/ja-JP/2026/07/202607141500MarieLake.jpg)|
 202607151500|NavyPier|ネイビー・ピア, 米国イリノイ州 (© Christopher.F Photography/Getty Images)|活気あふれる桟橋の夜景|![](/ja-JP/2026/07/202607151500NavyPier.jpg)|
+202607161500|GionFestival2026|八坂神社の神紋が描かれた提灯, 京都府 京都市 (© Felix Choo/Alamy)|今日は祇園祭、前祭の山鉾巡行|![](/ja-JP/2026/07/202607161500GionFestival2026.jpg)|
