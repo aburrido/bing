@@ -16,3 +16,4 @@
 202607132300|LemonShark|Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Fin-tastic truths|![](/en-GB/2026/07/202607132300LemonShark.jpg)|
 202607142300|MarieLake|Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)|The reward after the climb|![](/en-GB/2026/07/202607142300MarieLake.jpg)|
 202607152300|VictoriaBeach|Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)|The land of moving shorelines|![](/en-GB/2026/07/202607152300VictoriaBeach.jpg)|
+202607162300|VaiUmbrellas|Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)|A Greek escape|![](/en-GB/2026/07/202607162300VaiUmbrellas.jpg)|
