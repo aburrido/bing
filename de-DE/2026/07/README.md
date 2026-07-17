@@ -17,3 +17,4 @@
 202607142200|MarieLake|Marie Lake, John Muir Wilderness, nahe Bishop, Kalifornien, USA (© Steve Dunleavy/Getty Images)|Die Belohnung nach der Wanderung|![](/de-DE/2026/07/202607142200MarieLake.jpg)|
 202607152200|NavyPier|Navy Pier in Chicago, Illinois, USA (© Christopher.F Photography/Getty Images)|Ein Wahrzeichen Chicagos|![](/de-DE/2026/07/202607152200NavyPier.jpg)|
 202607162200|VaiUmbrellas|Liegestühle am Sandstrand von Vai, Kreta, Griechenland (© borchee/Getty Images)|Karibik-Flair im Mittelmeer|![](/de-DE/2026/07/202607162200VaiUmbrellas.jpg)|
+202607172200|DevilsBridge|Rakotzbrücke in Kromlau, Sachsen (© Mike Mareen/Getty Images)|Die perfekte Illusion|![](/de-DE/2026/07/202607172200DevilsBridge.jpg)|
