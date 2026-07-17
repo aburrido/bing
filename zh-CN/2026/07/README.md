@@ -17,3 +17,4 @@
 202607141600|MarieLake|玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)|攀登后的奖励|![](/zh-CN/2026/07/202607141600MarieLake.jpg)|
 202607151600|NavyPier|海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)|滨水变色龙|![](/zh-CN/2026/07/202607151600NavyPier.jpg)|
 202607161600|VaiUmbrellas|瓦伊海滩上的日光浴躺椅，克里特岛，希腊 (© borchee/Getty Images)|希腊式的逃离|![](/zh-CN/2026/07/202607161600VaiUmbrellas.jpg)|
+202607171600|DevilsBridge|恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国 (© Mike Mareen/Getty Images)|环影圆成|![](/zh-CN/2026/07/202607171600DevilsBridge.jpg)|
