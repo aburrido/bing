@@ -17,3 +17,4 @@
 202607141830|MarieLake|Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)|The reward after the climb|![](/en-IN/2026/07/202607141830MarieLake.jpg)|
 202607151830|RathYatra2026|The Stone Chariot, Hampi, Karnataka (© Alan_Lagadu/iStock/Getty Images)|The wheels of tradition|![](/en-IN/2026/07/202607151830RathYatra2026.jpg)|
 202607161830|VaiUmbrellas|Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)|A Greek escape|![](/en-IN/2026/07/202607161830VaiUmbrellas.jpg)|
+202607171830|DevilsBridge|Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)|Going full circle|![](/en-IN/2026/07/202607171830DevilsBridge.jpg)|
