@@ -17,3 +17,4 @@
 202607140700|VictoriaBeach|Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)|Info|![](/en-AU/2026/07/202607140700VictoriaBeach.jpg)|
 202607150700|MarieLake|Marie Lake, John Muir Wilderness near Bishop, California, United States (© Steve Dunleavy/Getty Images)|Info|![](/en-AU/2026/07/202607150700MarieLake.jpg)|
 202607160700|NavyPier|Navy Pier, Chicago, Illinois, United States (© Christopher.F Photography/Getty Images)|Info|![](/en-AU/2026/07/202607160700NavyPier.jpg)|
+202607170700|VaiUmbrellas|Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)|Info|![](/en-AU/2026/07/202607170700VaiUmbrellas.jpg)|
