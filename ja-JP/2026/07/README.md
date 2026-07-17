@@ -17,3 +17,4 @@
 202607141500|MarieLake|マリー・レイク, 米国 カリフォルニア州 (© Steve Dunleavy/Getty Images)|山々に囲まれた湖|![](/ja-JP/2026/07/202607141500MarieLake.jpg)|
 202607151500|NavyPier|ネイビー・ピア, 米国イリノイ州 (© Christopher.F Photography/Getty Images)|活気あふれる桟橋の夜景|![](/ja-JP/2026/07/202607151500NavyPier.jpg)|
 202607161500|GionFestival2026|八坂神社の神紋が描かれた提灯, 京都府 京都市 (© Felix Choo/Alamy)|今日は祇園祭、前祭の山鉾巡行|![](/ja-JP/2026/07/202607161500GionFestival2026.jpg)|
+202607171500|DevilsBridge|ラコツ橋, ドイツ (© Mike Mareen/Getty Images)|水面に映る幻想的な石橋|![](/ja-JP/2026/07/202607171500DevilsBridge.jpg)|
