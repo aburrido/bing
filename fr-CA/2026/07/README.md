@@ -16,3 +16,4 @@
 202607140400|LemonShark|Jeune requin-citron dans la mangrove, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)|Des racines et des zestes|![](/fr-CA/2026/07/202607140400LemonShark.jpg)|
 202607150400|KatahdinWWNM|Monument national des bois et des eaux de Katahdin, Maine, États-Unis (© Cavan Images/Offset/Shutterstock)|Le côté sauvage du Maine|![](/fr-CA/2026/07/202607150400KatahdinWWNM.jpg)|
 202607160400|VaiUmbrellas|Chaises longues sur la plage de Vaï, Crète, Grèce (© borchee/Getty Images)|Quand l’évasion rime avec préservation|![](/fr-CA/2026/07/202607160400VaiUmbrellas.jpg)|
+202607170400|GrainSilosSK|Une tempête se forme au-dessus de silos à grains en Saskatchewan (© mysticenergy/Getty Images)|Les gardiens des récoltes|![](/fr-CA/2026/07/202607170400GrainSilosSK.jpg)|
