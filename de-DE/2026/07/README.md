@@ -18,3 +18,4 @@
 202607152200|NavyPier|Navy Pier in Chicago, Illinois, USA (© Christopher.F Photography/Getty Images)|Ein Wahrzeichen Chicagos|![](/de-DE/2026/07/202607152200NavyPier.jpg)|
 202607162200|VaiUmbrellas|Liegestühle am Sandstrand von Vai, Kreta, Griechenland (© borchee/Getty Images)|Karibik-Flair im Mittelmeer|![](/de-DE/2026/07/202607162200VaiUmbrellas.jpg)|
 202607172200|DevilsBridge|Rakotzbrücke in Kromlau, Sachsen (© Mike Mareen/Getty Images)|Die perfekte Illusion|![](/de-DE/2026/07/202607172200DevilsBridge.jpg)|
+202607182200|HirundoRustica|Rauchschwalben verschiedener Unterarten auf gemeinsamer Rast (© Oscar Dominguez/Tandem Stills + Motion)|Moment der Ruhe|![](/de-DE/2026/07/202607182200HirundoRustica.jpg)|
