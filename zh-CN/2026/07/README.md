@@ -18,3 +18,4 @@
 202607151600|NavyPier|海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)|滨水变色龙|![](/zh-CN/2026/07/202607151600NavyPier.jpg)|
 202607161600|VaiUmbrellas|瓦伊海滩上的日光浴躺椅，克里特岛，希腊 (© borchee/Getty Images)|希腊式的逃离|![](/zh-CN/2026/07/202607161600VaiUmbrellas.jpg)|
 202607171600|DevilsBridge|恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国 (© Mike Mareen/Getty Images)|环影圆成|![](/zh-CN/2026/07/202607171600DevilsBridge.jpg)|
+202607181600|HirundoRustica|不同亚种的家燕聚在一起休息 (© Oscar Dominguez/Tandem Stills + Motion)|敛羽栖时|![](/zh-CN/2026/07/202607181600HirundoRustica.jpg)|
