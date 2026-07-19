@@ -18,3 +18,4 @@
 202607160400|VaiUmbrellas|Chaises longues sur la plage de Vaï, Crète, Grèce (© borchee/Getty Images)|Quand l’évasion rime avec préservation|![](/fr-CA/2026/07/202607160400VaiUmbrellas.jpg)|
 202607170400|GrainSilosSK|Une tempête se forme au-dessus de silos à grains en Saskatchewan (© mysticenergy/Getty Images)|Les gardiens des récoltes|![](/fr-CA/2026/07/202607170400GrainSilosSK.jpg)|
 202607180400|DevilsBridge|Pont du Diable dans le parc aux rhododendrons de Kromlau, en Saxe, Allemagne (© Mike Mareen/Getty Images)|La boucle du temps|![](/fr-CA/2026/07/202607180400DevilsBridge.jpg)|
+202607190400|HirundoRustica|Hirondelles rustiques de différentes sous-espèces se reposant ensemble (© Oscar Dominguez/Tandem Stills + Motion)|Ailes de repos|![](/fr-CA/2026/07/202607190400HirundoRustica.jpg)|

@@ -18,3 +18,4 @@
 202607160400|NavyPier|Navy Pier, Chicago, Illinois, United States (© Christopher.F Photography/Getty Images)|A waterfront chameleon|![](/en-CA/2026/07/202607160400NavyPier.jpg)|
 202607170400|GrainSilosSK|A prairie storm gathers over grain silos in Saskatchewan (© mysticenergy/Getty Images)|The breadbasket of Canada|![](/en-CA/2026/07/202607170400GrainSilosSK.jpg)|
 202607180400|DevilsBridge|Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)|Going full circle|![](/en-CA/2026/07/202607180400DevilsBridge.jpg)|
+202607190400|HirundoRustica|Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)|Wings at rest|![](/en-CA/2026/07/202607190400HirundoRustica.jpg)|
