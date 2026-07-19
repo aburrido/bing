@@ -19,3 +19,4 @@
 202607162300|VaiUmbrellas|Blue sunbeds on a sandy beach in Vai, Crete, Greece (© borchee/Getty Images)|A Greek escape|![](/en-GB/2026/07/202607162300VaiUmbrellas.jpg)|
 202607172300|DevilsBridge|Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)|Going full circle|![](/en-GB/2026/07/202607172300DevilsBridge.jpg)|
 202607182300|HirundoRustica|Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)|Wings at rest|![](/en-GB/2026/07/202607182300HirundoRustica.jpg)|
+202607192300|Artemis|Moon and Earth captured by the Artemis II crew (© NASA)|The lunar perspective|![](/en-GB/2026/07/202607192300Artemis.jpg)|
