@@ -20,3 +20,4 @@
 202607171600|DevilsBridge|恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国 (© Mike Mareen/Getty Images)|环影圆成|![](/zh-CN/2026/07/202607171600DevilsBridge.jpg)|
 202607181600|HirundoRustica|不同亚种的家燕聚在一起休息 (© Oscar Dominguez/Tandem Stills + Motion)|敛羽栖时|![](/zh-CN/2026/07/202607181600HirundoRustica.jpg)|
 202607191600|Artemis|月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)|月瞰寰宇|![](/zh-CN/2026/07/202607191600Artemis.jpg)|
+202607201600|SantaCatalina|圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)|拱影寻踪|![](/zh-CN/2026/07/202607201600SantaCatalina.jpg)|

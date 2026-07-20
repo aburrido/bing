@@ -20,3 +20,4 @@
 202607171500|DevilsBridge|ラコツ橋, ドイツ (© Mike Mareen/Getty Images)|水面に映る幻想的な石橋|![](/ja-JP/2026/07/202607171500DevilsBridge.jpg)|
 202607181500|HirundoRustica|ツバメ (© Oscar Dominguez/Tandem Stills + Motion)|枯れ草にとまる小鳥の群れ|![](/ja-JP/2026/07/202607181500HirundoRustica.jpg)|
 202607191500|Artemis|月から見た地球 (© NASA)|今日は国際月の日|![](/ja-JP/2026/07/202607191500Artemis.jpg)|
+202607201500|Kawagoe2026|川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)|「縁結び風鈴」開催中|![](/ja-JP/2026/07/202607201500Kawagoe2026.jpg)|
