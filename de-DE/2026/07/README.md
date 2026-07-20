@@ -20,3 +20,4 @@
 202607172200|DevilsBridge|Rakotzbrücke in Kromlau, Sachsen (© Mike Mareen/Getty Images)|Die perfekte Illusion|![](/de-DE/2026/07/202607172200DevilsBridge.jpg)|
 202607182200|HirundoRustica|Rauchschwalben verschiedener Unterarten auf gemeinsamer Rast (© Oscar Dominguez/Tandem Stills + Motion)|Moment der Ruhe|![](/de-DE/2026/07/202607182200HirundoRustica.jpg)|
 202607192200|Artemis|Mond und Erde, aufgenommen von der Artemis-II-Crew (© NASA)|Aus der Perspektive des Mondes|![](/de-DE/2026/07/202607192200Artemis.jpg)|
+202607202200|SantaCatalina|Arco de Santa Catalina in Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Offenbar gut verborgen|![](/de-DE/2026/07/202607202200SantaCatalina.jpg)|
