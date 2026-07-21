@@ -20,3 +20,4 @@
 202607180400|DevilsBridge|Pont du Diable dans le parc aux rhododendrons de Kromlau, en Saxe, Allemagne (© Mike Mareen/Getty Images)|La boucle du temps|![](/fr-CA/2026/07/202607180400DevilsBridge.jpg)|
 202607190400|HirundoRustica|Hirondelles rustiques de différentes sous-espèces se reposant ensemble (© Oscar Dominguez/Tandem Stills + Motion)|Ailes de repos|![](/fr-CA/2026/07/202607190400HirundoRustica.jpg)|
 202607200400|Artemis|La Lune et la Terre capturées par l'équipage d'Artemis II (© NASA)|Une perspective lunaire|![](/fr-CA/2026/07/202607200400Artemis.jpg)|
+202607210400|SantaCatalina|Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|L’arche qui cache|![](/fr-CA/2026/07/202607210400SantaCatalina.jpg)|

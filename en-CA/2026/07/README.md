@@ -20,3 +20,4 @@
 202607180400|DevilsBridge|Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)|Going full circle|![](/en-CA/2026/07/202607180400DevilsBridge.jpg)|
 202607190400|HirundoRustica|Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)|Wings at rest|![](/en-CA/2026/07/202607190400HirundoRustica.jpg)|
 202607200400|Artemis|Moon and Earth captured by the Artemis II crew (© NASA)|The lunar perspective|![](/en-CA/2026/07/202607200400Artemis.jpg)|
+202607210400|SantaCatalina|Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Hidden in plain arch|![](/en-CA/2026/07/202607210400SantaCatalina.jpg)|
