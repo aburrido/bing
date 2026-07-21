@@ -21,3 +21,4 @@
 202607181500|HirundoRustica|ツバメ (© Oscar Dominguez/Tandem Stills + Motion)|枯れ草にとまる小鳥の群れ|![](/ja-JP/2026/07/202607181500HirundoRustica.jpg)|
 202607191500|Artemis|月から見た地球 (© NASA)|今日は国際月の日|![](/ja-JP/2026/07/202607191500Artemis.jpg)|
 202607201500|Kawagoe2026|川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)|「縁結び風鈴」開催中|![](/ja-JP/2026/07/202607201500Kawagoe2026.jpg)|
+202607211500|CoralAwareness|サンゴ礁, インドネシア (© SergeUWPhoto/Shutterstock)|今週は米国のサンゴ礁啓発週間|![](/ja-JP/2026/07/202607211500CoralAwareness.jpg)|
