@@ -22,3 +22,4 @@
 202607191830|Artemis|Moon and Earth captured by the Artemis II crew (© NASA)|The lunar perspective|![](/en-IN/2026/07/202607191830Artemis.jpg)|
 202607201830|SantaCatalina|Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Hidden in plain arch|![](/en-IN/2026/07/202607201830SantaCatalina.jpg)|
 202607211830|CoralAwareness|Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)|Small footprint, big impact|![](/en-IN/2026/07/202607211830CoralAwareness.jpg)|
+202607221830|PinkDahlia|Pink dahlia flower (© Harald Biebel/Getty Images)|A symphony of petals|![](/en-IN/2026/07/202607221830PinkDahlia.jpg)|
