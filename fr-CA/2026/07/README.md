@@ -21,3 +21,4 @@
 202607190400|HirundoRustica|Hirondelles rustiques de différentes sous-espèces se reposant ensemble (© Oscar Dominguez/Tandem Stills + Motion)|Ailes de repos|![](/fr-CA/2026/07/202607190400HirundoRustica.jpg)|
 202607200400|Artemis|La Lune et la Terre capturées par l'équipage d'Artemis II (© NASA)|Une perspective lunaire|![](/fr-CA/2026/07/202607200400Artemis.jpg)|
 202607210400|SantaCatalina|Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|L’arche qui cache|![](/fr-CA/2026/07/202607210400SantaCatalina.jpg)|
+202607220400|CoralAwareness|Récif corallien et plage de Raja Ampat, Indonésie (© SergeUWPhoto/Shutterstock)|Petite empreinte, récif vivant|![](/fr-CA/2026/07/202607220400CoralAwareness.jpg)|
