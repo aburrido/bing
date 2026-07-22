@@ -22,3 +22,4 @@
 202607191600|Artemis|月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)|月瞰寰宇|![](/zh-CN/2026/07/202607191600Artemis.jpg)|
 202607201600|SantaCatalina|圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)|拱影寻踪|![](/zh-CN/2026/07/202607201600SantaCatalina.jpg)|
 202607211600|CoralAwareness|珊瑚礁与海滩在拉贾安帕特，印度尼西亚 (© SergeUWPhoto/Shutterstock)|细微之举，影响深远|![](/zh-CN/2026/07/202607211600CoralAwareness.jpg)|
+202607221600|PinkDahlia|粉红色大丽花 (© Harald Biebel/Getty Images)|瓣叠交响|![](/zh-CN/2026/07/202607221600PinkDahlia.jpg)|
