@@ -22,3 +22,4 @@
 202607200400|Artemis|La Lune et la Terre capturées par l'équipage d'Artemis II (© NASA)|Une perspective lunaire|![](/fr-CA/2026/07/202607200400Artemis.jpg)|
 202607210400|SantaCatalina|Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|L’arche qui cache|![](/fr-CA/2026/07/202607210400SantaCatalina.jpg)|
 202607220400|CoralAwareness|Récif corallien et plage de Raja Ampat, Indonésie (© SergeUWPhoto/Shutterstock)|Petite empreinte, récif vivant|![](/fr-CA/2026/07/202607220400CoralAwareness.jpg)|
+202607230400|PinkDahlia|Dahlia rose (© Harald Biebel/Getty Images)|La symphonie des pétales|![](/fr-CA/2026/07/202607230400PinkDahlia.jpg)|
