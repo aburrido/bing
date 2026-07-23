@@ -23,3 +23,4 @@
 202607200700|Artemis|Moon and Earth captured by the Artemis II crew (© NASA)|The lunar perspective|![](/en-US/2026/07/202607200700Artemis.jpg)|
 202607210700|SantaCatalina|Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Hidden in plain arch|![](/en-US/2026/07/202607210700SantaCatalina.jpg)|
 202607220700|CoralAwareness|Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)|Small footprint, big impact|![](/en-US/2026/07/202607220700CoralAwareness.jpg)|
+202607230700|PinkDahlia|Pink dahlia flower (© Harald Biebel/Getty Images)|A symphony of petals|![](/en-US/2026/07/202607230700PinkDahlia.jpg)|
