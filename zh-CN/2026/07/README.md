@@ -23,3 +23,4 @@
 202607201600|SantaCatalina|圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)|拱影寻踪|![](/zh-CN/2026/07/202607201600SantaCatalina.jpg)|
 202607211600|CoralAwareness|珊瑚礁与海滩在拉贾安帕特，印度尼西亚 (© SergeUWPhoto/Shutterstock)|细微之举，影响深远|![](/zh-CN/2026/07/202607211600CoralAwareness.jpg)|
 202607221600|PinkDahlia|粉红色大丽花 (© Harald Biebel/Getty Images)|瓣叠交响|![](/zh-CN/2026/07/202607221600PinkDahlia.jpg)|
+202607231600|GalapagosFlamingos|美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)|缤纷多彩的一家人|![](/zh-CN/2026/07/202607231600GalapagosFlamingos.jpg)|

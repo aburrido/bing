@@ -23,3 +23,4 @@
 202607201500|Kawagoe2026|川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)|「縁結び風鈴」開催中|![](/ja-JP/2026/07/202607201500Kawagoe2026.jpg)|
 202607211500|CoralAwareness|サンゴ礁, インドネシア (© SergeUWPhoto/Shutterstock)|今週は米国のサンゴ礁啓発週間|![](/ja-JP/2026/07/202607211500CoralAwareness.jpg)|
 202607221500|PinkDahlia|ピンクのダリア (© Harald Biebel/Getty Images)|華やかに開くダリアの花びら|![](/ja-JP/2026/07/202607221500PinkDahlia.jpg)|
+202607231500|GalapagosFlamingos|ベニイロフラミンゴ, エクアドル (© Tui De Roy/Nature Picture Library)|今日は米国いとこの日|![](/ja-JP/2026/07/202607231500GalapagosFlamingos.jpg)|
