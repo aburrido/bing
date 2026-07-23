@@ -23,3 +23,4 @@
 202607202300|SantaCatalina|Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Hidden in plain arch|![](/en-GB/2026/07/202607202300SantaCatalina.jpg)|
 202607212300|CoralAwareness|Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)|Small footprint, big impact|![](/en-GB/2026/07/202607212300CoralAwareness.jpg)|
 202607222300|PinkDahlia|Pink dahlia flower (© Harald Biebel/Getty Images)|A symphony of petals|![](/en-GB/2026/07/202607222300PinkDahlia.jpg)|
+202607232300|GalapagosFlamingos|Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)|Family, in full colour|![](/en-GB/2026/07/202607232300GalapagosFlamingos.jpg)|
