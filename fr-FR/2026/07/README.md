@@ -23,3 +23,4 @@
 202607202200|SantaCatalina|Arche de Santa Catalina, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|L’arche qui cache|![](/fr-FR/2026/07/202607202200SantaCatalina.jpg)|
 202607212200|CoralAwareness|Récif corallien et plage de Raja Ampat, Indonésie (© SergeUWPhoto/Shutterstock)|Petite empreinte, récif vivant|![](/fr-FR/2026/07/202607212200CoralAwareness.jpg)|
 202607222200|PinkDahlia|Dahlia rose (© Harald Biebel/Getty Images)|La symphonie des pétales|![](/fr-FR/2026/07/202607222200PinkDahlia.jpg)|
+202607232200|GalapagosFlamingos|Flamboyance de flamants des Caraïbes, île Isabela, îles Galápagos, Équateur (© Tui De Roy/Nature Picture Library)|Ça flame rose|![](/fr-FR/2026/07/202607232200GalapagosFlamingos.jpg)|

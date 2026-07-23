@@ -23,3 +23,4 @@
 202607202200|SantaCatalina|Arco de Santa Catalina in Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Offenbar gut verborgen|![](/de-DE/2026/07/202607202200SantaCatalina.jpg)|
 202607212200|EibseeSummer|Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)|Wo Berg und See verschmelzen|![](/de-DE/2026/07/202607212200EibseeSummer.jpg)|
 202607222200|PinkDahlia|Rosafarbene Dahlie (© Harald Biebel/Getty Images)|Was ist eine Wasserpfeifenblume?|![](/de-DE/2026/07/202607222200PinkDahlia.jpg)|
+202607232200|GalapagosFlamingos|Schwarm von Kubaflamingos, Insel Isabela, Galápagos-Inseln, Ecuador (© Tui De Roy/Nature Picture Library)|In voller Farbe|![](/de-DE/2026/07/202607232200GalapagosFlamingos.jpg)|
