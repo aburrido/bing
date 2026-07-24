@@ -24,3 +24,4 @@
 202607210700|SantaCatalina|Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)|Info|![](/en-AU/2026/07/202607210700SantaCatalina.jpg)|
 202607220700|AurayBrittany|Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)|Info|![](/en-AU/2026/07/202607220700AurayBrittany.jpg)|
 202607230700|PinkDahlia|Pink dahlia flower (© Harald Biebel/Getty Images)|Info|![](/en-AU/2026/07/202607230700PinkDahlia.jpg)|
+202607240700|GalapagosFlamingos|Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)|Info|![](/en-AU/2026/07/202607240700GalapagosFlamingos.jpg)|
