@@ -25,3 +25,4 @@
 202607222200|PinkDahlia|Dahlia rose (© Harald Biebel/Getty Images)|La symphonie des pétales|![](/fr-FR/2026/07/202607222200PinkDahlia.jpg)|
 202607232200|GalapagosFlamingos|Flamboyance de flamants des Caraïbes, île Isabela, îles Galápagos, Équateur (© Tui De Roy/Nature Picture Library)|Ça flame rose|![](/fr-FR/2026/07/202607232200GalapagosFlamingos.jpg)|
 202607242200|GaliciaBeach|Plage des Cathédrales, Galice, Espagne (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Les arches cachées de la Galice|![](/fr-FR/2026/07/202607242200GaliciaBeach.jpg)|
+202607252200|RedMangroveSunrise|Lever de soleil sur un palétuvier rouge, Cayos Cochinos, Honduras (© Mac Stone/Tandem Stills + Motion)|Entre terre et mer, la vie|![](/fr-FR/2026/07/202607252200RedMangroveSunrise.jpg)|
