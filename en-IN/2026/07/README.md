@@ -25,3 +25,4 @@
 202607221830|PinkDahlia|Pink dahlia flower (© Harald Biebel/Getty Images)|A symphony of petals|![](/en-IN/2026/07/202607221830PinkDahlia.jpg)|
 202607231830|GalapagosFlamingos|Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)|Family, in full colour|![](/en-IN/2026/07/202607231830GalapagosFlamingos.jpg)|
 202607241830|GaliciaBeach|Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Into Galicia's hidden arches|![](/en-IN/2026/07/202607241830GaliciaBeach.jpg)|
+202607251830|RedMangroveSunrise|Red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)|Between land and sea, life begins|![](/en-IN/2026/07/202607251830RedMangroveSunrise.jpg)|
