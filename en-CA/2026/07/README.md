@@ -24,3 +24,4 @@
 202607220400|CoralAwareness|Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)|Small footprint, big impact|![](/en-CA/2026/07/202607220400CoralAwareness.jpg)|
 202607230400|PinkDahlia|Pink dahlia flower (© Harald Biebel/Getty Images)|A symphony of petals|![](/en-CA/2026/07/202607230400PinkDahlia.jpg)|
 202607240400|GalapagosFlamingos|Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)|Family, in full colour|![](/en-CA/2026/07/202607240400GalapagosFlamingos.jpg)|
+202607250400|GaliciaBeach|Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Into Galicia's hidden arches|![](/en-CA/2026/07/202607250400GaliciaBeach.jpg)|
