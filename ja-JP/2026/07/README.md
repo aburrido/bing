@@ -25,3 +25,4 @@
 202607221500|PinkDahlia|ピンクのダリア (© Harald Biebel/Getty Images)|華やかに開くダリアの花びら|![](/ja-JP/2026/07/202607221500PinkDahlia.jpg)|
 202607231500|GalapagosFlamingos|ベニイロフラミンゴ, エクアドル (© Tui De Roy/Nature Picture Library)|今日は米国いとこの日|![](/ja-JP/2026/07/202607231500GalapagosFlamingos.jpg)|
 202607241500|GaliciaBeach|カテドラル・ビーチ, スペイン (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|干潮に現れる奇岩海岸|![](/ja-JP/2026/07/202607241500GaliciaBeach.jpg)|
+202607251500|RedMangroveSunrise|アカマングローブ, ホンジュラス (© Mac Stone/Tandem Stills + Motion)|今日は国際マングローブの日|![](/ja-JP/2026/07/202607251500RedMangroveSunrise.jpg)|
