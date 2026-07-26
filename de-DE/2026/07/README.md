@@ -26,3 +26,4 @@
 202607232200|GalapagosFlamingos|Schwarm von Kubaflamingos, Insel Isabela, Galápagos-Inseln, Ecuador (© Tui De Roy/Nature Picture Library)|In voller Farbe|![](/de-DE/2026/07/202607232200GalapagosFlamingos.jpg)|
 202607242200|PrideBerlin|Fernsehturm am Alexanderplatz mit Regenbogen, Berlin (© fhm/Getty Images)|Im Zeichen des Regenbogens|![](/de-DE/2026/07/202607242200PrideBerlin.jpg)|
 202607252200|RedMangroveSunrise|Sonnenaufgang an einer roten Mangrove auf den Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)|Zwischen Land und Meer beginnt das Leben|![](/de-DE/2026/07/202607252200RedMangroveSunrise.jpg)|
+202607262200|ChicagoTiffany|Tiffany-Kuppel, Chicago Cultural Center, Illinois, USA (© Felix Lipov/Shutterstock)|Wo Architektur strahlt|![](/de-DE/2026/07/202607262200ChicagoTiffany.jpg)|
