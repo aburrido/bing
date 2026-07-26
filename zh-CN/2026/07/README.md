@@ -26,3 +26,4 @@
 202607231600|GalapagosFlamingos|美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)|缤纷多彩的一家人|![](/zh-CN/2026/07/202607231600GalapagosFlamingos.jpg)|
 202607241600|GaliciaBeach|大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|加境幽廊|![](/zh-CN/2026/07/202607241600GaliciaBeach.jpg)|
 202607251600|RedMangroveSunrise|红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)|海陆际会，生机肇始|![](/zh-CN/2026/07/202607251600RedMangroveSunrise.jpg)|
+202607261600|ChicagoTiffany|蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)|仰望芝城，流光溢彩|![](/zh-CN/2026/07/202607261600ChicagoTiffany.jpg)|
