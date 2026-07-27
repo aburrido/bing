@@ -27,3 +27,4 @@
 202607241500|GaliciaBeach|カテドラル・ビーチ, スペイン (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|干潮に現れる奇岩海岸|![](/ja-JP/2026/07/202607241500GaliciaBeach.jpg)|
 202607251500|RedMangroveSunrise|アカマングローブ, ホンジュラス (© Mac Stone/Tandem Stills + Motion)|今日は国際マングローブの日|![](/ja-JP/2026/07/202607251500RedMangroveSunrise.jpg)|
 202607261500|ChicagoTiffany|シカゴ文化センター, 米国 イリノイ州 (© Felix Lipov/Shutterstock)|灯りゆれる大空間|![](/ja-JP/2026/07/202607261500ChicagoTiffany.jpg)|
+202607271500|KaysersbergVillage|ケゼルスベール, フランス (© Federica Gentile/Getty Images)|渓谷に息づく美しい村|![](/ja-JP/2026/07/202607271500KaysersbergVillage.jpg)|
