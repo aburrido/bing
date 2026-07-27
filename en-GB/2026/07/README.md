@@ -27,3 +27,4 @@
 202607242300|GaliciaBeach|Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Into Galicia's hidden arches|![](/en-GB/2026/07/202607242300GaliciaBeach.jpg)|
 202607252300|RedMangroveSunrise|Red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)|Between land and sea, life begins|![](/en-GB/2026/07/202607252300RedMangroveSunrise.jpg)|
 202607262300|ChicagoTiffany|Tiffany Dome, Chicago Cultural Center, Illinois, United States (© Felix Lipov/Shutterstock)|Chicago, look up!|![](/en-GB/2026/07/202607262300ChicagoTiffany.jpg)|
+202607272300|ChannelKelp|A kelp forest off Anacapa Island, Channel Islands National Park, California, United States (© Ian Shive/Tandem Stills + Motion)|A balance in motion|![](/en-GB/2026/07/202607272300ChannelKelp.jpg)|
