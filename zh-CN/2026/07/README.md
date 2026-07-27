@@ -27,3 +27,4 @@
 202607241600|GaliciaBeach|大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|加境幽廊|![](/zh-CN/2026/07/202607241600GaliciaBeach.jpg)|
 202607251600|RedMangroveSunrise|红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)|海陆际会，生机肇始|![](/zh-CN/2026/07/202607251600RedMangroveSunrise.jpg)|
 202607261600|ChicagoTiffany|蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)|仰望芝城，流光溢彩|![](/zh-CN/2026/07/202607261600ChicagoTiffany.jpg)|
+202607271600|ChannelKelp|一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)|生机律动，恒久之衡|![](/zh-CN/2026/07/202607271600ChannelKelp.jpg)|
