@@ -26,3 +26,4 @@
 202607240400|GalapagosFlamingos|Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)|Family, in full colour|![](/en-CA/2026/07/202607240400GalapagosFlamingos.jpg)|
 202607250400|GaliciaBeach|Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Into Galicia's hidden arches|![](/en-CA/2026/07/202607250400GaliciaBeach.jpg)|
 202607260400|RedMangroveSunrise|Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)|Between land and sea, life begins|![](/en-CA/2026/07/202607260400RedMangroveSunrise.jpg)|
+202607270400|ChicagoTiffany|Tiffany Dome, Chicago Cultural Centre, Illinois, United States (© Felix Lipov/Shutterstock)|Chicago, look up!|![](/en-CA/2026/07/202607270400ChicagoTiffany.jpg)|
