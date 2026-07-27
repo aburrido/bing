@@ -27,3 +27,4 @@
 202607242200|GaliciaBeach|Plage des Cathédrales, Galice, Espagne (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Les arches cachées de la Galice|![](/fr-FR/2026/07/202607242200GaliciaBeach.jpg)|
 202607252200|RedMangroveSunrise|Lever de soleil sur un palétuvier rouge, Cayos Cochinos, Honduras (© Mac Stone/Tandem Stills + Motion)|Entre terre et mer, la vie|![](/fr-FR/2026/07/202607252200RedMangroveSunrise.jpg)|
 202607262200|VerdonKayaks|Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)|Le canyon bleu|![](/fr-FR/2026/07/202607262200VerdonKayaks.jpg)|
+202607272200|ChannelKelp|Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Équilibre en mouvement|![](/fr-FR/2026/07/202607272200ChannelKelp.jpg)|
