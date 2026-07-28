@@ -28,3 +28,4 @@
 202607250700|IslaCristina|Isla Cristina, Huelva, Spain (© MEDITERRANEAN/Getty Images)|Info|![](/en-AU/2026/07/202607250700IslaCristina.jpg)|
 202607260700|RedMangroveSunrise|Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)|Info|![](/en-AU/2026/07/202607260700RedMangroveSunrise.jpg)|
 202607270700|SummerBC|Emerald Lake, Yoho National Park, British Columbia, Canada (© Olga Matveeva/Getty Images)|Info|![](/en-AU/2026/07/202607270700SummerBC.jpg)|
+202607280700|ChannelKelp|A kelp forest off Anacapa Island, Channel Islands National Park, California, USA (© Ian Shive/Tandem Stills + Motion)|Kelp|![](/en-AU/2026/07/202607280700ChannelKelp.jpg)|
