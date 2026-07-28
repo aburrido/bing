@@ -27,3 +27,4 @@
 202607250400|GaliciaBeach|Plage des Cathédrales, Galice, Espagne (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)|Les arches cachées de la Galice|![](/fr-CA/2026/07/202607250400GaliciaBeach.jpg)|
 202607260400|RedMangroveSunrise|Lever de soleil sur un palétuvier rouge, Cayos Cochinos, Honduras (© Mac Stone/Tandem Stills + Motion)|Entre terre et mer, la vie|![](/fr-CA/2026/07/202607260400RedMangroveSunrise.jpg)|
 202607270400|ChicagoTiffany|Dôme Tiffany, Centre culturel de Chicago, Illinois, États-Unis (© Felix Lipov/Shutterstock)|Chicago, lève les yeux!|![](/fr-CA/2026/07/202607270400ChicagoTiffany.jpg)|
+202607280400|ChannelKelp|Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Équilibre en mouvement|![](/fr-CA/2026/07/202607280400ChannelKelp.jpg)|
