@@ -29,3 +29,4 @@
 202607261600|ChicagoTiffany|蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)|仰望芝城，流光溢彩|![](/zh-CN/2026/07/202607261600ChicagoTiffany.jpg)|
 202607271600|ChannelKelp|一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)|生机律动，恒久之衡|![](/zh-CN/2026/07/202607271600ChannelKelp.jpg)|
 202607281600|TigerFamily|孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度 (© Archna Singh/Shutterstock)|虎啸归来，锐爪重临|![](/zh-CN/2026/07/202607281600TigerFamily.jpg)|
+202607291600|NavajoNation|在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)|旷野无声，活态传承之境|![](/zh-CN/2026/07/202607291600NavajoNation.jpg)|
