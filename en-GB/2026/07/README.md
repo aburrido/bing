@@ -30,3 +30,4 @@
 202607272300|ChannelKelp|A kelp forest off Anacapa Island, Channel Islands National Park, California, United States (© Ian Shive/Tandem Stills + Motion)|A balance in motion|![](/en-GB/2026/07/202607272300ChannelKelp.jpg)|
 202607282300|TigerFamily|A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)|A comeback with claws|![](/en-GB/2026/07/202607282300TigerFamily.jpg)|
 202607292300|NavajoNation|Monument Valley, Navajo Nation, Arizona, United States (© Westend61/Adobe Stock)|A landscape of living heritage|![](/en-GB/2026/07/202607292300NavajoNation.jpg)|
+202607302300|VirginiaTrail|Aerial view of the Virginia Creeper Trail, Damascus, Virginia, United States (© Eifel Kreutz/Getty Images)|Trailing through time|![](/en-GB/2026/07/202607302300VirginiaTrail.jpg)|
