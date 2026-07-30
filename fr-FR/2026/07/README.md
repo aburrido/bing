@@ -30,3 +30,4 @@
 202607272200|ChannelKelp|Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Équilibre en mouvement|![](/fr-FR/2026/07/202607272200ChannelKelp.jpg)|
 202607282200|TigerFamily|Une famille de tigres du Bengale au parc national de Ranthambore, Rajasthan, Inde (© Archna Singh/Shutterstock)|Un retour en force|![](/fr-FR/2026/07/202607282200TigerFamily.jpg)|
 202607292200|WildJackalFriends|Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)|L’amitié, ça s’apprend|![](/fr-FR/2026/07/202607292200WildJackalFriends.jpg)|
+202607302200|VirginiaTrail|Vue aérienne du sentier Virginia Creeper Trail, Damascus, Virginie, États-Unis (© Eifel Kreutz/Getty Images)|Traverser le temps|![](/fr-FR/2026/07/202607302200VirginiaTrail.jpg)|

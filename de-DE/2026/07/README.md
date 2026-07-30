@@ -30,3 +30,4 @@
 202607272200|ChannelKelp|Ein Seetangwald vor Anacapa Island, Channel Islands National Park, Kalifornien, USA (© Ian Shive/Tandem Stills + Motion)|Ein Gleichgewicht in Bewegung|![](/de-DE/2026/07/202607272200ChannelKelp.jpg)|
 202607282200|TigerFamily|Eine Bengaltigerfamilie im Ranthambore-Nationalpark in Rajasthan, Indien (© Archna Singh/Shutterstock)|Ein Comeback mit Krallen|![](/de-DE/2026/07/202607282200TigerFamily.jpg)|
 202607292200|BearBavaria|Braunbärenjunges auf einem Felsen, Bayern (© Raimund Linke/Getty Images)|Wild und wachsam|![](/de-DE/2026/07/202607292200BearBavaria.jpg)|
+202607302200|VirginiaTrail|Luftaufnahme des Virginia Creeper Trail in Damascus, Virginia, USA (© Eifel Kreutz/Getty Images)|Eine Reise durch die Zeit|![](/de-DE/2026/07/202607302200VirginiaTrail.jpg)|
