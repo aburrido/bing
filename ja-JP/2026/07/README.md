@@ -30,3 +30,4 @@
 202607271500|KaysersbergVillage|ケゼルスベール, フランス (© Federica Gentile/Getty Images)|渓谷に息づく美しい村|![](/ja-JP/2026/07/202607271500KaysersbergVillage.jpg)|
 202607281500|TigerFamily|ベンガルトラの家族, インド (© Archna Singh/Shutterstock)|今日は世界トラの日|![](/ja-JP/2026/07/202607281500TigerFamily.jpg)|
 202607291500|NavajoNation|モニュメント・バレー, 米国 アリゾナ州 (© Westend61/Adobe Stock)|夕暮れの砂漠を貫く道|![](/ja-JP/2026/07/202607291500NavajoNation.jpg)|
+202607301500|VirginiaTrail|バージニア・クリーパー・トレイル, 米国 バージニア州 (© Eifel Kreutz/Getty Images)|深緑の森を貫く木道|![](/ja-JP/2026/07/202607301500VirginiaTrail.jpg)|
