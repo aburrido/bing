@@ -30,3 +30,4 @@
 202607270700|ChicagoTiffany|Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)|Chicago, look up!|![](/en-US/2026/07/202607270700ChicagoTiffany.jpg)|
 202607280700|ChannelKelp|A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)|A balance in motion|![](/en-US/2026/07/202607280700ChannelKelp.jpg)|
 202607290700|TigerFamily|A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)|A comeback with claws|![](/en-US/2026/07/202607290700TigerFamily.jpg)|
+202607300700|NavajoNation|Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)|A landscape of living heritage|![](/en-US/2026/07/202607300700NavajoNation.jpg)|
