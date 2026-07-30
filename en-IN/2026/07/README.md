@@ -30,3 +30,4 @@
 202607271830|ChannelKelp|A kelp forest off Anacapa Island, Channel Islands National Park, California, United States (© Ian Shive/Tandem Stills + Motion)|A balance in motion|![](/en-IN/2026/07/202607271830ChannelKelp.jpg)|
 202607281830|GuruPurnima2026|Dhamek Stupa, Sarnath, Varanasi, Uttar Pradesh (© franck metois/Moment/Getty Images)|Where a lesson changed the world|![](/en-IN/2026/07/202607281830GuruPurnima2026.jpg)|
 202607291830|NavajoNation|Monument Valley, Navajo Nation, Arizona, United States (© Westend61/Adobe Stock)|A landscape of living heritage|![](/en-IN/2026/07/202607291830NavajoNation.jpg)|
+202607301830|VirginiaTrail|Aerial view of the Virginia Creeper Trail, Damascus, Virginia, United States (© Eifel Kreutz/Getty Images)|Trailing through time|![](/en-IN/2026/07/202607301830VirginiaTrail.jpg)|
