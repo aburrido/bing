@@ -31,3 +31,4 @@
 202607282200|TigerFamily|Une famille de tigres du Bengale au parc national de Ranthambore, Rajasthan, Inde (© Archna Singh/Shutterstock)|Un retour en force|![](/fr-FR/2026/07/202607282200TigerFamily.jpg)|
 202607292200|WildJackalFriends|Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)|L’amitié, ça s’apprend|![](/fr-FR/2026/07/202607292200WildJackalFriends.jpg)|
 202607302200|VirginiaTrail|Vue aérienne du sentier Virginia Creeper Trail, Damascus, Virginie, États-Unis (© Eifel Kreutz/Getty Images)|Traverser le temps|![](/fr-FR/2026/07/202607302200VirginiaTrail.jpg)|
+202607312200|SeaStacks|Stacks près de Wilson Creek Beach, False Klamath Cove, Parc national et parcs d’État de Redwood, Californie, États-Unis (© benedek/Getty Images)|Debout face aux vagues|![](/fr-FR/2026/07/202607312200SeaStacks.jpg)|

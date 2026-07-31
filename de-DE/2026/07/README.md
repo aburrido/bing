@@ -31,3 +31,4 @@
 202607282200|TigerFamily|Eine Bengaltigerfamilie im Ranthambore-Nationalpark in Rajasthan, Indien (© Archna Singh/Shutterstock)|Ein Comeback mit Krallen|![](/de-DE/2026/07/202607282200TigerFamily.jpg)|
 202607292200|BearBavaria|Braunbärenjunges auf einem Felsen, Bayern (© Raimund Linke/Getty Images)|Wild und wachsam|![](/de-DE/2026/07/202607292200BearBavaria.jpg)|
 202607302200|VirginiaTrail|Luftaufnahme des Virginia Creeper Trail in Damascus, Virginia, USA (© Eifel Kreutz/Getty Images)|Eine Reise durch die Zeit|![](/de-DE/2026/07/202607302200VirginiaTrail.jpg)|
+202607312200|HawaiiLava|Eine Reihe von Lavaströmen mündet ins Meer, Big Island, Hawaii, USA (© Ken McCurdy/Getty Images)|Die Kraft des Kīlauea|![](/de-DE/2026/07/202607312200HawaiiLava.jpg)|
