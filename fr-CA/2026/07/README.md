@@ -30,3 +30,4 @@
 202607280400|ChannelKelp|Une forêt de varech au large d'Anacapa Island, Parc national des Channel Islands, Californie, États-Unis (© Ian Shive/Tandem Stills + Motion)|Équilibre en mouvement|![](/fr-CA/2026/07/202607280400ChannelKelp.jpg)|
 202607290400|TigerFamily|Une famille de tigres du Bengale au parc national de Ranthambore, Rajasthan, Inde (© Archna Singh/Shutterstock)|Un retour en force|![](/fr-CA/2026/07/202607290400TigerFamily.jpg)|
 202607300400|MaraCrossing|Gnous migrateurs traversant la rivière Mara dans la réserve de Masai Mara, au Kenya (© Manoj Shah/Getty Images)|La traversée du courage|![](/fr-CA/2026/07/202607300400MaraCrossing.jpg)|
+202607310400|VirginiaTrail|Vue aérienne du sentier Virginia Creeper Trail, Damascus, Virginie, États-Unis (© Eifel Kreutz/Getty Images)|Traverser le temps|![](/fr-CA/2026/07/202607310400VirginiaTrail.jpg)|
