@@ -31,3 +31,4 @@
 202607280700|ChannelKelp|A kelp forest off Anacapa Island, Channel Islands National Park, California, USA (© Ian Shive/Tandem Stills + Motion)|Kelp|![](/en-AU/2026/07/202607280700ChannelKelp.jpg)|
 202607290700|TigerFamily|A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)|Info|![](/en-AU/2026/07/202607290700TigerFamily.jpg)|
 202607300700|NavajoNation|Monument Valley, Navajo Nation, Arizona, United States (© Westend61/Adobe Stock)|Info|![](/en-AU/2026/07/202607300700NavajoNation.jpg)|
+202607310700|VirginiaTrail|Aerial view of the Virginia Creeper Trail, Damascus, Virginia, United States (© Eifel Kreutz/Getty Images)|Info|![](/en-AU/2026/07/202607310700VirginiaTrail.jpg)|
