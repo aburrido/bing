@@ -31,3 +31,4 @@
 202607282300|TigerFamily|A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)|A comeback with claws|![](/en-GB/2026/07/202607282300TigerFamily.jpg)|
 202607292300|NavajoNation|Monument Valley, Navajo Nation, Arizona, United States (© Westend61/Adobe Stock)|A landscape of living heritage|![](/en-GB/2026/07/202607292300NavajoNation.jpg)|
 202607302300|VirginiaTrail|Aerial view of the Virginia Creeper Trail, Damascus, Virginia, United States (© Eifel Kreutz/Getty Images)|Trailing through time|![](/en-GB/2026/07/202607302300VirginiaTrail.jpg)|
+202607312300|BrightonPride2026|Rainbow balloons at the pride parade in Brighton, East Sussex, England (© Joel Sharpe/Getty Images)|Bright-on with pride|![](/en-GB/2026/07/202607312300BrightonPride2026.jpg)|
