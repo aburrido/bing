@@ -31,3 +31,4 @@
 202607281600|TigerFamily|孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度 (© Archna Singh/Shutterstock)|虎啸归来，锐爪重临|![](/zh-CN/2026/07/202607281600TigerFamily.jpg)|
 202607291600|NavajoNation|在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)|旷野无声，活态传承之境|![](/zh-CN/2026/07/202607291600NavajoNation.jpg)|
 202607301600|VirginiaTrail|鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)|穿越时光的足迹|![](/zh-CN/2026/07/202607301600VirginiaTrail.jpg)|
+202607311600|HawaiiLava|大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)|基拉韦厄火山的威力|![](/zh-CN/2026/07/202607311600HawaiiLava.jpg)|
