@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202607312200|HawaiiLava|Eine Reihe von Lavaströmen mündet ins Meer, Big Island, Hawaii, USA (© Ken McCurdy/Getty Images)|Die Kraft des Kīlauea|![](/de-DE/2026/08/202607312200HawaiiLava.jpg)|
+202608012200|HelsinkiBlue|Helsinkis Küste zur blauen Stunde, Uusimaa, Finnland (© Miemo Penttinen/Getty Images)|Tochter der Ostsee|![](/de-DE/2026/08/202608012200HelsinkiBlue.jpg)|
