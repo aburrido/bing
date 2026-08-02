@@ -2,3 +2,4 @@
 |--|--|--|--|--|
 202607311600|HawaiiLava|大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)|基拉韦厄火山的威力|![](/zh-CN/2026/08/202607311600HawaiiLava.jpg)|
 202608011600|HelsinkiBlue|马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)|色彩鲜艳的船只，历久弥新的传统|![](/zh-CN/2026/08/202608011600HelsinkiBlue.jpg)|
+202608021600|BoatsMalta|马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)|色彩鲜艳的船只，历久弥新的传统|![](/zh-CN/2026/08/202608021600BoatsMalta.jpg)|
