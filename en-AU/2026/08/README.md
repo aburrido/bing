@@ -4,3 +4,4 @@
 202608010700|HawaiiLava|A series of lava flows spill into the ocean, Big Island, Hawaii, United States (© Ken McCurdy/Getty Images)|Info|![](/en-AU/2026/08/202608010700HawaiiLava.jpg)|
 202608020700|HelsinkiBlue|Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)|Info|![](/en-AU/2026/08/202608020700HelsinkiBlue.jpg)|
 202608030700|BoatsMalta|Colourful boats in Marsaxlokk Harbour, Malta (© Klubovy/Getty Images)|Info|![](/en-AU/2026/08/202608030700BoatsMalta.jpg)|
+202608040700|AdorableOwlet|Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)|Info|![](/en-AU/2026/08/202608040700AdorableOwlet.jpg)|
