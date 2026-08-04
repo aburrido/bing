@@ -4,3 +4,4 @@
 202608012200|HelsinkiBlue|Helsinkis Küste zur blauen Stunde, Uusimaa, Finnland (© Miemo Penttinen/Getty Images)|Tochter der Ostsee|![](/de-DE/2026/08/202608012200HelsinkiBlue.jpg)|
 202608022200|BoatsMalta|Bunte Boote im Hafen von Marsaxlokk, Malta (© Klubovy/Getty Images)|Zeitlose Traditionen|![](/de-DE/2026/08/202608022200BoatsMalta.jpg)|
 202608032200|AdorableOwlet|Florida-Kanincheneule, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)|Neugierig und aufmerksam|![](/de-DE/2026/08/202608032200AdorableOwlet.jpg)|
+202608042200|FezMorocco|Verziertes Tor des Königspalasts von Fès, Marokko (© cgst26/Shutterstock)|Tore eines verborgenen Königreichs|![](/de-DE/2026/08/202608042200FezMorocco.jpg)|
