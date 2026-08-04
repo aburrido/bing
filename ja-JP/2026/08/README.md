@@ -4,3 +4,4 @@
 202608011500|HelsinkiBlue|ヘルシンキ, フィンランド (© Miemo Penttinen/Getty Images)|ブルーアワーに輝く湾岸の街|![](/ja-JP/2026/08/202608011500HelsinkiBlue.jpg)|
 202608021500|BoatsMalta|マルサシュロック, マルタ (© Klubovy/Getty Images)|エメラルドの海に浮かぶ色とりどりの船|![](/ja-JP/2026/08/202608021500BoatsMalta.jpg)|
 202608031500|AdorableOwlet|アナホリフクロウのひな, 米国 フロリダ州 (© mlorenzphotography/Getty Images)|今日は国際フクロウの日|![](/ja-JP/2026/08/202608031500AdorableOwlet.jpg)|
+202608041500|FezMorocco|フェズ王宮, モロッコ (© cgst26/Shutterstock)|宮殿の門|![](/ja-JP/2026/08/202608041500FezMorocco.jpg)|
