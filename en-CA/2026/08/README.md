@@ -4,3 +4,4 @@
 202608020400|HelsinkiBlue|Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)|Daughter of the Baltic|![](/en-CA/2026/08/202608020400HelsinkiBlue.jpg)|
 202608030400|BoatsMalta|Colourful boats in Marsaxlokk Harbour, Malta (© Klubovy/Getty Images)|Bright boats, timeless traditions|![](/en-CA/2026/08/202608030400BoatsMalta.jpg)|
 202608040400|AdorableOwlet|Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)|Hoot hoot hooray!|![](/en-CA/2026/08/202608040400AdorableOwlet.jpg)|
+202608050400|FezMorocco|Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)|Gates of a hidden kingdom|![](/en-CA/2026/08/202608050400FezMorocco.jpg)|
