@@ -5,3 +5,4 @@
 202608022300|BoatsMalta|Colourful boats in Marsaxlokk Harbour, Malta (© Klubovy/Getty Images)|Bright boats, timeless traditions|![](/en-GB/2026/08/202608022300BoatsMalta.jpg)|
 202608032300|AdorableOwlet|Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)|Hoot hoot hooray!|![](/en-GB/2026/08/202608032300AdorableOwlet.jpg)|
 202608042300|FezMorocco|Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)|Gates of a hidden kingdom|![](/en-GB/2026/08/202608042300FezMorocco.jpg)|
+202608052300|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Where the river tests the brave|![](/en-GB/2026/08/202608052300MaraCrossing.jpg)|
