@@ -7,3 +7,4 @@
 202608040700|AdorableOwlet|Florida burrowing owlet, Cape Coral, Florida, United States (© mlorenzphotography/Getty Images)|Info|![](/en-AU/2026/08/202608040700AdorableOwlet.jpg)|
 202608050700|FezMorocco|Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)|Info|![](/en-AU/2026/08/202608050700FezMorocco.jpg)|
 202608060700|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Info|![](/en-AU/2026/08/202608060700MaraCrossing.jpg)|
+202608070700|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Info|![](/en-AU/2026/08/202608070700ColorfulCop.jpg)|
