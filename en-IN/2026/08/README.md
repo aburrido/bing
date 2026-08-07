@@ -7,3 +7,4 @@
 202608041830|FezMorocco|Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)|Gates of a hidden kingdom|![](/en-IN/2026/08/202608041830FezMorocco.jpg)|
 202608051830|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Where the river tests the brave|![](/en-IN/2026/08/202608051830MaraCrossing.jpg)|
 202608061830|ValleyDreams|Hoodoos in Ah‑Shi‑Sle‑Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|The great balancing act|![](/en-IN/2026/08/202608061830ValleyDreams.jpg)|
+202608071830|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Crossing into infinity|![](/en-IN/2026/08/202608071830StocktonInfinity.jpg)|
