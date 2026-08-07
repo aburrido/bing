@@ -7,3 +7,4 @@
 202608041500|FezMorocco|フェズ王宮, モロッコ (© cgst26/Shutterstock)|宮殿の門|![](/ja-JP/2026/08/202608041500FezMorocco.jpg)|
 202608051500|HiroshimaPeaceMemorial2026|広島平和記念公園のとうろう流し, 広島県 広島市 (© Buddhika Weerasinghe/Stringer/Getty Images)|今日は広島平和記念日|![](/ja-JP/2026/08/202608051500HiroshimaPeaceMemorial2026.jpg)|
 202608061500|LimeKiln|ライム・キルン灯台, 米国 ワシントン州 (© Edmund Lowe Photography/Shutterstock)|今日は米国灯台の日|![](/ja-JP/2026/08/202608061500LimeKiln.jpg)|
+202608071500|StocktonInfinity|インフィニティ・ブリッジ, イングランド (© Bahadir Yeniceri/Shutterstock)|今日は無限大の日|![](/ja-JP/2026/08/202608071500StocktonInfinity.jpg)|
