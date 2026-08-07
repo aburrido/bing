@@ -7,3 +7,4 @@
 202608041600|FezMorocco|非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)|秘境之门，匠心传世|![](/zh-CN/2026/08/202608041600FezMorocco.jpg)|
 202608051600|MaraCrossing|马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)|生死渡口，勇者的史诗|![](/zh-CN/2026/08/202608051600MaraCrossing.jpg)|
 202608061600|LimeKiln|圣胡安岛石灰窑灯塔，华盛顿州，美国 (© Edmund Lowe Photography/Shutterstock)|指引船只穿越历史|![](/zh-CN/2026/08/202608061600LimeKiln.jpg)|
+202608071600|StocktonInfinity|蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)|迈向无限|![](/zh-CN/2026/08/202608071600StocktonInfinity.jpg)|
