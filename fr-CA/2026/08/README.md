@@ -7,3 +7,4 @@
 202608050400|FezMorocco|Porte décorée du Palais Royal de Fès, Maroc (© cgst26/Shutterstock)|Les portes d'un royaume caché|![](/fr-CA/2026/08/202608050400FezMorocco.jpg)|
 202608060400|EDMFolkFest|Edmonton la nuit, Alberta (© Tetyana Babiy/iStock/Getty Images)|Rendez-vous sur la colline|![](/fr-CA/2026/08/202608060400EDMFolkFest.jpg)|
 202608070400|LimeKiln|Phare de Lime Kiln sur l’île de San Juan, État de Washington, États-Unis (© Edmund Lowe Photography/Shutterstock)|Une lueur… de sécurité|![](/fr-CA/2026/08/202608070400LimeKiln.jpg)|
+202608080400|StocktonInfinity|L’Infinity Bridge à Stockton-on-Tees, Angleterre (© Bahadir Yeniceri/Shutterstock)|Un pas vers l’infini|![](/fr-CA/2026/08/202608080400StocktonInfinity.jpg)|
