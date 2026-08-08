@@ -8,3 +8,4 @@
 202608050700|FezMorocco|Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)|Gates of a hidden kingdom|![](/en-US/2026/08/202608050700FezMorocco.jpg)|
 202608060700|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Where the river tests the brave|![](/en-US/2026/08/202608060700MaraCrossing.jpg)|
 202608070700|LimeKiln|Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)|Guiding ships through history|![](/en-US/2026/08/202608070700LimeKiln.jpg)|
+202608080700|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Crossing into infinity|![](/en-US/2026/08/202608080700StocktonInfinity.jpg)|

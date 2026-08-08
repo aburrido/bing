@@ -8,3 +8,4 @@
 202608050700|FezMorocco|Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)|Info|![](/en-AU/2026/08/202608050700FezMorocco.jpg)|
 202608060700|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Info|![](/en-AU/2026/08/202608060700MaraCrossing.jpg)|
 202608070700|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Info|![](/en-AU/2026/08/202608070700ColorfulCop.jpg)|
+202608080700|ValleyDreams|Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|Info|![](/en-AU/2026/08/202608080700ValleyDreams.jpg)|
