@@ -8,3 +8,4 @@
 202608052300|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Where the river tests the brave|![](/en-GB/2026/08/202608052300MaraCrossing.jpg)|
 202608062300|BristolBalloonFiesta2026|Hot air balloons above Bristol city centre, England (© Rich Jones Photography/Moment/Getty Images)|Up, up and hooray!|![](/en-GB/2026/08/202608062300BristolBalloonFiesta2026.jpg)|
 202608072300|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Crossing into infinity|![](/en-GB/2026/08/202608072300StocktonInfinity.jpg)|
+202608082300|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Architecture of identity|![](/en-GB/2026/08/202608082300JMTjibaou.jpg)|
