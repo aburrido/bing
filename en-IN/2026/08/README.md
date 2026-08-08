@@ -8,3 +8,4 @@
 202608051830|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Where the river tests the brave|![](/en-IN/2026/08/202608051830MaraCrossing.jpg)|
 202608061830|ValleyDreams|Hoodoos in Ah‑Shi‑Sle‑Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|The great balancing act|![](/en-IN/2026/08/202608061830ValleyDreams.jpg)|
 202608071830|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Crossing into infinity|![](/en-IN/2026/08/202608071830StocktonInfinity.jpg)|
+202608081830|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Architecture of identity|![](/en-IN/2026/08/202608081830JMTjibaou.jpg)|
