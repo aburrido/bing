@@ -9,3 +9,4 @@
 202608061500|LimeKiln|ライム・キルン灯台, 米国 ワシントン州 (© Edmund Lowe Photography/Shutterstock)|今日は米国灯台の日|![](/ja-JP/2026/08/202608061500LimeKiln.jpg)|
 202608071500|StocktonInfinity|インフィニティ・ブリッジ, イングランド (© Bahadir Yeniceri/Shutterstock)|今日は無限大の日|![](/ja-JP/2026/08/202608071500StocktonInfinity.jpg)|
 202608081500|JMTjibaou|チバウ文化センター, ニューカレドニア (© Fabien Astre/Alamy)|今日は世界の先住民の国際デー|![](/ja-JP/2026/08/202608081500JMTjibaou.jpg)|
+202608091500|ColorfulCop|ニューハウン, デンマーク (© emicristea/Getty Images)|静かな水面に映るカラフルな街並み|![](/ja-JP/2026/08/202608091500ColorfulCop.jpg)|
