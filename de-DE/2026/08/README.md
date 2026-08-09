@@ -9,3 +9,4 @@
 202608062200|LimeKiln|Leuchtturm Lime Kiln auf San Juan Island, Washington, USA (© Edmund Lowe Photography/Shutterstock)|Schiffe durch die Geschichte führen|![](/de-DE/2026/08/202608062200LimeKiln.jpg)|
 202608072200|RhineFlames|Rhein in Flammen vor Schloss Stolzenfels bei Koblenz, Rheinland-Pfalz (© Jule_Berlin/Shutterstock)|Feuerzauber über dem Rhein|![](/de-DE/2026/08/202608072200RhineFlames.jpg)|
 202608082200|JMTjibaou|Tjibaou-Kulturzentrum, Neukaledonien (© Fabien Astre/Alamy)|Architektur der Identität|![](/de-DE/2026/08/202608082200JMTjibaou.jpg)|
+202608092200|SandPath|Joshua-Tree-Nationalpark, Kalifornien, USA (© JJ Landscapes/Getty Images)|Wo zwei Wüsten aufeinandertreffen|![](/de-DE/2026/08/202608092200SandPath.jpg)|

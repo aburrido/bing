@@ -9,3 +9,4 @@
 202608062200|WildlifeCrossingPoland|Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)|Tracé pour la nature|![](/fr-FR/2026/08/202608062200WildlifeCrossingPoland.jpg)|
 202608072200|ClothesBarjols|Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)|L’art de prendre le temps|![](/fr-FR/2026/08/202608072200ClothesBarjols.jpg)|
 202608082200|JMTjibaou|Centre culturel Tjibaou, Nouvelle-Calédonie (© Fabien Astre/Alamy)|Quand architecture et identité vont de pair|![](/fr-FR/2026/08/202608082200JMTjibaou.jpg)|
+202608092200|SandPath|Parc national Joshua Tree, Californie, États-Unis (© JJ Landscapes/Getty Images)|Un point de rencontre aride|![](/fr-FR/2026/08/202608092200SandPath.jpg)|
