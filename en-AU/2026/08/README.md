@@ -9,3 +9,4 @@
 202608060700|MaraCrossing|Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)|Info|![](/en-AU/2026/08/202608060700MaraCrossing.jpg)|
 202608070700|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Info|![](/en-AU/2026/08/202608070700ColorfulCop.jpg)|
 202608080700|ValleyDreams|Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|Info|![](/en-AU/2026/08/202608080700ValleyDreams.jpg)|
+202608090700|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Info|![](/en-AU/2026/08/202608090700JMTjibaou.jpg)|
