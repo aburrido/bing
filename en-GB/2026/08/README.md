@@ -10,3 +10,4 @@
 202608072300|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Crossing into infinity|![](/en-GB/2026/08/202608072300StocktonInfinity.jpg)|
 202608082300|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Architecture of identity|![](/en-GB/2026/08/202608082300JMTjibaou.jpg)|
 202608092300|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Where two deserts collide|![](/en-GB/2026/08/202608092300SandPath.jpg)|
+202608102300|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Copenhagen in full colour|![](/en-GB/2026/08/202608102300ColorfulCop.jpg)|
