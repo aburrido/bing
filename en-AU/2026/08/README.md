@@ -10,3 +10,4 @@
 202608070700|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Info|![](/en-AU/2026/08/202608070700ColorfulCop.jpg)|
 202608080700|ValleyDreams|Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|Info|![](/en-AU/2026/08/202608080700ValleyDreams.jpg)|
 202608090700|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Info|![](/en-AU/2026/08/202608090700JMTjibaou.jpg)|
+202608100700|WhyteCliffP|Whytecliff Park, West Vancouver, Canada (© Aolin Chen/Getty Images)|Info|![](/en-AU/2026/08/202608100700WhyteCliffP.jpg)|
