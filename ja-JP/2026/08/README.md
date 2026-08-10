@@ -10,3 +10,4 @@
 202608071500|StocktonInfinity|インフィニティ・ブリッジ, イングランド (© Bahadir Yeniceri/Shutterstock)|今日は無限大の日|![](/ja-JP/2026/08/202608071500StocktonInfinity.jpg)|
 202608081500|JMTjibaou|チバウ文化センター, ニューカレドニア (© Fabien Astre/Alamy)|今日は世界の先住民の国際デー|![](/ja-JP/2026/08/202608081500JMTjibaou.jpg)|
 202608091500|ColorfulCop|ニューハウン, デンマーク (© emicristea/Getty Images)|静かな水面に映るカラフルな街並み|![](/ja-JP/2026/08/202608091500ColorfulCop.jpg)|
+202608101500|MountainDay2026|日本アルプス (© Sergey Alimov/Getty Images)|今日は山の日|![](/ja-JP/2026/08/202608101500MountainDay2026.jpg)|
