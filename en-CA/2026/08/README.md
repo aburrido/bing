@@ -9,3 +9,4 @@
 202608070400|LimeKiln|Lime Kiln Lighthouse on San Juan Island, Washington state, United States (© Edmund Lowe Photography/Shutterstock)|Guiding ships through history|![](/en-CA/2026/08/202608070400LimeKiln.jpg)|
 202608080400|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Crossing into infinity|![](/en-CA/2026/08/202608080400StocktonInfinity.jpg)|
 202608090400|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Architecture of identity|![](/en-CA/2026/08/202608090400JMTjibaou.jpg)|
+202608100400|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Where two deserts collide|![](/en-CA/2026/08/202608100400SandPath.jpg)|
