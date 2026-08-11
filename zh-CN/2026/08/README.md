@@ -11,3 +11,4 @@
 202608081600|JMTjibaou|让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)|身份认同的建筑表达|![](/zh-CN/2026/08/202608081600JMTjibaou.jpg)|
 202608091600|SandPath|约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)|两片沙漠交汇之地|![](/zh-CN/2026/08/202608091600SandPath.jpg)|
 202608101600|ColorfulCop|哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦 (© emicristea/Getty Images)|绚丽多彩的哥本哈根|![](/zh-CN/2026/08/202608101600ColorfulCop.jpg)|
+202608111600|ElephantDay|安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)|值得守护的巨兽|![](/zh-CN/2026/08/202608111600ElephantDay.jpg)|
