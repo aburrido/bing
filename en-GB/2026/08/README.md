@@ -11,3 +11,4 @@
 202608082300|JMTjibaou|Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)|Architecture of identity|![](/en-GB/2026/08/202608082300JMTjibaou.jpg)|
 202608092300|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Where two deserts collide|![](/en-GB/2026/08/202608092300SandPath.jpg)|
 202608102300|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Copenhagen in full colour|![](/en-GB/2026/08/202608102300ColorfulCop.jpg)|
+202608112300|ElephantDay|A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Giants worth protecting|![](/en-GB/2026/08/202608112300ElephantDay.jpg)|
