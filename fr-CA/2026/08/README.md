@@ -10,3 +10,4 @@
 202608080400|StocktonInfinity|L’Infinity Bridge à Stockton-on-Tees, Angleterre (© Bahadir Yeniceri/Shutterstock)|Un pas vers l’infini|![](/fr-CA/2026/08/202608080400StocktonInfinity.jpg)|
 202608090400|JMTjibaou|Centre culturel Tjibaou, Nouvelle-Calédonie (© Fabien Astre/Alamy)|Quand architecture et identité vont de pair|![](/fr-CA/2026/08/202608090400JMTjibaou.jpg)|
 202608100400|SandPath|Parc national Joshua Tree, Californie, États-Unis (© JJ Landscapes/Getty Images)|Un point de rencontre aride|![](/fr-CA/2026/08/202608100400SandPath.jpg)|
+202608110400|ColorfulCop|Maisons colorées sur les rives du canal Nyhavn, Copenhague, Danemark (© emicristea/Getty Images)|Copenhague haute en couleur|![](/fr-CA/2026/08/202608110400ColorfulCop.jpg)|
