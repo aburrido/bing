@@ -12,3 +12,4 @@
 202608092200|SandPath|Joshua-Tree-Nationalpark, Kalifornien, USA (© JJ Landscapes/Getty Images)|Wo zwei Wüsten aufeinandertreffen|![](/de-DE/2026/08/202608092200SandPath.jpg)|
 202608102200|ColorfulCop|Bunte Häuser säumen den Nyhavn-Kanal in Kopenhagen, Dänemark (© emicristea/Getty Images)|Kopenhagen in voller Farbe|![](/de-DE/2026/08/202608102200ColorfulCop.jpg)|
 202608112200|ElephantDay|Eine Elefantengruppe im Amboseli-Nationalpark, Kenia (© Ibrahim Suha Derbent/Getty Images)|Schützenswerte Giganten|![](/de-DE/2026/08/202608112200ElephantDay.jpg)|
+202608122200|PerseidasTenerife|Perseiden-Meteore über dem Teide-Observatorium auf Teneriffa, Spanien (© Westend61/Getty Images)|Leuchtender Himmel|![](/de-DE/2026/08/202608122200PerseidasTenerife.jpg)|
