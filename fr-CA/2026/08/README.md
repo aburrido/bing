@@ -12,3 +12,4 @@
 202608100400|SandPath|Parc national Joshua Tree, Californie, États-Unis (© JJ Landscapes/Getty Images)|Un point de rencontre aride|![](/fr-CA/2026/08/202608100400SandPath.jpg)|
 202608110400|ColorfulCop|Maisons colorées sur les rives du canal Nyhavn, Copenhague, Danemark (© emicristea/Getty Images)|Copenhague haute en couleur|![](/fr-CA/2026/08/202608110400ColorfulCop.jpg)|
 202608120400|ElephantDay|Un troupeau d’éléphants, Parc national d’Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)|Des géants au cœur tendre|![](/fr-CA/2026/08/202608120400ElephantDay.jpg)|
+202608130400|PerseidasTenerife|Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)|Faites un vœu!|![](/fr-CA/2026/08/202608130400PerseidasTenerife.jpg)|

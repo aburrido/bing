@@ -12,3 +12,4 @@
 202608100400|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Where two deserts collide|![](/en-CA/2026/08/202608100400SandPath.jpg)|
 202608110400|ColorfulCop|Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Copenhagen in full colour|![](/en-CA/2026/08/202608110400ColorfulCop.jpg)|
 202608120400|ElephantDay|A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Giants worth protecting|![](/en-CA/2026/08/202608120400ElephantDay.jpg)|
+202608130400|PerseidasTenerife|Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)|Make a wish|![](/en-CA/2026/08/202608130400PerseidasTenerife.jpg)|
