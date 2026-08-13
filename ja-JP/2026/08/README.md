@@ -13,3 +13,4 @@
 202608101500|MountainDay2026|日本アルプス (© Sergey Alimov/Getty Images)|今日は山の日|![](/ja-JP/2026/08/202608101500MountainDay2026.jpg)|
 202608111500|ElephantDay|ゾウの群れ, ケニア (© Ibrahim Suha Derbent/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2026/08/202608111500ElephantDay.jpg)|
 202608121500|PerseidasTenerife|テイデ天文台, スペイン (© Westend61/Getty Images)|ペルセウス座流星群が輝く夜空|![](/ja-JP/2026/08/202608121500PerseidasTenerife.jpg)|
+202608131500|Shimoda2026|下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)|灯りに彩られた歴史ある港町|![](/ja-JP/2026/08/202608131500Shimoda2026.jpg)|
