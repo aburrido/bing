@@ -14,3 +14,4 @@
 202608110700|ColorfulCop|Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)|Copenhagen in full color|![](/en-US/2026/08/202608110700ColorfulCop.jpg)|
 202608120700|ElephantDay|A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Giants worth protecting|![](/en-US/2026/08/202608120700ElephantDay.jpg)|
 202608130700|PerseidasTenerife|Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)|Make a wish|![](/en-US/2026/08/202608130700PerseidasTenerife.jpg)|
+202608140700|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Built for paws, not people|![](/en-US/2026/08/202608140700WildlifeCrossingPoland.jpg)|
