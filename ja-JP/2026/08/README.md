@@ -14,3 +14,4 @@
 202608111500|ElephantDay|ゾウの群れ, ケニア (© Ibrahim Suha Derbent/Getty Images)|今日は世界ゾウの日|![](/ja-JP/2026/08/202608111500ElephantDay.jpg)|
 202608121500|PerseidasTenerife|テイデ天文台, スペイン (© Westend61/Getty Images)|ペルセウス座流星群が輝く夜空|![](/ja-JP/2026/08/202608121500PerseidasTenerife.jpg)|
 202608131500|Shimoda2026|下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)|灯りに彩られた歴史ある港町|![](/ja-JP/2026/08/202608131500Shimoda2026.jpg)|
+202608141500|ValleyDreams|ア・シ・スレ・パ自然保護区, 米国 ニューメキシコ州 (© Westend61/Getty Images)|夕陽を浴びる奇岩群|![](/ja-JP/2026/08/202608141500ValleyDreams.jpg)|
