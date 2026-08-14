@@ -14,3 +14,4 @@
 202608111600|ElephantDay|安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)|值得守护的巨兽|![](/zh-CN/2026/08/202608111600ElephantDay.jpg)|
 202608121600|PerseidasTenerife|泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)|许个愿吧|![](/zh-CN/2026/08/202608121600PerseidasTenerife.jpg)|
 202608131600|WildlifeCrossingPoland|扎克舒夫附近的野生动物通道，波兰 (© bbsferrari/Getty Images)|为动物脚掌而建，而非行人|![](/zh-CN/2026/08/202608131600WildlifeCrossingPoland.jpg)|
+202608141600|ValleyDreams|圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国 (© Westend61/Getty Images)|绝妙的平衡术|![](/zh-CN/2026/08/202608141600ValleyDreams.jpg)|
