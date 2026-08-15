@@ -14,3 +14,4 @@
 202608120400|ElephantDay|Un troupeau d’éléphants, Parc national d’Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)|Des géants au cœur tendre|![](/fr-CA/2026/08/202608120400ElephantDay.jpg)|
 202608130400|PerseidasTenerife|Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)|Faites un vœu!|![](/fr-CA/2026/08/202608130400PerseidasTenerife.jpg)|
 202608140400|WildlifeCrossingPoland|Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)|Tracé pour la nature|![](/fr-CA/2026/08/202608140400WildlifeCrossingPoland.jpg)|
+202608150400|ValleyDreams|Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)|Une coiffe de pierre|![](/fr-CA/2026/08/202608150400ValleyDreams.jpg)|
