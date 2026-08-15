@@ -15,3 +15,4 @@
 202608122200|PerseidasTenerife|Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)|Faites un vœu !|![](/fr-FR/2026/08/202608122200PerseidasTenerife.jpg)|
 202608132200|DolmenRoche|Dolmen, La Roche-Aux-Fées, Bretagne (© Michal Boubin/Getty Images)|« Par Toutatis ! »|![](/fr-FR/2026/08/202608132200DolmenRoche.jpg)|
 202608142200|ValleyDreams|Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)|Une coiffe de pierre|![](/fr-FR/2026/08/202608142200ValleyDreams.jpg)|
+202608152200|RossErrillyRuins|Monastère de Ross Errilly, Comté de Galway, Irlande (© Maria Janus/Shutterstock)|Guidé par des cygnes|![](/fr-FR/2026/08/202608152200RossErrillyRuins.jpg)|
