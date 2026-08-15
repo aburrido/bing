@@ -15,3 +15,4 @@
 202608120700|ElephantDay|A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Info|![](/en-AU/2026/08/202608120700ElephantDay.jpg)|
 202608130700|PerseidasTenerife|Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)|Info|![](/en-AU/2026/08/202608130700PerseidasTenerife.jpg)|
 202608140700|Palmanova|Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)|Info|![](/en-AU/2026/08/202608140700Palmanova.jpg)|
+202608150700|StocktonInfinity|Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)|Info|![](/en-AU/2026/08/202608150700StocktonInfinity.jpg)|

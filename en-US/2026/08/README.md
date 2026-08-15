@@ -15,3 +15,4 @@
 202608120700|ElephantDay|A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)|Giants worth protecting|![](/en-US/2026/08/202608120700ElephantDay.jpg)|
 202608130700|PerseidasTenerife|Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)|Make a wish|![](/en-US/2026/08/202608130700PerseidasTenerife.jpg)|
 202608140700|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Built for paws, not people|![](/en-US/2026/08/202608140700WildlifeCrossingPoland.jpg)|
+202608150700|ValleyDreams|Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)|The great balancing act|![](/en-US/2026/08/202608150700ValleyDreams.jpg)|
