@@ -15,3 +15,4 @@
 202608121600|PerseidasTenerife|泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)|许个愿吧|![](/zh-CN/2026/08/202608121600PerseidasTenerife.jpg)|
 202608131600|WildlifeCrossingPoland|扎克舒夫附近的野生动物通道，波兰 (© bbsferrari/Getty Images)|为动物脚掌而建，而非行人|![](/zh-CN/2026/08/202608131600WildlifeCrossingPoland.jpg)|
 202608141600|ValleyDreams|圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国 (© Westend61/Getty Images)|绝妙的平衡术|![](/zh-CN/2026/08/202608141600ValleyDreams.jpg)|
+202608151600|RossErrillyRuins|戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰 (© Maria Janus/Shutterstock)|天鹅开启传奇之处|![](/zh-CN/2026/08/202608151600RossErrillyRuins.jpg)|
