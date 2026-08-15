@@ -15,3 +15,4 @@
 202608121830|PerseidasTenerife|Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)|Make a wish|![](/en-IN/2026/08/202608121830PerseidasTenerife.jpg)|
 202608131830|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Built for paws, not people|![](/en-IN/2026/08/202608131830WildlifeCrossingPoland.jpg)|
 202608141830|IndependenceDay2026|The India Gate, New Delhi (© Arnav Pratap Singh/iStock/Getty Images)|Beneath the tricolour sky|![](/en-IN/2026/08/202608141830IndependenceDay2026.jpg)|
+202608151830|RossErrillyRuins|Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)|Where swans started a legend|![](/en-IN/2026/08/202608151830RossErrillyRuins.jpg)|
