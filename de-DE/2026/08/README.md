@@ -16,3 +16,4 @@
 202608132200|WildlifeCrossingPoland|Luftaufnahme einer Grünbrücke bei Zakrzów, Polen (© bbsferrari/Getty Images)|Für Pfoten gebaut|![](/de-DE/2026/08/202608132200WildlifeCrossingPoland.jpg)|
 202608142200|SellinSunrise|Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)|Im goldenen Licht der Ostsee|![](/de-DE/2026/08/202608142200SellinSunrise.jpg)|
 202608152200|RossErrillyRuins|Ruinen des Klosters Ross Errilly, Grafschaft Galway, Irland (© Maria Janus/Shutterstock)|Wo eine Legende mit Schwänen begann|![](/de-DE/2026/08/202608152200RossErrillyRuins.jpg)|
+202608162200|CabilaoClowns|Drei Falsche Clownfische in einer Seeanemone, Insel Cabilao, Bohol, Philippinen (© Franco Banfi/Nature Picture Library)|Farbenfrohe Riffbewohner|![](/de-DE/2026/08/202608162200CabilaoClowns.jpg)|
