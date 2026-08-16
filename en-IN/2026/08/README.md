@@ -16,3 +16,4 @@
 202608131830|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Built for paws, not people|![](/en-IN/2026/08/202608131830WildlifeCrossingPoland.jpg)|
 202608141830|IndependenceDay2026|The India Gate, New Delhi (© Arnav Pratap Singh/iStock/Getty Images)|Beneath the tricolour sky|![](/en-IN/2026/08/202608141830IndependenceDay2026.jpg)|
 202608151830|RossErrillyRuins|Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)|Where swans started a legend|![](/en-IN/2026/08/202608151830RossErrillyRuins.jpg)|
+202608161830|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|A prime 'reef' estate|![](/en-IN/2026/08/202608161830CabilaoClowns.jpg)|
