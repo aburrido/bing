@@ -16,3 +16,4 @@
 202608131500|Shimoda2026|下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)|灯りに彩られた歴史ある港町|![](/ja-JP/2026/08/202608131500Shimoda2026.jpg)|
 202608141500|ValleyDreams|ア・シ・スレ・パ自然保護区, 米国 ニューメキシコ州 (© Westend61/Getty Images)|夕陽を浴びる奇岩群|![](/ja-JP/2026/08/202608141500ValleyDreams.jpg)|
 202608151500|RossErrillyRuins|ロス・エリリー修道院跡, アイルランド (© Maria Janus/Shutterstock)|歴史を刻む石造りの修道院跡|![](/ja-JP/2026/08/202608151500RossErrillyRuins.jpg)|
+202608161500|CabilaoClowns|カクレクマノミ, フィリピン (© Franco Banfi/Nature Picture Library)|イソギンチャクにすむ小魚たち|![](/ja-JP/2026/08/202608161500CabilaoClowns.jpg)|
