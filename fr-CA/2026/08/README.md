@@ -15,3 +15,4 @@
 202608130400|PerseidasTenerife|Perséides au-dessus de l’observatoire du Teide, Tenerife, Espagne (© Westend61/Getty Images)|Faites un vœu!|![](/fr-CA/2026/08/202608130400PerseidasTenerife.jpg)|
 202608140400|WildlifeCrossingPoland|Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)|Tracé pour la nature|![](/fr-CA/2026/08/202608140400WildlifeCrossingPoland.jpg)|
 202608150400|ValleyDreams|Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)|Une coiffe de pierre|![](/fr-CA/2026/08/202608150400ValleyDreams.jpg)|
+202608160400|RossErrillyRuins|Monastère de Ross Errilly, Comté de Galway, Irlande (© Maria Janus/Shutterstock)|Guidé par des cygnes|![](/fr-CA/2026/08/202608160400RossErrillyRuins.jpg)|

@@ -15,3 +15,4 @@
 202608130400|PerseidasTenerife|Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)|Make a wish|![](/en-CA/2026/08/202608130400PerseidasTenerife.jpg)|
 202608140400|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Built for paws, not people|![](/en-CA/2026/08/202608140400WildlifeCrossingPoland.jpg)|
 202608150400|ValleyDreams|Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|The great balancing act|![](/en-CA/2026/08/202608150400ValleyDreams.jpg)|
+202608160400|RossErrillyRuins|Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)|Where swans started a legend|![](/en-CA/2026/08/202608160400RossErrillyRuins.jpg)|
