@@ -16,3 +16,4 @@
 202608132300|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Built for paws, not people|![](/en-GB/2026/08/202608132300WildlifeCrossingPoland.jpg)|
 202608142300|ValleyDreams|Hoodoos in Ah‑Shi‑Sle‑Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|The great balancing act|![](/en-GB/2026/08/202608142300ValleyDreams.jpg)|
 202608152300|RossErrillyRuins|Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)|Where swans started a legend|![](/en-GB/2026/08/202608152300RossErrillyRuins.jpg)|
+202608162300|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|A prime 'reef' estate|![](/en-GB/2026/08/202608162300CabilaoClowns.jpg)|
