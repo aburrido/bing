@@ -17,3 +17,4 @@
 202608141500|ValleyDreams|ア・シ・スレ・パ自然保護区, 米国 ニューメキシコ州 (© Westend61/Getty Images)|夕陽を浴びる奇岩群|![](/ja-JP/2026/08/202608141500ValleyDreams.jpg)|
 202608151500|RossErrillyRuins|ロス・エリリー修道院跡, アイルランド (© Maria Janus/Shutterstock)|歴史を刻む石造りの修道院跡|![](/ja-JP/2026/08/202608151500RossErrillyRuins.jpg)|
 202608161500|CabilaoClowns|カクレクマノミ, フィリピン (© Franco Banfi/Nature Picture Library)|イソギンチャクにすむ小魚たち|![](/ja-JP/2026/08/202608161500CabilaoClowns.jpg)|
+202608171500|Palmanova|パルマノーヴァ, イタリア (© Riccardo Saponi/Getty Images)|上空から見る星形要塞都市|![](/ja-JP/2026/08/202608171500Palmanova.jpg)|
