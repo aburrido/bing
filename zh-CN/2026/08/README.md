@@ -17,3 +17,4 @@
 202608141600|ValleyDreams|圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国 (© Westend61/Getty Images)|绝妙的平衡术|![](/zh-CN/2026/08/202608141600ValleyDreams.jpg)|
 202608151600|RossErrillyRuins|戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰 (© Maria Janus/Shutterstock)|天鹅开启传奇之处|![](/zh-CN/2026/08/202608151600RossErrillyRuins.jpg)|
 202608161600|CabilaoClowns|海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾 (© Franco Banfi/Nature Picture Library)|珊瑚礁上的黄金地段|![](/zh-CN/2026/08/202608161600CabilaoClowns.jpg)|
+202608171600|Palmanova|弗留利要塞城市帕尔马诺瓦航拍图，意大利 (© Riccardo Saponi/Getty Images)|星形城市的几何之美|![](/zh-CN/2026/08/202608171600Palmanova.jpg)|
