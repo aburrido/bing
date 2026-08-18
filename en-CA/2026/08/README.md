@@ -17,3 +17,4 @@
 202608150400|ValleyDreams|Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)|The great balancing act|![](/en-CA/2026/08/202608150400ValleyDreams.jpg)|
 202608160400|RossErrillyRuins|Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)|Where swans started a legend|![](/en-CA/2026/08/202608160400RossErrillyRuins.jpg)|
 202608170400|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|A prime 'reef' estate|![](/en-CA/2026/08/202608170400CabilaoClowns.jpg)|
+202608180400|Palmanova|Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)|Geometry of a star city|![](/en-CA/2026/08/202608180400Palmanova.jpg)|

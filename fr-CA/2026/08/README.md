@@ -17,3 +17,4 @@
 202608150400|ValleyDreams|Cheminées de fées à Ah Shi Sle Pah Wilderness dans le comté de San Juan, Nouveau-Mexique, États-Unis (© Westend61/Getty Images)|Une coiffe de pierre|![](/fr-CA/2026/08/202608150400ValleyDreams.jpg)|
 202608160400|RossErrillyRuins|Monastère de Ross Errilly, Comté de Galway, Irlande (© Maria Janus/Shutterstock)|Guidé par des cygnes|![](/fr-CA/2026/08/202608160400RossErrillyRuins.jpg)|
 202608170400|CabilaoClowns|Trois faux poissons-clowns dans une anémone de mer, Île de Cabilao, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|Nage droit devant toi!|![](/fr-CA/2026/08/202608170400CabilaoClowns.jpg)|
+202608180400|Palmanova|Vue aérienne de Palmanova, Friuli, Italie (© Riccardo Saponi/Getty Images)|Étoilée et italienne|![](/fr-CA/2026/08/202608180400Palmanova.jpg)|
