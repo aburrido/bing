@@ -18,3 +18,4 @@
 202608151500|RossErrillyRuins|ロス・エリリー修道院跡, アイルランド (© Maria Janus/Shutterstock)|歴史を刻む石造りの修道院跡|![](/ja-JP/2026/08/202608151500RossErrillyRuins.jpg)|
 202608161500|CabilaoClowns|カクレクマノミ, フィリピン (© Franco Banfi/Nature Picture Library)|イソギンチャクにすむ小魚たち|![](/ja-JP/2026/08/202608161500CabilaoClowns.jpg)|
 202608171500|Palmanova|パルマノーヴァ, イタリア (© Riccardo Saponi/Getty Images)|上空から見る星形要塞都市|![](/ja-JP/2026/08/202608171500Palmanova.jpg)|
+202608181500|WildlifeCrossingPoland|エコダクト, ポーランド (© bbsferrari/Getty Images)|森をつなぐ動物専用橋|![](/ja-JP/2026/08/202608181500WildlifeCrossingPoland.jpg)|
