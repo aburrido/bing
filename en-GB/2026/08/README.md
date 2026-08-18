@@ -18,3 +18,4 @@
 202608152300|RossErrillyRuins|Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)|Where swans started a legend|![](/en-GB/2026/08/202608152300RossErrillyRuins.jpg)|
 202608162300|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|A prime 'reef' estate|![](/en-GB/2026/08/202608162300CabilaoClowns.jpg)|
 202608172300|Palmanova|Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)|Geometry of a star city|![](/en-GB/2026/08/202608172300Palmanova.jpg)|
+202608182300|WhyteCliffP|Whytecliff Park in West Vancouver, British Columbia, Canada (© Aolin Chen/Getty Images)|A path between the waves|![](/en-GB/2026/08/202608182300WhyteCliffP.jpg)|
