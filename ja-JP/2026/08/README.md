@@ -19,3 +19,4 @@
 202608161500|CabilaoClowns|カクレクマノミ, フィリピン (© Franco Banfi/Nature Picture Library)|イソギンチャクにすむ小魚たち|![](/ja-JP/2026/08/202608161500CabilaoClowns.jpg)|
 202608171500|Palmanova|パルマノーヴァ, イタリア (© Riccardo Saponi/Getty Images)|上空から見る星形要塞都市|![](/ja-JP/2026/08/202608171500Palmanova.jpg)|
 202608181500|WildlifeCrossingPoland|エコダクト, ポーランド (© bbsferrari/Getty Images)|森をつなぐ動物専用橋|![](/ja-JP/2026/08/202608181500WildlifeCrossingPoland.jpg)|
+202608191500|LynnCanalOrca|シャチ, 米国 アラスカ州 (© John Hyde/Alamy)|雪山を望む海に現れたシャチ|![](/ja-JP/2026/08/202608191500LynnCanalOrca.jpg)|
