@@ -19,3 +19,4 @@
 202608160700|Furada|Pedra Furada, Jericoacoara, Brazil (© Brendan van Son/Shutterstock)|Info|![](/en-AU/2026/08/202608160700Furada.jpg)|
 202608170700|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|Info|![](/en-AU/2026/08/202608170700CabilaoClowns.jpg)|
 202608180700|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Info|![](/en-AU/2026/08/202608180700WildlifeCrossingPoland.jpg)|
+202608190700|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Info|![](/en-AU/2026/08/202608190700SandPath.jpg)|
