@@ -19,3 +19,4 @@
 202608161600|CabilaoClowns|海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾 (© Franco Banfi/Nature Picture Library)|珊瑚礁上的黄金地段|![](/zh-CN/2026/08/202608161600CabilaoClowns.jpg)|
 202608171600|Palmanova|弗留利要塞城市帕尔马诺瓦航拍图，意大利 (© Riccardo Saponi/Getty Images)|星形城市的几何之美|![](/zh-CN/2026/08/202608171600Palmanova.jpg)|
 202608181600|WhyteCliffP|怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)|浪潮间的通道|![](/zh-CN/2026/08/202608181600WhyteCliffP.jpg)|
+202608191600|LynnCanalOrca|林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)|鲸群之声|![](/zh-CN/2026/08/202608191600LynnCanalOrca.jpg)|
