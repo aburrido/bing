@@ -19,3 +19,4 @@
 202608161830|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|A prime 'reef' estate|![](/en-IN/2026/08/202608161830CabilaoClowns.jpg)|
 202608171830|Palmanova|Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)|Geometry of a star city|![](/en-IN/2026/08/202608171830Palmanova.jpg)|
 202608181830|WhyteCliffP|Whytecliff Park in West Vancouver, British Columbia, Canada (© Aolin Chen/Getty Images)|A path between the waves|![](/en-IN/2026/08/202608181830WhyteCliffP.jpg)|
+202608191830|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Voices of the pod|![](/en-IN/2026/08/202608191830LynnCanalOrca.jpg)|
