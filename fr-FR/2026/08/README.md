@@ -19,3 +19,4 @@
 202608162200|CabilaoClowns|Trois faux poissons-clowns dans une anémone de mer, Île de Cabilao, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|Nage droit devant toi !|![](/fr-FR/2026/08/202608162200CabilaoClowns.jpg)|
 202608172200|Palmanova|Vue aérienne de Palmanova, Friuli, Italie (© Riccardo Saponi/Getty Images)|Étoilée et italienne|![](/fr-FR/2026/08/202608172200Palmanova.jpg)|
 202608182200|WhyteCliffP|Whytecliff Park, West Vancouver, Colombie-Britannique, Canada (© Aolin Chen/Getty Images)|Un chemin entre les vagues|![](/fr-FR/2026/08/202608182200WhyteCliffP.jpg)|
+202608192200|LynnCanalOrca|Une orque à la surface du canal de Lynn, près des montagnes Chilkat, Alaska, États-Unis (© John Hyde/Alamy)|Les voix du canal|![](/fr-FR/2026/08/202608192200LynnCanalOrca.jpg)|
