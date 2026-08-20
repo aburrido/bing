@@ -20,3 +20,4 @@
 202608172300|Palmanova|Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)|Geometry of a star city|![](/en-GB/2026/08/202608172300Palmanova.jpg)|
 202608182300|WhyteCliffP|Whytecliff Park in West Vancouver, British Columbia, Canada (© Aolin Chen/Getty Images)|A path between the waves|![](/en-GB/2026/08/202608182300WhyteCliffP.jpg)|
 202608192300|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Voices of the pod|![](/en-GB/2026/08/202608192300LynnCanalOrca.jpg)|
+202608202300|JulierPass|Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)|The climb is calling|![](/en-GB/2026/08/202608202300JulierPass.jpg)|
