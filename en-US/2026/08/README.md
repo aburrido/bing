@@ -20,3 +20,4 @@
 202608170700|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|A prime 'reef' estate|![](/en-US/2026/08/202608170700CabilaoClowns.jpg)|
 202608180700|Palmanova|Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)|Geometry of a star city|![](/en-US/2026/08/202608180700Palmanova.jpg)|
 202608190700|BrewsterXF2A|NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)|Testing the future of flight|![](/en-US/2026/08/202608190700BrewsterXF2A.jpg)|
+202608200700|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)|Voices of the pod|![](/en-US/2026/08/202608200700LynnCanalOrca.jpg)|

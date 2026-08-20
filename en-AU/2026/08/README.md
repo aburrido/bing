@@ -20,3 +20,4 @@
 202608170700|CabilaoClowns|Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)|Info|![](/en-AU/2026/08/202608170700CabilaoClowns.jpg)|
 202608180700|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Info|![](/en-AU/2026/08/202608180700WildlifeCrossingPoland.jpg)|
 202608190700|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Info|![](/en-AU/2026/08/202608190700SandPath.jpg)|
+202608200700|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Info|![](/en-AU/2026/08/202608200700LynnCanalOrca.jpg)|
