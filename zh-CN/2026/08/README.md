@@ -21,3 +21,4 @@
 202608181600|WhyteCliffP|怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)|浪潮间的通道|![](/zh-CN/2026/08/202608181600WhyteCliffP.jpg)|
 202608191600|LynnCanalOrca|林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)|鲸群之声|![](/zh-CN/2026/08/202608191600LynnCanalOrca.jpg)|
 202608201600|JulierPass|尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)|攀登在召唤|![](/zh-CN/2026/08/202608201600JulierPass.jpg)|
+202608211600|CommonBlue|普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)|天蓝色的翅膀|![](/zh-CN/2026/08/202608211600CommonBlue.jpg)|
