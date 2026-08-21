@@ -21,3 +21,4 @@
 202608182200|WhyteCliffP|Whytecliff Park in West Vancouver, British Columbia, Kanada (© Aolin Chen/Getty Images)|Ein Weg zwischen den Wellen|![](/de-DE/2026/08/202608182200WhyteCliffP.jpg)|
 202608192200|LynnCanalOrca|Ein Schwertwal im Lynn Canal nahe den Chilkat Mountains in Alaska, USA (© John Hyde/Alamy)|Klänge der Schwertwale|![](/de-DE/2026/08/202608192200LynnCanalOrca.jpg)|
 202608202200|JulierPass|Serpentinenstraße am Julierpass, Schweiz (© Westend61/Getty Images)|Auf in die Berge!|![](/de-DE/2026/08/202608202200JulierPass.jpg)|
+202608212200|CommonBlue|Hauhechel-Bläuling, Devon, England (© Ross Hoddinott/Nature Picture Library)|Himmelblaue Flügel|![](/de-DE/2026/08/202608212200CommonBlue.jpg)|
