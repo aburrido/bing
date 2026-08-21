@@ -20,3 +20,4 @@
 202608180400|Palmanova|Vue aérienne de Palmanova, Friuli, Italie (© Riccardo Saponi/Getty Images)|Étoilée et italienne|![](/fr-CA/2026/08/202608180400Palmanova.jpg)|
 202608190400|WhyteCliffP|Whytecliff Park, West Vancouver, Colombie-Britannique (© Aolin Chen/Getty Images)|Un chemin entre les vagues|![](/fr-CA/2026/08/202608190400WhyteCliffP.jpg)|
 202608200400|LynnCanalOrca|Une orque à la surface du canal de Lynn, près des montagnes Chilkat, Alaska, États-Unis (© John Hyde/Alamy)|Les voix du canal|![](/fr-CA/2026/08/202608200400LynnCanalOrca.jpg)|
+202608210400|CanadaNE|L’Exposition nationale canadienne à Toronto (© Wirestock/Getty Images)|C’est reparti pour un tour!|![](/fr-CA/2026/08/202608210400CanadaNE.jpg)|
