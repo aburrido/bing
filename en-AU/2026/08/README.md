@@ -21,3 +21,4 @@
 202608180700|WildlifeCrossingPoland|Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)|Info|![](/en-AU/2026/08/202608180700WildlifeCrossingPoland.jpg)|
 202608190700|SandPath|Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)|Info|![](/en-AU/2026/08/202608190700SandPath.jpg)|
 202608200700|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Info|![](/en-AU/2026/08/202608200700LynnCanalOrca.jpg)|
+202608210700|JulierPass|Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)|Info|![](/en-AU/2026/08/202608210700JulierPass.jpg)|
