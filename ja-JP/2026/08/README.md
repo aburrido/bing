@@ -21,3 +21,4 @@
 202608181500|WildlifeCrossingPoland|エコダクト, ポーランド (© bbsferrari/Getty Images)|森をつなぐ動物専用橋|![](/ja-JP/2026/08/202608181500WildlifeCrossingPoland.jpg)|
 202608191500|LynnCanalOrca|シャチ, 米国 アラスカ州 (© John Hyde/Alamy)|雪山を望む海に現れたシャチ|![](/ja-JP/2026/08/202608191500LynnCanalOrca.jpg)|
 202608201500|JulierPass|ユリア峠, スイス (© Westend61/Getty Images)|アルブラアルプスを縫う山岳道路|![](/ja-JP/2026/08/202608201500JulierPass.jpg)|
+202608211500|CommonBlue|イカルスヒメシジミ, イングランド (© Ross Hoddinott/Nature Picture Library)|花と蝶の紫色のハーモニー|![](/ja-JP/2026/08/202608211500CommonBlue.jpg)|
