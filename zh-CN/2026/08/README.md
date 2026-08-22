@@ -22,3 +22,4 @@
 202608191600|LynnCanalOrca|林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)|鲸群之声|![](/zh-CN/2026/08/202608191600LynnCanalOrca.jpg)|
 202608201600|JulierPass|尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)|攀登在召唤|![](/zh-CN/2026/08/202608201600JulierPass.jpg)|
 202608211600|CommonBlue|普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)|天蓝色的翅膀|![](/zh-CN/2026/08/202608211600CommonBlue.jpg)|
+202608221600|EndofHeatY26|在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)|暑气渐消，金秋已至|![](/zh-CN/2026/08/202608221600EndofHeatY26.jpg)|
