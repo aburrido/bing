@@ -22,3 +22,4 @@
 202608190700|BrewsterXF2A|NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)|Testing the future of flight|![](/en-US/2026/08/202608190700BrewsterXF2A.jpg)|
 202608200700|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)|Voices of the pod|![](/en-US/2026/08/202608200700LynnCanalOrca.jpg)|
 202608210700|JulierPass|Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)|The climb is calling|![](/en-US/2026/08/202608210700JulierPass.jpg)|
+202608220700|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-US/2026/08/202608220700CommonBlue.jpg)|
