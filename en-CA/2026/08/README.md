@@ -21,3 +21,4 @@
 202608190400|WhyteCliffP|Whytecliff Park in West Vancouver, British Columbia (© Aolin Chen/Getty Images)|A path between the waves|![](/en-CA/2026/08/202608190400WhyteCliffP.jpg)|
 202608200400|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Voices of the pod|![](/en-CA/2026/08/202608200400LynnCanalOrca.jpg)|
 202608210400|CanadaNE|Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)|One last summer spin|![](/en-CA/2026/08/202608210400CanadaNE.jpg)|
+202608220400|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-CA/2026/08/202608220400CommonBlue.jpg)|
