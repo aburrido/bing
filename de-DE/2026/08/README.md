@@ -22,3 +22,4 @@
 202608192200|LynnCanalOrca|Ein Schwertwal im Lynn Canal nahe den Chilkat Mountains in Alaska, USA (© John Hyde/Alamy)|Klänge der Schwertwale|![](/de-DE/2026/08/202608192200LynnCanalOrca.jpg)|
 202608202200|JulierPass|Serpentinenstraße am Julierpass, Schweiz (© Westend61/Getty Images)|Auf in die Berge!|![](/de-DE/2026/08/202608202200JulierPass.jpg)|
 202608212200|CommonBlue|Hauhechel-Bläuling, Devon, England (© Ross Hoddinott/Nature Picture Library)|Himmelblaue Flügel|![](/de-DE/2026/08/202608212200CommonBlue.jpg)|
+202608222200|KatmaiBear|Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)|Der Fang des Tages|![](/de-DE/2026/08/202608222200KatmaiBear.jpg)|
