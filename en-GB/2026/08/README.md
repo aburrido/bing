@@ -22,3 +22,4 @@
 202608192300|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Voices of the pod|![](/en-GB/2026/08/202608192300LynnCanalOrca.jpg)|
 202608202300|JulierPass|Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)|The climb is calling|![](/en-GB/2026/08/202608202300JulierPass.jpg)|
 202608212300|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-GB/2026/08/202608212300CommonBlue.jpg)|
+202608222300|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)|Meet Katmai's fishing giants|![](/en-GB/2026/08/202608222300KatmaiBear.jpg)|
