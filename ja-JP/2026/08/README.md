@@ -22,3 +22,4 @@
 202608191500|LynnCanalOrca|シャチ, 米国 アラスカ州 (© John Hyde/Alamy)|雪山を望む海に現れたシャチ|![](/ja-JP/2026/08/202608191500LynnCanalOrca.jpg)|
 202608201500|JulierPass|ユリア峠, スイス (© Westend61/Getty Images)|アルブラアルプスを縫う山岳道路|![](/ja-JP/2026/08/202608201500JulierPass.jpg)|
 202608211500|CommonBlue|イカルスヒメシジミ, イングランド (© Ross Hoddinott/Nature Picture Library)|花と蝶の紫色のハーモニー|![](/ja-JP/2026/08/202608211500CommonBlue.jpg)|
+202608221500|ShizuokaSummer2026|夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)|今日は処暑|![](/ja-JP/2026/08/202608221500ShizuokaSummer2026.jpg)|
