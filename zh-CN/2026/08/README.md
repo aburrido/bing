@@ -23,3 +23,4 @@
 202608201600|JulierPass|尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)|攀登在召唤|![](/zh-CN/2026/08/202608201600JulierPass.jpg)|
 202608211600|CommonBlue|普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)|天蓝色的翅膀|![](/zh-CN/2026/08/202608211600CommonBlue.jpg)|
 202608221600|EndofHeatY26|在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)|暑气渐消，金秋已至|![](/zh-CN/2026/08/202608221600EndofHeatY26.jpg)|
+202608231600|BKBridge|布鲁克林大桥，纽约市，美国 (© shayes17/Getty Images)|跨越历史|![](/zh-CN/2026/08/202608231600BKBridge.jpg)|
