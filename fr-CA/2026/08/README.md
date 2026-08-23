@@ -22,3 +22,4 @@
 202608200400|LynnCanalOrca|Une orque à la surface du canal de Lynn, près des montagnes Chilkat, Alaska, États-Unis (© John Hyde/Alamy)|Les voix du canal|![](/fr-CA/2026/08/202608200400LynnCanalOrca.jpg)|
 202608210400|CanadaNE|L’Exposition nationale canadienne à Toronto (© Wirestock/Getty Images)|C’est reparti pour un tour!|![](/fr-CA/2026/08/202608210400CanadaNE.jpg)|
 202608220400|CommonBlue|Argus bleu, Devon, Angleterre (© Ross Hoddinott/Nature Picture Library)|De délicates ailes azur|![](/fr-CA/2026/08/202608220400CommonBlue.jpg)|
+202608230400|KatmaiBear|Ours brun en pleine pêche au saumon rouge, Parc national de Katmai, Alaska, États-Unis (© Pal Hermansen/Nature Picture Library)|Que la pêche commence !|![](/fr-CA/2026/08/202608230400KatmaiBear.jpg)|

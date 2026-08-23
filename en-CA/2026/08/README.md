@@ -22,3 +22,4 @@
 202608200400|LynnCanalOrca|An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska, United States (© John Hyde/Alamy)|Voices of the pod|![](/en-CA/2026/08/202608200400LynnCanalOrca.jpg)|
 202608210400|CanadaNE|Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)|One last summer spin|![](/en-CA/2026/08/202608210400CanadaNE.jpg)|
 202608220400|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-CA/2026/08/202608220400CommonBlue.jpg)|
+202608230400|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)|Meet Katmai's fishing giants|![](/en-CA/2026/08/202608230400KatmaiBear.jpg)|
