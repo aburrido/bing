@@ -24,3 +24,4 @@
 202608210700|JulierPass|Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)|The climb is calling|![](/en-US/2026/08/202608210700JulierPass.jpg)|
 202608220700|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-US/2026/08/202608220700CommonBlue.jpg)|
 202608230700|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)|Meet Katmai's fishing giants|![](/en-US/2026/08/202608230700KatmaiBear.jpg)|
+202608240700|BKBridge|Brooklyn Bridge, New York City (© shayes17/Getty Images)|Crossing into history|![](/en-US/2026/08/202608240700BKBridge.jpg)|
