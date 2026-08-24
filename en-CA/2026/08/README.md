@@ -23,3 +23,4 @@
 202608210400|CanadaNE|Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)|One last summer spin|![](/en-CA/2026/08/202608210400CanadaNE.jpg)|
 202608220400|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-CA/2026/08/202608220400CommonBlue.jpg)|
 202608230400|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)|Meet Katmai's fishing giants|![](/en-CA/2026/08/202608230400KatmaiBear.jpg)|
+202608240400|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Crossing into history|![](/en-CA/2026/08/202608240400BKBridge.jpg)|
