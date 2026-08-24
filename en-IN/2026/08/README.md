@@ -24,3 +24,4 @@
 202608211830|CommonBlue|Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)|Sky tinted wings|![](/en-IN/2026/08/202608211830CommonBlue.jpg)|
 202608221830|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)|Meet Katmai's fishing giants|![](/en-IN/2026/08/202608221830KatmaiBear.jpg)|
 202608231830|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Crossing into history|![](/en-IN/2026/08/202608231830BKBridge.jpg)|
+202608241830|RedwoodPark|Redwood National and State Parks, California, United States (© HadelProductions/Getty Images)|Protecting America's treasures|![](/en-IN/2026/08/202608241830RedwoodPark.jpg)|
