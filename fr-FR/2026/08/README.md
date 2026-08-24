@@ -24,3 +24,4 @@
 202608212200|CommonBlue|Argus bleu, Devon, Angleterre (© Ross Hoddinott/Nature Picture Library)|De délicates ailes azur|![](/fr-FR/2026/08/202608212200CommonBlue.jpg)|
 202608222200|KatmaiBear|Ours brun en pleine pêche au saumon rouge, Parc national de Katmai, Alaska, États-Unis (© Pal Hermansen/Nature Picture Library)|Que la pêche commence !|![](/fr-FR/2026/08/202608222200KatmaiBear.jpg)|
 202608232200|BKBridge|Pont de Brooklyn, New York, États-Unis (© shayes17/Getty Images)|Bien plus qu’un pont|![](/fr-FR/2026/08/202608232200BKBridge.jpg)|
+202608242200|GlenanSummer|Plage de sable blanc sur l’archipel des Glénan, Bretagne (© HadelProductions/Getty Images)|Sable blanc et lagons bretons|![](/fr-FR/2026/08/202608242200GlenanSummer.jpg)|
