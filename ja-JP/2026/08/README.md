@@ -25,3 +25,4 @@
 202608221500|ShizuokaSummer2026|夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)|今日は処暑|![](/ja-JP/2026/08/202608221500ShizuokaSummer2026.jpg)|
 202608231500|BKBridge|ブルックリン橋, 米国 ニューヨーク州 (© shayes17/Getty Images)|イースト川を彩る歴史の架け橋|![](/ja-JP/2026/08/202608231500BKBridge.jpg)|
 202608241500|RedwoodPark|レッドウッド国立州立公園, 米国 カリフォルニア州 (© HadelProductions/Getty Images)|今日は米国国立公園局の創立記念日|![](/ja-JP/2026/08/202608241500RedwoodPark.jpg)|
+202608251500|AurorasIceland|オーロラ, アイスランド (© Cavan Images/Alamy)|オーロラが描く幻想の空|![](/ja-JP/2026/08/202608251500AurorasIceland.jpg)|
