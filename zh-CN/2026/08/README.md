@@ -25,3 +25,4 @@
 202608221600|EndofHeatY26|在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)|暑气渐消，金秋已至|![](/zh-CN/2026/08/202608221600EndofHeatY26.jpg)|
 202608231600|BKBridge|布鲁克林大桥，纽约市，美国 (© shayes17/Getty Images)|跨越历史|![](/zh-CN/2026/08/202608231600BKBridge.jpg)|
 202608241600|RedwoodPark|红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)|守护美国瑰宝|![](/zh-CN/2026/08/202608241600RedwoodPark.jpg)|
+202608251600|AurorasIceland|基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)|流光溢彩的天空|![](/zh-CN/2026/08/202608251600AurorasIceland.jpg)|
