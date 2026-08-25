@@ -25,3 +25,4 @@
 202608222300|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)|Meet Katmai's fishing giants|![](/en-GB/2026/08/202608222300KatmaiBear.jpg)|
 202608232300|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Crossing into history|![](/en-GB/2026/08/202608232300BKBridge.jpg)|
 202608242300|SantaCatarina|Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)|Reading between the waves|![](/en-GB/2026/08/202608242300SantaCatarina.jpg)|
+202608252300|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-GB/2026/08/202608252300AurorasIceland.jpg)|
