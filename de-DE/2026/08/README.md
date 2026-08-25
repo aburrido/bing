@@ -25,3 +25,4 @@
 202608222200|KatmaiBear|Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)|Der Fang des Tages|![](/de-DE/2026/08/202608222200KatmaiBear.jpg)|
 202608232200|BKBridge|Brooklyn Bridge, New York, USA (© shayes17/Getty Images)|Brücke der Visionen|![](/de-DE/2026/08/202608232200BKBridge.jpg)|
 202608242200|KitesurfersSunset|Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)|Wellen, Wind, Weltklasse|![](/de-DE/2026/08/202608242200KitesurfersSunset.jpg)|
+202608252200|AurorasIceland|Polarlichter über dem Kirkjufell, Island (© Cavan Images/Alamy)|Farbspiele am Himmel|![](/de-DE/2026/08/202608252200AurorasIceland.jpg)|
