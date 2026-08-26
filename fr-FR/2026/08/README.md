@@ -26,3 +26,4 @@
 202608232200|BKBridge|Pont de Brooklyn, New York, États-Unis (© shayes17/Getty Images)|Bien plus qu’un pont|![](/fr-FR/2026/08/202608232200BKBridge.jpg)|
 202608242200|GlenanSummer|Plage de sable blanc sur l’archipel des Glénan, Bretagne (© HadelProductions/Getty Images)|Sable blanc et lagons bretons|![](/fr-FR/2026/08/202608242200GlenanSummer.jpg)|
 202608252200|AurorasIceland|Aurores boréales sur Kirkjufell, Islande (© Cavan Images/Alamy)|Comme un mirage céleste|![](/fr-FR/2026/08/202608252200AurorasIceland.jpg)|
+202608262200|LakeMagadi|Volée de flamants nains à l’aube, Lac Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Des trésors à protéger|![](/fr-FR/2026/08/202608262200LakeMagadi.jpg)|

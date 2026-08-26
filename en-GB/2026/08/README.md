@@ -26,3 +26,4 @@
 202608232300|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Crossing into history|![](/en-GB/2026/08/202608232300BKBridge.jpg)|
 202608242300|SantaCatarina|Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)|Reading between the waves|![](/en-GB/2026/08/202608242300SantaCatarina.jpg)|
 202608252300|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-GB/2026/08/202608252300AurorasIceland.jpg)|
+202608262300|LakeMagadi|Lesser flamingo flock, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife and wonder|![](/en-GB/2026/08/202608262300LakeMagadi.jpg)|

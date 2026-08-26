@@ -26,3 +26,4 @@
 202608232200|BKBridge|Brooklyn Bridge, New York, USA (© shayes17/Getty Images)|Brücke der Visionen|![](/de-DE/2026/08/202608232200BKBridge.jpg)|
 202608242200|KitesurfersSunset|Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)|Wellen, Wind, Weltklasse|![](/de-DE/2026/08/202608242200KitesurfersSunset.jpg)|
 202608252200|AurorasIceland|Polarlichter über dem Kirkjufell, Island (© Cavan Images/Alamy)|Farbspiele am Himmel|![](/de-DE/2026/08/202608252200AurorasIceland.jpg)|
+202608262200|LakeMagadi|Zwergflamingos bei Sonnenaufgang am Magadi-See, Kenia (© Denis-Huot/Nature Picture Library)|Wasser, Wildtiere und Wunder|![](/de-DE/2026/08/202608262200LakeMagadi.jpg)|
