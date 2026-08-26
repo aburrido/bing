@@ -26,3 +26,4 @@
 202608231830|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Crossing into history|![](/en-IN/2026/08/202608231830BKBridge.jpg)|
 202608241830|RedwoodPark|Redwood National and State Parks, California, United States (© HadelProductions/Getty Images)|Protecting America's treasures|![](/en-IN/2026/08/202608241830RedwoodPark.jpg)|
 202608251830|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-IN/2026/08/202608251830AurorasIceland.jpg)|
+202608261830|LakeMagadi|Lesser flamingo flock, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife and wonder|![](/en-IN/2026/08/202608261830LakeMagadi.jpg)|
