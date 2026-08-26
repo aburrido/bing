@@ -26,3 +26,4 @@
 202608230700|KatmaiBear|Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)|Info|![](/en-AU/2026/08/202608230700KatmaiBear.jpg)|
 202608240700|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Info|![](/en-AU/2026/08/202608240700BKBridge.jpg)|
 202608250700|RedwoodPark|Sunrise in Redwood National and State Parks, California, United States (© HadelProductions/Getty Images)|Info|![](/en-AU/2026/08/202608250700RedwoodPark.jpg)|
+202608260700|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|Info|![](/en-AU/2026/08/202608260700AurorasIceland.jpg)|
