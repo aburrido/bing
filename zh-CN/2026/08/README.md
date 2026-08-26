@@ -26,3 +26,4 @@
 202608231600|BKBridge|布鲁克林大桥，纽约市，美国 (© shayes17/Getty Images)|跨越历史|![](/zh-CN/2026/08/202608231600BKBridge.jpg)|
 202608241600|RedwoodPark|红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)|守护美国瑰宝|![](/zh-CN/2026/08/202608241600RedwoodPark.jpg)|
 202608251600|AurorasIceland|基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)|流光溢彩的天空|![](/zh-CN/2026/08/202608251600AurorasIceland.jpg)|
+202608261600|LakeMagadi|日出时的小红鹳群，马加迪湖，肯尼亚 (© Denis-Huot/Nature Picture Library)|湖水、野生动物与奇景|![](/zh-CN/2026/08/202608261600LakeMagadi.jpg)|
