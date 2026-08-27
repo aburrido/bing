@@ -26,3 +26,4 @@
 202608240400|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Crossing into history|![](/en-CA/2026/08/202608240400BKBridge.jpg)|
 202608250400|PurplePuffin|Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)|Clifftop flower carrier|![](/en-CA/2026/08/202608250400PurplePuffin.jpg)|
 202608260400|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-CA/2026/08/202608260400AurorasIceland.jpg)|
+202608270400|LakeMagadi|Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife and wonder|![](/en-CA/2026/08/202608270400LakeMagadi.jpg)|

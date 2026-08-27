@@ -26,3 +26,4 @@
 202608240400|BKBridge|Pont de Brooklyn, New York, États-Unis (© shayes17/Getty Images)|Bien plus qu’un pont|![](/fr-CA/2026/08/202608240400BKBridge.jpg)|
 202608250400|PurplePuffin|Macareux moine tenant un iris dans son bec à Elliston, Terre-Neuve (© mlorenzphotography/Getty Images)|Quand la nature se teint de poésie|![](/fr-CA/2026/08/202608250400PurplePuffin.jpg)|
 202608260400|AurorasIceland|Aurores boréales sur Kirkjufell, Islande (© Cavan Images/Alamy)|Comme un mirage céleste|![](/fr-CA/2026/08/202608260400AurorasIceland.jpg)|
+202608270400|LakeMagadi|Volée de flamants nains à l’aube, Lac Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Des trésors à protéger|![](/fr-CA/2026/08/202608270400LakeMagadi.jpg)|
