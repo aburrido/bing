@@ -27,3 +27,4 @@
 202608241600|RedwoodPark|红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)|守护美国瑰宝|![](/zh-CN/2026/08/202608241600RedwoodPark.jpg)|
 202608251600|AurorasIceland|基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)|流光溢彩的天空|![](/zh-CN/2026/08/202608251600AurorasIceland.jpg)|
 202608261600|LakeMagadi|日出时的小红鹳群，马加迪湖，肯尼亚 (© Denis-Huot/Nature Picture Library)|湖水、野生动物与奇景|![](/zh-CN/2026/08/202608261600LakeMagadi.jpg)|
+202608271600|MichelSunset|涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)|潮汐塑造的传奇|![](/zh-CN/2026/08/202608271600MichelSunset.jpg)|

@@ -27,3 +27,4 @@
 202608241500|RedwoodPark|レッドウッド国立州立公園, 米国 カリフォルニア州 (© HadelProductions/Getty Images)|今日は米国国立公園局の創立記念日|![](/ja-JP/2026/08/202608241500RedwoodPark.jpg)|
 202608251500|AurorasIceland|オーロラ, アイスランド (© Cavan Images/Alamy)|オーロラが描く幻想の空|![](/ja-JP/2026/08/202608251500AurorasIceland.jpg)|
 202608261500|LakeMagadi|マガディ湖, ケニア (© Denis-Huot/Nature Picture Library)|今日は世界湖沼の日|![](/ja-JP/2026/08/202608261500LakeMagadi.jpg)|
+202608271500|MichelSunset|モン・サン＝ミシェル, フランス (© Clement LEONARD/Getty Images)|海岸風景の中にそびえる修道院|![](/ja-JP/2026/08/202608271500MichelSunset.jpg)|

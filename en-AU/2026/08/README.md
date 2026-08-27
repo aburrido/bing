@@ -27,3 +27,4 @@
 202608240700|BKBridge|Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)|Info|![](/en-AU/2026/08/202608240700BKBridge.jpg)|
 202608250700|RedwoodPark|Sunrise in Redwood National and State Parks, California, United States (© HadelProductions/Getty Images)|Info|![](/en-AU/2026/08/202608250700RedwoodPark.jpg)|
 202608260700|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|Info|![](/en-AU/2026/08/202608260700AurorasIceland.jpg)|
+202608270700|LakeMagadi|Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Info|![](/en-AU/2026/08/202608270700LakeMagadi.jpg)|
