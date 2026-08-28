@@ -27,3 +27,4 @@
 202608250400|PurplePuffin|Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)|Clifftop flower carrier|![](/en-CA/2026/08/202608250400PurplePuffin.jpg)|
 202608260400|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-CA/2026/08/202608260400AurorasIceland.jpg)|
 202608270400|LakeMagadi|Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife and wonder|![](/en-CA/2026/08/202608270400LakeMagadi.jpg)|
+202608280400|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-CA/2026/08/202608280400MichelSunset.jpg)|

@@ -28,3 +28,4 @@
 202608250700|RedwoodPark|Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)|Protecting America's treasures|![](/en-US/2026/08/202608250700RedwoodPark.jpg)|
 202608260700|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with color|![](/en-US/2026/08/202608260700AurorasIceland.jpg)|
 202608270700|LakeMagadi|Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife, and wonder|![](/en-US/2026/08/202608270700LakeMagadi.jpg)|
+202608280700|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-US/2026/08/202608280700MichelSunset.jpg)|
