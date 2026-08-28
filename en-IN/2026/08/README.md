@@ -28,3 +28,4 @@
 202608251830|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-IN/2026/08/202608251830AurorasIceland.jpg)|
 202608261830|LakeMagadi|Lesser flamingo flock, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife and wonder|![](/en-IN/2026/08/202608261830LakeMagadi.jpg)|
 202608271830|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-IN/2026/08/202608271830MichelSunset.jpg)|
+202608281830|SantaCatarina|Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)|Reading between the waves|![](/en-IN/2026/08/202608281830SantaCatarina.jpg)|
