@@ -27,3 +27,4 @@
 202608242300|SantaCatarina|Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)|Reading between the waves|![](/en-GB/2026/08/202608242300SantaCatarina.jpg)|
 202608252300|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|A sky alive with colour|![](/en-GB/2026/08/202608252300AurorasIceland.jpg)|
 202608262300|LakeMagadi|Lesser flamingo flock, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife and wonder|![](/en-GB/2026/08/202608262300LakeMagadi.jpg)|
+202608272300|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-GB/2026/08/202608272300MichelSunset.jpg)|
