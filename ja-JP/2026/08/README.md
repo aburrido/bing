@@ -29,3 +29,4 @@
 202608261500|LakeMagadi|マガディ湖, ケニア (© Denis-Huot/Nature Picture Library)|今日は世界湖沼の日|![](/ja-JP/2026/08/202608261500LakeMagadi.jpg)|
 202608271500|MichelSunset|モン・サン＝ミシェル, フランス (© Clement LEONARD/Getty Images)|海岸風景の中にそびえる修道院|![](/ja-JP/2026/08/202608271500MichelSunset.jpg)|
 202608281500|OmagariFireworks2026|全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/Getty Images)|今日は大曲の花火の開催日|![](/ja-JP/2026/08/202608281500OmagariFireworks2026.jpg)|
+202608291500|YellowShark|ジンベエザメ, インドネシア (© Pete Oxford/Nature Picture Library)|今日は国際ジンベエザメの日|![](/ja-JP/2026/08/202608291500YellowShark.jpg)|
