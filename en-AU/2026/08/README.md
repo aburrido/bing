@@ -29,3 +29,4 @@
 202608260700|AurorasIceland|Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)|Info|![](/en-AU/2026/08/202608260700AurorasIceland.jpg)|
 202608270700|LakeMagadi|Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Info|![](/en-AU/2026/08/202608270700LakeMagadi.jpg)|
 202608280700|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Info|![](/en-AU/2026/08/202608280700MichelSunset.jpg)|
+202608290700|LloretdeMar|Camí de Ronda, Lloret de Mar, Catalonia, Spain (© MEDITERRANEAN/Getty Images)|Info|![](/en-AU/2026/08/202608290700LloretdeMar.jpg)|

@@ -28,3 +28,4 @@
 202608260400|AurorasIceland|Aurores boréales sur Kirkjufell, Islande (© Cavan Images/Alamy)|Comme un mirage céleste|![](/fr-CA/2026/08/202608260400AurorasIceland.jpg)|
 202608270400|LakeMagadi|Volée de flamants nains à l’aube, Lac Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Des trésors à protéger|![](/fr-CA/2026/08/202608270400LakeMagadi.jpg)|
 202608280400|MichelSunset|Le Mont-Saint-Michel à marée haute, Manche, Normandie, France (© Clement LEONARD/Getty Images)|Bercé par la marée|![](/fr-CA/2026/08/202608280400MichelSunset.jpg)|
+202608290400|SantaCatarina|Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)|L’art de lire entre les vagues|![](/fr-CA/2026/08/202608290400SantaCatarina.jpg)|
