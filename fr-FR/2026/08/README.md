@@ -29,3 +29,4 @@
 202608262200|LakeMagadi|Volée de flamants nains à l’aube, Lac Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Des trésors à protéger|![](/fr-FR/2026/08/202608262200LakeMagadi.jpg)|
 202608272200|MichelSunset|Le Mont-Saint-Michel à marée haute, Manche, Normandie (© Clement LEONARD/Getty Images)|Bercé par la marée|![](/fr-FR/2026/08/202608272200MichelSunset.jpg)|
 202608282200|SantaCatarina|Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)|L’art de lire entre les vagues|![](/fr-FR/2026/08/202608282200SantaCatarina.jpg)|
+202608292200|YellowShark|Requin-baleine et carangues royales, Golfe de Cenderawasih, Papouasie occidentale, Indonésie (© Pete Oxford/Nature Picture Library)|Un grand nom pour un gros poisson|![](/fr-FR/2026/08/202608292200YellowShark.jpg)|

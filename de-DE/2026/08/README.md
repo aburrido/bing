@@ -29,3 +29,4 @@
 202608262200|LakeMagadi|Zwergflamingos bei Sonnenaufgang am Magadi-See, Kenia (© Denis-Huot/Nature Picture Library)|Wasser, Wildtiere und Wunder|![](/de-DE/2026/08/202608262200LakeMagadi.jpg)|
 202608272200|MichelSunset|Mont-Saint-Michel bei Flut, Manche, Normandie, Frankreich (© Clement LEONARD/Getty Images)|Zwischen Himmel und Meer|![](/de-DE/2026/08/202608272200MichelSunset.jpg)|
 202608282200|SantaCatarina|Luftaufnahme von Surfern, Santa Catarina, Brasilien (© Wonderful Nature/Shutterstock)|Zwischen den Wellen lesen|![](/de-DE/2026/08/202608282200SantaCatarina.jpg)|
+202608292200|YellowShark|Walhai und Goldmakrelen, Cenderawasih-Bucht, West-Papua, Indonesien (© Pete Oxford/Nature Picture Library)|Majestät der Ozeane|![](/de-DE/2026/08/202608292200YellowShark.jpg)|
