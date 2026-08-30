@@ -30,3 +30,4 @@
 202608271600|MichelSunset|涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)|潮汐塑造的传奇|![](/zh-CN/2026/08/202608271600MichelSunset.jpg)|
 202608281600|SantaCatarina|冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)|读懂浪涛之间的讯息|![](/zh-CN/2026/08/202608281600SantaCatarina.jpg)|
 202608291600|YellowShark|鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)|名为鲨鱼的巨型鱼类|![](/zh-CN/2026/08/202608291600YellowShark.jpg)|
+202608301600|SamarkandCeiling|雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)|图案艺术的典范|![](/zh-CN/2026/08/202608301600SamarkandCeiling.jpg)|
