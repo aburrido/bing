@@ -30,3 +30,4 @@
 202608271830|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-IN/2026/08/202608271830MichelSunset.jpg)|
 202608281830|SantaCatarina|Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)|Reading between the waves|![](/en-IN/2026/08/202608281830SantaCatarina.jpg)|
 202608291830|YellowShark|Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)|The fish that outgrew its name|![](/en-IN/2026/08/202608291830YellowShark.jpg)|
+202608301830|SamarkandCeiling|Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)|A master class in pattern|![](/en-IN/2026/08/202608301830SamarkandCeiling.jpg)|
