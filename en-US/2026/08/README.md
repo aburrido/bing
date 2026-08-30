@@ -30,3 +30,4 @@
 202608270700|LakeMagadi|Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)|Water, wildlife, and wonder|![](/en-US/2026/08/202608270700LakeMagadi.jpg)|
 202608280700|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-US/2026/08/202608280700MichelSunset.jpg)|
 202608290700|SantaCatarina|Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)|Reading between the waves|![](/en-US/2026/08/202608290700SantaCatarina.jpg)|
+202608300700|YellowShark|Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)|The fish that outgrew its name|![](/en-US/2026/08/202608300700YellowShark.jpg)|
