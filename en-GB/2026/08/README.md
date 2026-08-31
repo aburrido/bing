@@ -30,3 +30,4 @@
 202608272300|MichelSunset|Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)|Where tides shape a legend|![](/en-GB/2026/08/202608272300MichelSunset.jpg)|
 202608282300|NottingHillCarnival2026|Notting Hill Carnival, London (© Sebastian Remme/Alamy Live News)|A city painted in rhythm|![](/en-GB/2026/08/202608282300NottingHillCarnival2026.jpg)|
 202608292300|YellowShark|Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)|The fish that outgrew its name|![](/en-GB/2026/08/202608292300YellowShark.jpg)|
+202608302300|SamarkandCeiling|Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)|A master class in pattern|![](/en-GB/2026/08/202608302300SamarkandCeiling.jpg)|
