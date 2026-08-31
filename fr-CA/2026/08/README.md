@@ -30,3 +30,4 @@
 202608280400|MichelSunset|Le Mont-Saint-Michel à marée haute, Manche, Normandie, France (© Clement LEONARD/Getty Images)|Bercé par la marée|![](/fr-CA/2026/08/202608280400MichelSunset.jpg)|
 202608290400|SantaCatarina|Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)|L’art de lire entre les vagues|![](/fr-CA/2026/08/202608290400SantaCatarina.jpg)|
 202608300400|YellowShark|Requin-baleine et carangues royales, Golfe de Cenderawasih, Papouasie occidentale, Indonésie (© Pete Oxford/Nature Picture Library)|Un grand nom pour un gros poisson|![](/fr-CA/2026/08/202608300400YellowShark.jpg)|
+202608310400|SamarkandCeiling|Détails d’un plafond, Régistan, Samarcande, Ouzbékistan (© Piero M. Bianchi/Getty Images)|Quand la beauté du détail opère|![](/fr-CA/2026/08/202608310400SamarkandCeiling.jpg)|
