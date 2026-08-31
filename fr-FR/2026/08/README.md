@@ -31,3 +31,4 @@
 202608282200|SantaCatarina|Vue aérienne de surfeurs, Santa Catarina, Brésil (© Wonderful Nature/Shutterstock)|L’art de lire entre les vagues|![](/fr-FR/2026/08/202608282200SantaCatarina.jpg)|
 202608292200|YellowShark|Requin-baleine et carangues royales, Golfe de Cenderawasih, Papouasie occidentale, Indonésie (© Pete Oxford/Nature Picture Library)|Un grand nom pour un gros poisson|![](/fr-FR/2026/08/202608292200YellowShark.jpg)|
 202608302200|SamarkandCeiling|Détails d’un plafond, Régistan, Samarcande, Ouzbékistan (© Piero M. Bianchi/Getty Images)|Quand la beauté du détail opère|![](/fr-FR/2026/08/202608302200SamarkandCeiling.jpg)|
+202608312200|HorseHairShroom|Gymnopus androsaceus, Biélorussie (© Máté/Nature Picture Library)|Un monde entier sous nos pieds|![](/fr-FR/2026/08/202608312200HorseHairShroom.jpg)|

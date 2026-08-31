@@ -31,3 +31,4 @@
 202608282200|SantaCatarina|Luftaufnahme von Surfern, Santa Catarina, Brasilien (© Wonderful Nature/Shutterstock)|Zwischen den Wellen lesen|![](/de-DE/2026/08/202608282200SantaCatarina.jpg)|
 202608292200|YellowShark|Walhai und Goldmakrelen, Cenderawasih-Bucht, West-Papua, Indonesien (© Pete Oxford/Nature Picture Library)|Majestät der Ozeane|![](/de-DE/2026/08/202608292200YellowShark.jpg)|
 202608302200|SamarkandCeiling|Architektonisches Detail des Registan-Platzes, Samarkand, Usbekistan (© Piero M. Bianchi/Getty Images)|Ein Meisterwerk der Musterkunst|![](/de-DE/2026/08/202608302200SamarkandCeiling.jpg)|
+202608312200|HorseHairShroom|Rosshaar-Schwindling, Belarus (© Máté/Nature Picture Library)|Die verborgene Welt der Pilze|![](/de-DE/2026/08/202608312200HorseHairShroom.jpg)|
