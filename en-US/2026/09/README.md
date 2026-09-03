@@ -3,3 +3,4 @@
 202608310700|SamarkandCeiling|Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)|A master class in pattern|![](/en-US/2026/09/202608310700SamarkandCeiling.jpg)|
 202609010700|HorseHairShroom|Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)|A world beneath your feet|![](/en-US/2026/09/202609010700HorseHairShroom.jpg)|
 202609020700|SuffolkHuts|Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)|Painted along the shore|![](/en-US/2026/09/202609020700SuffolkHuts.jpg)|
+202609030700|AZWilderness|Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)|An act of wilderness|![](/en-US/2026/09/202609030700AZWilderness.jpg)|
