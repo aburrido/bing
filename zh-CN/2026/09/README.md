@@ -5,3 +5,4 @@
 202609021600|AZWilderness|郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国 (© James Hager/Getty Images)|一部守护荒野的法案|![](/zh-CN/2026/09/202609021600AZWilderness.jpg)|
 202609031600|Westerheversand|韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国 (© bluejayphoto/Getty Images)|地平线上的红与白|![](/zh-CN/2026/09/202609031600Westerheversand.jpg)|
 202609041600|GreenCrowned|龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加 (© Paul Hobson/Nature Picture Library)|小小鸟儿，巨大影响|![](/zh-CN/2026/09/202609041600GreenCrowned.jpg)|
+202609051600|LakeFyans|菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)|倒影满湖的水库|![](/zh-CN/2026/09/202609051600LakeFyans.jpg)|
