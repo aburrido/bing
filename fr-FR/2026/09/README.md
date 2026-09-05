@@ -5,3 +5,4 @@
 202609022200|AZWilderness|Buttes Coyote, Monument national des Falaises Vermilion, Arizona, États-Unis (© James Hager/Getty Images)|Une mer de grès|![](/fr-FR/2026/09/202609022200AZWilderness.jpg)|
 202609032200|Westerheversand|Phare de Westerheversand à Westerhever, Schleswig-Holstein, Allemagne (© bluejayphoto/Getty Images)|Rouge et blanc à l’horizon|![](/fr-FR/2026/09/202609032200Westerheversand.jpg)|
 202609042200|LillePlace|La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)|Le rendez-vous des chineurs|![](/fr-FR/2026/09/202609042200LillePlace.jpg)|
+202609052200|LakeFyans|Lac Fyans, Parc national des Grampians, Victoria, Australie (© tracielouise/Getty Images)|Des reflets infinis|![](/fr-FR/2026/09/202609052200LakeFyans.jpg)|
