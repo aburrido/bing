@@ -6,3 +6,4 @@
 202609032200|Westerheversand|Phare de Westerheversand à Westerhever, Schleswig-Holstein, Allemagne (© bluejayphoto/Getty Images)|Rouge et blanc à l’horizon|![](/fr-FR/2026/09/202609032200Westerheversand.jpg)|
 202609042200|LillePlace|La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)|Le rendez-vous des chineurs|![](/fr-FR/2026/09/202609042200LillePlace.jpg)|
 202609052200|LakeFyans|Lac Fyans, Parc national des Grampians, Victoria, Australie (© tracielouise/Getty Images)|Des reflets infinis|![](/fr-FR/2026/09/202609052200LakeFyans.jpg)|
+202609062200|BambergTownhall|Ancien hôtel de ville de Bamberg, Allemagne (© SCStock/Getty Images)|Quand l’histoire coule le long de la rivière|![](/fr-FR/2026/09/202609062200BambergTownhall.jpg)|

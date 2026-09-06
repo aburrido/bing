@@ -6,3 +6,4 @@
 202609032200|HorizontHerten|Horizontobservatorium, Halde Hoheward, Herten, Nordrhein-Westfalen (© lilly3/Getty Images)|Bögen zum Horizont|![](/de-DE/2026/09/202609032200HorizontHerten.jpg)|
 202609042200|GreenCrowned|Grünstirn-Brillantkolibris an Helikonienblüten, Costa Rica (© Paul Hobson/Nature Picture Library)|Kleine Vögel, große Wirkung|![](/de-DE/2026/09/202609042200GreenCrowned.jpg)|
 202609052200|LakeFyans|Fyans-See, Grampians-Nationalpark, Victoria, Australien (© tracielouise/Getty Images)|Ein See voller Spiegelungen|![](/de-DE/2026/09/202609052200LakeFyans.jpg)|
+202609062200|MisurinaPeak|Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)|Ein Riff über den Wolken|![](/de-DE/2026/09/202609062200MisurinaPeak.jpg)|
