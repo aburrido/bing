@@ -6,3 +6,4 @@
 202609032300|Westerheversand|Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)|Red and white on the horizon|![](/en-GB/2026/09/202609032300Westerheversand.jpg)|
 202609042300|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Masters of the surf and shore|![](/en-GB/2026/09/202609042300SardineBait.jpg)|
 202609052300|LakeFyans|Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)|A reservoir of reflections|![](/en-GB/2026/09/202609052300LakeFyans.jpg)|
+202609062300|BambergTownhall|Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)|Where history flows along the canal|![](/en-GB/2026/09/202609062300BambergTownhall.jpg)|
