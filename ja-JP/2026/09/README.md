@@ -7,3 +7,4 @@
 202609041500|GreenCrowned|ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)|今日は米国のハチドリの日|![](/ja-JP/2026/09/202609041500GreenCrowned.jpg)|
 202609051500|LakeFyans|ファイアンズ湖, オーストラリア (© tracielouise/Getty Images)|空を映す静かな人工貯水池|![](/ja-JP/2026/09/202609051500LakeFyans.jpg)|
 202609061500|BambergTownhall|バンベルク市街, ドイツ (© SCStock/Getty Images)|川の上に建つ旧市庁舎|![](/ja-JP/2026/09/202609061500BambergTownhall.jpg)|
+202609071500|BeechEngland|イースト・ミーオン, イングランド (© Guy Edwardes/Minden Pictures)|黄金色の麦畑に立つブナの木|![](/ja-JP/2026/09/202609071500BeechEngland.jpg)|
