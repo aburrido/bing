@@ -7,3 +7,4 @@
 202609041600|GreenCrowned|龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加 (© Paul Hobson/Nature Picture Library)|小小鸟儿，巨大影响|![](/zh-CN/2026/09/202609041600GreenCrowned.jpg)|
 202609051600|LakeFyans|菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)|倒影满湖的水库|![](/zh-CN/2026/09/202609051600LakeFyans.jpg)|
 202609061600|BambergTownhall|老市政厅，班贝格，德国 (© SCStock/Getty Images)|历史沿运河流淌之地|![](/zh-CN/2026/09/202609061600BambergTownhall.jpg)|
+202609071600|BeechEngland|东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)|金色田野|![](/zh-CN/2026/09/202609071600BeechEngland.jpg)|
