@@ -7,3 +7,4 @@
 202609040700|Westerheversand|Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)|Red and white on the horizon|![](/en-US/2026/09/202609040700Westerheversand.jpg)|
 202609050700|GreenCrowned|Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)|Small birds, big impact|![](/en-US/2026/09/202609050700GreenCrowned.jpg)|
 202609060700|LakeFyans|Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)|A reservoir of reflections|![](/en-US/2026/09/202609060700LakeFyans.jpg)|
+202609070700|RalphStackpole|'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)|Labor's legacy|![](/en-US/2026/09/202609070700RalphStackpole.jpg)|
