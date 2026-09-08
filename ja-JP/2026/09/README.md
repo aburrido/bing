@@ -8,3 +8,4 @@
 202609051500|LakeFyans|ファイアンズ湖, オーストラリア (© tracielouise/Getty Images)|空を映す静かな人工貯水池|![](/ja-JP/2026/09/202609051500LakeFyans.jpg)|
 202609061500|BambergTownhall|バンベルク市街, ドイツ (© SCStock/Getty Images)|川の上に建つ旧市庁舎|![](/ja-JP/2026/09/202609061500BambergTownhall.jpg)|
 202609071500|BeechEngland|イースト・ミーオン, イングランド (© Guy Edwardes/Minden Pictures)|黄金色の麦畑に立つブナの木|![](/ja-JP/2026/09/202609071500BeechEngland.jpg)|
+202609081500|ChungYang2026|菊の花 (© yanjf/Getty Images)|今日は重陽の節句|![](/ja-JP/2026/09/202609081500ChungYang2026.jpg)|
