@@ -7,3 +7,4 @@
 202609050400|GreenCrowned|Brillant à couronne verte butinant des fleurs tropicales de pinces de homard, Costa Rica (© Paul Hobson/Nature Picture Library)|De petits oiseaux au grand impact|![](/fr-CA/2026/09/202609050400GreenCrowned.jpg)|
 202609060400|LakeFyans|Lac Fyans, Parc national des Grampians, Victoria, Australie (© tracielouise/Getty Images)|Des reflets infinis|![](/fr-CA/2026/09/202609060400LakeFyans.jpg)|
 202609070400|BambergTownhall|Ancien hôtel de ville de Bamberg, Allemagne (© SCStock/Getty Images)|Quand l’histoire coule le long de la rivière|![](/fr-CA/2026/09/202609070400BambergTownhall.jpg)|
+202609080400|BeechEngland|Hêtre au milieu de champs de céréales, East Meon, Parc national des South Downs, Hampshire, Angleterre (© Guy Edwardes/Minden Pictures)|Au cœur des champs dorés|![](/fr-CA/2026/09/202609080400BeechEngland.jpg)|

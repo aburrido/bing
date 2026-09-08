@@ -7,3 +7,4 @@
 202609050400|GreenCrowned|Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)|Small birds, big impact|![](/en-CA/2026/09/202609050400GreenCrowned.jpg)|
 202609060400|LakeFyans|Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)|A reservoir of reflections|![](/en-CA/2026/09/202609060400LakeFyans.jpg)|
 202609070400|BambergTownhall|Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)|Where history flows along the canal|![](/en-CA/2026/09/202609070400BambergTownhall.jpg)|
+202609080400|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Fields of gold|![](/en-CA/2026/09/202609080400BeechEngland.jpg)|
