@@ -8,3 +8,4 @@
 202609052300|LakeFyans|Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)|A reservoir of reflections|![](/en-GB/2026/09/202609052300LakeFyans.jpg)|
 202609062300|BambergTownhall|Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)|Where history flows along the canal|![](/en-GB/2026/09/202609062300BambergTownhall.jpg)|
 202609072300|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Fields of gold|![](/en-GB/2026/09/202609072300BeechEngland.jpg)|
+202609082300|GabitKeni|Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)|Life on India's west coast|![](/en-GB/2026/09/202609082300GabitKeni.jpg)|
