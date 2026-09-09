@@ -9,3 +9,4 @@
 202609060700|LakeFyans|Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)|Info|![](/en-AU/2026/09/202609060700LakeFyans.jpg)|
 202609070700|BambergTownhall|Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)|Info|![](/en-AU/2026/09/202609070700BambergTownhall.jpg)|
 202609080700|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2026/09/202609080700BeechEngland.jpg)|
+202609090700|PurplePuffin|Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)|Info|![](/en-AU/2026/09/202609090700PurplePuffin.jpg)|
