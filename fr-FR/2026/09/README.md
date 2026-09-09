@@ -9,3 +9,4 @@
 202609062200|BambergTownhall|Ancien hôtel de ville de Bamberg, Allemagne (© SCStock/Getty Images)|Quand l’histoire coule le long de la rivière|![](/fr-FR/2026/09/202609062200BambergTownhall.jpg)|
 202609072200|BeechEngland|Hêtre au milieu de champs de céréales, East Meon, Parc national des South Downs, Hampshire, Angleterre (© Guy Edwardes/Minden Pictures)|Au cœur des champs dorés|![](/fr-FR/2026/09/202609072200BeechEngland.jpg)|
 202609082200|GabitKeni|Plage de Gabit Keni près d’Ankola, Karnataka, Inde (© Amith Nag Photography/Getty Images)|La vie sur la côte sud de l’Inde|![](/fr-FR/2026/09/202609082200GabitKeni.jpg)|
+202609092200|Olvera|Vue aérienne d’Olvera, Andalousie, Espagne (© Marco Bottigelli/Getty Images)|Un patchwork vu du dessus|![](/fr-FR/2026/09/202609092200Olvera.jpg)|
