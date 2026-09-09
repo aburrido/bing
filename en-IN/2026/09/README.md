@@ -9,3 +9,4 @@
 202609061830|BambergTownhall|Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)|Where history flows along the canal|![](/en-IN/2026/09/202609061830BambergTownhall.jpg)|
 202609071830|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Fields of gold|![](/en-IN/2026/09/202609071830BeechEngland.jpg)|
 202609081830|GabitKeni|Gabit Keni Beach near Ankola, Karnataka (© Amith Nag Photography/Getty Images)|Life on India's west coast|![](/en-IN/2026/09/202609081830GabitKeni.jpg)|
+202609091830|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|A patchwork from above|![](/en-IN/2026/09/202609091830Olvera.jpg)|
