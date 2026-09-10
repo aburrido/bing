@@ -9,3 +9,4 @@
 202609070400|BambergTownhall|Ancien hôtel de ville de Bamberg, Allemagne (© SCStock/Getty Images)|Quand l’histoire coule le long de la rivière|![](/fr-CA/2026/09/202609070400BambergTownhall.jpg)|
 202609080400|BeechEngland|Hêtre au milieu de champs de céréales, East Meon, Parc national des South Downs, Hampshire, Angleterre (© Guy Edwardes/Minden Pictures)|Au cœur des champs dorés|![](/fr-CA/2026/09/202609080400BeechEngland.jpg)|
 202609090400|GabitKeni|Plage de Gabit Keni près d’Ankola, Karnataka, Inde (© Amith Nag Photography/Getty Images)|La vie sur la côte sud de l’Inde|![](/fr-CA/2026/09/202609090400GabitKeni.jpg)|
+202609100400|TIFFRoy|Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)|Préparez le maïs soufflé!|![](/fr-CA/2026/09/202609100400TIFFRoy.jpg)|
