@@ -10,3 +10,4 @@
 202609071600|BeechEngland|东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)|金色田野|![](/zh-CN/2026/09/202609071600BeechEngland.jpg)|
 202609081600|GabitKeni|安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)|印度西海岸的生活|![](/zh-CN/2026/09/202609081600GabitKeni.jpg)|
 202609091600|Olvera|奥尔韦拉航拍图，安达卢西亚，西班牙 (© Marco Bottigelli/Getty Images)|俯瞰大地拼图|![](/zh-CN/2026/09/202609091600Olvera.jpg)|
+202609101600|FrenchRivieraVillage|滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)|地中海风情尽显|![](/zh-CN/2026/09/202609101600FrenchRivieraVillage.jpg)|
