@@ -10,3 +10,4 @@
 202609070700|BambergTownhall|Old Town Hall, Bamberg, Germany (© SCStock/Getty Images)|Info|![](/en-AU/2026/09/202609070700BambergTownhall.jpg)|
 202609080700|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Info|![](/en-AU/2026/09/202609080700BeechEngland.jpg)|
 202609090700|PurplePuffin|Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)|Info|![](/en-AU/2026/09/202609090700PurplePuffin.jpg)|
+202609100700|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2026/09/202609100700Olvera.jpg)|

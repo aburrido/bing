@@ -10,3 +10,4 @@
 202609070700|RalphStackpole|'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)|Labor's legacy|![](/en-US/2026/09/202609070700RalphStackpole.jpg)|
 202609080700|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Fields of gold|![](/en-US/2026/09/202609080700BeechEngland.jpg)|
 202609090700|GabitKeni|Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)|Life on India's west coast|![](/en-US/2026/09/202609090700GabitKeni.jpg)|
+202609100700|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|A patchwork from above|![](/en-US/2026/09/202609100700Olvera.jpg)|
