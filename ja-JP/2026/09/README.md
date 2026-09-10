@@ -10,3 +10,4 @@
 202609071500|BeechEngland|イースト・ミーオン, イングランド (© Guy Edwardes/Minden Pictures)|黄金色の麦畑に立つブナの木|![](/ja-JP/2026/09/202609071500BeechEngland.jpg)|
 202609081500|ChungYang2026|菊の花 (© yanjf/Getty Images)|今日は重陽の節句|![](/ja-JP/2026/09/202609081500ChungYang2026.jpg)|
 202609091500|Olvera|オルベラ, スペイン (© Marco Bottigelli/Getty Images)|赤茶色の屋根が映えるアンダルシアの街|![](/ja-JP/2026/09/202609091500Olvera.jpg)|
+202609101500|GabitKeni|ガビット・ケニ・ビーチ, インド (© Amith Nag Photography/Getty Images)|美しい海辺の風景|![](/ja-JP/2026/09/202609101500GabitKeni.jpg)|
