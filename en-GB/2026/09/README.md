@@ -11,3 +11,4 @@
 202609082300|GabitKeni|Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)|Life on India's west coast|![](/en-GB/2026/09/202609082300GabitKeni.jpg)|
 202609092300|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|A patchwork from above|![](/en-GB/2026/09/202609092300Olvera.jpg)|
 202609102300|FrenchRivieraVillage|The bay of Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur, France (© StockByM/Getty Images)|Where the Mediterranean reigns supreme|![](/en-GB/2026/09/202609102300FrenchRivieraVillage.jpg)|
+202609112300|LastNightOfTheProms2026|Interior of the Royal Albert Hall, London (© William Barton/Shutterstock)|A finale worth singing about|![](/en-GB/2026/09/202609112300LastNightOfTheProms2026.jpg)|

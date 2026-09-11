@@ -11,3 +11,4 @@
 202609082200|GabitKeni|Plage de Gabit Keni près d’Ankola, Karnataka, Inde (© Amith Nag Photography/Getty Images)|La vie sur la côte sud de l’Inde|![](/fr-FR/2026/09/202609082200GabitKeni.jpg)|
 202609092200|Olvera|Vue aérienne d’Olvera, Andalousie, Espagne (© Marco Bottigelli/Getty Images)|Un patchwork vu du dessus|![](/fr-FR/2026/09/202609092200Olvera.jpg)|
 202609102200|FrenchRivieraVillage|Vue aérienne de la baie de Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur (© StockByM/Getty Images)|Là où la Méditerranée est reine|![](/fr-FR/2026/09/202609102200FrenchRivieraVillage.jpg)|
+202609112200|SardineBait|Des lions de mer de Californie chassant un banc de sardines au large du Mexique, Océan Pacifique (© Henley Spiers/Nature Picture Library)|Des maîtres de la glisse|![](/fr-FR/2026/09/202609112200SardineBait.jpg)|
