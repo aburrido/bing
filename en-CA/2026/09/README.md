@@ -10,3 +10,4 @@
 202609080400|BeechEngland|Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)|Fields of gold|![](/en-CA/2026/09/202609080400BeechEngland.jpg)|
 202609090400|GabitKeni|Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)|Life on India's west coast|![](/en-CA/2026/09/202609090400GabitKeni.jpg)|
 202609100400|TIFFRoy|The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)|Plot twist pending|![](/en-CA/2026/09/202609100400TIFFRoy.jpg)|
+202609110400|FrenchRivieraVillage|Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)|Where the Mediterranean reigns supreme|![](/en-CA/2026/09/202609110400FrenchRivieraVillage.jpg)|
