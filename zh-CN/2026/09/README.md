@@ -11,3 +11,4 @@
 202609081600|GabitKeni|安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)|印度西海岸的生活|![](/zh-CN/2026/09/202609081600GabitKeni.jpg)|
 202609091600|Olvera|奥尔韦拉航拍图，安达卢西亚，西班牙 (© Marco Bottigelli/Getty Images)|俯瞰大地拼图|![](/zh-CN/2026/09/202609091600Olvera.jpg)|
 202609101600|FrenchRivieraVillage|滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)|地中海风情尽显|![](/zh-CN/2026/09/202609101600FrenchRivieraVillage.jpg)|
+202609111600|SardineBait|墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋 (© Henley Spiers/Nature Picture Library)|海浪与海岸的高手|![](/zh-CN/2026/09/202609111600SardineBait.jpg)|
