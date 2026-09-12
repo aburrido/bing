@@ -12,3 +12,4 @@
 202609091500|Olvera|オルベラ, スペイン (© Marco Bottigelli/Getty Images)|赤茶色の屋根が映えるアンダルシアの街|![](/ja-JP/2026/09/202609091500Olvera.jpg)|
 202609101500|GabitKeni|ガビット・ケニ・ビーチ, インド (© Amith Nag Photography/Getty Images)|美しい海辺の風景|![](/ja-JP/2026/09/202609101500GabitKeni.jpg)|
 202609111500|SardineBait|カリフォルニアアシカ, メキシコ沖 (© Henley Spiers/Nature Picture Library)|イワシの群れを狙うカリフォルニアアシカ|![](/ja-JP/2026/09/202609111500SardineBait.jpg)|
+202609121500|MisurinaPeak|カディーニ・ディ・ミズリーナ山塊, イタリア (© Vithun Khamsong/Getty Images)|雲間にそびえる鋭い峰々|![](/ja-JP/2026/09/202609121500MisurinaPeak.jpg)|
