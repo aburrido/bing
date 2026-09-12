@@ -12,3 +12,4 @@
 202609090700|GabitKeni|Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)|Life on India's west coast|![](/en-US/2026/09/202609090700GabitKeni.jpg)|
 202609100700|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|A patchwork from above|![](/en-US/2026/09/202609100700Olvera.jpg)|
 202609110700|Flight93|The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)|A legacy of heroism|![](/en-US/2026/09/202609110700Flight93.jpg)|
+202609120700|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Masters of the surf and shore|![](/en-US/2026/09/202609120700SardineBait.jpg)|
