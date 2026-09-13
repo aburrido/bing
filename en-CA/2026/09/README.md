@@ -12,3 +12,4 @@
 202609100400|TIFFRoy|The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)|Plot twist pending|![](/en-CA/2026/09/202609100400TIFFRoy.jpg)|
 202609110400|FrenchRivieraVillage|Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)|Where the Mediterranean reigns supreme|![](/en-CA/2026/09/202609110400FrenchRivieraVillage.jpg)|
 202609120400|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Masters of the surf and shore|![](/en-CA/2026/09/202609120400SardineBait.jpg)|
+202609130400|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-CA/2026/09/202609130400MisurinaPeak.jpg)|

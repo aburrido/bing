@@ -12,3 +12,4 @@
 202609100400|TIFFRoy|Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)|Préparez le maïs soufflé!|![](/fr-CA/2026/09/202609100400TIFFRoy.jpg)|
 202609110400|FrenchRivieraVillage|Vue aérienne de la baie de Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur, France (© StockByM/Getty Images)|Là où la Méditerranée est reine|![](/fr-CA/2026/09/202609110400FrenchRivieraVillage.jpg)|
 202609120400|SardineBait|Des lions de mer de Californie chassant un banc de sardines au large du Mexique, Océan Pacifique (© Henley Spiers/Nature Picture Library)|Des maîtres de la glisse|![](/fr-CA/2026/09/202609120400SardineBait.jpg)|
+202609130400|MisurinaPeak|Cadini di Misurina, Dolomites, Vénétie, Italie (© Vithun Khamsong/Getty Images)|Un toit au-dessus de l’Italie|![](/fr-CA/2026/09/202609130400MisurinaPeak.jpg)|
