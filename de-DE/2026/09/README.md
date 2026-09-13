@@ -13,3 +13,4 @@
 202609102200|FrenchRivieraVillage|Villefranche-sur-Mer, Alpes-Maritimes, Côte d’Azur, Frankreich (© StockByM/Getty Images)|Wo das Mittelmeer regiert|![](/de-DE/2026/09/202609102200FrenchRivieraVillage.jpg)|
 202609112200|SardineBait|Kalifornische Seelöwen bei der Jagd auf einen Sardinen-Köderball vor der Küste Mexikos im Pazifik (© Henley Spiers/Nature Picture Library)|Meister der Brandung|![](/de-DE/2026/09/202609112200SardineBait.jpg)|
 202609122200|BambergTownhall|Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)|Verbindungen über Jahrhunderte|![](/de-DE/2026/09/202609122200BambergTownhall.jpg)|
+202609132200|KochiaChina|Feld mit Besen-Radmelden, China (© lingqi xie/Getty Images)|Wo Widerstandskraft Wurzeln schlägt|![](/de-DE/2026/09/202609132200KochiaChina.jpg)|
