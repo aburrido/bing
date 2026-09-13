@@ -13,3 +13,4 @@
 202609101830|FrenchRivieraVillage|The bay of Villefranche-sur-Mer, Alpes-Maritimes, Provence-Alpes-Côte d'Azur, France (© StockByM/Getty Images)|Where the Mediterranean reigns supreme|![](/en-IN/2026/09/202609101830FrenchRivieraVillage.jpg)|
 202609111830|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Masters of the surf and shore|![](/en-IN/2026/09/202609111830SardineBait.jpg)|
 202609121830|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-IN/2026/09/202609121830MisurinaPeak.jpg)|
+202609131830|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-IN/2026/09/202609131830KochiaChina.jpg)|
