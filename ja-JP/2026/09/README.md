@@ -13,3 +13,4 @@
 202609101500|GabitKeni|ガビット・ケニ・ビーチ, インド (© Amith Nag Photography/Getty Images)|美しい海辺の風景|![](/ja-JP/2026/09/202609101500GabitKeni.jpg)|
 202609111500|SardineBait|カリフォルニアアシカ, メキシコ沖 (© Henley Spiers/Nature Picture Library)|イワシの群れを狙うカリフォルニアアシカ|![](/ja-JP/2026/09/202609111500SardineBait.jpg)|
 202609121500|MisurinaPeak|カディーニ・ディ・ミズリーナ山塊, イタリア (© Vithun Khamsong/Getty Images)|雲間にそびえる鋭い峰々|![](/ja-JP/2026/09/202609121500MisurinaPeak.jpg)|
+202609131500|Cosmos2026|川辺のコスモス (© iplan/a.collectionRF/Getty Images)|今日はコスモスの日|![](/ja-JP/2026/09/202609131500Cosmos2026.jpg)|
