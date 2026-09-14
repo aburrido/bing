@@ -14,3 +14,4 @@
 202609110700|Flight93|The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)|A legacy of heroism|![](/en-US/2026/09/202609110700Flight93.jpg)|
 202609120700|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Masters of the surf and shore|![](/en-US/2026/09/202609120700SardineBait.jpg)|
 202609130700|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-US/2026/09/202609130700MisurinaPeak.jpg)|
+202609140700|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-US/2026/09/202609140700KochiaChina.jpg)|
