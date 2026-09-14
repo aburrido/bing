@@ -14,3 +14,4 @@
 202609111830|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Masters of the surf and shore|![](/en-IN/2026/09/202609111830SardineBait.jpg)|
 202609121830|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-IN/2026/09/202609121830MisurinaPeak.jpg)|
 202609131830|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-IN/2026/09/202609131830KochiaChina.jpg)|
+202609141830|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Survival of the flashiest|![](/en-IN/2026/09/202609141830RedMacawsFlight.jpg)|
