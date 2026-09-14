@@ -14,3 +14,4 @@
 202609112200|SardineBait|Des lions de mer de Californie chassant un banc de sardines au large du Mexique, Océan Pacifique (© Henley Spiers/Nature Picture Library)|Des maîtres de la glisse|![](/fr-FR/2026/09/202609112200SardineBait.jpg)|
 202609122200|MisurinaPeak|Cadini di Misurina, Dolomites, Vénétie, Italie (© Vithun Khamsong/Getty Images)|Un toit au-dessus de l’Italie|![](/fr-FR/2026/09/202609122200MisurinaPeak.jpg)|
 202609132200|KochiaChina|Champ de kochia, Chine (© lingqi xie/Getty Images)|Quand la tenacité prend racine|![](/fr-FR/2026/09/202609132200KochiaChina.jpg)|
+202609142200|RedMacawsFlight|Aras chloroptères, Amérique du Sud (© markes51/Getty Images)|Ça plane pour moi !|![](/fr-FR/2026/09/202609142200RedMacawsFlight.jpg)|

@@ -14,3 +14,4 @@
 202609112300|LastNightOfTheProms2026|Interior of the Royal Albert Hall, London (© William Barton/Shutterstock)|A finale worth singing about|![](/en-GB/2026/09/202609112300LastNightOfTheProms2026.jpg)|
 202609122300|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-GB/2026/09/202609122300MisurinaPeak.jpg)|
 202609132300|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-GB/2026/09/202609132300KochiaChina.jpg)|
+202609142300|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Survival of the flashiest|![](/en-GB/2026/09/202609142300RedMacawsFlight.jpg)|
