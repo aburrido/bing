@@ -15,3 +15,4 @@
 202609120700|SardineBait|California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)|Info|![](/en-AU/2026/09/202609120700SardineBait.jpg)|
 202609130700|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|Info|![](/en-AU/2026/09/202609130700MisurinaPeak.jpg)|
 202609140700|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Info|![](/en-AU/2026/09/202609140700KochiaChina.jpg)|
+202609150700|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Info|![](/en-AU/2026/09/202609150700RedMacawsFlight.jpg)|
