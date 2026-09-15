@@ -15,3 +15,4 @@
 202609122200|MisurinaPeak|Cadini di Misurina, Dolomites, Vénétie, Italie (© Vithun Khamsong/Getty Images)|Un toit au-dessus de l’Italie|![](/fr-FR/2026/09/202609122200MisurinaPeak.jpg)|
 202609132200|KochiaChina|Champ de kochia, Chine (© lingqi xie/Getty Images)|Quand la tenacité prend racine|![](/fr-FR/2026/09/202609132200KochiaChina.jpg)|
 202609142200|RedMacawsFlight|Aras chloroptères, Amérique du Sud (© markes51/Getty Images)|Ça plane pour moi !|![](/fr-FR/2026/09/202609142200RedMacawsFlight.jpg)|
+202609152200|IcyCubs|Oursons polaires à Svalbard, Norvège (© Danny Green/Nature Picture Library)|L’Arctique comme terrain de jeux|![](/fr-FR/2026/09/202609152200IcyCubs.jpg)|

@@ -15,3 +15,4 @@
 202609122200|BambergTownhall|Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)|Verbindungen über Jahrhunderte|![](/de-DE/2026/09/202609122200BambergTownhall.jpg)|
 202609132200|KochiaChina|Feld mit Besen-Radmelden, China (© lingqi xie/Getty Images)|Wo Widerstandskraft Wurzeln schlägt|![](/de-DE/2026/09/202609132200KochiaChina.jpg)|
 202609142200|RedMacawsFlight|Grünflügelaras (© markes51/Getty Images)|Das Überleben der Auffälligsten|![](/de-DE/2026/09/202609142200RedMacawsFlight.jpg)|
+202609152200|IcyCubs|Eisbärenjunge spielen auf Spitzbergen, Norwegen (© Danny Green/Nature Picture Library)|Die neuen Entdecker der Arktis|![](/de-DE/2026/09/202609152200IcyCubs.jpg)|
