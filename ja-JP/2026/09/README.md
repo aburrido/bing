@@ -16,3 +16,4 @@
 202609131500|Cosmos2026|川辺のコスモス (© iplan/a.collectionRF/Getty Images)|今日はコスモスの日|![](/ja-JP/2026/09/202609131500Cosmos2026.jpg)|
 202609141500|KochiaChina|コキア, 中国 (© lingqi xie/Getty Images)|緑から紅へと染まる秋景色|![](/ja-JP/2026/09/202609141500KochiaChina.jpg)|
 202609151500|IcyCubs|ホッキョクグマの子, ノルウェー (© Danny Green/Nature Picture Library)|氷の世界で遊ぶ子グマたち|![](/ja-JP/2026/09/202609151500IcyCubs.jpg)|
+202609161500|Santenay|サントネー, フランス (© Marco Bottigelli/Getty Images)|収穫期を迎えたブドウ畑|![](/ja-JP/2026/09/202609161500Santenay.jpg)|

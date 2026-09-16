@@ -16,3 +16,4 @@
 202609131600|KochiaChina|地肤田，中国 (© lingqi xie/Getty Images)|坚韧在此扎根|![](/zh-CN/2026/09/202609131600KochiaChina.jpg)|
 202609141600|RedMacawsFlight|红绿金刚鹦鹉 (© markes51/Getty Images)|最炫者生存|![](/zh-CN/2026/09/202609141600RedMacawsFlight.jpg)|
 202609151600|IcyCubs|斯瓦尔巴群岛玩耍的北极熊幼崽，挪威 (© Danny Green/Nature Picture Library)|北极的新晋探索者|![](/zh-CN/2026/09/202609151600IcyCubs.jpg)|
+202609161600|Santenay|桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国 (© Marco Bottigelli/Getty Images)|为丰收举杯|![](/zh-CN/2026/09/202609161600Santenay.jpg)|
