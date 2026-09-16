@@ -15,3 +15,4 @@
 202609130400|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-CA/2026/09/202609130400MisurinaPeak.jpg)|
 202609140400|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-CA/2026/09/202609140400KochiaChina.jpg)|
 202609150400|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Survival of the flashiest|![](/en-CA/2026/09/202609150400RedMacawsFlight.jpg)|
+202609160400|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-CA/2026/09/202609160400IcyCubs.jpg)|
