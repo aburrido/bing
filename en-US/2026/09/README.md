@@ -16,3 +16,4 @@
 202609130700|MisurinaPeak|Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)|A reef above its station|![](/en-US/2026/09/202609130700MisurinaPeak.jpg)|
 202609140700|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-US/2026/09/202609140700KochiaChina.jpg)|
 202609150700|FortUnion|Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)|A crossroad of cultures|![](/en-US/2026/09/202609150700FortUnion.jpg)|
+202609160700|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-US/2026/09/202609160700IcyCubs.jpg)|
