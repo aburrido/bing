@@ -16,3 +16,4 @@
 202609131830|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-IN/2026/09/202609131830KochiaChina.jpg)|
 202609141830|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Survival of the flashiest|![](/en-IN/2026/09/202609141830RedMacawsFlight.jpg)|
 202609151830|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-IN/2026/09/202609151830IcyCubs.jpg)|
+202609161830|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|A toast to the harvest|![](/en-IN/2026/09/202609161830Santenay.jpg)|
