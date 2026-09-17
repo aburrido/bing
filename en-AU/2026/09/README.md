@@ -17,3 +17,4 @@
 202609140700|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Info|![](/en-AU/2026/09/202609140700KochiaChina.jpg)|
 202609150700|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Info|![](/en-AU/2026/09/202609150700RedMacawsFlight.jpg)|
 202609160700|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|Info|![](/en-AU/2026/09/202609160700IcyCubs.jpg)|
+202609170700|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2026/09/202609170700Santenay.jpg)|

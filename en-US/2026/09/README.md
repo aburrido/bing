@@ -17,3 +17,4 @@
 202609140700|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-US/2026/09/202609140700KochiaChina.jpg)|
 202609150700|FortUnion|Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)|A crossroad of cultures|![](/en-US/2026/09/202609150700FortUnion.jpg)|
 202609160700|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-US/2026/09/202609160700IcyCubs.jpg)|
+202609170700|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|A toast to the harvest|![](/en-US/2026/09/202609170700Santenay.jpg)|
