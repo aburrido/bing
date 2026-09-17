@@ -17,3 +17,4 @@
 202609142200|RedMacawsFlight|Grünflügelaras (© markes51/Getty Images)|Das Überleben der Auffälligsten|![](/de-DE/2026/09/202609142200RedMacawsFlight.jpg)|
 202609152200|IcyCubs|Eisbärenjunge spielen auf Spitzbergen, Norwegen (© Danny Green/Nature Picture Library)|Die neuen Entdecker der Arktis|![](/de-DE/2026/09/202609152200IcyCubs.jpg)|
 202609162200|Santenay|Windmühle von Sorine und Weinberge in der Weinregion Santenay, Côte de Beaune, Burgund, Frankreich (© Marco Bottigelli/Getty Images)|Ein Hoch auf die Ernte|![](/de-DE/2026/09/202609162200Santenay.jpg)|
+202609172200|WinnatsPassPeak|Winnats Pass im Peak-District-Nationalpark, England (© Daniel_Kay/Getty Images)|Durch das Herz des Passes|![](/de-DE/2026/09/202609172200WinnatsPassPeak.jpg)|
