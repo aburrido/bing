@@ -16,3 +16,4 @@
 202609140400|KochiaChina|Field of kochia plants, China (© lingqi xie/Getty Images)|Where toughness takes root|![](/en-CA/2026/09/202609140400KochiaChina.jpg)|
 202609150400|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Survival of the flashiest|![](/en-CA/2026/09/202609150400RedMacawsFlight.jpg)|
 202609160400|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-CA/2026/09/202609160400IcyCubs.jpg)|
+202609170400|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|A patchwork from above|![](/en-CA/2026/09/202609170400Olvera.jpg)|
