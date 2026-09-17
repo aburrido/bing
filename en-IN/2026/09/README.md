@@ -17,3 +17,4 @@
 202609141830|RedMacawsFlight|Red-and-green macaws (© markes51/Getty Images)|Survival of the flashiest|![](/en-IN/2026/09/202609141830RedMacawsFlight.jpg)|
 202609151830|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-IN/2026/09/202609151830IcyCubs.jpg)|
 202609161830|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|A toast to the harvest|![](/en-IN/2026/09/202609161830Santenay.jpg)|
+202609171830|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Through the heart of the pass|![](/en-IN/2026/09/202609171830WinnatsPassPeak.jpg)|
