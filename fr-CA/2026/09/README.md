@@ -17,3 +17,4 @@
 202609150400|RedMacawsFlight|Aras chloroptères, Amérique du Sud (© markes51/Getty Images)|Ça plane pour moi!|![](/fr-CA/2026/09/202609150400RedMacawsFlight.jpg)|
 202609160400|IcyCubs|Oursons polaires à Svalbard, Norvège (© Danny Green/Nature Picture Library)|L’Arctique comme terrain de jeux|![](/fr-CA/2026/09/202609160400IcyCubs.jpg)|
 202609170400|Santenay|Le moulin à vent et les vignobles de Sorine, Santenay, Côte de Beaune, Bourgogne, France (© Marco Bottigelli/Getty Images)|Santé !|![](/fr-CA/2026/09/202609170400Santenay.jpg)|
+202609180400|WinnatsPassPeak|Col de Winnats, Parc national du Peak District, Angleterre (© Daniel_Kay/Getty Images)|Au cœur du temps|![](/fr-CA/2026/09/202609180400WinnatsPassPeak.jpg)|
