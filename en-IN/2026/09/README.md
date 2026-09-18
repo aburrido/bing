@@ -18,3 +18,4 @@
 202609151830|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-IN/2026/09/202609151830IcyCubs.jpg)|
 202609161830|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|A toast to the harvest|![](/en-IN/2026/09/202609161830Santenay.jpg)|
 202609171830|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Through the heart of the pass|![](/en-IN/2026/09/202609171830WinnatsPassPeak.jpg)|
+202609181830|AlphornBavaria|Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)|The Alpine sound of Oktoberfest|![](/en-IN/2026/09/202609181830AlphornBavaria.jpg)|
