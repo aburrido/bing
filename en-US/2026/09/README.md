@@ -18,3 +18,4 @@
 202609150700|FortUnion|Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)|A crossroad of cultures|![](/en-US/2026/09/202609150700FortUnion.jpg)|
 202609160700|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|The Arctic's new explorers|![](/en-US/2026/09/202609160700IcyCubs.jpg)|
 202609170700|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|A toast to the harvest|![](/en-US/2026/09/202609170700Santenay.jpg)|
+202609180700|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Through the heart of the pass|![](/en-US/2026/09/202609180700WinnatsPassPeak.jpg)|
