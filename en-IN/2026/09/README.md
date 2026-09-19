@@ -19,3 +19,4 @@
 202609161830|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|A toast to the harvest|![](/en-IN/2026/09/202609161830Santenay.jpg)|
 202609171830|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Through the heart of the pass|![](/en-IN/2026/09/202609171830WinnatsPassPeak.jpg)|
 202609181830|AlphornBavaria|Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)|The Alpine sound of Oktoberfest|![](/en-IN/2026/09/202609181830AlphornBavaria.jpg)|
+202609191830|ParisSunset|Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)|The tower that won Paris over|![](/en-IN/2026/09/202609191830ParisSunset.jpg)|
