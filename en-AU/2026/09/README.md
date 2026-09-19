@@ -19,3 +19,4 @@
 202609160700|IcyCubs|Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)|Info|![](/en-AU/2026/09/202609160700IcyCubs.jpg)|
 202609170700|Santenay|Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)|Info|![](/en-AU/2026/09/202609170700Santenay.jpg)|
 202609180700|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Info|![](/en-AU/2026/09/202609180700WinnatsPassPeak.jpg)|
+202609190700|Lencois|Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)|Info|![](/en-AU/2026/09/202609190700Lencois.jpg)|
