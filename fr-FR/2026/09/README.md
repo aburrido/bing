@@ -20,3 +20,4 @@
 202609172200|WinnatsPassPeak|Col de Winnats, Parc national du Peak District, Angleterre (© Daniel_Kay/Getty Images)|Au cœur du temps|![](/fr-FR/2026/09/202609172200WinnatsPassPeak.jpg)|
 202609182200|AlphornBavaria|Joueurs de cor des Alpes, Bavière, Allemagne (© U. J. Alexander/Shutterstock)|Le son alpin de l’Oktoberfest|![](/fr-FR/2026/09/202609182200AlphornBavaria.jpg)|
 202609192200|CastelnaudPatrimoine|Château de Castelnaud, Castelnaud-la-Chapelle, Nouvelle-Aquitaine (© garethkirklandphotogrphy/Getty Images)|Lumière sur un héritage commun|![](/fr-FR/2026/09/202609192200CastelnaudPatrimoine.jpg)|
+202609202200|GroomingOtter|Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|La vie entre mer et fourrure|![](/fr-FR/2026/09/202609202200GroomingOtter.jpg)|
