@@ -19,3 +19,4 @@
 202609170400|Santenay|Le moulin à vent et les vignobles de Sorine, Santenay, Côte de Beaune, Bourgogne, France (© Marco Bottigelli/Getty Images)|Santé !|![](/fr-CA/2026/09/202609170400Santenay.jpg)|
 202609180400|WinnatsPassPeak|Col de Winnats, Parc national du Peak District, Angleterre (© Daniel_Kay/Getty Images)|Au cœur du temps|![](/fr-CA/2026/09/202609180400WinnatsPassPeak.jpg)|
 202609190400|AlphornBavaria|Joueurs de cor des Alpes, Bavière, Allemagne (© U. J. Alexander/Shutterstock)|Le son alpin de l’Oktoberfest|![](/fr-CA/2026/09/202609190400AlphornBavaria.jpg)|
+202609200400|ParisSunset|La tour Eiffel au coucher de soleil, Paris, France (© Alexander Spatari/Getty Images)|Elle nous fait tourner la tête|![](/fr-CA/2026/09/202609200400ParisSunset.jpg)|

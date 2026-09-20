@@ -19,3 +19,4 @@
 202609170400|Olvera|Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)|A patchwork from above|![](/en-CA/2026/09/202609170400Olvera.jpg)|
 202609180400|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Through the heart of the pass|![](/en-CA/2026/09/202609180400WinnatsPassPeak.jpg)|
 202609190400|AlphornBavaria|Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)|The Alpine sound of Oktoberfest|![](/en-CA/2026/09/202609190400AlphornBavaria.jpg)|
+202609200400|ParisSunset|Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)|The tower that won Paris over|![](/en-CA/2026/09/202609200400ParisSunset.jpg)|
