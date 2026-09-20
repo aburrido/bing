@@ -20,3 +20,4 @@
 202609171500|WinnatsPassPeak|ウィナッツ・パス, イングランド (© Daniel_Kay/Getty Images)|緑の丘を縫う道|![](/ja-JP/2026/09/202609171500WinnatsPassPeak.jpg)|
 202609181500|AlphornBavaria|アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)|今日はオクトーバーフェストの開幕日|![](/ja-JP/2026/09/202609181500AlphornBavaria.jpg)|
 202609191500|ParisSunset|パリ, フランス (© Alexander Spatari/Getty Images)|夕焼けに染まるエッフェル塔|![](/ja-JP/2026/09/202609191500ParisSunset.jpg)|
+202609201500|GroomingOtter|ラッコ, 米国 カリフォルニア州 (© Suzi Eszterhas/Minden Pictures)|今週はラッコ啓蒙週間|![](/ja-JP/2026/09/202609201500GroomingOtter.jpg)|

@@ -20,3 +20,4 @@
 202609171600|WinnatsPassPeak|温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)|穿越山口腹地|![](/zh-CN/2026/09/202609171600WinnatsPassPeak.jpg)|
 202609181600|AlphornBavaria|阿尔卑斯长号演奏者，巴伐利亚州，德国 (© U. J. Alexander/Shutterstock)|慕尼黑啤酒节的阿尔卑斯之声|![](/zh-CN/2026/09/202609181600AlphornBavaria.jpg)|
 202609191600|ParisSunset|日落时分的埃菲尔铁塔，巴黎，法国 (© Alexander Spatari/Getty Images)|终获巴黎青睐的铁塔|![](/zh-CN/2026/09/202609191600ParisSunset.jpg)|
+202609201600|GroomingOtter|正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国 (© Suzi Eszterhas/Minden Pictures)|皮毛与海洋之间的生命|![](/zh-CN/2026/09/202609201600GroomingOtter.jpg)|
