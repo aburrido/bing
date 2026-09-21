@@ -21,3 +21,4 @@
 202609180700|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Info|![](/en-AU/2026/09/202609180700WinnatsPassPeak.jpg)|
 202609190700|Lencois|Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)|Info|![](/en-AU/2026/09/202609190700Lencois.jpg)|
 202609200700|ParisSunset|Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)|Info|![](/en-AU/2026/09/202609200700ParisSunset.jpg)|
+202609210700|GroomingOtter|Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2026/09/202609210700GroomingOtter.jpg)|
