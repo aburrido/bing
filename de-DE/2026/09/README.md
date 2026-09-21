@@ -21,3 +21,4 @@
 202609182200|OktoberfestMunich|Oktoberfest München, Bayern (© FooTToo/Getty Images)|O’zapft is!|![](/de-DE/2026/09/202609182200OktoberfestMunich.jpg)|
 202609192200|ParisSunset|Eiffelturm bei Sonnenuntergang, Paris, Frankreich (© Alexander Spatari/Getty Images)|Der Turm, der Paris eroberte|![](/de-DE/2026/09/202609192200ParisSunset.jpg)|
 202609202200|GroomingOtter|Seeotter bei der Fellpflege, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)|Leben zwischen Fell und Meer|![](/de-DE/2026/09/202609202200GroomingOtter.jpg)|
+202609212200|TolkienWeek|Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)|Willkommen in Hobbiton|![](/de-DE/2026/09/202609212200TolkienWeek.jpg)|

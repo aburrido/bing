@@ -21,3 +21,4 @@
 202609182200|AlphornBavaria|Joueurs de cor des Alpes, Bavière, Allemagne (© U. J. Alexander/Shutterstock)|Le son alpin de l’Oktoberfest|![](/fr-FR/2026/09/202609182200AlphornBavaria.jpg)|
 202609192200|CastelnaudPatrimoine|Château de Castelnaud, Castelnaud-la-Chapelle, Nouvelle-Aquitaine (© garethkirklandphotogrphy/Getty Images)|Lumière sur un héritage commun|![](/fr-FR/2026/09/202609192200CastelnaudPatrimoine.jpg)|
 202609202200|GroomingOtter|Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|La vie entre mer et fourrure|![](/fr-FR/2026/09/202609202200GroomingOtter.jpg)|
+202609212200|TolkienWeek|Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)|Au-delà de la dernière page|![](/fr-FR/2026/09/202609212200TolkienWeek.jpg)|
