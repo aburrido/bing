@@ -20,3 +20,4 @@
 202609172300|WinnatsPassPeak|Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)|Through the heart of the pass|![](/en-GB/2026/09/202609172300WinnatsPassPeak.jpg)|
 202609182300|AlphornBavaria|Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)|The Alpine sound of Oktoberfest|![](/en-GB/2026/09/202609182300AlphornBavaria.jpg)|
 202609192300|ParisSunset|Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)|The tower that won Paris over|![](/en-GB/2026/09/202609192300ParisSunset.jpg)|
+202609202300|GroomingOtter|Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)|Life between fur and sea|![](/en-GB/2026/09/202609202300GroomingOtter.jpg)|
