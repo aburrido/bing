@@ -22,3 +22,4 @@
 202609191500|ParisSunset|パリ, フランス (© Alexander Spatari/Getty Images)|夕焼けに染まるエッフェル塔|![](/ja-JP/2026/09/202609191500ParisSunset.jpg)|
 202609201500|GroomingOtter|ラッコ, 米国 カリフォルニア州 (© Suzi Eszterhas/Minden Pictures)|今週はラッコ啓蒙週間|![](/ja-JP/2026/09/202609201500GroomingOtter.jpg)|
 202609211500|FallAspens|アスペンの森, 米国 ユタ州 (© Danita Delimont/Shutterstock)|黄金色に染まる秋の森|![](/ja-JP/2026/09/202609211500FallAspens.jpg)|
+202609221500|Japan7Flower2026|秋の七草のナデシコ (© igaguri_1/Getty Images)|今日は秋分の日|![](/ja-JP/2026/09/202609221500Japan7Flower2026.jpg)|

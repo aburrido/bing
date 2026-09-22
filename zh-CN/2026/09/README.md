@@ -22,3 +22,4 @@
 202609191600|ParisSunset|日落时分的埃菲尔铁塔，巴黎，法国 (© Alexander Spatari/Getty Images)|终获巴黎青睐的铁塔|![](/zh-CN/2026/09/202609191600ParisSunset.jpg)|
 202609201600|GroomingOtter|正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国 (© Suzi Eszterhas/Minden Pictures)|皮毛与海洋之间的生命|![](/zh-CN/2026/09/202609201600GroomingOtter.jpg)|
 202609211600|FallAspens|瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)|金色时节|![](/zh-CN/2026/09/202609211600FallAspens.jpg)|
+202609221600|AutumnEquinoxY26|地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)|金秋平分，地坛染黄|![](/zh-CN/2026/09/202609221600AutumnEquinoxY26.jpg)|
