@@ -22,3 +22,4 @@
 202609192200|CastelnaudPatrimoine|Château de Castelnaud, Castelnaud-la-Chapelle, Nouvelle-Aquitaine (© garethkirklandphotogrphy/Getty Images)|Lumière sur un héritage commun|![](/fr-FR/2026/09/202609192200CastelnaudPatrimoine.jpg)|
 202609202200|GroomingOtter|Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|La vie entre mer et fourrure|![](/fr-FR/2026/09/202609202200GroomingOtter.jpg)|
 202609212200|TolkienWeek|Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)|Au-delà de la dernière page|![](/fr-FR/2026/09/202609212200TolkienWeek.jpg)|
+202609222200|FallAspens|Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)|La saison dorée|![](/fr-FR/2026/09/202609222200FallAspens.jpg)|
