@@ -22,3 +22,4 @@
 202609200400|ParisSunset|Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)|The tower that won Paris over|![](/en-CA/2026/09/202609200400ParisSunset.jpg)|
 202609210400|GroomingOtter|Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)|Life between fur and sea|![](/en-CA/2026/09/202609210400GroomingOtter.jpg)|
 202609220400|FallAspens|Fall aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)|The golden season|![](/en-CA/2026/09/202609220400FallAspens.jpg)|
+202609230400|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Beyond the last page|![](/en-CA/2026/09/202609230400TolkienWeek.jpg)|

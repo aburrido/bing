@@ -22,3 +22,4 @@
 202609200400|ParisSunset|La tour Eiffel au coucher de soleil, Paris, France (© Alexander Spatari/Getty Images)|Elle nous fait tourner la tête|![](/fr-CA/2026/09/202609200400ParisSunset.jpg)|
 202609210400|GroomingOtter|Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|La vie entre mer et fourrure|![](/fr-CA/2026/09/202609210400GroomingOtter.jpg)|
 202609220400|FallAspens|Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)|La saison dorée|![](/fr-CA/2026/09/202609220400FallAspens.jpg)|
+202609230400|TolkienWeek|Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)|Au-delà de la dernière page|![](/fr-CA/2026/09/202609230400TolkienWeek.jpg)|
