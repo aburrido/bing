@@ -23,3 +23,4 @@
 202609202200|GroomingOtter|Loutre de mer peignant son pelage, Baie de Monterey, Californie, États-Unis (© Suzi Eszterhas/Minden Pictures)|La vie entre mer et fourrure|![](/fr-FR/2026/09/202609202200GroomingOtter.jpg)|
 202609212200|TolkienWeek|Maison Hobbit dans le décor de Hobbiton, Matamata, Nouvelle-Zélande (© djr-photography/Shutterstock)|Au-delà de la dernière page|![](/fr-FR/2026/09/202609212200TolkienWeek.jpg)|
 202609222200|FallAspens|Peupliers faux-trembles près du col de Guardsman Pass, Utah, États-Unis (© Danita Delimont/Shutterstock)|La saison dorée|![](/fr-FR/2026/09/202609222200FallAspens.jpg)|
+202609232200|ElGolfo|Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)|Le dialogue entre vagues et cendres|![](/fr-FR/2026/09/202609232200ElGolfo.jpg)|

@@ -23,3 +23,4 @@
 202609202300|GroomingOtter|Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)|Life between fur and sea|![](/en-GB/2026/09/202609202300GroomingOtter.jpg)|
 202609212300|ElGolfo|Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)|Ash meets splash|![](/en-GB/2026/09/202609212300ElGolfo.jpg)|
 202609222300|FallAspens|Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)|The golden season|![](/en-GB/2026/09/202609222300FallAspens.jpg)|
+202609232300|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Beyond the last page|![](/en-GB/2026/09/202609232300TolkienWeek.jpg)|

@@ -23,3 +23,4 @@
 202609202200|GroomingOtter|Seeotter bei der Fellpflege, Monterey Bay, Kalifornien, USA (© Suzi Eszterhas/Minden Pictures)|Leben zwischen Fell und Meer|![](/de-DE/2026/09/202609202200GroomingOtter.jpg)|
 202609212200|TolkienWeek|Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)|Willkommen in Hobbiton|![](/de-DE/2026/09/202609212200TolkienWeek.jpg)|
 202609222200|FallAspens|Herbstliche Espen nahe dem Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)|Die goldene Jahreszeit|![](/de-DE/2026/09/202609222200FallAspens.jpg)|
+202609232200|ElGolfo|Luftaufnahme des schwarzen Lavastrandes in El Golfo, Lanzarote, Kanarische Inseln, Spanien (© Westend61/Adobe Stock)|Vulkanische Kontraste|![](/de-DE/2026/09/202609232200ElGolfo.jpg)|
