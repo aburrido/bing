@@ -23,3 +23,4 @@
 202609201600|GroomingOtter|正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国 (© Suzi Eszterhas/Minden Pictures)|皮毛与海洋之间的生命|![](/zh-CN/2026/09/202609201600GroomingOtter.jpg)|
 202609211600|FallAspens|瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)|金色时节|![](/zh-CN/2026/09/202609211600FallAspens.jpg)|
 202609221600|AutumnEquinoxY26|地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)|金秋平分，地坛染黄|![](/zh-CN/2026/09/202609221600AutumnEquinoxY26.jpg)|
+202609231600|ElGolfo|黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙 (© Westend61/Adobe Stock)|火山灰与浪花相遇|![](/zh-CN/2026/09/202609231600ElGolfo.jpg)|
