@@ -24,3 +24,4 @@
 202609210700|GroomingOtter|Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2026/09/202609210700GroomingOtter.jpg)|
 202609220700|FallAspens|Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)|Info|![](/en-AU/2026/09/202609220700FallAspens.jpg)|
 202609230700|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Info|![](/en-AU/2026/09/202609230700TolkienWeek.jpg)|
+202609240700|CastelmezzanoItaly|Castelmezzano, Basilicata, Italy (© Sean Pavone/Getty Images)|Info|![](/en-AU/2026/09/202609240700CastelmezzanoItaly.jpg)|
