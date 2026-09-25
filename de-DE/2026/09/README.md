@@ -25,3 +25,4 @@
 202609222200|FallAspens|Herbstliche Espen nahe dem Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)|Die goldene Jahreszeit|![](/de-DE/2026/09/202609222200FallAspens.jpg)|
 202609232200|ElGolfo|Luftaufnahme des schwarzen Lavastrandes in El Golfo, Lanzarote, Kanarische Inseln, Spanien (© Westend61/Adobe Stock)|Vulkanische Kontraste|![](/de-DE/2026/09/202609232200ElGolfo.jpg)|
 202609242200|MidAutumn2026|Chinesische Laternen zum Mondfest (© LeeYiuTung/Getty Images)|Wenn der Mond mitfeiert|![](/de-DE/2026/09/202609242200MidAutumn2026.jpg)|
+202609252200|StarnbergerseeAutumn|Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)|Ein ruhiger Augenblick|![](/de-DE/2026/09/202609252200StarnbergerseeAutumn.jpg)|
