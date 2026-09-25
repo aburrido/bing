@@ -25,3 +25,4 @@
 202609220700|FallAspens|Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)|Info|![](/en-AU/2026/09/202609220700FallAspens.jpg)|
 202609230700|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Info|![](/en-AU/2026/09/202609230700TolkienWeek.jpg)|
 202609240700|CastelmezzanoItaly|Castelmezzano, Basilicata, Italy (© Sean Pavone/Getty Images)|Info|![](/en-AU/2026/09/202609240700CastelmezzanoItaly.jpg)|
+202609250700|JogFalls2026|Jog Falls, Sharavathi River, Karnataka, India (© Amith Nag Photography/Getty Images)|Info|![](/en-AU/2026/09/202609250700JogFalls2026.jpg)|
