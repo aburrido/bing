@@ -25,3 +25,4 @@
 202609221500|Japan7Flower2026|秋の七草のナデシコ (© igaguri_1/Getty Images)|今日は秋分の日|![](/ja-JP/2026/09/202609221500Japan7Flower2026.jpg)|
 202609231500|ElGolfo|ランサローテ島, スペイン (© Westend61/Adobe Stock)|黒い海岸に寄せる白波|![](/ja-JP/2026/09/202609231500ElGolfo.jpg)|
 202609241500|MidAutumn2026|中秋節用の中国提灯 (© LeeYiuTung/Getty Images)|今日は中秋の名月|![](/ja-JP/2026/09/202609241500MidAutumn2026.jpg)|
+202609251500|BearsEars|シーダーメサ, 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)|標高約2,000mから見渡す大峡谷|![](/ja-JP/2026/09/202609251500BearsEars.jpg)|

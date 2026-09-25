@@ -25,3 +25,4 @@
 202609221600|AutumnEquinoxY26|地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)|金秋平分，地坛染黄|![](/zh-CN/2026/09/202609221600AutumnEquinoxY26.jpg)|
 202609231600|ElGolfo|黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙 (© Westend61/Adobe Stock)|火山灰与浪花相遇|![](/zh-CN/2026/09/202609231600ElGolfo.jpg)|
 202609241600|MidAutumn2026|庆祝中秋节的中国灯笼 (© LeeYiuTung/Getty Images)|当月亮也来赴会|![](/zh-CN/2026/09/202609241600MidAutumn2026.jpg)|
+202609251600|BearsEars|熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)|写在大地上的故事|![](/zh-CN/2026/09/202609251600BearsEars.jpg)|
