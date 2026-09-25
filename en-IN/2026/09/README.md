@@ -25,3 +25,4 @@
 202609221830|FallAspens|Autumn aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)|The golden season|![](/en-IN/2026/09/202609221830FallAspens.jpg)|
 202609231830|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Beyond the last page|![](/en-IN/2026/09/202609231830TolkienWeek.jpg)|
 202609241830|MidAutumn2026|Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)|When the moon joins the party|![](/en-IN/2026/09/202609241830MidAutumn2026.jpg)|
+202609251830|BearsEars|Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, United States (© Jeff Clay/Tandem Stills + Motion)|The stories written across the land|![](/en-IN/2026/09/202609251830BearsEars.jpg)|
