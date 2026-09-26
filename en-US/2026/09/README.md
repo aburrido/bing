@@ -26,3 +26,4 @@
 202609230700|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Beyond the last page|![](/en-US/2026/09/202609230700TolkienWeek.jpg)|
 202609240700|ElGolfo|Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)|Ash meets splash|![](/en-US/2026/09/202609240700ElGolfo.jpg)|
 202609250700|MidAutumn2026|Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)|When the moon joins the party|![](/en-US/2026/09/202609250700MidAutumn2026.jpg)|
+202609260700|BearsEars|Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|The stories written across the land|![](/en-US/2026/09/202609260700BearsEars.jpg)|

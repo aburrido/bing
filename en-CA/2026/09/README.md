@@ -25,3 +25,4 @@
 202609230400|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Beyond the last page|![](/en-CA/2026/09/202609230400TolkienWeek.jpg)|
 202609240400|ElGolfo|Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)|Ash meets splash|![](/en-CA/2026/09/202609240400ElGolfo.jpg)|
 202609250400|MidAutumn2026|Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)|When the moon joins the party|![](/en-CA/2026/09/202609250400MidAutumn2026.jpg)|
+202609260400|NiagaraOnt|Horseshoe Falls illuminated at night in Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)|Niagara's afterparty look|![](/en-CA/2026/09/202609260400NiagaraOnt.jpg)|
