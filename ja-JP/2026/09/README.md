@@ -26,3 +26,4 @@
 202609231500|ElGolfo|ランサローテ島, スペイン (© Westend61/Adobe Stock)|黒い海岸に寄せる白波|![](/ja-JP/2026/09/202609231500ElGolfo.jpg)|
 202609241500|MidAutumn2026|中秋節用の中国提灯 (© LeeYiuTung/Getty Images)|今日は中秋の名月|![](/ja-JP/2026/09/202609241500MidAutumn2026.jpg)|
 202609251500|BearsEars|シーダーメサ, 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)|標高約2,000mから見渡す大峡谷|![](/ja-JP/2026/09/202609251500BearsEars.jpg)|
+202609261500|YokohamaBayBridge|横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)|今日は横浜ベイブリッジ開通日|![](/ja-JP/2026/09/202609261500YokohamaBayBridge.jpg)|
