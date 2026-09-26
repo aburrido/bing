@@ -26,3 +26,4 @@
 202609232200|ElGolfo|Vue aérienne de la plage de sable noir El Golfo, Lanzarote, Îles Canaries, Espagne (© Westend61/Adobe Stock)|Le dialogue entre vagues et cendres|![](/fr-FR/2026/09/202609232200ElGolfo.jpg)|
 202609242200|MidAutumn2026|Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)|Quand la lune est de la partie|![](/fr-FR/2026/09/202609242200MidAutumn2026.jpg)|
 202609252200|BoriesPoppies|Village des Bories, Gordes, Provence-Alpes-Côte d’Azur (© AGUILAR PATRICE/Alamy)|Le savoir-faire provençal|![](/fr-FR/2026/09/202609252200BoriesPoppies.jpg)|
+202609262200|DecoCrab|Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)|L’âme des profondeurs|![](/fr-FR/2026/09/202609262200DecoCrab.jpg)|

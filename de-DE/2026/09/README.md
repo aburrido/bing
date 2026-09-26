@@ -26,3 +26,4 @@
 202609232200|ElGolfo|Luftaufnahme des schwarzen Lavastrandes in El Golfo, Lanzarote, Kanarische Inseln, Spanien (© Westend61/Adobe Stock)|Vulkanische Kontraste|![](/de-DE/2026/09/202609232200ElGolfo.jpg)|
 202609242200|MidAutumn2026|Chinesische Laternen zum Mondfest (© LeeYiuTung/Getty Images)|Wenn der Mond mitfeiert|![](/de-DE/2026/09/202609242200MidAutumn2026.jpg)|
 202609252200|StarnbergerseeAutumn|Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)|Ein ruhiger Augenblick|![](/de-DE/2026/09/202609252200StarnbergerseeAutumn.jpg)|
+202609262200|DecoCrab|Dekorateurkrabbe auf einer Seefeder, Nationalpark Komodo, Indonesien (© Alex Mustard/Nature Picture Library)|Nachtgarten der Tiefe|![](/de-DE/2026/09/202609262200DecoCrab.jpg)|
