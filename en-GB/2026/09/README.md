@@ -26,3 +26,4 @@
 202609232300|TolkienWeek|Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)|Beyond the last page|![](/en-GB/2026/09/202609232300TolkienWeek.jpg)|
 202609242300|MidAutumn2026|Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)|When the moon joins the party|![](/en-GB/2026/09/202609242300MidAutumn2026.jpg)|
 202609252300|BearsEars|Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, United States (© Jeff Clay/Tandem Stills + Motion)|The stories written across the land|![](/en-GB/2026/09/202609252300BearsEars.jpg)|
+202609262300|DecoCrab|Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)|Night garden of the deep|![](/en-GB/2026/09/202609262300DecoCrab.jpg)|
