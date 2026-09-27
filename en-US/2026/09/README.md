@@ -27,3 +27,4 @@
 202609240700|ElGolfo|Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)|Ash meets splash|![](/en-US/2026/09/202609240700ElGolfo.jpg)|
 202609250700|MidAutumn2026|Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)|When the moon joins the party|![](/en-US/2026/09/202609250700MidAutumn2026.jpg)|
 202609260700|BearsEars|Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)|The stories written across the land|![](/en-US/2026/09/202609260700BearsEars.jpg)|
+202609270700|DecoCrab|Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)|Night garden of the deep|![](/en-US/2026/09/202609270700DecoCrab.jpg)|
