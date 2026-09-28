@@ -28,3 +28,4 @@
 202609251600|BearsEars|熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)|写在大地上的故事|![](/zh-CN/2026/09/202609251600BearsEars.jpg)|
 202609261600|DecoCrab|海笔上的装饰蟹，科莫多国家公园，印度尼西亚 (© Alex Mustard/Nature Picture Library)|深海夜花园|![](/zh-CN/2026/09/202609261600DecoCrab.jpg)|
 202609271600|AmberHall|斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)|可览美景的历史胜地|![](/zh-CN/2026/09/202609271600AmberHall.jpg)|
+202609281600|KasilofRiver|卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)|冰川孕育之河|![](/zh-CN/2026/09/202609281600KasilofRiver.jpg)|

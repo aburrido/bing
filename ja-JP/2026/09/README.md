@@ -28,3 +28,4 @@
 202609251500|BearsEars|シーダーメサ, 米国 ユタ州 (© Jeff Clay/Tandem Stills + Motion)|標高約2,000mから見渡す大峡谷|![](/ja-JP/2026/09/202609251500BearsEars.jpg)|
 202609261500|YokohamaBayBridge|横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)|今日は横浜ベイブリッジ開通日|![](/ja-JP/2026/09/202609261500YokohamaBayBridge.jpg)|
 202609271500|AmberHall|アンベール城, インド (© R.M. Nunes/Getty Images)|優美な柱が並ぶ宮殿|![](/ja-JP/2026/09/202609271500AmberHall.jpg)|
+202609281500|KasilofRiver|カシロフ川, 米国 アラスカ州 (© jared lloyd/Getty Images)|氷河の恵みをたたえる川|![](/ja-JP/2026/09/202609281500KasilofRiver.jpg)|
