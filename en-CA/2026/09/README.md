@@ -27,3 +27,4 @@
 202609250400|MidAutumn2026|Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)|When the moon joins the party|![](/en-CA/2026/09/202609250400MidAutumn2026.jpg)|
 202609260400|NiagaraOnt|Horseshoe Falls illuminated at night in Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)|Niagara's afterparty look|![](/en-CA/2026/09/202609260400NiagaraOnt.jpg)|
 202609270400|DecoCrab|Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)|Night garden of the deep|![](/en-CA/2026/09/202609270400DecoCrab.jpg)|
+202609280400|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|History with a view|![](/en-CA/2026/09/202609280400AmberHall.jpg)|

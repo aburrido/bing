@@ -27,3 +27,4 @@
 202609250400|MidAutumn2026|Lanternes chinoises lors de la Fête de la Mi-Automne (© LeeYiuTung/Getty Images)|Quand la lune est de la partie|![](/fr-CA/2026/09/202609250400MidAutumn2026.jpg)|
 202609260400|NiagaraOnt|Les chutes du Fer-à-Cheval illuminées le soir à Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)|Quand le Niagara brille de mille feux|![](/fr-CA/2026/09/202609260400NiagaraOnt.jpg)|
 202609270400|DecoCrab|Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)|L’âme des profondeurs|![](/fr-CA/2026/09/202609270400DecoCrab.jpg)|
+202609280400|AmberHall|La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)|Vue sur l’histoire|![](/fr-CA/2026/09/202609280400AmberHall.jpg)|
