@@ -29,3 +29,4 @@
 202609260700|BearsEars|Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, United States (© Jeff Clay/Tandem Stills + Motion)|Info|![](/en-AU/2026/09/202609260700BearsEars.jpg)|
 202609270700|NeckarVineyards|Sunset over the vineyards of Steinhaldenfeld, Neckar valley, Stuttgart, Germany (© Cyril Gosselin/Getty Images)|Info|![](/en-AU/2026/09/202609270700NeckarVineyards.jpg)|
 202609280700|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|Info|![](/en-AU/2026/09/202609280700AmberHall.jpg)|
+202609290700|KasilofRiver|The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)|Info|![](/en-AU/2026/09/202609290700KasilofRiver.jpg)|
