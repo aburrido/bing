@@ -28,3 +28,4 @@
 202609252300|BearsEars|Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, United States (© Jeff Clay/Tandem Stills + Motion)|The stories written across the land|![](/en-GB/2026/09/202609252300BearsEars.jpg)|
 202609262300|DecoCrab|Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)|Night garden of the deep|![](/en-GB/2026/09/202609262300DecoCrab.jpg)|
 202609272300|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|History with a view|![](/en-GB/2026/09/202609272300AmberHall.jpg)|
+202609282300|KasilofRiver|The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)|Born of glaciers|![](/en-GB/2026/09/202609282300KasilofRiver.jpg)|

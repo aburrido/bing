@@ -28,3 +28,4 @@
 202609252200|BoriesPoppies|Village des Bories, Gordes, Provence-Alpes-Côte d’Azur (© AGUILAR PATRICE/Alamy)|Le savoir-faire provençal|![](/fr-FR/2026/09/202609252200BoriesPoppies.jpg)|
 202609262200|DecoCrab|Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)|L’âme des profondeurs|![](/fr-FR/2026/09/202609262200DecoCrab.jpg)|
 202609272200|AmberHall|La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)|Vue sur l’histoire|![](/fr-FR/2026/09/202609272200AmberHall.jpg)|
+202609282200|KasilofRiver|Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)|Née des glaciers|![](/fr-FR/2026/09/202609282200KasilofRiver.jpg)|
