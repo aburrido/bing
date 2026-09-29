@@ -28,3 +28,4 @@
 202609260400|NiagaraOnt|Les chutes du Fer-à-Cheval illuminées le soir à Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)|Quand le Niagara brille de mille feux|![](/fr-CA/2026/09/202609260400NiagaraOnt.jpg)|
 202609270400|DecoCrab|Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)|L’âme des profondeurs|![](/fr-CA/2026/09/202609270400DecoCrab.jpg)|
 202609280400|AmberHall|La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)|Vue sur l’histoire|![](/fr-CA/2026/09/202609280400AmberHall.jpg)|
+202609290400|KasilofRiver|Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)|Née des glaciers|![](/fr-CA/2026/09/202609290400KasilofRiver.jpg)|

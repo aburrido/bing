@@ -28,3 +28,4 @@
 202609260400|NiagaraOnt|Horseshoe Falls illuminated at night in Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)|Niagara's afterparty look|![](/en-CA/2026/09/202609260400NiagaraOnt.jpg)|
 202609270400|DecoCrab|Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)|Night garden of the deep|![](/en-CA/2026/09/202609270400DecoCrab.jpg)|
 202609280400|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|History with a view|![](/en-CA/2026/09/202609280400AmberHall.jpg)|
+202609290400|KasilofRiver|The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)|Born of glaciers|![](/en-CA/2026/09/202609290400KasilofRiver.jpg)|
