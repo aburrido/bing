@@ -29,3 +29,4 @@
 202609261830|DecoCrab|Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)|Night garden of the deep|![](/en-IN/2026/09/202609261830DecoCrab.jpg)|
 202609271830|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|History with a view|![](/en-IN/2026/09/202609271830AmberHall.jpg)|
 202609281830|KasilofRiver|The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)|Born of glaciers|![](/en-IN/2026/09/202609281830KasilofRiver.jpg)|
+202609291830|BeardReedling|Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)|A face you don't forget|![](/en-IN/2026/09/202609291830BeardReedling.jpg)|
