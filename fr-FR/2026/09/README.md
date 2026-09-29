@@ -29,3 +29,4 @@
 202609262200|DecoCrab|Crabe décorateur sur une plume de mer, Parc national de Komodo, Indonésie (© Alex Mustard/Nature Picture Library)|L’âme des profondeurs|![](/fr-FR/2026/09/202609262200DecoCrab.jpg)|
 202609272200|AmberHall|La salle Sattais Katcheri dans le fort d’Amber près de Jaipur, Rajasthan, Inde (© R.M. Nunes/Getty Images)|Vue sur l’histoire|![](/fr-FR/2026/09/202609272200AmberHall.jpg)|
 202609282200|KasilofRiver|Les eaux bleues de la rivière Kasilof, Alaska, États-Unis (© jared lloyd/Getty Images)|Née des glaciers|![](/fr-FR/2026/09/202609282200KasilofRiver.jpg)|
+202609292200|BeardReedling|Panure à moustaches mâle, Norfolk, Angleterre (© Andrew Sproule/Shutterstock)|Une drôle de petite tête|![](/fr-FR/2026/09/202609292200BeardReedling.jpg)|

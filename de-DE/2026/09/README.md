@@ -29,3 +29,4 @@
 202609262200|DecoCrab|Dekorateurkrabbe auf einer Seefeder, Nationalpark Komodo, Indonesien (© Alex Mustard/Nature Picture Library)|Nachtgarten der Tiefe|![](/de-DE/2026/09/202609262200DecoCrab.jpg)|
 202609272200|AmberHall|Sattais-Katcheri-Halle im Fort Amber bei Jaipur, Rajasthan, Indien (© R.M. Nunes/Getty Images)|Geschichte mit Aussicht|![](/de-DE/2026/09/202609272200AmberHall.jpg)|
 202609282200|KasilofRiver|Das blaue, von Gletschern gespeiste Wasser des Kasilof River in Alaska, USA (© jared lloyd/Getty Images)|Aus Gletschern entstanden|![](/de-DE/2026/09/202609282200KasilofRiver.jpg)|
+202609292200|AlphornBavaria|Alphornbläser in Bayern (© U. J. Alexander/Shutterstock)|Der Klang der Alpen|![](/de-DE/2026/09/202609292200AlphornBavaria.jpg)|
