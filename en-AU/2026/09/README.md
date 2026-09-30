@@ -30,3 +30,4 @@
 202609270700|NeckarVineyards|Sunset over the vineyards of Steinhaldenfeld, Neckar valley, Stuttgart, Germany (© Cyril Gosselin/Getty Images)|Info|![](/en-AU/2026/09/202609270700NeckarVineyards.jpg)|
 202609280700|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|Info|![](/en-AU/2026/09/202609280700AmberHall.jpg)|
 202609290700|KasilofRiver|The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)|Info|![](/en-AU/2026/09/202609290700KasilofRiver.jpg)|
+202609300700|BeardReedling|Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)|Info|![](/en-AU/2026/09/202609300700BeardReedling.jpg)|
