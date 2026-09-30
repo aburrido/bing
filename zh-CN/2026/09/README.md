@@ -30,3 +30,4 @@
 202609271600|AmberHall|斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)|可览美景的历史胜地|![](/zh-CN/2026/09/202609271600AmberHall.jpg)|
 202609281600|KasilofRiver|卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)|冰川孕育之河|![](/zh-CN/2026/09/202609281600KasilofRiver.jpg)|
 202609291600|BeardReedling|雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)|一张令人过目难忘的脸|![](/zh-CN/2026/09/202609291600BeardReedling.jpg)|
+202609301600|OlmstedPoint|奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)|在花岗岩中读懂时间|![](/zh-CN/2026/09/202609301600OlmstedPoint.jpg)|

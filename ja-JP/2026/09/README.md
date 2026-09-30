@@ -30,3 +30,4 @@
 202609271500|AmberHall|アンベール城, インド (© R.M. Nunes/Getty Images)|優美な柱が並ぶ宮殿|![](/ja-JP/2026/09/202609271500AmberHall.jpg)|
 202609281500|KasilofRiver|カシロフ川, 米国 アラスカ州 (© jared lloyd/Getty Images)|氷河の恵みをたたえる川|![](/ja-JP/2026/09/202609281500KasilofRiver.jpg)|
 202609291500|BeardReedling|ヒゲガラ, イングランド (© Andrew Sproule/Shutterstock)|枯れ草にとまる小鳥|![](/ja-JP/2026/09/202609291500BeardReedling.jpg)|
+202609301500|OlmstedPoint|オルムステッド・ポイント, 米国 カリフォルニア州 (© Robb Hirsch/Tandem Stills + Motion)|夕日に染まるヨセミテの岩峰|![](/ja-JP/2026/09/202609301500OlmstedPoint.jpg)|
