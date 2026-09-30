@@ -30,3 +30,4 @@
 202609272300|AmberHall|Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)|History with a view|![](/en-GB/2026/09/202609272300AmberHall.jpg)|
 202609282300|KasilofRiver|The blue, glacier-fed waters of the Kasilof River, Alaska, United States (© jared lloyd/Getty Images)|Born of glaciers|![](/en-GB/2026/09/202609282300KasilofRiver.jpg)|
 202609292300|BeardReedling|Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)|A face you don't forget|![](/en-GB/2026/09/202609292300BeardReedling.jpg)|
+202609302300|BlackHistoryMonthUK2026|Panorama of Parliament Square and Nelson Mandela memorial, London (© ansharphoto/Shutterstock)|A place in the picture|![](/en-GB/2026/09/202609302300BlackHistoryMonthUK2026.jpg)|
