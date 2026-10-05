@@ -4,3 +4,4 @@
 202610020700|ChattoogaRiver|Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)|A river worth protecting|![](/en-US/2026/10/202610020700ChattoogaRiver.jpg)|
 202610030700|GrizzlySwim|Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)|Catch, eat, repeat|![](/en-US/2026/10/202610030700GrizzlySwim.jpg)|
 202610040700|ArtemisRocket|Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)|The universe is calling|![](/en-US/2026/10/202610040700ArtemisRocket.jpg)|
+202610050700|AdelieTeacher|Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)|Taking the plunge, one lesson at a time|![](/en-US/2026/10/202610050700AdelieTeacher.jpg)|
