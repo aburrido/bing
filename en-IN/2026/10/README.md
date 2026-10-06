@@ -5,3 +5,4 @@
 202610021830|GrizzlySwim|Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)|Catch, eat, repeat|![](/en-IN/2026/10/202610021830GrizzlySwim.jpg)|
 202610031830|ArtemisRocket|Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, United States (© EVA MARIE UZCATEGUI/Getty Images)|The universe is calling|![](/en-IN/2026/10/202610031830ArtemisRocket.jpg)|
 202610041830|AdelieTeacher|Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)|Slide into adventure|![](/en-IN/2026/10/202610041830AdelieTeacher.jpg)|
+202610051830|DanxiaLandform|Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)|Earth's story in stripes|![](/en-IN/2026/10/202610051830DanxiaLandform.jpg)|
