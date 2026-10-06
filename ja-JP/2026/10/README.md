@@ -6,3 +6,4 @@
 202610031500|ArtemisRocket|アルテミス I のロケット, 米国 フロリダ州 (© EVA MARIE UZCATEGUI/Getty Images)|今日から世界宇宙週間|![](/ja-JP/2026/10/202610031500ArtemisRocket.jpg)|
 202610041500|AdelieTeacher|アデリーペンギンのグループ, 南極大陸 (© Otto Plantema/Minden Pictures)|海へ飛び込もうとするペンギンたち|![](/ja-JP/2026/10/202610041500AdelieTeacher.jpg)|
 202610051500|DanxiaLandform|張掖国家地質公園, 中国 (© Weiquan Lin/Getty Images)|今日は国際ジオダイバーシティデー|![](/ja-JP/2026/10/202610051500DanxiaLandform.jpg)|
+202610061500|ForestofDean|パズルウッド, イングランド (© Fulcanelli_AOS/Getty Images)|苔むした森|![](/ja-JP/2026/10/202610061500ForestofDean.jpg)|
