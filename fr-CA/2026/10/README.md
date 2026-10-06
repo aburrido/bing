@@ -5,3 +5,4 @@
 202610030400|NuitBToro|Hôtel de ville de Toronto illuminé la nuit (© EB Adventure Photography/Shutterstock)|La Nuit Blanche|![](/fr-CA/2026/10/202610030400NuitBToro.jpg)|
 202610040400|ArtemisRocket|Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)|L'univers nous appelle|![](/fr-CA/2026/10/202610040400ArtemisRocket.jpg)|
 202610050400|AdelieTeacher|Manchots Adélie, Antarctique (© Otto Plantema/Minden Pictures)|Plonger dans sa leçon|![](/fr-CA/2026/10/202610050400AdelieTeacher.jpg)|
+202610060400|DanxiaLandform|Relief Danxia, géoparc national de Zhangye, Gansu, Chine (© Weiquan Lin/Getty Images)|La mémoire de la Terre|![](/fr-CA/2026/10/202610060400DanxiaLandform.jpg)|
