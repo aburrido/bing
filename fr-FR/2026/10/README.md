@@ -6,3 +6,4 @@
 202610032200|GruesDer|Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)|L’aube des grues|![](/fr-FR/2026/10/202610032200GruesDer.jpg)|
 202610042200|AdelieTeacher|Manchots Adélie, Antarctique (© Otto Plantema/Minden Pictures)|Plonger dans sa leçon|![](/fr-FR/2026/10/202610042200AdelieTeacher.jpg)|
 202610052200|DanxiaLandform|Relief Danxia, géoparc national de Zhangye, Gansu, Chine (© Weiquan Lin/Getty Images)|La mémoire de la Terre|![](/fr-FR/2026/10/202610052200DanxiaLandform.jpg)|
+202610062200|ForestofDean|Roches couvertes de mousse à Puzzlewood, forêt de Dean, Gloucestershire, Angleterre (© Fulcanelli_AOS/Getty Images)|La forêt aux mille secrets|![](/fr-FR/2026/10/202610062200ForestofDean.jpg)|
