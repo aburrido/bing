@@ -6,3 +6,4 @@
 202610040400|ArtemisRocket|Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)|L'univers nous appelle|![](/fr-CA/2026/10/202610040400ArtemisRocket.jpg)|
 202610050400|AdelieTeacher|Manchots Adélie, Antarctique (© Otto Plantema/Minden Pictures)|Plonger dans sa leçon|![](/fr-CA/2026/10/202610050400AdelieTeacher.jpg)|
 202610060400|DanxiaLandform|Relief Danxia, géoparc national de Zhangye, Gansu, Chine (© Weiquan Lin/Getty Images)|La mémoire de la Terre|![](/fr-CA/2026/10/202610060400DanxiaLandform.jpg)|
+202610070400|ForestofDean|Roches couvertes de mousse à Puzzlewood, forêt de Dean, Gloucestershire, Angleterre (© Fulcanelli_AOS/Getty Images)|La forêt aux mille secrets|![](/fr-CA/2026/10/202610070400ForestofDean.jpg)|
