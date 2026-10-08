@@ -7,3 +7,4 @@
 202610042200|AdelieTeacher|Adeliepinguine, Antarktis (© Otto Plantema/Minden Pictures)|Lehren der Natur|![](/de-DE/2026/10/202610042200AdelieTeacher.jpg)|
 202610052200|DanxiaLandform|Zhangye-Danxia-Geopark, Gansu, China (© Weiquan Lin/Getty Images)|Erdgeschichte in bunten Streifen|![](/de-DE/2026/10/202610052200DanxiaLandform.jpg)|
 202610062200|ForestofDean|Moosbedeckte Felsen im Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)|Wie im Märchen|![](/de-DE/2026/10/202610062200ForestofDean.jpg)|
+202610072200|MayotteOctopus|Krake in Abwehrhaltung, Mayotte, Indischer Ozean (© Gabriel Barathieu/Minden Pictures)|Meister der Tarnung|![](/de-DE/2026/10/202610072200MayotteOctopus.jpg)|

@@ -7,3 +7,4 @@
 202610042300|AdelieTeacher|Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)|Taking the plunge, one lesson at a time|![](/en-GB/2026/10/202610042300AdelieTeacher.jpg)|
 202610052300|DanxiaLandform|Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)|Earth's story in stripes|![](/en-GB/2026/10/202610052300DanxiaLandform.jpg)|
 202610062300|ForestofDean|Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)|Puzzled? Follow the trail|![](/en-GB/2026/10/202610062300ForestofDean.jpg)|
+202610072300|MayotteOctopus|Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)|Now you 'sea' me...|![](/en-GB/2026/10/202610072300MayotteOctopus.jpg)|
