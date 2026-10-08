@@ -8,3 +8,4 @@
 202610051830|DanxiaLandform|Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)|Earth's story in stripes|![](/en-IN/2026/10/202610051830DanxiaLandform.jpg)|
 202610061830|ForestofDean|Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)|Puzzled? Follow the trail|![](/en-IN/2026/10/202610061830ForestofDean.jpg)|
 202610071830|MayotteOctopus|Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)|Now you 'sea' me...|![](/en-IN/2026/10/202610071830MayotteOctopus.jpg)|
+202610081830|IlesSanguinaires|View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)|Corsica's rocky outposts|![](/en-IN/2026/10/202610081830IlesSanguinaires.jpg)|

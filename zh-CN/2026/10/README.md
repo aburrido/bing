@@ -8,3 +8,4 @@
 202610051600|DanxiaLandform|丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)|条纹中的地球故事|![](/zh-CN/2026/10/202610051600DanxiaLandform.jpg)|
 202610061600|ForestofDean|覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)|迷惑不解？沿着小径走|![](/zh-CN/2026/10/202610061600ForestofDean.jpg)|
 202610071600|MayotteOctopus|印度洋马约特岛，一只呈防御姿态的章鱼 (© Gabriel Barathieu/Minden Pictures)|现在你“海”能看见我……|![](/zh-CN/2026/10/202610071600MayotteOctopus.jpg)|
+202610081600|IlesSanguinaires|桑吉奈尔群岛景观，摄自科西嘉岛，法国 (© Francesco Riccardo Iacomino/Getty Images)|科西嘉岛的岩石前哨|![](/zh-CN/2026/10/202610081600IlesSanguinaires.jpg)|
