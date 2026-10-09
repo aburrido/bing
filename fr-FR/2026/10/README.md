@@ -8,3 +8,4 @@
 202610052200|DanxiaLandform|Relief Danxia, géoparc national de Zhangye, Gansu, Chine (© Weiquan Lin/Getty Images)|La mémoire de la Terre|![](/fr-FR/2026/10/202610052200DanxiaLandform.jpg)|
 202610062200|ForestofDean|Roches couvertes de mousse à Puzzlewood, forêt de Dean, Gloucestershire, Angleterre (© Fulcanelli_AOS/Getty Images)|La forêt aux mille secrets|![](/fr-FR/2026/10/202610062200ForestofDean.jpg)|
 202610072200|MayotteOctopus|Poulpe en position défensive, Mayotte, océan Indien (© Gabriel Barathieu/Minden Pictures)|Poulpe fiction|![](/fr-FR/2026/10/202610072200MayotteOctopus.jpg)|
+202610082200|IlesSanguinaires|Vue des îles Sanguinaires depuis la Corse (© Francesco Riccardo Iacomino/Getty Images)|Les îles du bout du monde|![](/fr-FR/2026/10/202610082200IlesSanguinaires.jpg)|
