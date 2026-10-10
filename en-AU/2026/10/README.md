@@ -9,3 +9,4 @@
 202610070700|ForestofDean|Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)|Info|![](/en-AU/2026/10/202610070700ForestofDean.jpg)|
 202610080700|MayotteOctopus|Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)|Info|![](/en-AU/2026/10/202610080700MayotteOctopus.jpg)|
 202610090700|IlesSanguinaires|View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)|Info|![](/en-AU/2026/10/202610090700IlesSanguinaires.jpg)|
+202610100700|CormorantsFlight|Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)|Info|![](/en-AU/2026/10/202610100700CormorantsFlight.jpg)|
