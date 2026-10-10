@@ -10,3 +10,4 @@
 202610072200|MayotteOctopus|Poulpe en position défensive, Mayotte, océan Indien (© Gabriel Barathieu/Minden Pictures)|Poulpe fiction|![](/fr-FR/2026/10/202610072200MayotteOctopus.jpg)|
 202610082200|IlesSanguinaires|Vue des îles Sanguinaires depuis la Corse (© Francesco Riccardo Iacomino/Getty Images)|Les îles du bout du monde|![](/fr-FR/2026/10/202610082200IlesSanguinaires.jpg)|
 202610092200|ArtemisRocket|Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)|L'univers nous appelle|![](/fr-FR/2026/10/202610092200ArtemisRocket.jpg)|
+202610102200|BabcockSP|Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)|La roue des saisons|![](/fr-FR/2026/10/202610102200BabcockSP.jpg)|
