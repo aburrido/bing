@@ -10,3 +10,4 @@
 202610080700|MayotteOctopus|Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)|Now you 'sea' me...|![](/en-US/2026/10/202610080700MayotteOctopus.jpg)|
 202610090700|IlesSanguinaires|View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)|Corsica's rocky outposts|![](/en-US/2026/10/202610090700IlesSanguinaires.jpg)|
 202610100700|CormorantsFlight|Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)|Life along the flyway|![](/en-US/2026/10/202610100700CormorantsFlight.jpg)|
+202610110700|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-US/2026/10/202610110700BabcockSP.jpg)|

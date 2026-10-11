@@ -10,3 +10,4 @@
 202610080400|MayotteOctopus|Poulpe en position défensive, Mayotte, océan Indien (© Gabriel Barathieu/Minden Pictures)|Poulpe fiction|![](/fr-CA/2026/10/202610080400MayotteOctopus.jpg)|
 202610090400|IlesSanguinaires|Vue des îles Sanguinaires depuis la Corse (© Francesco Riccardo Iacomino/Getty Images)|Les îles du bout du monde|![](/fr-CA/2026/10/202610090400IlesSanguinaires.jpg)|
 202610100400|CormorantsFlight|Cormorans à aigrettes au-dessus de la baie de Monterey, Californie, États-Unis (© Hiroya Minakuchi/Minden Pictures)|L’appel du large|![](/fr-CA/2026/10/202610100400CormorantsFlight.jpg)|
+202610110400|BabcockSP|Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)|La roue des saisons|![](/fr-CA/2026/10/202610110400BabcockSP.jpg)|
