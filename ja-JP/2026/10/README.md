@@ -11,3 +11,4 @@
 202610081500|IlesSanguinaires|サンギネール諸島, フランス (© Francesco Riccardo Iacomino/Getty Images)|コルシカ島を彩る美しい夕日|![](/ja-JP/2026/10/202610081500IlesSanguinaires.jpg)|
 202610091500|CormorantsFlight|モントレー湾, 米国 カリフォルニア州 (© Hiroya Minakuchi/Minden Pictures)|今日は世界渡り鳥の日|![](/ja-JP/2026/10/202610091500CormorantsFlight.jpg)|
 202610101500|BabcockSP|グレイド・クリーク・グリスト・ミル, 米国 ウェストバージニア州 (© dszc/Getty Images)|紅葉に包まれた水車小屋|![](/ja-JP/2026/10/202610101500BabcockSP.jpg)|
+202610111500|RedMacawsFlight|ベニコンゴウインコのペア (© markes51/Getty Images)|熱帯の森を舞う極彩色の鳥たち|![](/ja-JP/2026/10/202610111500RedMacawsFlight.jpg)|

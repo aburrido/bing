@@ -11,3 +11,4 @@
 202610081600|IlesSanguinaires|桑吉奈尔群岛景观，摄自科西嘉岛，法国 (© Francesco Riccardo Iacomino/Getty Images)|科西嘉岛的岩石前哨|![](/zh-CN/2026/10/202610081600IlesSanguinaires.jpg)|
 202610091600|CormorantsFlight|蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国 (© Hiroya Minakuchi/Minden Pictures)|迁飞路线上的生命|![](/zh-CN/2026/10/202610091600CormorantsFlight.jpg)|
 202610101600|BabcockSP|格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国 (© dszc/Getty Images)|秋色中转动的水轮|![](/zh-CN/2026/10/202610101600BabcockSP.jpg)|
+202610111600|MumblesSwansea2026|曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)|从铁轨到潮汐|![](/zh-CN/2026/10/202610111600MumblesSwansea2026.jpg)|
