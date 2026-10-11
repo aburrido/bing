@@ -11,3 +11,4 @@
 202610082200|IlesSanguinaires|Blick auf die Îles Sanguinaires vor Korsika, Frankreich (© Francesco Riccardo Iacomino/Getty Images)|Korsikas felsige Inseln|![](/de-DE/2026/10/202610082200IlesSanguinaires.jpg)|
 202610092200|CormorantsFlight|Ohrenscharben über der Monterey Bay, Kalifornien, USA (© Hiroya Minakuchi/Minden Pictures)|Leben entlang der Vogelzugroute|![](/de-DE/2026/10/202610092200CormorantsFlight.jpg)|
 202610102200|MouflonAutumn|Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)|Symbol ursprünglicher Natur|![](/de-DE/2026/10/202610102200MouflonAutumn.jpg)|
+202610112200|MumblesSwansea2026|Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)|Ein Pier voller Geschichte|![](/de-DE/2026/10/202610112200MumblesSwansea2026.jpg)|
