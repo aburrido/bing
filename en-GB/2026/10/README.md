@@ -11,3 +11,4 @@
 202610082300|IlesSanguinaires|View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)|Corsica's rocky outposts|![](/en-GB/2026/10/202610082300IlesSanguinaires.jpg)|
 202610092300|CormorantsFlight|Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)|Life along the flyway|![](/en-GB/2026/10/202610092300CormorantsFlight.jpg)|
 202610102300|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia, United States (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-GB/2026/10/202610102300BabcockSP.jpg)|
+202610112300|MumblesSwansea2026|Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)|Pier-ing into the past|![](/en-GB/2026/10/202610112300MumblesSwansea2026.jpg)|
