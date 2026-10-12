@@ -11,3 +11,4 @@
 202610090700|IlesSanguinaires|View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)|Corsica's rocky outposts|![](/en-US/2026/10/202610090700IlesSanguinaires.jpg)|
 202610100700|CormorantsFlight|Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)|Life along the flyway|![](/en-US/2026/10/202610100700CormorantsFlight.jpg)|
 202610110700|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-US/2026/10/202610110700BabcockSP.jpg)|
+202610120700|WhiteHouse|White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)|A landscape of living history|![](/en-US/2026/10/202610120700WhiteHouse.jpg)|

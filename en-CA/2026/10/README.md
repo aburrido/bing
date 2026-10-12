@@ -11,3 +11,4 @@
 202610090400|IlesSanguinaires|View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)|Corsica's rocky outposts|![](/en-CA/2026/10/202610090400IlesSanguinaires.jpg)|
 202610100400|CormorantsFlight|Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)|Life along the flyway|![](/en-CA/2026/10/202610100400CormorantsFlight.jpg)|
 202610110400|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia, USA (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-CA/2026/10/202610110400BabcockSP.jpg)|
+202610120400|HeartLakeTG|Baker Lake near East Bolton, Quebec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)|Hearts filled with gratitude|![](/en-CA/2026/10/202610120400HeartLakeTG.jpg)|
