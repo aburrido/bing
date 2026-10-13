@@ -12,3 +12,4 @@
 202610100400|CormorantsFlight|Cormorans à aigrettes au-dessus de la baie de Monterey, Californie, États-Unis (© Hiroya Minakuchi/Minden Pictures)|L’appel du large|![](/fr-CA/2026/10/202610100400CormorantsFlight.jpg)|
 202610110400|BabcockSP|Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)|La roue des saisons|![](/fr-CA/2026/10/202610110400BabcockSP.jpg)|
 202610120400|HeartLakeTG|Lac Baker près d'East Bolton, Québec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)|Quand la nature dit merci|![](/fr-CA/2026/10/202610120400HeartLakeTG.jpg)|
+202610130400|PlitviceAutumn|Parc national des lacs de Plitvice, Croatie (© Jan Wlodarczyk/Alamy)|Variations en bleu et vert|![](/fr-CA/2026/10/202610130400PlitviceAutumn.jpg)|
