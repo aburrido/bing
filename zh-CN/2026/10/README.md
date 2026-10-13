@@ -13,3 +13,4 @@
 202610101600|BabcockSP|格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国 (© dszc/Getty Images)|秋色中转动的水轮|![](/zh-CN/2026/10/202610101600BabcockSP.jpg)|
 202610111600|MumblesSwansea2026|曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)|从铁轨到潮汐|![](/zh-CN/2026/10/202610111600MumblesSwansea2026.jpg)|
 202610121600|PlitviceAutumn|普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)|蓝与绿的交响曲|![](/zh-CN/2026/10/202610121600PlitviceAutumn.jpg)|
+202610131600|AmmoniteFossils|侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)|穿越时间的螺旋|![](/zh-CN/2026/10/202610131600AmmoniteFossils.jpg)|

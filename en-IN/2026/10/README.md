@@ -13,3 +13,4 @@
 202610101830|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia, United States (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-IN/2026/10/202610101830BabcockSP.jpg)|
 202610111830|MumblesSwansea2026|Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)|Pier-ing into the past|![](/en-IN/2026/10/202610111830MumblesSwansea2026.jpg)|
 202610121830|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|A symphony in blue and green|![](/en-IN/2026/10/202610121830PlitviceAutumn.jpg)|
+202610131830|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Spirals through time|![](/en-IN/2026/10/202610131830AmmoniteFossils.jpg)|
