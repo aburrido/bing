@@ -12,3 +12,4 @@
 202610092200|ArtemisRocket|Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)|L'univers nous appelle|![](/fr-FR/2026/10/202610092200ArtemisRocket.jpg)|
 202610102200|BabcockSP|Moulin de Glade Creek, parc d'État de Babcock, Virginie-Occidentale, États-Unis (© dszc/Getty Images)|La roue des saisons|![](/fr-FR/2026/10/202610102200BabcockSP.jpg)|
 202610112200|MumblesSwansea2026|Jetée de Mumbles, Swansea, Pays de Galles (© Helen Hotson/Shutterstock)|Entre rails et marées|![](/fr-FR/2026/10/202610112200MumblesSwansea2026.jpg)|
+202610122200|PlitviceAutumn|Parc national des lacs de Plitvice, Croatie (© Jan Wlodarczyk/Alamy)|Variations en bleu et vert|![](/fr-FR/2026/10/202610122200PlitviceAutumn.jpg)|
