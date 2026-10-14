@@ -14,3 +14,4 @@
 202610111600|MumblesSwansea2026|曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)|从铁轨到潮汐|![](/zh-CN/2026/10/202610111600MumblesSwansea2026.jpg)|
 202610121600|PlitviceAutumn|普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)|蓝与绿的交响曲|![](/zh-CN/2026/10/202610121600PlitviceAutumn.jpg)|
 202610131600|AmmoniteFossils|侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)|穿越时间的螺旋|![](/zh-CN/2026/10/202610131600AmmoniteFossils.jpg)|
+202610141600|WroclawPoland|弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)|桥梁、屋顶与暮色|![](/zh-CN/2026/10/202610141600WroclawPoland.jpg)|

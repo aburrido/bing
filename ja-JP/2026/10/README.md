@@ -14,3 +14,4 @@
 202610111500|RedMacawsFlight|ベニコンゴウインコのペア (© markes51/Getty Images)|熱帯の森を舞う極彩色の鳥たち|![](/ja-JP/2026/10/202610111500RedMacawsFlight.jpg)|
 202610121500|PlitviceAutumn|プリトヴィツェ湖群国立公園, クロアチア (© Jan Wlodarczyk/Alamy)|紅葉に彩られた湖と滝|![](/ja-JP/2026/10/202610121500PlitviceAutumn.jpg)|
 202610131500|RailwayDay2026|嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)|今日は鉄道の日|![](/ja-JP/2026/10/202610131500RailwayDay2026.jpg)|
+202610141500|WroclawPoland|ヴロツワフ, ポーランド (© Piotr Mitelski/Shutterstock)|黄金色に輝く旧市街|![](/ja-JP/2026/10/202610141500WroclawPoland.jpg)|
