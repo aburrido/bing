@@ -13,3 +13,4 @@
 202610110700|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia, United States (© dszc/Getty Images)|Info|![](/en-AU/2026/10/202610110700BabcockSP.jpg)|
 202610120700|MumblesSwansea2026|Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)|Info|![](/en-AU/2026/10/202610120700MumblesSwansea2026.jpg)|
 202610130700|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|Info|![](/en-AU/2026/10/202610130700PlitviceAutumn.jpg)|
+202610140700|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Info|![](/en-AU/2026/10/202610140700AmmoniteFossils.jpg)|

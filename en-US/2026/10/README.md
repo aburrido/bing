@@ -13,3 +13,4 @@
 202610110700|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-US/2026/10/202610110700BabcockSP.jpg)|
 202610120700|WhiteHouse|White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)|A landscape of living history|![](/en-US/2026/10/202610120700WhiteHouse.jpg)|
 202610130700|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|A symphony in blue and green|![](/en-US/2026/10/202610130700PlitviceAutumn.jpg)|
+202610140700|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Spirals through time|![](/en-US/2026/10/202610140700AmmoniteFossils.jpg)|
