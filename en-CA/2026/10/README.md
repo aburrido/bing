@@ -13,3 +13,4 @@
 202610110400|BabcockSP|Glade Creek Grist Mill, Babcock State Park, West Virginia, USA (© dszc/Getty Images)|Where autumn turns the wheel|![](/en-CA/2026/10/202610110400BabcockSP.jpg)|
 202610120400|HeartLakeTG|Baker Lake near East Bolton, Quebec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)|Hearts filled with gratitude|![](/en-CA/2026/10/202610120400HeartLakeTG.jpg)|
 202610130400|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|A symphony in blue and green|![](/en-CA/2026/10/202610130400PlitviceAutumn.jpg)|
+202610140400|GrizzlySwim|Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)|Catch, eat, repeat|![](/en-CA/2026/10/202610140400GrizzlySwim.jpg)|
