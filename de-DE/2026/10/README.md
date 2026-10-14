@@ -13,3 +13,4 @@
 202610102200|MouflonAutumn|Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)|Symbol ursprünglicher Natur|![](/de-DE/2026/10/202610102200MouflonAutumn.jpg)|
 202610112200|MumblesSwansea2026|Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)|Ein Pier voller Geschichte|![](/de-DE/2026/10/202610112200MumblesSwansea2026.jpg)|
 202610122200|PlitviceAutumn|Nationalpark Plitvicer Seen, Kroatien (© Jan Wlodarczyk/Alamy)|Eine Symphonie in Blau und Grün|![](/de-DE/2026/10/202610122200PlitviceAutumn.jpg)|
+202610132200|AmmoniteFossils|Ammonitenfossilien aus der Jurazeit (© J Nemchinova/Getty Images)|Spiralen durch die Zeit|![](/de-DE/2026/10/202610132200AmmoniteFossils.jpg)|
