@@ -14,3 +14,4 @@
 202610120700|WhiteHouse|White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)|A landscape of living history|![](/en-US/2026/10/202610120700WhiteHouse.jpg)|
 202610130700|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|A symphony in blue and green|![](/en-US/2026/10/202610130700PlitviceAutumn.jpg)|
 202610140700|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Spirals through time|![](/en-US/2026/10/202610140700AmmoniteFossils.jpg)|
+202610150700|WroclawPoland|View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)|Bridges, rooftops, and twilight|![](/en-US/2026/10/202610150700WroclawPoland.jpg)|
