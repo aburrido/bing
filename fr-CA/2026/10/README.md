@@ -14,3 +14,4 @@
 202610120400|HeartLakeTG|Lac Baker près d'East Bolton, Québec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)|Quand la nature dit merci|![](/fr-CA/2026/10/202610120400HeartLakeTG.jpg)|
 202610130400|PlitviceAutumn|Parc national des lacs de Plitvice, Croatie (© Jan Wlodarczyk/Alamy)|Variations en bleu et vert|![](/fr-CA/2026/10/202610130400PlitviceAutumn.jpg)|
 202610140400|AmmoniteFossils|Fossiles d'ammonites du Jurassique (© J Nemchinova/Getty Images)|Le temps pris dans la pierre|![](/fr-CA/2026/10/202610140400AmmoniteFossils.jpg)|
+202610150400|WroclawPoland|Vue sur la place du marché de Wrocław depuis le pont des Sorcières, Wrocław, Pologne (© Piotr Mitelski/Shutterstock)|La ville aux cent ponts|![](/fr-CA/2026/10/202610150400WroclawPoland.jpg)|
