@@ -15,3 +15,4 @@
 202610121600|PlitviceAutumn|普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)|蓝与绿的交响曲|![](/zh-CN/2026/10/202610121600PlitviceAutumn.jpg)|
 202610131600|AmmoniteFossils|侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)|穿越时间的螺旋|![](/zh-CN/2026/10/202610131600AmmoniteFossils.jpg)|
 202610141600|WroclawPoland|弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)|桥梁、屋顶与暮色|![](/zh-CN/2026/10/202610141600WroclawPoland.jpg)|
+202610151600|SneffelsAutumn|斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国 (© lightphoto/Getty Images)|一窥科罗拉多群峰|![](/zh-CN/2026/10/202610151600SneffelsAutumn.jpg)|

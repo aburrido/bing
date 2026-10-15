@@ -15,3 +15,4 @@
 202610121500|PlitviceAutumn|プリトヴィツェ湖群国立公園, クロアチア (© Jan Wlodarczyk/Alamy)|紅葉に彩られた湖と滝|![](/ja-JP/2026/10/202610121500PlitviceAutumn.jpg)|
 202610131500|RailwayDay2026|嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)|今日は鉄道の日|![](/ja-JP/2026/10/202610131500RailwayDay2026.jpg)|
 202610141500|WroclawPoland|ヴロツワフ, ポーランド (© Piotr Mitelski/Shutterstock)|黄金色に輝く旧市街|![](/ja-JP/2026/10/202610141500WroclawPoland.jpg)|
+202610151500|SneffelsAutumn|スネフェル山, 米国 コロラド州 (© lightphoto/Getty Images)|黄金色の森の先にそびえる山|![](/ja-JP/2026/10/202610151500SneffelsAutumn.jpg)|
