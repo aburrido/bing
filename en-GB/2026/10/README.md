@@ -14,3 +14,4 @@
 202610112300|MumblesSwansea2026|Mumbles Pier, Swansea, Wales (© Helen Hotson/Shutterstock)|Pier-ing into the past|![](/en-GB/2026/10/202610112300MumblesSwansea2026.jpg)|
 202610122300|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|A symphony in blue and green|![](/en-GB/2026/10/202610122300PlitviceAutumn.jpg)|
 202610132300|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Spirals through time|![](/en-GB/2026/10/202610132300AmmoniteFossils.jpg)|
+202610142300|WroclawPoland|View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)|Bridges, rooftops and twilight|![](/en-GB/2026/10/202610142300WroclawPoland.jpg)|
