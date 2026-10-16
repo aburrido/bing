@@ -16,3 +16,4 @@
 202610131600|AmmoniteFossils|侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)|穿越时间的螺旋|![](/zh-CN/2026/10/202610131600AmmoniteFossils.jpg)|
 202610141600|WroclawPoland|弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)|桥梁、屋顶与暮色|![](/zh-CN/2026/10/202610141600WroclawPoland.jpg)|
 202610151600|SneffelsAutumn|斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国 (© lightphoto/Getty Images)|一窥科罗拉多群峰|![](/zh-CN/2026/10/202610151600SneffelsAutumn.jpg)|
+202610161600|ChauvetPaintingsFrance|肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国 (© Audrey Poree/Alamy)|发掘尘封的过去|![](/zh-CN/2026/10/202610161600ChauvetPaintingsFrance.jpg)|

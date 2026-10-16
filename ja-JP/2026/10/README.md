@@ -16,3 +16,4 @@
 202610131500|RailwayDay2026|嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)|今日は鉄道の日|![](/ja-JP/2026/10/202610131500RailwayDay2026.jpg)|
 202610141500|WroclawPoland|ヴロツワフ, ポーランド (© Piotr Mitelski/Shutterstock)|黄金色に輝く旧市街|![](/ja-JP/2026/10/202610141500WroclawPoland.jpg)|
 202610151500|SneffelsAutumn|スネフェル山, 米国 コロラド州 (© lightphoto/Getty Images)|黄金色の森の先にそびえる山|![](/ja-JP/2026/10/202610151500SneffelsAutumn.jpg)|
+202610161500|Persimmons2026|ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)|秋の風に揺れる干し柿|![](/ja-JP/2026/10/202610161500Persimmons2026.jpg)|
