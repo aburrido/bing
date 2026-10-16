@@ -15,3 +15,4 @@
 202610122200|PlitviceAutumn|Parc national des lacs de Plitvice, Croatie (© Jan Wlodarczyk/Alamy)|Variations en bleu et vert|![](/fr-FR/2026/10/202610122200PlitviceAutumn.jpg)|
 202610132200|AmmoniteFossils|Fossiles d'ammonites du Jurassique (© J Nemchinova/Getty Images)|Le temps pris dans la pierre|![](/fr-FR/2026/10/202610132200AmmoniteFossils.jpg)|
 202610142200|WroclawPoland|Vue sur la place du marché de Wrocław depuis le pont des Sorcières, Wrocław, Pologne (© Piotr Mitelski/Shutterstock)|La ville aux cent ponts|![](/fr-FR/2026/10/202610142200WroclawPoland.jpg)|
+202610152200|SneffelsAutumn|Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)|En haut du Colorado|![](/fr-FR/2026/10/202610152200SneffelsAutumn.jpg)|

@@ -15,3 +15,4 @@
 202610122200|PlitviceAutumn|Nationalpark Plitvicer Seen, Kroatien (© Jan Wlodarczyk/Alamy)|Eine Symphonie in Blau und Grün|![](/de-DE/2026/10/202610122200PlitviceAutumn.jpg)|
 202610132200|AmmoniteFossils|Ammonitenfossilien aus der Jurazeit (© J Nemchinova/Getty Images)|Spiralen durch die Zeit|![](/de-DE/2026/10/202610132200AmmoniteFossils.jpg)|
 202610142200|WroclawPoland|Blick auf den Breslauer Marktplatz von der Hexenbrücke in Breslau, Polen (© Piotr Mitelski/Shutterstock)|Brücken, Dächer und Dämmerung|![](/de-DE/2026/10/202610142200WroclawPoland.jpg)|
+202610152200|AndechsAbbey|Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)|Hoch über Bayern|![](/de-DE/2026/10/202610152200AndechsAbbey.jpg)|
