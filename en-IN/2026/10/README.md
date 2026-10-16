@@ -16,3 +16,4 @@
 202610131830|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Spirals through time|![](/en-IN/2026/10/202610131830AmmoniteFossils.jpg)|
 202610141830|WroclawPoland|View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)|Bridges, rooftops and twilight|![](/en-IN/2026/10/202610141830WroclawPoland.jpg)|
 202610151830|SneffelsAutumn|Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)|'Peak' into Colorado|![](/en-IN/2026/10/202610151830SneffelsAutumn.jpg)|
+202610161830|ChauvetPaintingsFrance|Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)|The past, unearthed|![](/en-IN/2026/10/202610161830ChauvetPaintingsFrance.jpg)|
