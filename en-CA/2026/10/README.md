@@ -15,3 +15,4 @@
 202610130400|PlitviceAutumn|Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)|A symphony in blue and green|![](/en-CA/2026/10/202610130400PlitviceAutumn.jpg)|
 202610140400|GrizzlySwim|Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)|Catch, eat, repeat|![](/en-CA/2026/10/202610140400GrizzlySwim.jpg)|
 202610150400|WroclawPoland|View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)|Bridges, rooftops and twilight|![](/en-CA/2026/10/202610150400WroclawPoland.jpg)|
+202610160400|MaligneFest|Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)|Under a blanket of stars|![](/en-CA/2026/10/202610160400MaligneFest.jpg)|
