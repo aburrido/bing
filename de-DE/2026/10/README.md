@@ -16,3 +16,4 @@
 202610132200|AmmoniteFossils|Ammonitenfossilien aus der Jurazeit (© J Nemchinova/Getty Images)|Spiralen durch die Zeit|![](/de-DE/2026/10/202610132200AmmoniteFossils.jpg)|
 202610142200|WroclawPoland|Blick auf den Breslauer Marktplatz von der Hexenbrücke in Breslau, Polen (© Piotr Mitelski/Shutterstock)|Brücken, Dächer und Dämmerung|![](/de-DE/2026/10/202610142200WroclawPoland.jpg)|
 202610152200|AndechsAbbey|Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)|Hoch über Bayern|![](/de-DE/2026/10/202610152200AndechsAbbey.jpg)|
+202610162200|ChauvetPaintingsFrance|Lebensgroße Nachbildung der Chauvet-Höhlenmalereien in Vallon-Pont-d'Arc, Frankreich (© Audrey Poree/Alamy)|Die Vergangenheit ans Licht gebracht|![](/de-DE/2026/10/202610162200ChauvetPaintingsFrance.jpg)|
