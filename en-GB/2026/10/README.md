@@ -17,3 +17,4 @@
 202610142300|WroclawPoland|View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)|Bridges, rooftops and twilight|![](/en-GB/2026/10/202610142300WroclawPoland.jpg)|
 202610152300|SneffelsAutumn|Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)|'Peak' into Colorado|![](/en-GB/2026/10/202610152300SneffelsAutumn.jpg)|
 202610162300|ChauvetPaintingsFrance|Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)|The past, unearthed|![](/en-GB/2026/10/202610162300ChauvetPaintingsFrance.jpg)|
+202610172300|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)|75 and thriving|![](/en-GB/2026/10/202610172300DolbadarnWales.jpg)|
