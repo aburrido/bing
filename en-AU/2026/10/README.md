@@ -16,3 +16,4 @@
 202610140700|AmmoniteFossils|Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)|Info|![](/en-AU/2026/10/202610140700AmmoniteFossils.jpg)|
 202610150700|NiagaraOnt|Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)|Info|![](/en-AU/2026/10/202610150700NiagaraOnt.jpg)|
 202610160700|SneffelsAutumn|Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)|Info|![](/en-AU/2026/10/202610160700SneffelsAutumn.jpg)|
+202610170700|PerugiaAqueduct|Medieval Aqueduct, Perugia, Italy (© Marco Saracco/Getty Images)|Info|![](/en-AU/2026/10/202610170700PerugiaAqueduct.jpg)|
