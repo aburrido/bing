@@ -18,3 +18,4 @@
 202610151600|SneffelsAutumn|斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国 (© lightphoto/Getty Images)|一窥科罗拉多群峰|![](/zh-CN/2026/10/202610151600SneffelsAutumn.jpg)|
 202610161600|ChauvetPaintingsFrance|肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国 (© Audrey Poree/Alamy)|发掘尘封的过去|![](/zh-CN/2026/10/202610161600ChauvetPaintingsFrance.jpg)|
 202610171600|DolbadarnWales|多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士 (© joe daniel price/Getty Images)|75载，风华正茂|![](/zh-CN/2026/10/202610171600DolbadarnWales.jpg)|
+202610181600|VeniceSunrise|大运河，威尼斯，意大利 (© Juan Romero/Cavan Images)|水上通衢|![](/zh-CN/2026/10/202610181600VeniceSunrise.jpg)|
