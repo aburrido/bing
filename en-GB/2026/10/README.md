@@ -18,3 +18,4 @@
 202610152300|SneffelsAutumn|Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)|'Peak' into Colorado|![](/en-GB/2026/10/202610152300SneffelsAutumn.jpg)|
 202610162300|ChauvetPaintingsFrance|Life-size replica of Chauvet cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)|The past, unearthed|![](/en-GB/2026/10/202610162300ChauvetPaintingsFrance.jpg)|
 202610172300|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)|75 and thriving|![](/en-GB/2026/10/202610172300DolbadarnWales.jpg)|
+202610182300|VeniceSunrise|Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)|The road that runs on water|![](/en-GB/2026/10/202610182300VeniceSunrise.jpg)|

@@ -18,3 +18,4 @@
 202610152200|SneffelsAutumn|Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)|En haut du Colorado|![](/fr-FR/2026/10/202610152200SneffelsAutumn.jpg)|
 202610162200|SmilingSquirrel|Écureuil roux (© Cédric GUERE/Getty Images)|Le jardinier des bois|![](/fr-FR/2026/10/202610162200SmilingSquirrel.jpg)|
 202610172200|DolbadarnWales|Château de Dolbadarn, Llanberis, Parc national d’Eryri (Snowdonia), Pays de Galles (© joe daniel price/Getty Images)|75 ans et rayonnant|![](/fr-FR/2026/10/202610172200DolbadarnWales.jpg)|
+202610182200|VeniceSunrise|Le Grand Canal à Venise, Italie (© Juan Romero/Cavan Images)|Des routes qui éclaboussent|![](/fr-FR/2026/10/202610182200VeniceSunrise.jpg)|
