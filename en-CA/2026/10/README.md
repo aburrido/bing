@@ -17,3 +17,4 @@
 202610150400|WroclawPoland|View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)|Bridges, rooftops and twilight|![](/en-CA/2026/10/202610150400WroclawPoland.jpg)|
 202610160400|MaligneFest|Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)|Under a blanket of stars|![](/en-CA/2026/10/202610160400MaligneFest.jpg)|
 202610170400|ChauvetPaintingsFrance|Life-size replica of Chauvet Cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)|The past, unearthed|![](/en-CA/2026/10/202610170400ChauvetPaintingsFrance.jpg)|
+202610180400|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)|75 and thriving|![](/en-CA/2026/10/202610180400DolbadarnWales.jpg)|
