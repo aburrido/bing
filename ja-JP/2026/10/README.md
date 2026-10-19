@@ -19,3 +19,4 @@
 202610161500|Persimmons2026|ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)|秋の風に揺れる干し柿|![](/ja-JP/2026/10/202610161500Persimmons2026.jpg)|
 202610171500|DolbadarnWales|ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)|丘の上に佇む城跡|![](/ja-JP/2026/10/202610171500DolbadarnWales.jpg)|
 202610181500|VeniceSunrise|カナル・グランデ, イタリア (© Juan Romero/Cavan Images)|夕焼けに染まるヴェネツィアの大運河|![](/ja-JP/2026/10/202610181500VeniceSunrise.jpg)|
+202610191500|BrownSloth|木の枝にぶら下がるナマケモノ, コスタリカ (© Suzi Eszterhas/Minden Pictures)|木の枝にぶら下がるナマケモノ|![](/ja-JP/2026/10/202610191500BrownSloth.jpg)|

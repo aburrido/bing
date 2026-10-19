@@ -19,3 +19,4 @@
 202610161600|ChauvetPaintingsFrance|肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国 (© Audrey Poree/Alamy)|发掘尘封的过去|![](/zh-CN/2026/10/202610161600ChauvetPaintingsFrance.jpg)|
 202610171600|DolbadarnWales|多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士 (© joe daniel price/Getty Images)|75载，风华正茂|![](/zh-CN/2026/10/202610171600DolbadarnWales.jpg)|
 202610181600|VeniceSunrise|大运河，威尼斯，意大利 (© Juan Romero/Cavan Images)|水上通衢|![](/zh-CN/2026/10/202610181600VeniceSunrise.jpg)|
+202610191600|BrownSloth|褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)|慢节奏生活|![](/zh-CN/2026/10/202610191600BrownSloth.jpg)|
