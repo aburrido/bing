@@ -18,3 +18,4 @@
 202610160400|MaligneFest|Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)|Under a blanket of stars|![](/en-CA/2026/10/202610160400MaligneFest.jpg)|
 202610170400|ChauvetPaintingsFrance|Life-size replica of Chauvet Cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)|The past, unearthed|![](/en-CA/2026/10/202610170400ChauvetPaintingsFrance.jpg)|
 202610180400|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)|75 and thriving|![](/en-CA/2026/10/202610180400DolbadarnWales.jpg)|
+202610190400|VeniceSunrise|Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)|The road that runs on water|![](/en-CA/2026/10/202610190400VeniceSunrise.jpg)|

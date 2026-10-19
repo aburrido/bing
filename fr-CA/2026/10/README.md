@@ -18,3 +18,4 @@
 202610160400|MaligneFest|Lac Maligne, Parc national Jasper, Alberta (© Andrey Popov/Getty Images)|Des étoiles plein les yeux|![](/fr-CA/2026/10/202610160400MaligneFest.jpg)|
 202610170400|ChauvetPaintingsFrance|Reconstitution grande nature d’une œuvre de la Grotte Chauvet à Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)|Des ébauches du passé|![](/fr-CA/2026/10/202610170400ChauvetPaintingsFrance.jpg)|
 202610180400|DolbadarnWales|Château de Dolbadarn, Llanberis, Parc national d’Eryri (© joe daniel price/Getty Images)|75 ans et rayonnant|![](/fr-CA/2026/10/202610180400DolbadarnWales.jpg)|
+202610190400|VeniceSunrise|Le Grand Canal à Venise, Italie (© Juan Romero/Cavan Images)|Des routes qui éclaboussent|![](/fr-CA/2026/10/202610190400VeniceSunrise.jpg)|
