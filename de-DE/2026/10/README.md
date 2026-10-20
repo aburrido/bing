@@ -19,3 +19,4 @@
 202610162200|ChauvetPaintingsFrance|Lebensgroße Nachbildung der Chauvet-Höhlenmalereien in Vallon-Pont-d'Arc, Frankreich (© Audrey Poree/Alamy)|Die Vergangenheit ans Licht gebracht|![](/de-DE/2026/10/202610162200ChauvetPaintingsFrance.jpg)|
 202610172200|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri-Nationalpark (Snowdonia), Wales (© joe daniel price/Getty Images)|75 und voller Leben|![](/de-DE/2026/10/202610172200DolbadarnWales.jpg)|
 202610182200|VeniceSunrise|Canal Grande in Venedig, Italien (© Juan Romero/Cavan Images)|Die Straße, die übers Wasser führt|![](/de-DE/2026/10/202610182200VeniceSunrise.jpg)|
+202610192200|BrownSloth|Braunkehl-Faultier, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Immer mit der Ruhe|![](/de-DE/2026/10/202610192200BrownSloth.jpg)|
