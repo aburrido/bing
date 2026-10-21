@@ -21,3 +21,4 @@
 202610181500|VeniceSunrise|カナル・グランデ, イタリア (© Juan Romero/Cavan Images)|夕焼けに染まるヴェネツィアの大運河|![](/ja-JP/2026/10/202610181500VeniceSunrise.jpg)|
 202610191500|BrownSloth|木の枝にぶら下がるナマケモノ, コスタリカ (© Suzi Eszterhas/Minden Pictures)|木の枝にぶら下がるナマケモノ|![](/ja-JP/2026/10/202610191500BrownSloth.jpg)|
 202610201500|VietnamBridge|グエン・ホアン橋, ベトナム (© VU PHAM VAN/Getty Images)|ライトアップされたアーチ橋|![](/ja-JP/2026/10/202610201500VietnamBridge.jpg)|
+202610211500|NaejangsanNP|内蔵山国立公園, 韓国 (© Twenty47studio/Getty Images)|紅葉に彩られた東屋|![](/ja-JP/2026/10/202610211500NaejangsanNP.jpg)|
