@@ -21,3 +21,4 @@
 202610182200|VeniceSunrise|Canal Grande in Venedig, Italien (© Juan Romero/Cavan Images)|Die Straße, die übers Wasser führt|![](/de-DE/2026/10/202610182200VeniceSunrise.jpg)|
 202610192200|BrownSloth|Braunkehl-Faultier, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Immer mit der Ruhe|![](/de-DE/2026/10/202610192200BrownSloth.jpg)|
 202610202200|VietnamBridge|Nguyen-Hoang-Brücke über den Parfümfluss, Huế, Vietnam (© VU PHAM VAN/Getty Images)|Über den Fluss fliegen|![](/de-DE/2026/10/202610202200VietnamBridge.jpg)|
+202610212200|NaejangsanNP|Herbst im Naejangsan-Nationalpark, Südkorea (© Twenty47studio/Getty Images)|Stille Wasser, leuchtende Farben|![](/de-DE/2026/10/202610212200NaejangsanNP.jpg)|
