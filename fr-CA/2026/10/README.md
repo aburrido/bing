@@ -20,3 +20,4 @@
 202610180400|DolbadarnWales|Château de Dolbadarn, Llanberis, Parc national d’Eryri (© joe daniel price/Getty Images)|75 ans et rayonnant|![](/fr-CA/2026/10/202610180400DolbadarnWales.jpg)|
 202610190400|VeniceSunrise|Le Grand Canal à Venise, Italie (© Juan Romero/Cavan Images)|Des routes qui éclaboussent|![](/fr-CA/2026/10/202610190400VeniceSunrise.jpg)|
 202610200400|BrownSloth|Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|La vie au ralenti|![](/fr-CA/2026/10/202610200400BrownSloth.jpg)|
+202610210400|VietnamBridge|Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)|Vol au-dessus de la rivière|![](/fr-CA/2026/10/202610210400VietnamBridge.jpg)|
