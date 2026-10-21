@@ -21,3 +21,4 @@
 202610181830|MahaNavami2026|Goddess Durga idol in a pandal (© shouvik mondal/iStock/Getty Images)|When Shakti rises|![](/en-IN/2026/10/202610181830MahaNavami2026.jpg)|
 202610191830|BrownSloth|Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Life in the slow lane|![](/en-IN/2026/10/202610191830BrownSloth.jpg)|
 202610201830|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Winging it over the river|![](/en-IN/2026/10/202610201830VietnamBridge.jpg)|
+202610211830|NaejangsanNP|Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Still waters, vivid colours|![](/en-IN/2026/10/202610211830NaejangsanNP.jpg)|
