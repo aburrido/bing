@@ -20,3 +20,4 @@
 202610172300|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)|75 and thriving|![](/en-GB/2026/10/202610172300DolbadarnWales.jpg)|
 202610182300|VeniceSunrise|Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)|The road that runs on water|![](/en-GB/2026/10/202610182300VeniceSunrise.jpg)|
 202610192300|BrownSloth|Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Life in the slow lane|![](/en-GB/2026/10/202610192300BrownSloth.jpg)|
+202610202300|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Winging it over the river|![](/en-GB/2026/10/202610202300VietnamBridge.jpg)|
