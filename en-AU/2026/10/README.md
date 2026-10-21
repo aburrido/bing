@@ -20,3 +20,4 @@
 202610180700|DolbadarnWales|Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)|Info|![](/en-AU/2026/10/202610180700DolbadarnWales.jpg)|
 202610190700|VeniceSunrise|Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)|Info|![](/en-AU/2026/10/202610190700VeniceSunrise.jpg)|
 202610200700|BrownSloth|Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Info|![](/en-AU/2026/10/202610200700BrownSloth.jpg)|
+202610210700|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Info|![](/en-AU/2026/10/202610210700VietnamBridge.jpg)|
