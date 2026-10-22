@@ -21,3 +21,4 @@
 202610190400|VeniceSunrise|Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)|The road that runs on water|![](/en-CA/2026/10/202610190400VeniceSunrise.jpg)|
 202610200400|BrownSloth|Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Life in the slow lane|![](/en-CA/2026/10/202610200400BrownSloth.jpg)|
 202610210400|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Winging it over the river|![](/en-CA/2026/10/202610210400VietnamBridge.jpg)|
+202610220400|NaejangsanNP|Fall in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Still waters, vivid colours|![](/en-CA/2026/10/202610220400NaejangsanNP.jpg)|
