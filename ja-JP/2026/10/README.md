@@ -22,3 +22,4 @@
 202610191500|BrownSloth|木の枝にぶら下がるナマケモノ, コスタリカ (© Suzi Eszterhas/Minden Pictures)|木の枝にぶら下がるナマケモノ|![](/ja-JP/2026/10/202610191500BrownSloth.jpg)|
 202610201500|VietnamBridge|グエン・ホアン橋, ベトナム (© VU PHAM VAN/Getty Images)|ライトアップされたアーチ橋|![](/ja-JP/2026/10/202610201500VietnamBridge.jpg)|
 202610211500|NaejangsanNP|内蔵山国立公園, 韓国 (© Twenty47studio/Getty Images)|紅葉に彩られた東屋|![](/ja-JP/2026/10/202610211500NaejangsanNP.jpg)|
+202610221500|TsutanumaMomiji2026|蔦沼, 青森県 十和田市 (© MASATO SAITO/Getty Images)|今日は霜降|![](/ja-JP/2026/10/202610221500TsutanumaMomiji2026.jpg)|

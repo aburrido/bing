@@ -22,3 +22,4 @@
 202610191600|BrownSloth|褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)|慢节奏生活|![](/zh-CN/2026/10/202610191600BrownSloth.jpg)|
 202610201600|VietnamBridge|香江上的阮潢桥，顺化，越南 (© VU PHAM VAN/Getty Images)|飞掠河面|![](/zh-CN/2026/10/202610201600VietnamBridge.jpg)|
 202610211600|NaejangsanNP|内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)|静水映斑斓|![](/zh-CN/2026/10/202610211600NaejangsanNP.jpg)|
+202610221600|YellowstoneWolves|两只灰狼，黄石国家公园，怀俄明州，美国 (© John Morrison/Getty Images)|荒野伙伴|![](/zh-CN/2026/10/202610221600YellowstoneWolves.jpg)|
