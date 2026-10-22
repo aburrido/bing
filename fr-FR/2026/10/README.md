@@ -22,3 +22,4 @@
 202610192200|BrownSloth|Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|La vie au ralenti|![](/fr-FR/2026/10/202610192200BrownSloth.jpg)|
 202610202200|VietnamBridge|Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)|Vol au-dessus de la rivière|![](/fr-FR/2026/10/202610202200VietnamBridge.jpg)|
 202610212200|NaejangsanNP|Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)|Eaux paisibles, teintes flamboyantes|![](/fr-FR/2026/10/202610212200NaejangsanNP.jpg)|
+202610222200|ReimsChampagne|Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)|Là où naissent les bulles|![](/fr-FR/2026/10/202610222200ReimsChampagne.jpg)|
