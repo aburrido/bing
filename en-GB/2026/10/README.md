@@ -23,3 +23,4 @@
 202610202300|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Winging it over the river|![](/en-GB/2026/10/202610202300VietnamBridge.jpg)|
 202610212300|NaejangsanNP|Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Still waters, vivid colours|![](/en-GB/2026/10/202610212300NaejangsanNP.jpg)|
 202610222300|YellowstoneWolves|Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Partners in the wild|![](/en-GB/2026/10/202610222300YellowstoneWolves.jpg)|
+202610232300|PortugueseLibrary|Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)|Bookishly extravagant|![](/en-GB/2026/10/202610232300PortugueseLibrary.jpg)|

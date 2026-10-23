@@ -23,3 +23,4 @@
 202610202200|VietnamBridge|Nguyen-Hoang-Brücke über den Parfümfluss, Huế, Vietnam (© VU PHAM VAN/Getty Images)|Über den Fluss fliegen|![](/de-DE/2026/10/202610202200VietnamBridge.jpg)|
 202610212200|NaejangsanNP|Herbst im Naejangsan-Nationalpark, Südkorea (© Twenty47studio/Getty Images)|Stille Wasser, leuchtende Farben|![](/de-DE/2026/10/202610212200NaejangsanNP.jpg)|
 202610222200|YellowstoneWolves|Wölfe im Yellowstone-Nationalpark, Wyoming, USA (© John Morrison/Getty Images)|Partner in freier Wildbahn|![](/de-DE/2026/10/202610222200YellowstoneWolves.jpg)|
+202610232200|BerlinLibrary|Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)|Architektur des Wissens|![](/de-DE/2026/10/202610232200BerlinLibrary.jpg)|
