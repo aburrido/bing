@@ -22,3 +22,4 @@
 202610200400|BrownSloth|Paresseux à gorge brune, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|La vie au ralenti|![](/fr-CA/2026/10/202610200400BrownSloth.jpg)|
 202610210400|VietnamBridge|Le pont Nguyen Hoang sur la rivière des Parfums, Hué, Vietnam (© VU PHAM VAN/Getty Images)|Vol au-dessus de la rivière|![](/fr-CA/2026/10/202610210400VietnamBridge.jpg)|
 202610220400|NaejangsanNP|Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)|Eaux paisibles, teintes flamboyantes|![](/fr-CA/2026/10/202610220400NaejangsanNP.jpg)|
+202610230400|YellowstoneWolves|Deux loups gris, Parc national de Yellowstone, Wyoming, États-Unis (© John Morrison/Getty Images)|Partenaires au cœur de la nature sauvage|![](/fr-CA/2026/10/202610230400YellowstoneWolves.jpg)|

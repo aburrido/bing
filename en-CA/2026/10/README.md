@@ -22,3 +22,4 @@
 202610200400|BrownSloth|Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)|Life in the slow lane|![](/en-CA/2026/10/202610200400BrownSloth.jpg)|
 202610210400|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Winging it over the river|![](/en-CA/2026/10/202610210400VietnamBridge.jpg)|
 202610220400|NaejangsanNP|Fall in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Still waters, vivid colours|![](/en-CA/2026/10/202610220400NaejangsanNP.jpg)|
+202610230400|YellowstoneWolves|Two grey wolves Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Partners in the wild|![](/en-CA/2026/10/202610230400YellowstoneWolves.jpg)|
