@@ -24,3 +24,4 @@
 202610212200|NaejangsanNP|Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)|Eaux paisibles, teintes flamboyantes|![](/fr-FR/2026/10/202610212200NaejangsanNP.jpg)|
 202610222200|ReimsChampagne|Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)|Là où naissent les bulles|![](/fr-FR/2026/10/202610222200ReimsChampagne.jpg)|
 202610232200|PortugueseLibrary|Cabinet royal portugais de lecture, Rio de Janeiro, Brésil (© Antonio Salaverry/Shutterstock)|De quoi en perdre ses mots|![](/fr-FR/2026/10/202610232200PortugueseLibrary.jpg)|
+202610242200|MaligneFest|Lac Maligne, Parc national Jasper, Alberta, Canada (© Andrey Popov/Getty Images)|Des étoiles plein les yeux|![](/fr-FR/2026/10/202610242200MaligneFest.jpg)|
