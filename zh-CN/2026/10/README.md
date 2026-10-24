@@ -24,3 +24,4 @@
 202610211600|NaejangsanNP|内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)|静水映斑斓|![](/zh-CN/2026/10/202610211600NaejangsanNP.jpg)|
 202610221600|YellowstoneWolves|两只灰狼，黄石国家公园，怀俄明州，美国 (© John Morrison/Getty Images)|荒野伙伴|![](/zh-CN/2026/10/202610221600YellowstoneWolves.jpg)|
 202610231600|PortugueseLibrary|皇家葡萄牙语阅览室，里约热内卢，巴西 (© Antonio Salaverry/Shutterstock)|书香里的极致华美|![](/zh-CN/2026/10/202610231600PortugueseLibrary.jpg)|
+202610241600|MaligneFest|玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大 (© Andrey Popov/Getty Images)|群峰与宁静相遇之地|![](/zh-CN/2026/10/202610241600MaligneFest.jpg)|
