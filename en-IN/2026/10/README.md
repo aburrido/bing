@@ -24,3 +24,4 @@
 202610211830|NaejangsanNP|Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Still waters, vivid colours|![](/en-IN/2026/10/202610211830NaejangsanNP.jpg)|
 202610221830|YellowstoneWolves|Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Partners in the wild|![](/en-IN/2026/10/202610221830YellowstoneWolves.jpg)|
 202610231830|PortugueseLibrary|Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)|Bookishly extravagant|![](/en-IN/2026/10/202610231830PortugueseLibrary.jpg)|
+202610241830|VeniceSunrise|Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)|The road that runs on water|![](/en-IN/2026/10/202610241830VeniceSunrise.jpg)|
