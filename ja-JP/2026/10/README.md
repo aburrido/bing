@@ -24,3 +24,4 @@
 202610211500|NaejangsanNP|内蔵山国立公園, 韓国 (© Twenty47studio/Getty Images)|紅葉に彩られた東屋|![](/ja-JP/2026/10/202610211500NaejangsanNP.jpg)|
 202610221500|TsutanumaMomiji2026|蔦沼, 青森県 十和田市 (© MASATO SAITO/Getty Images)|今日は霜降|![](/ja-JP/2026/10/202610221500TsutanumaMomiji2026.jpg)|
 202610231500|PortugueseLibrary|王立ポルトガル図書館, ブラジル (© Antonio Salaverry/Shutterstock)|図書館の天窓から差し込む自然光|![](/ja-JP/2026/10/202610231500PortugueseLibrary.jpg)|
+202610241500|YellowstoneWolves|ハイイロオオカミ, 米国 ワイオミング州 (© John Morrison/Getty Images)|冬の大地を進むオオカミたち|![](/ja-JP/2026/10/202610241500YellowstoneWolves.jpg)|
