@@ -23,3 +23,4 @@
 202610210700|VietnamBridge|Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)|Info|![](/en-AU/2026/10/202610210700VietnamBridge.jpg)|
 202610220700|NaejangsanNP|Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Info|![](/en-AU/2026/10/202610220700NaejangsanNP.jpg)|
 202610230700|YellowstoneWolves|Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Info|![](/en-AU/2026/10/202610230700YellowstoneWolves.jpg)|
+202610240700|Tanager|Green-headed tanager (© Juan Carlos Vindas/Getty Images)|Info|![](/en-AU/2026/10/202610240700Tanager.jpg)|
