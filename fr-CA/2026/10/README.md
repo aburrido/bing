@@ -24,3 +24,4 @@
 202610220400|NaejangsanNP|Le parc national de Naejangsan en automne, Corée du Sud (© Twenty47studio/Getty Images)|Eaux paisibles, teintes flamboyantes|![](/fr-CA/2026/10/202610220400NaejangsanNP.jpg)|
 202610230400|YellowstoneWolves|Deux loups gris, Parc national de Yellowstone, Wyoming, États-Unis (© John Morrison/Getty Images)|Partenaires au cœur de la nature sauvage|![](/fr-CA/2026/10/202610230400YellowstoneWolves.jpg)|
 202610240400|PortugueseLibrary|Cabinet royal portugais de lecture, Rio de Janeiro, Brésil (© Antonio Salaverry/Shutterstock)|De quoi en perdre ses mots|![](/fr-CA/2026/10/202610240400PortugueseLibrary.jpg)|
+202610250400|SneffelsAutumn|Le mont Sneffels dans les montagnes San Juan, près de Ridgway, Colorado, États-Unis (© lightphoto/Getty Images)|En haut du Colorado|![](/fr-CA/2026/10/202610250400SneffelsAutumn.jpg)|

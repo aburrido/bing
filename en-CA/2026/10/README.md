@@ -24,3 +24,4 @@
 202610220400|NaejangsanNP|Fall in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)|Still waters, vivid colours|![](/en-CA/2026/10/202610220400NaejangsanNP.jpg)|
 202610230400|YellowstoneWolves|Two grey wolves Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Partners in the wild|![](/en-CA/2026/10/202610230400YellowstoneWolves.jpg)|
 202610240400|PortugueseLibrary|Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)|Bookishly extravagant|![](/en-CA/2026/10/202610240400PortugueseLibrary.jpg)|
+202610250400|SneffelsAutumn|Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)|'Peak' into Colorado|![](/en-CA/2026/10/202610250400SneffelsAutumn.jpg)|
