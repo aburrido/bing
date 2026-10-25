@@ -25,3 +25,4 @@
 202610222200|ReimsChampagne|Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)|Là où naissent les bulles|![](/fr-FR/2026/10/202610222200ReimsChampagne.jpg)|
 202610232200|PortugueseLibrary|Cabinet royal portugais de lecture, Rio de Janeiro, Brésil (© Antonio Salaverry/Shutterstock)|De quoi en perdre ses mots|![](/fr-FR/2026/10/202610232200PortugueseLibrary.jpg)|
 202610242200|MaligneFest|Lac Maligne, Parc national Jasper, Alberta, Canada (© Andrey Popov/Getty Images)|Des étoiles plein les yeux|![](/fr-FR/2026/10/202610242200MaligneFest.jpg)|
+202610252300|SitovoWaterfall|Une cascade en Automne près de Sitovo, Oblast de Plovdiv, Bulgarie (© Nadya85/Getty Images)|Le son de l’automne|![](/fr-FR/2026/10/202610252300SitovoWaterfall.jpg)|
