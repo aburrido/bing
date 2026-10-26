@@ -25,3 +25,4 @@
 202610230700|YellowstoneWolves|Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)|Partners in the wild|![](/en-US/2026/10/202610230700YellowstoneWolves.jpg)|
 202610240700|PortugueseLibrary|Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)|Bookishly extravagant|![](/en-US/2026/10/202610240700PortugueseLibrary.jpg)|
 202610250700|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Nature's autumn soundtrack|![](/en-US/2026/10/202610250700SitovoWaterfall.jpg)|
+202610260700|HangingBat|Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)|Hanging in there|![](/en-US/2026/10/202610260700HangingBat.jpg)|

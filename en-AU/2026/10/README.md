@@ -25,3 +25,4 @@
 202610230700|YellowstoneWolves|Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Info|![](/en-AU/2026/10/202610230700YellowstoneWolves.jpg)|
 202610240700|Tanager|Green-headed tanager (© Juan Carlos Vindas/Getty Images)|Info|![](/en-AU/2026/10/202610240700Tanager.jpg)|
 202610250700|MaligneFest|Maligne Lake, Jasper National Park, Alberta, Canada (© Andrey Popov/Getty Images)|Info|![](/en-AU/2026/10/202610250700MaligneFest.jpg)|
+202610260700|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Info|![](/en-AU/2026/10/202610260700SitovoWaterfall.jpg)|
