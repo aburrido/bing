@@ -26,3 +26,4 @@
 202610232200|BerlinLibrary|Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)|Architektur des Wissens|![](/de-DE/2026/10/202610232200BerlinLibrary.jpg)|
 202610242200|MaligneFest|Maligne Lake, Jasper-Nationalpark, Alberta, Kanada (© Andrey Popov/Getty Images)|Wo Gipfel auf Stille treffen|![](/de-DE/2026/10/202610242200MaligneFest.jpg)|
 202610252300|SitovoWaterfall|Wasserfälle bei Sitovo im Herbst, Plowdiw, Bulgarien (© Nadya85/Getty Images)|Der Klang des Herbstes|![](/de-DE/2026/10/202610252300SitovoWaterfall.jpg)|
+202610262300|PondCypress|Teichzypressen in herbstlicher Färbung, Georgia, USA (© Chris Moore/Getty Images)|Goldener Spiegel der Natur|![](/de-DE/2026/10/202610262300PondCypress.jpg)|
