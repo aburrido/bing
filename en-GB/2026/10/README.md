@@ -25,3 +25,4 @@
 202610222300|YellowstoneWolves|Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)|Partners in the wild|![](/en-GB/2026/10/202610222300YellowstoneWolves.jpg)|
 202610232300|PortugueseLibrary|Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)|Bookishly extravagant|![](/en-GB/2026/10/202610232300PortugueseLibrary.jpg)|
 202610242300|BSTEnds2026|The Eastgate Clock, Chester, England (© Alexey_Fedoren/iStock/Getty Images)|The clock strikes back|![](/en-GB/2026/10/202610242300BSTEnds2026.jpg)|
+202610260000|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Nature's autumn soundtrack|![](/en-GB/2026/10/202610260000SitovoWaterfall.jpg)|
