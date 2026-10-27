@@ -27,3 +27,4 @@
 202610241600|MaligneFest|玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大 (© Andrey Popov/Getty Images)|群峰与宁静相遇之地|![](/zh-CN/2026/10/202610241600MaligneFest.jpg)|
 202610251600|SitovoWaterfall|秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚 (© Nadya85/Getty Images)|大自然的秋日乐章|![](/zh-CN/2026/10/202610251600SitovoWaterfall.jpg)|
 202610261600|PondCypress|秋叶缤纷的池杉林，乔治亚州，美国 (© Chris Moore/Getty Images)|大自然的金色明镜|![](/zh-CN/2026/10/202610261600PondCypress.jpg)|
+202610271600|KuneticeCastle|库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)|历史守望之地|![](/zh-CN/2026/10/202610271600KuneticeCastle.jpg)|

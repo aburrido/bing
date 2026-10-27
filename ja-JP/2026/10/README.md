@@ -27,3 +27,4 @@
 202610241500|YellowstoneWolves|ハイイロオオカミ, 米国 ワイオミング州 (© John Morrison/Getty Images)|冬の大地を進むオオカミたち|![](/ja-JP/2026/10/202610241500YellowstoneWolves.jpg)|
 202610251500|SitovoWaterfall|シトヴォ滝, ブルガリア (© Nadya85/Getty Images)|紅葉の中を流れ落ちる滝|![](/ja-JP/2026/10/202610251500SitovoWaterfall.jpg)|
 202610261500|PondCypress|ポンドサイプレス, 米国 ジョージア州 (© Chris Moore/Getty Images)|水面に映る秋の森|![](/ja-JP/2026/10/202610261500PondCypress.jpg)|
+202610271500|KuneticeCastle|クネティツカー・ホラ城, チェコ (© Marek Saroch/Alamy)|夕暮れに佇む古城|![](/ja-JP/2026/10/202610271500KuneticeCastle.jpg)|
