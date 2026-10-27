@@ -27,3 +27,4 @@
 202610242200|MaligneFest|Lac Maligne, Parc national Jasper, Alberta, Canada (© Andrey Popov/Getty Images)|Des étoiles plein les yeux|![](/fr-FR/2026/10/202610242200MaligneFest.jpg)|
 202610252300|SitovoWaterfall|Une cascade en Automne près de Sitovo, Oblast de Plovdiv, Bulgarie (© Nadya85/Getty Images)|Le son de l’automne|![](/fr-FR/2026/10/202610252300SitovoWaterfall.jpg)|
 202610262300|PondCypress|Un bosquet de cyprès des étangs aux couleurs automnales, Géorgie, États-Unis (© Chris Moore/Getty Images)|Le reflet doré de la nature|![](/fr-FR/2026/10/202610262300PondCypress.jpg)|
+202610272300|KuneticeCastle|Château de Kunětická hora, Bohême, Tchéquie (© Marek Saroch/Alamy)|Gardien de l’histoire|![](/fr-FR/2026/10/202610272300KuneticeCastle.jpg)|
