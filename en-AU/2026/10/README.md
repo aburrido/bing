@@ -26,3 +26,4 @@
 202610240700|Tanager|Green-headed tanager (© Juan Carlos Vindas/Getty Images)|Info|![](/en-AU/2026/10/202610240700Tanager.jpg)|
 202610250700|MaligneFest|Maligne Lake, Jasper National Park, Alberta, Canada (© Andrey Popov/Getty Images)|Info|![](/en-AU/2026/10/202610250700MaligneFest.jpg)|
 202610260700|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Info|![](/en-AU/2026/10/202610260700SitovoWaterfall.jpg)|
+202610270700|PondCypress|A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)|Info|![](/en-AU/2026/10/202610270700PondCypress.jpg)|

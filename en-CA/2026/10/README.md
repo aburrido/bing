@@ -26,3 +26,4 @@
 202610240400|PortugueseLibrary|Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)|Bookishly extravagant|![](/en-CA/2026/10/202610240400PortugueseLibrary.jpg)|
 202610250400|SneffelsAutumn|Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)|'Peak' into Colorado|![](/en-CA/2026/10/202610250400SneffelsAutumn.jpg)|
 202610260400|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Nature's fall soundtrack|![](/en-CA/2026/10/202610260400SitovoWaterfall.jpg)|
+202610270400|PondCypress|A grove of pond cypress trees with fall foliage, Georgia, United States (© Chris Moore/Getty Images)|Nature's golden mirror|![](/en-CA/2026/10/202610270400PondCypress.jpg)|
