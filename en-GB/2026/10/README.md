@@ -27,3 +27,4 @@
 202610242300|BSTEnds2026|The Eastgate Clock, Chester, England (© Alexey_Fedoren/iStock/Getty Images)|The clock strikes back|![](/en-GB/2026/10/202610242300BSTEnds2026.jpg)|
 202610260000|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Nature's autumn soundtrack|![](/en-GB/2026/10/202610260000SitovoWaterfall.jpg)|
 202610270000|PondCypress|A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)|Nature's golden mirror|![](/en-GB/2026/10/202610270000PondCypress.jpg)|
+202610280000|KuneticeCastle|Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)|Where history stands watch|![](/en-GB/2026/10/202610280000KuneticeCastle.jpg)|
