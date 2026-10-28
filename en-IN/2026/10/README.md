@@ -28,3 +28,4 @@
 202610251830|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Nature's autumn soundtrack|![](/en-IN/2026/10/202610251830SitovoWaterfall.jpg)|
 202610261830|PondCypress|A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)|Nature's golden mirror|![](/en-IN/2026/10/202610261830PondCypress.jpg)|
 202610271830|KuneticeCastle|Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)|Where history stands watch|![](/en-IN/2026/10/202610271830KuneticeCastle.jpg)|
+202610281830|AveburyStones|Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)|Where mist meets millennia|![](/en-IN/2026/10/202610281830AveburyStones.jpg)|
