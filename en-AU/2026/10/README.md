@@ -28,3 +28,4 @@
 202610260700|SitovoWaterfall|Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)|Info|![](/en-AU/2026/10/202610260700SitovoWaterfall.jpg)|
 202610270700|PondCypress|A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)|Info|![](/en-AU/2026/10/202610270700PondCypress.jpg)|
 202610280700|KuneticeCastle|Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)|Info|![](/en-AU/2026/10/202610280700KuneticeCastle.jpg)|
+202610290700|AveburyStones|Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)|Info|![](/en-AU/2026/10/202610290700AveburyStones.jpg)|
