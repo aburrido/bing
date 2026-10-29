@@ -28,3 +28,4 @@
 202610260400|SitovoWaterfall|Une cascade en Automne près de Sitovo, Oblast de Plovdiv, Bulgarie (© Nadya85/Getty Images)|Le son de l’automne|![](/fr-CA/2026/10/202610260400SitovoWaterfall.jpg)|
 202610270400|PondCypress|Un bosquet de cyprès des étangs aux couleurs automnales, Géorgie, États-Unis (© Chris Moore/Getty Images)|Le reflet doré de la nature|![](/fr-CA/2026/10/202610270400PondCypress.jpg)|
 202610280400|KuneticeCastle|Château de Kunětická hora, Bohême, Tchéquie (© Marek Saroch/Alamy)|Gardien de l’histoire|![](/fr-CA/2026/10/202610280400KuneticeCastle.jpg)|
+202610290400|AveburyStones|Pierres dressées à Avebury dans le Wiltshire, Angleterre (© George W Johnson/Getty Images)|Des millénaires caressés par la brume|![](/fr-CA/2026/10/202610290400AveburyStones.jpg)|
