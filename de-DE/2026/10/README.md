@@ -29,3 +29,4 @@
 202610262300|PondCypress|Teichzypressen in herbstlicher Färbung, Georgia, USA (© Chris Moore/Getty Images)|Goldener Spiegel der Natur|![](/de-DE/2026/10/202610262300PondCypress.jpg)|
 202610272300|KuneticeCastle|Burg Kunětická hora, Böhmen, Tschechien (© Marek Saroch/Alamy)|Wo Geschichte Wache hält|![](/de-DE/2026/10/202610272300KuneticeCastle.jpg)|
 202610282300|AveburyStones|Stehende Steine in Avebury, Wiltshire, England (© George W Johnson/Getty Images)|Wo Nebel auf Jahrtausende trifft|![](/de-DE/2026/10/202610282300AveburyStones.jpg)|
+202610292300|AutumnCranes|Kanadakraniche, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)|Zeit für Höhenflüge|![](/de-DE/2026/10/202610292300AutumnCranes.jpg)|

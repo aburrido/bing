@@ -29,3 +29,4 @@
 202610262300|PondCypress|Un bosquet de cyprès des étangs aux couleurs automnales, Géorgie, États-Unis (© Chris Moore/Getty Images)|Le reflet doré de la nature|![](/fr-FR/2026/10/202610262300PondCypress.jpg)|
 202610272300|KuneticeCastle|Château de Kunětická hora, Bohême, Tchéquie (© Marek Saroch/Alamy)|Gardien de l’histoire|![](/fr-FR/2026/10/202610272300KuneticeCastle.jpg)|
 202610282300|AveburyStones|Pierres dressées à Avebury dans le Wiltshire, Angleterre (© George W Johnson/Getty Images)|Des millénaires caressés par la brume|![](/fr-FR/2026/10/202610282300AveburyStones.jpg)|
+202610292300|AutumnCranes|Grues du Canada, réserve de Bosque del Apache, Nouveau-Mexique, États-Unis (© Terry St.Louis/Getty Images)|L'heure de prendre de la hauteur|![](/fr-FR/2026/10/202610292300AutumnCranes.jpg)|
