@@ -29,3 +29,4 @@
 202610261500|PondCypress|ポンドサイプレス, 米国 ジョージア州 (© Chris Moore/Getty Images)|水面に映る秋の森|![](/ja-JP/2026/10/202610261500PondCypress.jpg)|
 202610271500|KuneticeCastle|クネティツカー・ホラ城, チェコ (© Marek Saroch/Alamy)|夕暮れに佇む古城|![](/ja-JP/2026/10/202610271500KuneticeCastle.jpg)|
 202610281500|AveburyStones|エーヴベリー 巨石群, イングランド (© George W Johnson/Getty Images)|草原に立ち並ぶ巨石群|![](/ja-JP/2026/10/202610281500AveburyStones.jpg)|
+202610291500|AutumnCranes|カナダヅル、ボスケ・デル・アパッチ国立野生動物保護区、ニューメキシコ州、アメリカ (© Terry St.Louis/Getty Images)|大空へ羽ばたく|![](/ja-JP/2026/10/202610291500AutumnCranes.jpg)|

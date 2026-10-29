@@ -29,3 +29,4 @@
 202610261600|PondCypress|秋叶缤纷的池杉林，乔治亚州，美国 (© Chris Moore/Getty Images)|大自然的金色明镜|![](/zh-CN/2026/10/202610261600PondCypress.jpg)|
 202610271600|KuneticeCastle|库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)|历史守望之地|![](/zh-CN/2026/10/202610271600KuneticeCastle.jpg)|
 202610281600|AveburyStones|立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)|薄雾邂逅千年时光|![](/zh-CN/2026/10/202610281600AveburyStones.jpg)|
+202610291600|AutumnCranes|沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)|展翅高飞的时节|![](/zh-CN/2026/10/202610291600AutumnCranes.jpg)|
