@@ -29,3 +29,4 @@
 202610270700|PondCypress|A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)|Nature's golden mirror|![](/en-US/2026/10/202610270700PondCypress.jpg)|
 202610280700|KuneticeCastle|Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)|Where history stands watch|![](/en-US/2026/10/202610280700KuneticeCastle.jpg)|
 202610290700|AveburyStones|Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)|Where mist meets millennia|![](/en-US/2026/10/202610290700AveburyStones.jpg)|
+202610300700|AutumnCranes|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)|Time to fly high|![](/en-US/2026/10/202610300700AutumnCranes.jpg)|
