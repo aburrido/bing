@@ -30,3 +30,4 @@
 202610271830|KuneticeCastle|Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)|Where history stands watch|![](/en-IN/2026/10/202610271830KuneticeCastle.jpg)|
 202610281830|AveburyStones|Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)|Where mist meets millennia|![](/en-IN/2026/10/202610281830AveburyStones.jpg)|
 202610291830|AutumnCranes|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)|Time to fly high|![](/en-IN/2026/10/202610291830AutumnCranes.jpg)|
+202610301830|FrankfurtHalloween|St Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)|Ghosts of empires past|![](/en-IN/2026/10/202610301830FrankfurtHalloween.jpg)|
