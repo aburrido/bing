@@ -30,3 +30,4 @@
 202610280400|KuneticeCastle|Château de Kunětická hora, Bohême, Tchéquie (© Marek Saroch/Alamy)|Gardien de l’histoire|![](/fr-CA/2026/10/202610280400KuneticeCastle.jpg)|
 202610290400|AveburyStones|Pierres dressées à Avebury dans le Wiltshire, Angleterre (© George W Johnson/Getty Images)|Des millénaires caressés par la brume|![](/fr-CA/2026/10/202610290400AveburyStones.jpg)|
 202610300400|AutumnCranes|Grues du Canada, Réserve faunique nationale de Bosque del Apache, Nouveau-Mexique, États-Unis (© Terry St.Louis/Getty Images)|Il est temps de prendre son envol|![](/fr-CA/2026/10/202610300400AutumnCranes.jpg)|
+202610310400|FrankfurtHalloween|Cathédrale Saint-Barthélemy de Francfort, Allemagne (© AlxeyPnferov/Getty Images)|Les fantômes des empires disparus|![](/fr-CA/2026/10/202610310400FrankfurtHalloween.jpg)|
