@@ -31,3 +31,4 @@
 202610281600|AveburyStones|立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)|薄雾邂逅千年时光|![](/zh-CN/2026/10/202610281600AveburyStones.jpg)|
 202610291600|AutumnCranes|沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)|展翅高飞的时节|![](/zh-CN/2026/10/202610291600AutumnCranes.jpg)|
 202610301600|FrankfurtHalloween|圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)|往昔帝国的幽影|![](/zh-CN/2026/10/202610301600FrankfurtHalloween.jpg)|
+202610311600|SchwarzwaldAutumn|黑森林，巴登-符腾堡州，德国 (© Britus/Getty Images)|林间迷雾|![](/zh-CN/2026/10/202610311600SchwarzwaldAutumn.jpg)|
