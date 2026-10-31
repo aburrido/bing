@@ -30,3 +30,4 @@
 202610280700|KuneticeCastle|Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)|Info|![](/en-AU/2026/10/202610280700KuneticeCastle.jpg)|
 202610290700|AveburyStones|Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)|Info|![](/en-AU/2026/10/202610290700AveburyStones.jpg)|
 202610300700|AutumnCranes|Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)|Info|![](/en-AU/2026/10/202610300700AutumnCranes.jpg)|
+202610310700|AlpineBraies|Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)|Info|![](/en-AU/2026/10/202610310700AlpineBraies.jpg)|
