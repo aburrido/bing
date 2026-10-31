@@ -31,3 +31,4 @@
 202610282300|AveburyStones|Pierres dressées à Avebury dans le Wiltshire, Angleterre (© George W Johnson/Getty Images)|Des millénaires caressés par la brume|![](/fr-FR/2026/10/202610282300AveburyStones.jpg)|
 202610292300|AutumnCranes|Grues du Canada, réserve de Bosque del Apache, Nouveau-Mexique, États-Unis (© Terry St.Louis/Getty Images)|L'heure de prendre de la hauteur|![](/fr-FR/2026/10/202610292300AutumnCranes.jpg)|
 202610302300|FrankfurtHalloween|Cathédrale Saint-Barthélemy à Francfort, Allemagne (© AlxeyPnferov/Getty Images)|Visiteurs d'un autre monde|![](/fr-FR/2026/10/202610302300FrankfurtHalloween.jpg)|
+202610312300|SchwarzwaldAutumn|Forêt-Noire, Bade-Wurtemberg, Allemagne  (© Britus/Getty Images)|Manteau de brume sur la forêt|![](/fr-FR/2026/10/202610312300SchwarzwaldAutumn.jpg)|

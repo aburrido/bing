@@ -31,3 +31,4 @@
 202610282300|AveburyStones|Stehende Steine in Avebury, Wiltshire, England (© George W Johnson/Getty Images)|Wo Nebel auf Jahrtausende trifft|![](/de-DE/2026/10/202610282300AveburyStones.jpg)|
 202610292300|AutumnCranes|Kanadakraniche, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)|Zeit für Höhenflüge|![](/de-DE/2026/10/202610292300AutumnCranes.jpg)|
 202610302300|FrankfurtHalloween|Kaiserdom St. Bartholomäus in Frankfurt am Main, Deutschland (© AlxeyPnferov/Getty Images)|Der Geist vergangener Kaiserreiche|![](/de-DE/2026/10/202610302300FrankfurtHalloween.jpg)|
+202610312300|SchwarzwaldAutumn|Schwarzwald, Baden-Württemberg (© Britus/Getty Images)|Wälder im Nebel|![](/de-DE/2026/10/202610312300SchwarzwaldAutumn.jpg)|
