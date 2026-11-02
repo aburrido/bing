@@ -1,3 +1,4 @@
 |fullstartdate|name|copyright|title|image|
 |--|--|--|--|--|
 202611010000|SchwarzwaldAutumn|Black Forest, Baden-Württemberg, Germany (© Britus/Getty Images)|Mist among the trees|![](/en-GB/2026/11/202611010000SchwarzwaldAutumn.jpg)|
+202611020000|HudsonBear|Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)|A future written in ice|![](/en-GB/2026/11/202611020000HudsonBear.jpg)|
