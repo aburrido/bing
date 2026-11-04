@@ -4,3 +4,4 @@
 202611012300|HudsonBear|Eisbär mit Jungen, Hudson Bay, Manitoba, Kanada (© Danita Delimont/Adobe Stock)|Eine Zukunft, geprägt vom Eis|![](/de-DE/2026/11/202611012300HudsonBear.jpg)|
 202611022300|AlpineBraies|Pragser Wildsee, Naturpark Fanes‑Sennes‑Prags, Dolomiten, Italien (© leonid_tit/Getty Images)|Stille Gipfelwelten|![](/de-DE/2026/11/202611022300AlpineBraies.jpg)|
 202611032300|AutumnChina|Paddler zwischen farbenprächtigen Sumpfzypressen, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)|Paddeln durch ein Gemälde|![](/de-DE/2026/11/202611032300AutumnChina.jpg)|
+202611042300|StileCrossing|Holzsteg an einer Steinmauer, Black Crag, Lake District, England (© Alex Treadway/Getty Images)|Ein Schritt näher am Gipfel|![](/de-DE/2026/11/202611042300StileCrossing.jpg)|
