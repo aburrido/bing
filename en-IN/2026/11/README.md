@@ -4,3 +4,4 @@
 202611011830|HudsonBear|Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)|A future written in ice|![](/en-IN/2026/11/202611011830HudsonBear.jpg)|
 202611021830|AlpineBraies|Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)|Peace among the peaks|![](/en-IN/2026/11/202611021830AlpineBraies.jpg)|
 202611031830|AutumnChina|People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)|Paddling a painted forest|![](/en-IN/2026/11/202611031830AutumnChina.jpg)|
+202611041830|StileCrossing|Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)|One step closer to the summit|![](/en-IN/2026/11/202611041830StileCrossing.jpg)|

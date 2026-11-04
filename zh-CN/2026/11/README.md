@@ -4,3 +4,4 @@
 202611011600|HudsonBear|北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大 (© Danita Delimont/Adobe Stock)|写在冰上的未来|![](/zh-CN/2026/11/202611011600HudsonBear.jpg)|
 202611021600|AlpineBraies|布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利 (© leonid_tit/Getty Images)|群峰间的宁静|![](/zh-CN/2026/11/202611021600AlpineBraies.jpg)|
 202611031600|AutumnChina|五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)|泛舟如画秋林|![](/zh-CN/2026/11/202611031600AutumnChina.jpg)|
+202611041600|StileCrossing|石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)|向山巅再迈一步|![](/zh-CN/2026/11/202611041600StileCrossing.jpg)|
