@@ -4,3 +4,4 @@
 202611010400|SchwarzwaldAutumn|Black Forest, Baden-Württemberg, Germany (© Britus/Getty Images)|Mist among the trees|![](/en-CA/2026/11/202611010400SchwarzwaldAutumn.jpg)|
 202611020500|HudsonBear|Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)|A future written in ice|![](/en-CA/2026/11/202611020500HudsonBear.jpg)|
 202611030500|AlpineBraies|Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)|Peace among the peaks|![](/en-CA/2026/11/202611030500AlpineBraies.jpg)|
+202611040500|AutumnChina|People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)|Paddling a painted forest|![](/en-CA/2026/11/202611040500AutumnChina.jpg)|
