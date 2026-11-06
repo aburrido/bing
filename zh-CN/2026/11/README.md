@@ -6,3 +6,4 @@
 202611031600|AutumnChina|五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)|泛舟如画秋林|![](/zh-CN/2026/11/202611031600AutumnChina.jpg)|
 202611041600|StileCrossing|石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)|向山巅再迈一步|![](/zh-CN/2026/11/202611041600StileCrossing.jpg)|
 202611051600|PipiwaiTrail|竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国 (© MNStudio/Getty Images)|穿越毛伊岛的绿色隧道|![](/zh-CN/2026/11/202611051600PipiwaiTrail.jpg)|
+202611061600|DakotaBison|草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)|归来的草原巨兽|![](/zh-CN/2026/11/202611061600DakotaBison.jpg)|
