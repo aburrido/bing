@@ -6,3 +6,4 @@
 202611030500|AlpineBraies|Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)|Peace among the peaks|![](/en-CA/2026/11/202611030500AlpineBraies.jpg)|
 202611040500|AutumnChina|People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)|Paddling a painted forest|![](/en-CA/2026/11/202611040500AutumnChina.jpg)|
 202611050500|StileCrossing|Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)|One step closer to the summit|![](/en-CA/2026/11/202611050500StileCrossing.jpg)|
+202611060500|PipiwaiTrail|Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)|A green tunnel through Maui|![](/en-CA/2026/11/202611060500PipiwaiTrail.jpg)|

@@ -6,3 +6,4 @@
 202611030800|Camburiu|Taquaras Beach, Balneário Camboriú, Brazil (© MaRabelo/Getty Images)|Info|![](/en-AU/2026/11/202611030800Camburiu.jpg)|
 202611040800|AutumnChina|People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)|Info|![](/en-AU/2026/11/202611040800AutumnChina.jpg)|
 202611050800|StileCrossing|Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)|Info|![](/en-AU/2026/11/202611050800StileCrossing.jpg)|
+202611060800|PipiwaiTrail|Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)|Info|![](/en-AU/2026/11/202611060800PipiwaiTrail.jpg)|

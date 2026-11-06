@@ -6,3 +6,4 @@
 202611030500|AlpineBraies|Lac de Braies, parc naturel Fanes-Sennes-Braies, Dolomites, Italie (© leonid_tit/Getty Images)|Sérénité parmi les cimes|![](/fr-CA/2026/11/202611030500AlpineBraies.jpg)|
 202611040500|AutumnChina|Personnes ramant au milieu de cyprès chauves aux couleurs automnales, Xuancheng, Anhui, Chine (© Jackal Pan/Getty Images)|Pagayer dans une forêt aux mille couleurs|![](/fr-CA/2026/11/202611040500AutumnChina.jpg)|
 202611050500|StileCrossing|Échalier en bois dans un muret de pierre, Black Crag, Lake District, Angleterre (© Alex Treadway/Getty Images)|Un pas de plus vers le sommet|![](/fr-CA/2026/11/202611050500StileCrossing.jpg)|
+202611060500|PipiwaiTrail|Forêt de bambous, sentier Pīpīwai, parc national de Haleakalā, Maui, Hawaï, États-Unis (© MNStudio/Getty Images)|Un tunnel de verdure à travers Maui|![](/fr-CA/2026/11/202611060500PipiwaiTrail.jpg)|
