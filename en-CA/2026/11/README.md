@@ -7,3 +7,4 @@
 202611040500|AutumnChina|People rowing among colourful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)|Paddling a painted forest|![](/en-CA/2026/11/202611040500AutumnChina.jpg)|
 202611050500|StileCrossing|Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)|One step closer to the summit|![](/en-CA/2026/11/202611050500StileCrossing.jpg)|
 202611060500|PipiwaiTrail|Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)|A green tunnel through Maui|![](/en-CA/2026/11/202611060500PipiwaiTrail.jpg)|
+202611070500|DakotaBison|A bison in the grasslands of Theodore Roosevelt National Park, North Dakota, USA (© Tandem Stock/Adobe Stock)|The giant that came back|![](/en-CA/2026/11/202611070500DakotaBison.jpg)|
