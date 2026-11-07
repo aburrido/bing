@@ -7,3 +7,4 @@
 202611041600|StileCrossing|石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)|向山巅再迈一步|![](/zh-CN/2026/11/202611041600StileCrossing.jpg)|
 202611051600|PipiwaiTrail|竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国 (© MNStudio/Getty Images)|穿越毛伊岛的绿色隧道|![](/zh-CN/2026/11/202611051600PipiwaiTrail.jpg)|
 202611061600|DakotaBison|草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)|归来的草原巨兽|![](/zh-CN/2026/11/202611061600DakotaBison.jpg)|
+202611071600|DiwaliLamps|排灯节灯笼，孟买，马哈拉施特拉邦，印度 (© Dinodia Photo/Getty Images)|光芒四射的节日|![](/zh-CN/2026/11/202611071600DiwaliLamps.jpg)|
