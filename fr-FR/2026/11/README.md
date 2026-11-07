@@ -6,3 +6,4 @@
 202611032300|AutumnChina|Kayak dans une forêt de cyprès, Xuancheng, Anhui, Chine (© Jackal Pan/Getty Images)|Glisser à travers une peinture|![](/fr-FR/2026/11/202611032300AutumnChina.jpg)|
 202611042300|StileCrossing|Échelle près d'un mur de pierre, Black Crag, Lake District, Angleterre (© Alex Treadway/Getty Images)|Un pas de plus vers le sommet|![](/fr-FR/2026/11/202611042300StileCrossing.jpg)|
 202611052300|PipiwaiTrail|Forêt de bambous, Pīpīwai Trail, Hawaii, États-Unis (© MNStudio/Getty Images)|Toit de verdure à travers Maui|![](/fr-FR/2026/11/202611052300PipiwaiTrail.jpg)|
+202611062300|DakotaBison|Bison dans le parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)|Un géant de retour|![](/fr-FR/2026/11/202611062300DakotaBison.jpg)|
