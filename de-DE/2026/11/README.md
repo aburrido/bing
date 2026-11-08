@@ -8,3 +8,4 @@
 202611052300|PipiwaiTrail|Bambuswald, Pīpīwai Trail, Haleakalā-Nationalpark, Maui, Hawaii, USA (© MNStudio/Getty Images)|Ein grüner Tunnel durch Maui|![](/de-DE/2026/11/202611052300PipiwaiTrail.jpg)|
 202611062300|DakotaBison|Ein Bison in der Grassteppe des Theodore-Roosevelt-Nationalparks, Nord-Dakota, USA (© Tandem Stock/Adobe Stock)|Der zurückgekehrte Riese|![](/de-DE/2026/11/202611062300DakotaBison.jpg)|
 202611072300|DiwaliLamps|Laternen für Diwali, Mumbai, Maharashtra, Indien (© Dinodia Photo/Getty Images)|Ein strahlendes Fest|![](/de-DE/2026/11/202611072300DiwaliLamps.jpg)|
+202611082300|MauerBerlin|Schüler spähen durch einen Spalt in einem noch erhaltenen Abschnitt der Berliner Mauer (© Sean Gallup/Getty Images)|Die Nacht, die Deutschland veränderte|![](/de-DE/2026/11/202611082300MauerBerlin.jpg)|

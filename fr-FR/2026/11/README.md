@@ -8,3 +8,4 @@
 202611052300|PipiwaiTrail|Forêt de bambous, Pīpīwai Trail, Hawaii, États-Unis (© MNStudio/Getty Images)|Toit de verdure à travers Maui|![](/fr-FR/2026/11/202611052300PipiwaiTrail.jpg)|
 202611062300|DakotaBison|Bison dans le parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)|Un géant de retour|![](/fr-FR/2026/11/202611062300DakotaBison.jpg)|
 202611072300|DiwaliLamps|Lanternes pour Diwali, Mumbai, Maharashtra, Inde (© Dinodia Photo/Getty Images)|Célébration qui scintille|![](/fr-FR/2026/11/202611072300DiwaliLamps.jpg)|
+202611082300|TrianaSpain|Quartier historique de Triana, Séville, Espagne (© Andrzej Rostek/Getty Images)|Ici, l’art trouve son rythme|![](/fr-FR/2026/11/202611082300TrianaSpain.jpg)|
