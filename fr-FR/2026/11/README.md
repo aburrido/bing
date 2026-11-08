@@ -7,3 +7,4 @@
 202611042300|StileCrossing|Échelle près d'un mur de pierre, Black Crag, Lake District, Angleterre (© Alex Treadway/Getty Images)|Un pas de plus vers le sommet|![](/fr-FR/2026/11/202611042300StileCrossing.jpg)|
 202611052300|PipiwaiTrail|Forêt de bambous, Pīpīwai Trail, Hawaii, États-Unis (© MNStudio/Getty Images)|Toit de verdure à travers Maui|![](/fr-FR/2026/11/202611052300PipiwaiTrail.jpg)|
 202611062300|DakotaBison|Bison dans le parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)|Un géant de retour|![](/fr-FR/2026/11/202611062300DakotaBison.jpg)|
+202611072300|DiwaliLamps|Lanternes pour Diwali, Mumbai, Maharashtra, Inde (© Dinodia Photo/Getty Images)|Célébration qui scintille|![](/fr-FR/2026/11/202611072300DiwaliLamps.jpg)|
