@@ -8,3 +8,4 @@
 202611050800|StileCrossing|Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)|One step closer to the summit|![](/en-US/2026/11/202611050800StileCrossing.jpg)|
 202611060800|PipiwaiTrail|Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)|A green tunnel through Maui|![](/en-US/2026/11/202611060800PipiwaiTrail.jpg)|
 202611070800|DakotaBison|A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)|The giant that came back|![](/en-US/2026/11/202611070800DakotaBison.jpg)|
+202611080800|DiwaliLamps|Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)|A celebration that shines|![](/en-US/2026/11/202611080800DiwaliLamps.jpg)|

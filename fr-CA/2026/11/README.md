@@ -8,3 +8,4 @@
 202611050500|StileCrossing|Échalier en bois dans un muret de pierre, Black Crag, Lake District, Angleterre (© Alex Treadway/Getty Images)|Un pas de plus vers le sommet|![](/fr-CA/2026/11/202611050500StileCrossing.jpg)|
 202611060500|PipiwaiTrail|Forêt de bambous, sentier Pīpīwai, parc national de Haleakalā, Maui, Hawaï, États-Unis (© MNStudio/Getty Images)|Un tunnel de verdure à travers Maui|![](/fr-CA/2026/11/202611060500PipiwaiTrail.jpg)|
 202611070500|DakotaBison|Bison dans les prairies du parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)|Le géant qui a fait son retour|![](/fr-CA/2026/11/202611070500DakotaBison.jpg)|
+202611080500|DiwaliLamps|Lanternes de Diwali, Mumbai, Maharashtra, Inde (© Dinodia Photo/Getty Images)|Une célébration qui rayonne|![](/fr-CA/2026/11/202611080500DiwaliLamps.jpg)|
