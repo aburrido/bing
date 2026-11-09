@@ -9,3 +9,4 @@
 202611060500|PipiwaiTrail|Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)|A green tunnel through Maui|![](/en-CA/2026/11/202611060500PipiwaiTrail.jpg)|
 202611070500|DakotaBison|A bison in the grasslands of Theodore Roosevelt National Park, North Dakota, USA (© Tandem Stock/Adobe Stock)|The giant that came back|![](/en-CA/2026/11/202611070500DakotaBison.jpg)|
 202611080500|DiwaliLamps|Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)|A celebration that shines|![](/en-CA/2026/11/202611080500DiwaliLamps.jpg)|
+202611090500|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Where art finds its rhythm|![](/en-CA/2026/11/202611090500TrianaSpain.jpg)|

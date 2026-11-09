@@ -9,3 +9,4 @@
 202611060800|PipiwaiTrail|Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii, USA (© MNStudio/Getty Images)|Info|![](/en-AU/2026/11/202611060800PipiwaiTrail.jpg)|
 202611070800|DakotaBison|A bison in the grasslands of Theodore Roosevelt National Park, North Dakota, USA (© Tandem Stock/Adobe Stock)|Info|![](/en-AU/2026/11/202611070800DakotaBison.jpg)|
 202611080800|DeltaEbro|Flamingos in Ebro Delta Natural Park, Catalonia, Spain (© mafrmcfa/Getty Images)|Info|![](/en-AU/2026/11/202611080800DeltaEbro.jpg)|
+202611090800|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Info|![](/en-AU/2026/11/202611090800TrianaSpain.jpg)|
