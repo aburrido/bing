@@ -9,3 +9,4 @@
 202611070000|DakotaBison|A bison in the grasslands of Theodore Roosevelt National Park, North Dakota, USA (© Tandem Stock/Adobe Stock)|Roaming the grasslands|![](/en-GB/2026/11/202611070000DakotaBison.jpg)|
 202611080000|DiwaliLamps|Lanterns for Diwali in Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)|A celebration that shines|![](/en-GB/2026/11/202611080000DiwaliLamps.jpg)|
 202611090000|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Where art finds its rhythm|![](/en-GB/2026/11/202611090000TrianaSpain.jpg)|
+202611100000|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-GB/2026/11/202611100000RoseIsland.jpg)|
