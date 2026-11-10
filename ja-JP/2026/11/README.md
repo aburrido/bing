@@ -10,3 +10,4 @@
 202611071500|DiwaliLamps|ディーワーリーを彩るランタン、ムンバイ、マハーラーシュトラ州、インド (© Dinodia Photo/Getty Images)|光に包まれる祝祭|![](/ja-JP/2026/11/202611071500DiwaliLamps.jpg)|
 202611081500|TrianaSpain|セビリアの歴史地区トリアナ、スペイン (© Andrzej Rostek/Getty Images)|芸術がリズムを刻む街|![](/ja-JP/2026/11/202611081500TrianaSpain.jpg)|
 202611091500|RoseIsland|ローズ島の空撮、バハマ (© Abstract Aerial Art/Getty Images)|楽園でひと休み|![](/ja-JP/2026/11/202611091500RoseIsland.jpg)|
+202611101500|Atlantica|大西洋岸森林、ブラジル (© FG Trade/Getty Images)|驚きに満ちた森|![](/ja-JP/2026/11/202611101500Atlantica.jpg)|
