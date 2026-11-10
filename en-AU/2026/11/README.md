@@ -10,3 +10,4 @@
 202611070800|DakotaBison|A bison in the grasslands of Theodore Roosevelt National Park, North Dakota, USA (© Tandem Stock/Adobe Stock)|Info|![](/en-AU/2026/11/202611070800DakotaBison.jpg)|
 202611080800|DeltaEbro|Flamingos in Ebro Delta Natural Park, Catalonia, Spain (© mafrmcfa/Getty Images)|Info|![](/en-AU/2026/11/202611080800DeltaEbro.jpg)|
 202611090800|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Info|![](/en-AU/2026/11/202611090800TrianaSpain.jpg)|
+202611100800|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2026/11/202611100800RoseIsland.jpg)|

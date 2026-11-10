@@ -10,3 +10,4 @@
 202611070500|DakotaBison|Bison dans les prairies du parc national Theodore Roosevelt, Dakota du Nord, États-Unis (© Tandem Stock/Adobe Stock)|Le géant qui a fait son retour|![](/fr-CA/2026/11/202611070500DakotaBison.jpg)|
 202611080500|DiwaliLamps|Lanternes de Diwali, Mumbai, Maharashtra, Inde (© Dinodia Photo/Getty Images)|Une célébration qui rayonne|![](/fr-CA/2026/11/202611080500DiwaliLamps.jpg)|
 202611090500|TrianaSpain|Quartier historique de Triana, Séville, Espagne (© Andrzej Rostek/Getty Images)|Là où l’art trouve son rythme|![](/fr-CA/2026/11/202611090500TrianaSpain.jpg)|
+202611100500|RoseIsland|Vue aérienne de Rose Island, aux Bahamas (© Abstract Aerial Art/Getty Images)|Cap sur la détente|![](/fr-CA/2026/11/202611100500RoseIsland.jpg)|
