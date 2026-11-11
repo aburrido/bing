@@ -10,3 +10,4 @@
 202611080000|DiwaliLamps|Lanterns for Diwali in Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)|A celebration that shines|![](/en-GB/2026/11/202611080000DiwaliLamps.jpg)|
 202611090000|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Where art finds its rhythm|![](/en-GB/2026/11/202611090000TrianaSpain.jpg)|
 202611100000|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-GB/2026/11/202611100000RoseIsland.jpg)|
+202611110000|PoppiesField|A field of poppies (© lloyd-horgan/Getty Images)|We will remember them|![](/en-GB/2026/11/202611110000PoppiesField.jpg)|
