@@ -11,3 +11,4 @@
 202611081600|TrianaSpain|特里亚纳历史街区，塞维利亚，西班牙 (© Andrzej Rostek/Getty Images)|艺术与韵律交汇之地|![](/zh-CN/2026/11/202611081600TrianaSpain.jpg)|
 202611091600|RoseIsland|玫瑰岛航拍图，巴哈马 (© Abstract Aerial Art/Getty Images)|惬意放松，尽享海岛时光|![](/zh-CN/2026/11/202611091600RoseIsland.jpg)|
 202611101600|Atlantica|大西洋森林，巴西 (© FG Trade/Getty Images)|奇妙纷呈的森林|![](/zh-CN/2026/11/202611101600Atlantica.jpg)|
+202611111600|NorthWindow|北窗，拱门国家公园，莫阿布，犹他州，美国 (© lightphoto/Getty Images)|没有建筑师的建筑杰作|![](/zh-CN/2026/11/202611111600NorthWindow.jpg)|
