@@ -11,3 +11,4 @@
 202611080500|DiwaliLamps|Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)|A celebration that shines|![](/en-CA/2026/11/202611080500DiwaliLamps.jpg)|
 202611090500|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Where art finds its rhythm|![](/en-CA/2026/11/202611090500TrianaSpain.jpg)|
 202611100500|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-CA/2026/11/202611100500RoseIsland.jpg)|
+202611110500|Atlantica|The Atlantic Forest, Brazil (© FG Trade/Getty Images)|A forest full of wonder|![](/en-CA/2026/11/202611110500Atlantica.jpg)|

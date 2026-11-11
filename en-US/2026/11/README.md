@@ -11,3 +11,4 @@
 202611080800|DiwaliLamps|Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)|A celebration that shines|![](/en-US/2026/11/202611080800DiwaliLamps.jpg)|
 202611090800|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Where art finds its rhythm|![](/en-US/2026/11/202611090800TrianaSpain.jpg)|
 202611100800|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-US/2026/11/202611100800RoseIsland.jpg)|
+202611110800|SunsetFlags|American flags in a public park in upstate New York (© Matt Champlin/Getty Images)|A salute in red, white, and blue|![](/en-US/2026/11/202611110800SunsetFlags.jpg)|
