@@ -12,3 +12,4 @@
 202611090800|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Info|![](/en-AU/2026/11/202611090800TrianaSpain.jpg)|
 202611100800|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Info|![](/en-AU/2026/11/202611100800RoseIsland.jpg)|
 202611110800|Atlantica|The Atlantic Forest, Brazil (© FG Trade/Getty Images)|Info|![](/en-AU/2026/11/202611110800Atlantica.jpg)|
+202611120800|NorthWindow|North Window, Arches National Park, Moab, Utah, USA (© lightphoto/Getty Images)|Info|![](/en-AU/2026/11/202611120800NorthWindow.jpg)|

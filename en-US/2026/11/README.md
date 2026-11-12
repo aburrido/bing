@@ -12,3 +12,4 @@
 202611090800|TrianaSpain|Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)|Where art finds its rhythm|![](/en-US/2026/11/202611090800TrianaSpain.jpg)|
 202611100800|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-US/2026/11/202611100800RoseIsland.jpg)|
 202611110800|SunsetFlags|American flags in a public park in upstate New York (© Matt Champlin/Getty Images)|A salute in red, white, and blue|![](/en-US/2026/11/202611110800SunsetFlags.jpg)|
+202611120800|NorthWindow|North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)|Architecture without an architect|![](/en-US/2026/11/202611120800NorthWindow.jpg)|
