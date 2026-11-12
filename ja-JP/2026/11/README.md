@@ -12,3 +12,4 @@
 202611091500|RoseIsland|ローズ島の空撮、バハマ (© Abstract Aerial Art/Getty Images)|楽園でひと休み|![](/ja-JP/2026/11/202611091500RoseIsland.jpg)|
 202611101500|Atlantica|大西洋岸森林、ブラジル (© FG Trade/Getty Images)|驚きに満ちた森|![](/ja-JP/2026/11/202611101500Atlantica.jpg)|
 202611111500|NorthWindow|ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)|自然が生んだ建築美|![](/ja-JP/2026/11/202611111500NorthWindow.jpg)|
+202611121500|AbrahamCanada|アブラハム湖、アルバータ州、カナダ (© Guang Cao/Getty Images)|氷の下の神秘|![](/ja-JP/2026/11/202611121500AbrahamCanada.jpg)|
