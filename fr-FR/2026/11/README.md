@@ -11,3 +11,4 @@
 202611082300|TrianaSpain|Quartier historique de Triana, Séville, Espagne (© Andrzej Rostek/Getty Images)|Ici, l’art trouve son rythme|![](/fr-FR/2026/11/202611082300TrianaSpain.jpg)|
 202611092300|RoseIsland|Vue aérienne de Rose Island, Bahamas (© Abstract Aerial Art/Getty Images)|Permis de se relaxer|![](/fr-FR/2026/11/202611092300RoseIsland.jpg)|
 202611102300|ArmisticeTriomphe|Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)|Une flamme rallumée chaque jour|![](/fr-FR/2026/11/202611102300ArmisticeTriomphe.jpg)|
+202611112300|NorthWindow|North Window, parc national des Arches, Moab, Utah, États-Unis (© lightphoto/Getty Images)|Architecture sans architecte|![](/fr-FR/2026/11/202611112300NorthWindow.jpg)|
