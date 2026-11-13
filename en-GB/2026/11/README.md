@@ -12,3 +12,4 @@
 202611100000|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-GB/2026/11/202611100000RoseIsland.jpg)|
 202611110000|PoppiesField|A field of poppies (© lloyd-horgan/Getty Images)|We will remember them|![](/en-GB/2026/11/202611110000PoppiesField.jpg)|
 202611120000|NorthWindow|North Window, Arches National Park, Moab, Utah, USA (© lightphoto/Getty Images)|Architecture without an architect|![](/en-GB/2026/11/202611120000NorthWindow.jpg)|
+202611130000|AbrahamCanada|Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)|Hidden depths|![](/en-GB/2026/11/202611130000AbrahamCanada.jpg)|

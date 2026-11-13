@@ -12,3 +12,4 @@
 202611092300|RoseIsland|Luftaufnahme von Rose Island, Bahamas (© Abstract Aerial Art/Getty Images)|Die Lizenz zum Chillen|![](/de-DE/2026/11/202611092300RoseIsland.jpg)|
 202611102300|Atlantica|Der Atlantische Regenwald, Brasilien (© FG Trade/Getty Images)|Ein Wald voller Wunder|![](/de-DE/2026/11/202611102300Atlantica.jpg)|
 202611112300|NorthWindow|North Window, Arches-Nationalpark, Moab, Utah, USA (© lightphoto/Getty Images)|Architektur ohne Architekten|![](/de-DE/2026/11/202611112300NorthWindow.jpg)|
+202611122300|AbrahamCanada|Abraham Lake in Alberta, Kanada (© Guang Cao/Getty Images)|Verborgene Tiefen|![](/de-DE/2026/11/202611122300AbrahamCanada.jpg)|
