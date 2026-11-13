@@ -13,3 +13,4 @@
 202611101500|Atlantica|大西洋岸森林、ブラジル (© FG Trade/Getty Images)|驚きに満ちた森|![](/ja-JP/2026/11/202611101500Atlantica.jpg)|
 202611111500|NorthWindow|ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)|自然が生んだ建築美|![](/ja-JP/2026/11/202611111500NorthWindow.jpg)|
 202611121500|AbrahamCanada|アブラハム湖、アルバータ州、カナダ (© Guang Cao/Getty Images)|氷の下の神秘|![](/ja-JP/2026/11/202611121500AbrahamCanada.jpg)|
+202611131500|BlueHK|ビクトリア・ハーバー、香港、中国 (© Juan Romero/Cavan Images)|上へ上へと伸びる街|![](/ja-JP/2026/11/202611131500BlueHK.jpg)|

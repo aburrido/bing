@@ -13,3 +13,4 @@
 202611101600|Atlantica|大西洋森林，巴西 (© FG Trade/Getty Images)|奇妙纷呈的森林|![](/zh-CN/2026/11/202611101600Atlantica.jpg)|
 202611111600|NorthWindow|北窗，拱门国家公园，莫阿布，犹他州，美国 (© lightphoto/Getty Images)|没有建筑师的建筑杰作|![](/zh-CN/2026/11/202611111600NorthWindow.jpg)|
 202611121600|AbrahamCanada|亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)|冰下秘境|![](/zh-CN/2026/11/202611121600AbrahamCanada.jpg)|
+202611131600|BlueHK|中国香港维多利亚港 (© Juan Romero/Cavan Images)|唯有向上发展|![](/zh-CN/2026/11/202611131600BlueHK.jpg)|
