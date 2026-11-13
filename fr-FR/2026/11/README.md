@@ -13,3 +13,4 @@
 202611102300|ArmisticeTriomphe|Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)|Une flamme rallumée chaque jour|![](/fr-FR/2026/11/202611102300ArmisticeTriomphe.jpg)|
 202611112300|NorthWindow|North Window, parc national des Arches, Moab, Utah, États-Unis (© lightphoto/Getty Images)|Architecture sans architecte|![](/fr-FR/2026/11/202611112300NorthWindow.jpg)|
 202611122300|AbrahamCanada|Lac Abraham, Alberta, Canada (© Guang Cao/Getty Images)|Des profondeurs mystérieuses|![](/fr-FR/2026/11/202611122300AbrahamCanada.jpg)|
+202611132300|BlueHK|Port Victoria, Hong Kong, Chine (© Juan Romero/Cavan Images)|Les yeux rivés vers le haut|![](/fr-FR/2026/11/202611132300BlueHK.jpg)|
