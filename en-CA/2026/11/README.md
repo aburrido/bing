@@ -13,3 +13,4 @@
 202611100500|RoseIsland|Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)|Licensed to chill|![](/en-CA/2026/11/202611100500RoseIsland.jpg)|
 202611110500|Atlantica|The Atlantic Forest, Brazil (© FG Trade/Getty Images)|A forest full of wonder|![](/en-CA/2026/11/202611110500Atlantica.jpg)|
 202611120500|NorthWindow|North Window, Arches National Park, Moab, Utah, USA (© lightphoto/Getty Images)|Architecture without an architect|![](/en-CA/2026/11/202611120500NorthWindow.jpg)|
+202611130500|AbrahamCanada|Abraham Lake in Alberta (© Guang Cao/Getty Images)|Hidden depths|![](/en-CA/2026/11/202611130500AbrahamCanada.jpg)|
