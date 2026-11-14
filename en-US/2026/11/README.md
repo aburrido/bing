@@ -14,3 +14,4 @@
 202611110800|SunsetFlags|American flags in a public park in upstate New York (© Matt Champlin/Getty Images)|A salute in red, white, and blue|![](/en-US/2026/11/202611110800SunsetFlags.jpg)|
 202611120800|NorthWindow|North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)|Architecture without an architect|![](/en-US/2026/11/202611120800NorthWindow.jpg)|
 202611130800|AbrahamCanada|Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)|Hidden depths|![](/en-US/2026/11/202611130800AbrahamCanada.jpg)|
+202611140800|BlueHK|Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)|The only way is up|![](/en-US/2026/11/202611140800BlueHK.jpg)|
