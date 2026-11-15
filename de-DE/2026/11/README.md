@@ -14,3 +14,4 @@
 202611112300|NorthWindow|North Window, Arches-Nationalpark, Moab, Utah, USA (© lightphoto/Getty Images)|Architektur ohne Architekten|![](/de-DE/2026/11/202611112300NorthWindow.jpg)|
 202611122300|AbrahamCanada|Abraham Lake in Alberta, Kanada (© Guang Cao/Getty Images)|Verborgene Tiefen|![](/de-DE/2026/11/202611122300AbrahamCanada.jpg)|
 202611132300|BlueHK|Victoria Harbour, Hongkong, China (© Juan Romero/Cavan Images)|Hoch, höher, Hongkong|![](/de-DE/2026/11/202611132300BlueHK.jpg)|
+202611142300|FirstFrost|Gefrorene Azalee mit roten Blättern (© avoferten/Shutterstock)|Frostige Blätter|![](/de-DE/2026/11/202611142300FirstFrost.jpg)|
