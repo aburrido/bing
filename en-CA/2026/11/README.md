@@ -15,3 +15,4 @@
 202611120500|NorthWindow|North Window, Arches National Park, Moab, Utah, USA (© lightphoto/Getty Images)|Architecture without an architect|![](/en-CA/2026/11/202611120500NorthWindow.jpg)|
 202611130500|AbrahamCanada|Abraham Lake in Alberta (© Guang Cao/Getty Images)|Hidden depths|![](/en-CA/2026/11/202611130500AbrahamCanada.jpg)|
 202611140500|BlueHK|Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)|The only way is up|![](/en-CA/2026/11/202611140500BlueHK.jpg)|
+202611150500|FirstFrost|Frozen azalea with red leaves (© avoferten/Shutterstock)|Frosty foliage|![](/en-CA/2026/11/202611150500FirstFrost.jpg)|

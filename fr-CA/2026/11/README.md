@@ -15,3 +15,4 @@
 202611120500|NorthWindow|North Window, parc national des Arches, Moab, Utah, États-Unis (© lightphoto/Getty Images)|L’architecte, c’est la nature|![](/fr-CA/2026/11/202611120500NorthWindow.jpg)|
 202611130500|AbrahamCanada|Lac Abraham, Alberta, Canada (© Guang Cao/Getty Images)|Profondeurs cachées|![](/fr-CA/2026/11/202611130500AbrahamCanada.jpg)|
 202611140500|BlueHK|Port Victoria, Hong Kong, Chine (© Juan Romero/Cavan Images)|Vers les sommets|![](/fr-CA/2026/11/202611140500BlueHK.jpg)|
+202611150500|FirstFrost|Azalée gelée aux feuilles rouges (© avoferten/Shutterstock)|Feuillage givré|![](/fr-CA/2026/11/202611150500FirstFrost.jpg)|
