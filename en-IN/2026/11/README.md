@@ -15,3 +15,4 @@
 202611121830|ChhathPuja2026|Sunset over the Damodar River during Chhath Puja (© ParthapratimMukherjee2056/Shutterstock)|Glow of Chhath Puja|![](/en-IN/2026/11/202611121830ChhathPuja2026.jpg)|
 202611131830|BlueHK|Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)|The only way is up|![](/en-IN/2026/11/202611131830BlueHK.jpg)|
 202611141830|FirstFrost|Frozen azalea with red leaves (© avoferten/Shutterstock)|Frosty foliage|![](/en-IN/2026/11/202611141830FirstFrost.jpg)|
+202611151830|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Built to last|![](/en-IN/2026/11/202611151830GilaCliff.jpg)|

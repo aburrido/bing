@@ -15,3 +15,4 @@
 202611121600|AbrahamCanada|亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)|冰下秘境|![](/zh-CN/2026/11/202611121600AbrahamCanada.jpg)|
 202611131600|BlueHK|中国香港维多利亚港 (© Juan Romero/Cavan Images)|唯有向上发展|![](/zh-CN/2026/11/202611131600BlueHK.jpg)|
 202611141600|FirstFrost|覆霜的红叶杜鹃 (© avoferten/Shutterstock)|霜染枝叶|![](/zh-CN/2026/11/202611141600FirstFrost.jpg)|
+202611151600|GilaCliff|美国新墨西哥州吉拉悬崖民居国家纪念地 (© Chiara Salvadori/Getty Images)|历经岁月，屹立不倒|![](/zh-CN/2026/11/202611151600GilaCliff.jpg)|
