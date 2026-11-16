@@ -16,3 +16,4 @@
 202611130800|AbrahamCanada|Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)|Info|![](/en-AU/2026/11/202611130800AbrahamCanada.jpg)|
 202611140800|BlueHK|Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)|Info|![](/en-AU/2026/11/202611140800BlueHK.jpg)|
 202611150800|FirstFrost|Frozen azalea with red leaves (© avoferten/Shutterstock)|Info|![](/en-AU/2026/11/202611150800FirstFrost.jpg)|
+202611160800|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Info|![](/en-AU/2026/11/202611160800GilaCliff.jpg)|
