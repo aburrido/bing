@@ -16,3 +16,4 @@
 202611130500|AbrahamCanada|Lac Abraham, Alberta, Canada (© Guang Cao/Getty Images)|Profondeurs cachées|![](/fr-CA/2026/11/202611130500AbrahamCanada.jpg)|
 202611140500|BlueHK|Port Victoria, Hong Kong, Chine (© Juan Romero/Cavan Images)|Vers les sommets|![](/fr-CA/2026/11/202611140500BlueHK.jpg)|
 202611150500|FirstFrost|Azalée gelée aux feuilles rouges (© avoferten/Shutterstock)|Feuillage givré|![](/fr-CA/2026/11/202611150500FirstFrost.jpg)|
+202611160500|GilaCliff|Monument national des habitations troglodytiques de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)|Construit pour durer|![](/fr-CA/2026/11/202611160500GilaCliff.jpg)|
