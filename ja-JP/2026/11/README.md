@@ -17,3 +17,4 @@
 202611141500|FirstFrost|赤い葉に霜が降りたツツジ (© avoferten/Shutterstock)|霜化粧の葉|![](/ja-JP/2026/11/202611141500FirstFrost.jpg)|
 202611151500|GilaCliff|ヒラ・クリフ・ドウェリングス国定記念物、ニューメキシコ州、アメリカ (© Chiara Salvadori/Getty Images)|時を超える崖の住まい|![](/ja-JP/2026/11/202611151500GilaCliff.jpg)|
 202611161500|TrailCedars|トレイル・オブ・ザ・シーダーズ、グレイシャー国立公園、モンタナ州、アメリカ (© DBushue Photography/Getty Images)|さあ、大自然の中へ|![](/ja-JP/2026/11/202611161500TrailCedars.jpg)|
+202611171500|BarnOwlsUnite|メンフクロウのつがい (© Zahoor Salmi/Getty Images)|夕暮れから始まる狩り|![](/ja-JP/2026/11/202611171500BarnOwlsUnite.jpg)|

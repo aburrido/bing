@@ -17,3 +17,4 @@
 202611141600|FirstFrost|覆霜的红叶杜鹃 (© avoferten/Shutterstock)|霜染枝叶|![](/zh-CN/2026/11/202611141600FirstFrost.jpg)|
 202611151600|GilaCliff|美国新墨西哥州吉拉悬崖民居国家纪念地 (© Chiara Salvadori/Getty Images)|历经岁月，屹立不倒|![](/zh-CN/2026/11/202611151600GilaCliff.jpg)|
 202611161600|TrailCedars|雪松林步道，冰川国家公园，蒙大拿州，美国 (© DBushue Photography/Getty Images)|走进广阔的大自然|![](/zh-CN/2026/11/202611161600TrailCedars.jpg)|
+202611171600|BarnOwlsUnite|一对仓鸮 (© Zahoor Salmi/Getty Images)|从黄昏狩猎到黎明|![](/zh-CN/2026/11/202611171600BarnOwlsUnite.jpg)|
