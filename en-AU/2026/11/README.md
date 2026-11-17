@@ -17,3 +17,4 @@
 202611140800|BlueHK|Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)|Info|![](/en-AU/2026/11/202611140800BlueHK.jpg)|
 202611150800|FirstFrost|Frozen azalea with red leaves (© avoferten/Shutterstock)|Info|![](/en-AU/2026/11/202611150800FirstFrost.jpg)|
 202611160800|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Info|![](/en-AU/2026/11/202611160800GilaCliff.jpg)|
+202611170800|TrailCedars|Trail of the Cedars, Glacier National Park, Montana, USA (© DBushue Photography/Getty Images)|Info|![](/en-AU/2026/11/202611170800TrailCedars.jpg)|
