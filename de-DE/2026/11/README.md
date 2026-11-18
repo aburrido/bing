@@ -18,3 +18,4 @@
 202611152300|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Für die Ewigkeit gebaut|![](/de-DE/2026/11/202611152300GilaCliff.jpg)|
 202611162300|TrailCedars|Trail of the Cedars, Glacier-Nationalpark, Montana, USA (© DBushue Photography/Getty Images)|Raus in die Natur!|![](/de-DE/2026/11/202611162300TrailCedars.jpg)|
 202611172300|BarnOwlsUnite|Ein Schleiereulenpaar (© Zahoor Salmi/Getty Images)|Jäger der Nacht|![](/de-DE/2026/11/202611172300BarnOwlsUnite.jpg)|
+202611182300|KnowledgeSculpture|Die Skulptur „Body of Knowledge“ von Jaume Plensa an der Goethe-Universität in Frankfurt am Main (© Todamo/Shutterstock)|Wo Ideen Gestalt annehmen|![](/de-DE/2026/11/202611182300KnowledgeSculpture.jpg)|

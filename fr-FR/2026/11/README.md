@@ -18,3 +18,4 @@
 202611152300|GilaCliff|Habitations troglodytes de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)|Construites pour durer|![](/fr-FR/2026/11/202611152300GilaCliff.jpg)|
 202611162300|TrailCedars|Sentier des cèdres, parc national de Glacier, Montana, États-Unis (© DBushue Photography/Getty Images)|À la découverte des grands espaces|![](/fr-FR/2026/11/202611162300TrailCedars.jpg)|
 202611172300|BarnOwlsUnite|Couple de chouettes effraies  (© Zahoor Salmi/Getty Images)|Chasser du crépuscule à l’aube|![](/fr-FR/2026/11/202611172300BarnOwlsUnite.jpg)|
+202611182300|KnowledgeSculpture|"Body of Knowledge" sculpture de Jaume Plensa, Université Goethe de Francfort, Allemagne (© Todamo/Shutterstock)|Quand les idées prennent forme|![](/fr-FR/2026/11/202611182300KnowledgeSculpture.jpg)|
