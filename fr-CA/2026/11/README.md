@@ -18,3 +18,4 @@
 202611150500|FirstFrost|Azalée gelée aux feuilles rouges (© avoferten/Shutterstock)|Feuillage givré|![](/fr-CA/2026/11/202611150500FirstFrost.jpg)|
 202611160500|GilaCliff|Monument national des habitations troglodytiques de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)|Construit pour durer|![](/fr-CA/2026/11/202611160500GilaCliff.jpg)|
 202611170500|TrailCedars|Sentier des Cèdres, parc national des Glaciers, Montana, États-Unis (© DBushue Photography/Getty Images)|Partez à l'aventure en pleine nature|![](/fr-CA/2026/11/202611170500TrailCedars.jpg)|
+202611180500|BarnOwlsUnite|Couple d’effraies des clochers (© Zahoor Salmi/Getty Images)|À la chasse du crépuscule à l’aube|![](/fr-CA/2026/11/202611180500BarnOwlsUnite.jpg)|
