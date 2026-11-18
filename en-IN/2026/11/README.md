@@ -17,3 +17,4 @@
 202611141830|FirstFrost|Frozen azalea with red leaves (© avoferten/Shutterstock)|Frosty foliage|![](/en-IN/2026/11/202611141830FirstFrost.jpg)|
 202611151830|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Built to last|![](/en-IN/2026/11/202611151830GilaCliff.jpg)|
 202611161830|TrailCedars|Trail of the Cedars, Glacier National Park, Montana, USA (© DBushue Photography/Getty Images)|Step into the great outdoors|![](/en-IN/2026/11/202611161830TrailCedars.jpg)|
+202611171830|BarnOwlsUnite|Pair of barn owls (© Zahoor Salmi/Getty Images)|Hunting from dusk till dawn|![](/en-IN/2026/11/202611171830BarnOwlsUnite.jpg)|

@@ -17,3 +17,4 @@
 202611142300|FirstFrost|Azalée gelée aux feuilles rouges (© avoferten/Shutterstock)|Givre sur tons d'automne|![](/fr-FR/2026/11/202611142300FirstFrost.jpg)|
 202611152300|GilaCliff|Habitations troglodytes de Gila, Nouveau-Mexique, États-Unis (© Chiara Salvadori/Getty Images)|Construites pour durer|![](/fr-FR/2026/11/202611152300GilaCliff.jpg)|
 202611162300|TrailCedars|Sentier des cèdres, parc national de Glacier, Montana, États-Unis (© DBushue Photography/Getty Images)|À la découverte des grands espaces|![](/fr-FR/2026/11/202611162300TrailCedars.jpg)|
+202611172300|BarnOwlsUnite|Couple de chouettes effraies  (© Zahoor Salmi/Getty Images)|Chasser du crépuscule à l’aube|![](/fr-FR/2026/11/202611172300BarnOwlsUnite.jpg)|

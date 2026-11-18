@@ -17,3 +17,4 @@
 202611142300|FirstFrost|Gefrorene Azalee mit roten Blättern (© avoferten/Shutterstock)|Frostige Blätter|![](/de-DE/2026/11/202611142300FirstFrost.jpg)|
 202611152300|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Für die Ewigkeit gebaut|![](/de-DE/2026/11/202611152300GilaCliff.jpg)|
 202611162300|TrailCedars|Trail of the Cedars, Glacier-Nationalpark, Montana, USA (© DBushue Photography/Getty Images)|Raus in die Natur!|![](/de-DE/2026/11/202611162300TrailCedars.jpg)|
+202611172300|BarnOwlsUnite|Ein Schleiereulenpaar (© Zahoor Salmi/Getty Images)|Jäger der Nacht|![](/de-DE/2026/11/202611172300BarnOwlsUnite.jpg)|
