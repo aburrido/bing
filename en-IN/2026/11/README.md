@@ -19,3 +19,4 @@
 202611161830|TrailCedars|Trail of the Cedars, Glacier National Park, Montana, USA (© DBushue Photography/Getty Images)|Step into the great outdoors|![](/en-IN/2026/11/202611161830TrailCedars.jpg)|
 202611171830|BarnOwlsUnite|Pair of barn owls (© Zahoor Salmi/Getty Images)|Hunting from dusk till dawn|![](/en-IN/2026/11/202611171830BarnOwlsUnite.jpg)|
 202611181830|KnowledgeSculpture|The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)|Where ideas take shape|![](/en-IN/2026/11/202611181830KnowledgeSculpture.jpg)|
+202611191830|Megaptera|Diving humpback whale, Kvaløya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)|Feasting in the fjords|![](/en-IN/2026/11/202611191830Megaptera.jpg)|

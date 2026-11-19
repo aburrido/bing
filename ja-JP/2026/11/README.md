@@ -19,3 +19,4 @@
 202611161500|TrailCedars|トレイル・オブ・ザ・シーダーズ、グレイシャー国立公園、モンタナ州、アメリカ (© DBushue Photography/Getty Images)|さあ、大自然の中へ|![](/ja-JP/2026/11/202611161500TrailCedars.jpg)|
 202611171500|BarnOwlsUnite|メンフクロウのつがい (© Zahoor Salmi/Getty Images)|夕暮れから始まる狩り|![](/ja-JP/2026/11/202611171500BarnOwlsUnite.jpg)|
 202611181500|KnowledgeSculpture|ジャウメ・プレンサの彫刻「ボディ・オブ・ノレッジ」、ゲーテ大学、フランクフルト、ドイツ (© Todamo/Shutterstock)|アイデアが形になる場所|![](/ja-JP/2026/11/202611181500KnowledgeSculpture.jpg)|
+202611191500|Megaptera|潜るザトウクジラ、クヴァロイア島、トロムス県、ノルウェー (© Espen Bergersen/Minden Pictures)|フィヨルドを訪れる冬の使者|![](/ja-JP/2026/11/202611191500Megaptera.jpg)|
