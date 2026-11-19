@@ -19,3 +19,4 @@
 202611160500|GilaCliff|Gila Cliff Dwellings National Monument, New Mexico, USA (© Chiara Salvadori/Getty Images)|Built to last|![](/en-CA/2026/11/202611160500GilaCliff.jpg)|
 202611170500|TrailCedars|Trail of the Cedars, Glacier National Park, Montana, USA (© DBushue Photography/Getty Images)|Step into the great outdoors|![](/en-CA/2026/11/202611170500TrailCedars.jpg)|
 202611180500|BarnOwlsUnite|Pair of barn owls (© Zahoor Salmi/Getty Images)|Hunting from dusk till dawn|![](/en-CA/2026/11/202611180500BarnOwlsUnite.jpg)|
+202611190500|KnowledgeSculpture|The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)|Where ideas take shape|![](/en-CA/2026/11/202611190500KnowledgeSculpture.jpg)|
