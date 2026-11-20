@@ -20,3 +20,4 @@
 202611170800|TrailCedars|Trail of the Cedars, Glacier National Park, Montana, USA (© DBushue Photography/Getty Images)|Info|![](/en-AU/2026/11/202611170800TrailCedars.jpg)|
 202611180800|BarnOwlsUnite|Pair of barn owls (© Zahoor Salmi/Getty Images)|Info|![](/en-AU/2026/11/202611180800BarnOwlsUnite.jpg)|
 202611190800|MelbourneRedwoods|Coast redwoods near Melbourne, Victoria, Australia (© James Yu/Getty Images)|Info|![](/en-AU/2026/11/202611190800MelbourneRedwoods.jpg)|
+202611200800|Megaptera|Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)|Info|![](/en-AU/2026/11/202611200800Megaptera.jpg)|
