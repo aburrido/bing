@@ -19,3 +19,4 @@
 202611162300|TrailCedars|Sentier des cèdres, parc national de Glacier, Montana, États-Unis (© DBushue Photography/Getty Images)|À la découverte des grands espaces|![](/fr-FR/2026/11/202611162300TrailCedars.jpg)|
 202611172300|BarnOwlsUnite|Couple de chouettes effraies  (© Zahoor Salmi/Getty Images)|Chasser du crépuscule à l’aube|![](/fr-FR/2026/11/202611172300BarnOwlsUnite.jpg)|
 202611182300|KnowledgeSculpture|"Body of Knowledge" sculpture de Jaume Plensa, Université Goethe de Francfort, Allemagne (© Todamo/Shutterstock)|Quand les idées prennent forme|![](/fr-FR/2026/11/202611182300KnowledgeSculpture.jpg)|
+202611192300|Megaptera|Baleine à bosse plongeant, Kvaløya, Troms, Norvège (© Espen Bergersen/Minden Pictures)|Festin dans les fjords|![](/fr-FR/2026/11/202611192300Megaptera.jpg)|
