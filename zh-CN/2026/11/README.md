@@ -20,3 +20,4 @@
 202611171600|BarnOwlsUnite|一对仓鸮 (© Zahoor Salmi/Getty Images)|从黄昏狩猎到黎明|![](/zh-CN/2026/11/202611171600BarnOwlsUnite.jpg)|
 202611181600|KnowledgeSculpture|雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学 (© Todamo/Shutterstock)|思想在此成形|![](/zh-CN/2026/11/202611181600KnowledgeSculpture.jpg)|
 202611191600|Megaptera|正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛 (© Espen Bergersen/Minden Pictures)|在峡湾中大快朵颐|![](/zh-CN/2026/11/202611191600Megaptera.jpg)|
+202611201600|RedNice|法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)|陶瓦屋顶下的梦|![](/zh-CN/2026/11/202611201600RedNice.jpg)|

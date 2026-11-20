@@ -20,3 +20,4 @@
 202611171500|BarnOwlsUnite|メンフクロウのつがい (© Zahoor Salmi/Getty Images)|夕暮れから始まる狩り|![](/ja-JP/2026/11/202611171500BarnOwlsUnite.jpg)|
 202611181500|KnowledgeSculpture|ジャウメ・プレンサの彫刻「ボディ・オブ・ノレッジ」、ゲーテ大学、フランクフルト、ドイツ (© Todamo/Shutterstock)|アイデアが形になる場所|![](/ja-JP/2026/11/202611181500KnowledgeSculpture.jpg)|
 202611191500|Megaptera|潜るザトウクジラ、クヴァロイア島、トロムス県、ノルウェー (© Espen Bergersen/Minden Pictures)|フィヨルドを訪れる冬の使者|![](/ja-JP/2026/11/202611191500Megaptera.jpg)|
+202611201500|RedNice|ニース、プロヴァンス＝アルプ＝コート・ダジュール地域圏、フランス (© Siripong Kaewla-iad/Getty Images)|テラコッタ色に染まる街|![](/ja-JP/2026/11/202611201500RedNice.jpg)|
