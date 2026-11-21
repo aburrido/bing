@@ -20,3 +20,4 @@
 202611172300|BarnOwlsUnite|Couple de chouettes effraies  (© Zahoor Salmi/Getty Images)|Chasser du crépuscule à l’aube|![](/fr-FR/2026/11/202611172300BarnOwlsUnite.jpg)|
 202611182300|KnowledgeSculpture|"Body of Knowledge" sculpture de Jaume Plensa, Université Goethe de Francfort, Allemagne (© Todamo/Shutterstock)|Quand les idées prennent forme|![](/fr-FR/2026/11/202611182300KnowledgeSculpture.jpg)|
 202611192300|Megaptera|Baleine à bosse plongeant, Kvaløya, Troms, Norvège (© Espen Bergersen/Minden Pictures)|Festin dans les fjords|![](/fr-FR/2026/11/202611192300Megaptera.jpg)|
+202611202300|RedNice|Nice, Provence-Alpes-Côte d'Azur (© Siripong Kaewla-iad/Getty Images)|Mosaïque de terre cuite|![](/fr-FR/2026/11/202611202300RedNice.jpg)|
