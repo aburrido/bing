@@ -22,3 +22,4 @@
 202611190500|KnowledgeSculpture|La sculpture « Body of Knowledge » de Jaume Plensa à l'université Goethe de Francfort, Allemagne (© Todamo/Shutterstock)|Là où les idées prennent forme|![](/fr-CA/2026/11/202611190500KnowledgeSculpture.jpg)|
 202611200500|Megaptera|Baleine à bosse (Megaptera novaeangliae) en plongée, Kvaløya, Troms, nord de la Norvège (© Espen Bergersen/Minden Pictures)|Festin dans les fjords|![](/fr-CA/2026/11/202611200500Megaptera.jpg)|
 202611210500|RedNice|Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)|Rêves de terre cuite|![](/fr-CA/2026/11/202611210500RedNice.jpg)|
+202611220500|JustaHermitage|Chapelle et l’ermitage de Santa Justa, Cantabrie, Espagne (© Tramont_ana/Getty Images)|Un refuge parmi les vagues|![](/fr-CA/2026/11/202611220500JustaHermitage.jpg)|
