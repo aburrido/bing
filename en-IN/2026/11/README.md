@@ -22,3 +22,4 @@
 202611191830|Megaptera|Diving humpback whale, Kvaløya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)|Feasting in the fjords|![](/en-IN/2026/11/202611191830Megaptera.jpg)|
 202611201830|RedNice|Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)|Terracotta dreams|![](/en-IN/2026/11/202611201830RedNice.jpg)|
 202611211830|JustaHermitage|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)|Shelter among the waves|![](/en-IN/2026/11/202611211830JustaHermitage.jpg)|
+202611221830|FibonacciFern|Fiddlehead fern (© Reza Saputra/Getty Images)|Geometry in nature|![](/en-IN/2026/11/202611221830FibonacciFern.jpg)|
