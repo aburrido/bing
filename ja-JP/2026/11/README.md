@@ -22,3 +22,4 @@
 202611191500|Megaptera|潜るザトウクジラ、クヴァロイア島、トロムス県、ノルウェー (© Espen Bergersen/Minden Pictures)|フィヨルドを訪れる冬の使者|![](/ja-JP/2026/11/202611191500Megaptera.jpg)|
 202611201500|RedNice|ニース、プロヴァンス＝アルプ＝コート・ダジュール地域圏、フランス (© Siripong Kaewla-iad/Getty Images)|テラコッタ色に染まる街|![](/ja-JP/2026/11/202611201500RedNice.jpg)|
 202611211500|JustaHermitage|サンタ・フスタ礼拝堂、カンタブリア州、スペイン (© Tramont_ana/Getty Images)|波間にたたずむ隠れ家|![](/ja-JP/2026/11/202611211500JustaHermitage.jpg)|
+202611221500|FibonacciFern|シダの若芽 (© Reza Saputra/Getty Images)|自然が描く幾何学模様|![](/ja-JP/2026/11/202611221500FibonacciFern.jpg)|

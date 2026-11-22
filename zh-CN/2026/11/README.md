@@ -22,3 +22,4 @@
 202611191600|Megaptera|正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛 (© Espen Bergersen/Minden Pictures)|在峡湾中大快朵颐|![](/zh-CN/2026/11/202611191600Megaptera.jpg)|
 202611201600|RedNice|法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)|陶瓦屋顶下的梦|![](/zh-CN/2026/11/202611201600RedNice.jpg)|
 202611211600|JustaHermitage|西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)|海浪间的庇护所|![](/zh-CN/2026/11/202611211600JustaHermitage.jpg)|
+202611221600|FibonacciFern|蕨类植物的卷曲嫩叶 (© Reza Saputra/Getty Images)|自然中的几何之美|![](/zh-CN/2026/11/202611221600FibonacciFern.jpg)|
