@@ -21,3 +21,4 @@
 202611182300|KnowledgeSculpture|Die Skulptur „Body of Knowledge“ von Jaume Plensa an der Goethe-Universität in Frankfurt am Main (© Todamo/Shutterstock)|Wo Ideen Gestalt annehmen|![](/de-DE/2026/11/202611182300KnowledgeSculpture.jpg)|
 202611192300|Megaptera|Tauchender Buckelwal (Megaptera novaeangliae) Kvaloya, Troms, Norwegen (© Espen Bergersen/Minden Pictures)|Festmahl in den Fjorden|![](/de-DE/2026/11/202611192300Megaptera.jpg)|
 202611202300|RedNice|Nizza, Provence-Alpes-Côte d'Azur, Frankreich (© Siripong Kaewla-iad/Getty Images)|Ein Traum aus Terrakotta|![](/de-DE/2026/11/202611202300RedNice.jpg)|
+202611212300|JustaHermitage|Die Kapelle und Einsiedelei von Santa Justa in Kantabrien, Spanien (© Tramont_ana/Getty Images)|Kapelle im Fels|![](/de-DE/2026/11/202611212300JustaHermitage.jpg)|

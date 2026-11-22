@@ -21,3 +21,4 @@
 202611190000|KnowledgeSculpture|The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)|Where ideas take shape|![](/en-GB/2026/11/202611190000KnowledgeSculpture.jpg)|
 202611200000|Megaptera|Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)|Feasting in the fjords|![](/en-GB/2026/11/202611200000Megaptera.jpg)|
 202611210000|RedNice|Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)|Terracotta dreams|![](/en-GB/2026/11/202611210000RedNice.jpg)|
+202611220000|JustaHermitage|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)|Shelter among the waves|![](/en-GB/2026/11/202611220000JustaHermitage.jpg)|
