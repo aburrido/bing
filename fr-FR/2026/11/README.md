@@ -22,3 +22,4 @@
 202611192300|Megaptera|Baleine à bosse plongeant, Kvaløya, Troms, Norvège (© Espen Bergersen/Minden Pictures)|Festin dans les fjords|![](/fr-FR/2026/11/202611192300Megaptera.jpg)|
 202611202300|RedNice|Nice, Provence-Alpes-Côte d'Azur (© Siripong Kaewla-iad/Getty Images)|Mosaïque de terre cuite|![](/fr-FR/2026/11/202611202300RedNice.jpg)|
 202611212300|JustaHermitage|Ermitage de Santa Justa, Cantabrie, Espagne (© Tramont_ana/Getty Images)|Refuge au milieu des vagues|![](/fr-FR/2026/11/202611212300JustaHermitage.jpg)|
+202611222300|FibonacciFern|Pousse de fougère (© Reza Saputra/Getty Images)|Géométrie au naturel|![](/fr-FR/2026/11/202611222300FibonacciFern.jpg)|
