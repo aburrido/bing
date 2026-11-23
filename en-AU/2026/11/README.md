@@ -23,3 +23,4 @@
 202611200800|Megaptera|Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)|Info|![](/en-AU/2026/11/202611200800Megaptera.jpg)|
 202611210800|RedNice|Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)|Info|![](/en-AU/2026/11/202611210800RedNice.jpg)|
 202611220800|GreenIceberg|Icebergs, Ilulissat, Greenland (© James Yu/Getty Images)|Info|![](/en-AU/2026/11/202611220800GreenIceberg.jpg)|
+202611230800|FibonacciFern|Fiddlehead fern (© Reza Saputra/Getty Images)|Info|![](/en-AU/2026/11/202611230800FibonacciFern.jpg)|
