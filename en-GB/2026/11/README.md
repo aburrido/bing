@@ -23,3 +23,4 @@
 202611210000|RedNice|Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)|Terracotta dreams|![](/en-GB/2026/11/202611210000RedNice.jpg)|
 202611220000|JustaHermitage|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)|Shelter among the waves|![](/en-GB/2026/11/202611220000JustaHermitage.jpg)|
 202611230000|FibonacciFern|Fiddlehead fern (© Reza Saputra/Getty Images)|Geometry in nature|![](/en-GB/2026/11/202611230000FibonacciFern.jpg)|
+202611240000|CairngormsSquirrel|Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/en-GB/2026/11/202611240000CairngormsSquirrel.jpg)|

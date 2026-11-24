@@ -23,3 +23,4 @@
 202611202300|RedNice|Nizza, Provence-Alpes-Côte d'Azur, Frankreich (© Siripong Kaewla-iad/Getty Images)|Ein Traum aus Terrakotta|![](/de-DE/2026/11/202611202300RedNice.jpg)|
 202611212300|JustaHermitage|Die Kapelle und Einsiedelei von Santa Justa in Kantabrien, Spanien (© Tramont_ana/Getty Images)|Kapelle im Fels|![](/de-DE/2026/11/202611212300JustaHermitage.jpg)|
 202611222300|FibonacciFern|Farnspitzen (© Reza Saputra/Getty Images)|Geometrie in der Natur|![](/de-DE/2026/11/202611222300FibonacciFern.jpg)|
+202611232300|CairngormsSquirrel|Eichhörnchen (Sciurus vulgaris) im Cairngorms-Nationalpark, Highlands, Schottland (© Scotland: The Big Picture/Minden Pictures)|Herbstliche Tarnung|![](/de-DE/2026/11/202611232300CairngormsSquirrel.jpg)|

@@ -23,3 +23,4 @@
 202611202300|RedNice|Nice, Provence-Alpes-Côte d'Azur (© Siripong Kaewla-iad/Getty Images)|Mosaïque de terre cuite|![](/fr-FR/2026/11/202611202300RedNice.jpg)|
 202611212300|JustaHermitage|Ermitage de Santa Justa, Cantabrie, Espagne (© Tramont_ana/Getty Images)|Refuge au milieu des vagues|![](/fr-FR/2026/11/202611212300JustaHermitage.jpg)|
 202611222300|FibonacciFern|Pousse de fougère (© Reza Saputra/Getty Images)|Géométrie au naturel|![](/fr-FR/2026/11/202611222300FibonacciFern.jpg)|
+202611232300|CairngormsSquirrel|Écureuil roux dans le parc national des Cairngorms, Highlands, Écosse (© Scotland: The Big Picture/Minden Pictures)|Camouflage d’automne|![](/fr-FR/2026/11/202611232300CairngormsSquirrel.jpg)|
