@@ -24,3 +24,4 @@
 202611211600|JustaHermitage|西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)|海浪间的庇护所|![](/zh-CN/2026/11/202611211600JustaHermitage.jpg)|
 202611221600|FibonacciFern|蕨类植物的卷曲嫩叶 (© Reza Saputra/Getty Images)|自然中的几何之美|![](/zh-CN/2026/11/202611221600FibonacciFern.jpg)|
 202611231600|CairngormsSquirrel|红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)|秋日的保护色|![](/zh-CN/2026/11/202611231600CairngormsSquirrel.jpg)|
+202611241600|SunsetPoint|日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)|美国西南部的一场雪|![](/zh-CN/2026/11/202611241600SunsetPoint.jpg)|
