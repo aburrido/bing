@@ -25,3 +25,4 @@
 202611220500|JustaHermitage|Chapelle et l’ermitage de Santa Justa, Cantabrie, Espagne (© Tramont_ana/Getty Images)|Un refuge parmi les vagues|![](/fr-CA/2026/11/202611220500JustaHermitage.jpg)|
 202611230500|FibonacciFern|Tête de violon (© Reza Saputra/Getty Images)|La géométrie de la nature|![](/fr-CA/2026/11/202611230500FibonacciFern.jpg)|
 202611240500|CairngormsSquirrel|Écureuil roux dans le parc national des Cairngorms, Highlands, Écosse (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/fr-CA/2026/11/202611240500CairngormsSquirrel.jpg)|
+202611250500|SunsetPoint|Sunset Point, Parc national Bryce Canyon, Utah (© Colin D. Young/Alamy)|Chute de neige dans le Sud-Ouest|![](/fr-CA/2026/11/202611250500SunsetPoint.jpg)|

@@ -25,3 +25,4 @@
 202611220800|JustaHermitage|The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)|Shelter among the waves|![](/en-US/2026/11/202611220800JustaHermitage.jpg)|
 202611230800|FibonacciFern|Fiddlehead fern (© Reza Saputra/Getty Images)|Geometry in nature|![](/en-US/2026/11/202611230800FibonacciFern.jpg)|
 202611240800|CairngormsSquirrel|Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/en-US/2026/11/202611240800CairngormsSquirrel.jpg)|
+202611250800|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)|A southwestern snowfall|![](/en-US/2026/11/202611250800SunsetPoint.jpg)|
