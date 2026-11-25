@@ -25,3 +25,4 @@
 202611221500|FibonacciFern|シダの若芽 (© Reza Saputra/Getty Images)|自然が描く幾何学模様|![](/ja-JP/2026/11/202611221500FibonacciFern.jpg)|
 202611231500|CairngormsSquirrel|キタリス、ケアンゴームズ国立公園、ハイランド地方、スコットランド (© Scotland: The Big Picture/Minden Pictures)|紅葉にまぎれて|![](/ja-JP/2026/11/202611231500CairngormsSquirrel.jpg)|
 202611241500|SunsetPoint|サンセット・ポイント、ブライスキャニオン国立公園、ユタ州 (© Colin D. Young/Alamy)|赤い奇岩の雪化粧|![](/ja-JP/2026/11/202611241500SunsetPoint.jpg)|
+202611251500|RFHilo|ワイルク川のレインボー・フォールズ、ヒロ、ハワイ州、アメリカ (© Peter Unger/Getty Images)|虹が舞い降りる滝|![](/ja-JP/2026/11/202611251500RFHilo.jpg)|

@@ -25,3 +25,4 @@
 202611221600|FibonacciFern|蕨类植物的卷曲嫩叶 (© Reza Saputra/Getty Images)|自然中的几何之美|![](/zh-CN/2026/11/202611221600FibonacciFern.jpg)|
 202611231600|CairngormsSquirrel|红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)|秋日的保护色|![](/zh-CN/2026/11/202611231600CairngormsSquirrel.jpg)|
 202611241600|SunsetPoint|日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)|美国西南部的一场雪|![](/zh-CN/2026/11/202611241600SunsetPoint.jpg)|
+202611251600|RFHilo|怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)|彩虹落下的地方|![](/zh-CN/2026/11/202611251600RFHilo.jpg)|
