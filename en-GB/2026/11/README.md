@@ -25,3 +25,4 @@
 202611230000|FibonacciFern|Fiddlehead fern (© Reza Saputra/Getty Images)|Geometry in nature|![](/en-GB/2026/11/202611230000FibonacciFern.jpg)|
 202611240000|CairngormsSquirrel|Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/en-GB/2026/11/202611240000CairngormsSquirrel.jpg)|
 202611250000|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah, USA (© Colin D. Young/Alamy)|When snow meets red rock|![](/en-GB/2026/11/202611250000SunsetPoint.jpg)|
+202611260000|RFHilo|Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Where rainbows fall|![](/en-GB/2026/11/202611260000RFHilo.jpg)|

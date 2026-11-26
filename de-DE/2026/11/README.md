@@ -25,3 +25,4 @@
 202611222300|FibonacciFern|Farnspitzen (© Reza Saputra/Getty Images)|Geometrie in der Natur|![](/de-DE/2026/11/202611222300FibonacciFern.jpg)|
 202611232300|CairngormsSquirrel|Eichhörnchen (Sciurus vulgaris) im Cairngorms-Nationalpark, Highlands, Schottland (© Scotland: The Big Picture/Minden Pictures)|Herbstliche Tarnung|![](/de-DE/2026/11/202611232300CairngormsSquirrel.jpg)|
 202611242300|SunsetPoint|Sunset Point, Bryce-Canyon-Nationalpark, Utah (© Colin D. Young/Alamy)|Schneefall im Südwesten|![](/de-DE/2026/11/202611242300SunsetPoint.jpg)|
+202611252300|RFHilo|Rainbow Falls am Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Wo Regenbogen fallen|![](/de-DE/2026/11/202611252300RFHilo.jpg)|
