@@ -26,3 +26,4 @@
 202611230500|FibonacciFern|Tête de violon (© Reza Saputra/Getty Images)|La géométrie de la nature|![](/fr-CA/2026/11/202611230500FibonacciFern.jpg)|
 202611240500|CairngormsSquirrel|Écureuil roux dans le parc national des Cairngorms, Highlands, Écosse (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/fr-CA/2026/11/202611240500CairngormsSquirrel.jpg)|
 202611250500|SunsetPoint|Sunset Point, Parc national Bryce Canyon, Utah (© Colin D. Young/Alamy)|Chute de neige dans le Sud-Ouest|![](/fr-CA/2026/11/202611250500SunsetPoint.jpg)|
+202611260500|RFHilo|Rainbow Falls sur la rivière Wailuku, Hilo, Hawaii, États-Unis (© Peter Unger/Getty Images)|Là où tombent les arcs-en-ciel|![](/fr-CA/2026/11/202611260500RFHilo.jpg)|

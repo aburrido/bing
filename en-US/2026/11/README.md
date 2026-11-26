@@ -26,3 +26,4 @@
 202611230800|FibonacciFern|Fiddlehead fern (© Reza Saputra/Getty Images)|Geometry in nature|![](/en-US/2026/11/202611230800FibonacciFern.jpg)|
 202611240800|CairngormsSquirrel|Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/en-US/2026/11/202611240800CairngormsSquirrel.jpg)|
 202611250800|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)|A southwestern snowfall|![](/en-US/2026/11/202611250800SunsetPoint.jpg)|
+202611260800|WildTom|Two wild tom turkeys (© davidsdodd/Getty Images)|Turkey twins|![](/en-US/2026/11/202611260800WildTom.jpg)|
