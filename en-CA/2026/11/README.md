@@ -27,3 +27,4 @@
 202611240500|CairngormsSquirrel|Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Fall camouflage|![](/en-CA/2026/11/202611240500CairngormsSquirrel.jpg)|
 202611250500|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah, USA (© Colin D. Young/Alamy)|When snow meets red rock|![](/en-CA/2026/11/202611250500SunsetPoint.jpg)|
 202611260500|RFHilo|Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Where rainbows fall|![](/en-CA/2026/11/202611260500RFHilo.jpg)|
+202611270500|FaceCanyon|Butte at sunset, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)|Ribbons of grey and gold|![](/en-CA/2026/11/202611270500FaceCanyon.jpg)|

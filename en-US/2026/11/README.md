@@ -27,3 +27,4 @@
 202611240800|CairngormsSquirrel|Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)|Autumnal camouflage|![](/en-US/2026/11/202611240800CairngormsSquirrel.jpg)|
 202611250800|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)|A southwestern snowfall|![](/en-US/2026/11/202611250800SunsetPoint.jpg)|
 202611260800|WildTom|Two wild tom turkeys (© davidsdodd/Getty Images)|Turkey twins|![](/en-US/2026/11/202611260800WildTom.jpg)|
+202611270800|FaceCanyon|Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)|Ribbons of gray and gold|![](/en-US/2026/11/202611270800FaceCanyon.jpg)|
