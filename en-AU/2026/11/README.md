@@ -28,3 +28,4 @@
 202611250800|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah, USA (© Colin D. Young/Alamy)|Info|![](/en-AU/2026/11/202611250800SunsetPoint.jpg)|
 202611260800|RFHilo|Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Info|![](/en-AU/2026/11/202611260800RFHilo.jpg)|
 202611270800|FaceCanyon|Butte at sunset, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)|Info|![](/en-AU/2026/11/202611270800FaceCanyon.jpg)|
+202611280800|VltavaPrague|Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)|Info|![](/en-AU/2026/11/202611280800VltavaPrague.jpg)|

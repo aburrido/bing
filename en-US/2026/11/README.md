@@ -28,3 +28,4 @@
 202611250800|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)|A southwestern snowfall|![](/en-US/2026/11/202611250800SunsetPoint.jpg)|
 202611260800|WildTom|Two wild tom turkeys (© davidsdodd/Getty Images)|Turkey twins|![](/en-US/2026/11/202611260800WildTom.jpg)|
 202611270800|FaceCanyon|Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)|Ribbons of gray and gold|![](/en-US/2026/11/202611270800FaceCanyon.jpg)|
+202611280800|VltavaPrague|Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)|Bridges through time|![](/en-US/2026/11/202611280800VltavaPrague.jpg)|
