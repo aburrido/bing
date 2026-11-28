@@ -27,3 +27,4 @@
 202611250000|SunsetPoint|Sunset Point, Bryce Canyon National Park, Utah, USA (© Colin D. Young/Alamy)|When snow meets red rock|![](/en-GB/2026/11/202611250000SunsetPoint.jpg)|
 202611260000|RFHilo|Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Where rainbows fall|![](/en-GB/2026/11/202611260000RFHilo.jpg)|
 202611270000|FaceCanyon|Butte at sunset, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)|Ribbons of grey and gold|![](/en-GB/2026/11/202611270000FaceCanyon.jpg)|
+202611280000|VltavaPrague|Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)|Bridges through time|![](/en-GB/2026/11/202611280000VltavaPrague.jpg)|

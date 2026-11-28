@@ -27,3 +27,4 @@
 202611242300|SunsetPoint|Sunset Point, parc national de Bryce Canyon, Utah, États-Unis (© Colin D. Young/Alamy)|Cheminées de fées enneigées|![](/fr-FR/2026/11/202611242300SunsetPoint.jpg)|
 202611252300|RFHilo|Cascades Rainbow sur la rivière Wailuku, Hilo, Hawaï, États-Unis (© Peter Unger/Getty Images)|Là où tombent les arcs-en-ciel|![](/fr-FR/2026/11/202611252300RFHilo.jpg)|
 202611262300|FaceCanyon|Coucher du soleil sur Face Canyon, Lac Powell, Utah, États-Unis (© Jeff Foott/Minden)|Rubans gris et or|![](/fr-FR/2026/11/202611262300FaceCanyon.jpg)|
+202611272300|VltavaPrague|Vieille ville et rivière Vltava, Prague, Tchéquie (© Lara_Uhryn/Getty Images)|De pont en pont|![](/fr-FR/2026/11/202611272300VltavaPrague.jpg)|

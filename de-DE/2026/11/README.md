@@ -27,3 +27,4 @@
 202611242300|SunsetPoint|Sunset Point, Bryce-Canyon-Nationalpark, Utah (© Colin D. Young/Alamy)|Schneefall im Südwesten|![](/de-DE/2026/11/202611242300SunsetPoint.jpg)|
 202611252300|RFHilo|Rainbow Falls am Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Wo Regenbogen fallen|![](/de-DE/2026/11/202611252300RFHilo.jpg)|
 202611262300|FaceCanyon|Butte bei Sonnenuntergang, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)|Streifen in Grau und Gold|![](/de-DE/2026/11/202611262300FaceCanyon.jpg)|
+202611272300|VltavaPrague|Altstadt und Moldau, Prag, Tschechien (© Lara_Uhryn/Getty Images)|Brücken in die Vergangenheit|![](/de-DE/2026/11/202611272300VltavaPrague.jpg)|
