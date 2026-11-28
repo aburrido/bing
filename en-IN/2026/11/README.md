@@ -28,3 +28,4 @@
 202611251830|RFHilo|Rainbow Falls on the Wailuku River, Hilo, Hawaii, USA (© Peter Unger/Getty Images)|Where rainbows fall|![](/en-IN/2026/11/202611251830RFHilo.jpg)|
 202611261830|FaceCanyon|Butte at sunset, Face Canyon, Lake Powell, Utah, USA (© Jeff Foott/Minden)|Ribbons of grey and gold|![](/en-IN/2026/11/202611261830FaceCanyon.jpg)|
 202611271830|VltavaPrague|Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)|Bridges through time|![](/en-IN/2026/11/202611271830VltavaPrague.jpg)|
+202611281830|SommaroyBridge|Sommarøy Bridge from above, Tromso, Norway (© Roberto Moiola/Sysaworld/Getty Images)|Skimming the sea|![](/en-IN/2026/11/202611281830SommaroyBridge.jpg)|

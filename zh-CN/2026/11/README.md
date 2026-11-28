@@ -28,3 +28,4 @@
 202611251600|RFHilo|怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)|彩虹落下的地方|![](/zh-CN/2026/11/202611251600RFHilo.jpg)|
 202611261600|FaceCanyon|夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国 (© Jeff Foott/Minden)|灰金交织的峡谷|![](/zh-CN/2026/11/202611261600FaceCanyon.jpg)|
 202611271600|VltavaPrague|捷克布拉格老城区与伏尔塔瓦河 (© Lara_Uhryn/Getty Images)|跨越时光的桥梁|![](/zh-CN/2026/11/202611271600VltavaPrague.jpg)|
+202611281600|SommaroyBridge|俯瞰挪威特罗姆瑟的索马若伊大桥 (© Roberto Moiola/Sysaworld/Getty Images)|掠过海面|![](/zh-CN/2026/11/202611281600SommaroyBridge.jpg)|

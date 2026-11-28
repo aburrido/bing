@@ -28,3 +28,4 @@
 202611251500|RFHilo|ワイルク川のレインボー・フォールズ、ヒロ、ハワイ州、アメリカ (© Peter Unger/Getty Images)|虹が舞い降りる滝|![](/ja-JP/2026/11/202611251500RFHilo.jpg)|
 202611261500|FaceCanyon|夕暮れの岩山、フェイス・キャニオン、パウエル湖、ユタ州、アメリカ (© Jeff Foott/Minden)|灰色と黄金色が織りなす風景|![](/ja-JP/2026/11/202611261500FaceCanyon.jpg)|
 202611271500|VltavaPrague|旧市街とヴルタヴァ川、プラハ、チェコ (© Lara_Uhryn/Getty Images)|歴史をつなぐ橋|![](/ja-JP/2026/11/202611271500VltavaPrague.jpg)|
+202611281500|SommaroyBridge|上空から見たソマロイ橋、トロムソ、ノルウェー (© Roberto Moiola/Sysaworld/Getty Images)|海を渡る一本の橋|![](/ja-JP/2026/11/202611281500SommaroyBridge.jpg)|
